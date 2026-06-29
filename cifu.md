@@ -1,60 +1,58 @@
-# 多国留学生昆明共庆国际中文日：中文点亮多彩梦想
+# 黑龙江第45届爱鸟周启动 东林校地联动守护飞羽精灵
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网昆明4月23日电 (记者 韩帅南)舞龙舞狮翻腾跃动，武术招式刚柔相济，中文歌声此起彼伏……23日，来自越南、泰国、印度等国家的留学生齐聚云南师范大学，用各自的方式为国际中文日“庆生”，让校园里洋溢着浓浓的“中国味”。 当日，2026年“国际中文日”暨“澜湄周”庆祝活动在云南师范大学启幕。来自云南民族大学、昆明医科大学等高校的中外师生齐聚一堂，在中外文化艺术展演和中华文化、
+中新网伊春5月11日电(高春梅 吕新)“不掏鸟窝、不捡鸟蛋、不伤害野生鸟类，主动制止伤害鸟儿的行为……”5月10日，在小兴安岭腹地的东北林业大学凉水实验林场，大箐山县带岭小学学生孙建琦的稚嫩承诺，拉开了黑龙江省第45届爱鸟周系列活动的序幕。 5月11日至17日为黑龙江省爱鸟周。连日来，东北林业大学联动伊春市、大箐山县多部门，携手当地中小学生、高校志愿者，开展沉浸式护鸟行动，为候
 
 ## 正文
 
-中新网昆明4月23日电 (记者 韩帅南)舞龙舞狮翻腾跃动，武术招式刚柔相济，中文歌声此起彼伏……23日，来自越南、泰国、印度等国家的留学生齐聚云南师范大学，用各自的方式为国际中文日“庆生”，让校园里洋溢着浓浓的“中国味”。
+中新网伊春5月11日电(高春梅 吕新)“不掏鸟窝、不捡鸟蛋、不伤害野生鸟类，主动制止伤害鸟儿的行为……”5月10日，在小兴安岭腹地的东北林业大学凉水实验林场，大箐山县带岭小学学生孙建琦的稚嫩承诺，拉开了黑龙江省第45届爱鸟周系列活动的序幕。
 
-当日，2026年“国际中文日”暨“澜湄周”庆祝活动在云南师范大学启幕。
+5月11日至17日为黑龙江省爱鸟周。
 
-来自云南民族大学、昆明医科大学等高校的中外师生齐聚一堂，在中外文化艺术展演和中华文化、澜湄文化体验游园活动中，沉浸式感受中华文化与澜湄风情。
+连日来，东北林业大学联动伊春市、大箐山县多部门，携手当地中小学生、高校志愿者，开展沉浸式护鸟行动，为候鸟迁徙、栖息撑起生态“守护伞”。
 
-活动在精彩的舞龙舞狮表演中拉开序幕。
+凉水地处东亚－澳大利西亚候鸟迁飞通道，是候鸟重要停歇繁殖地，现已监测鸟类200余种，更是珍稀鸟类中华秋沙鸭的重要栖息地。
 
-随后，云南民族大学越南留学生阮秀珍、印度留学生夏马尔等带来的武术《东方武魂·太极韵》刚柔并济，引来阵阵喝彩。
+活动现场，“万类霜天竞自由”生态文化石碑正式揭幕，“候鸟驿站”同步揭牌亮相，成为公众科普护鸟知识的全新阵地。
 
-昆明医科大学巴基斯坦留学生韩明升送上中文歌曲《朋友》独唱，唱出跨越国界的深情。
+在“归巢林”里，大学生志愿者与小学生们携手，将亲手制作的人工鸟巢逐一悬挂枝头，为北归候鸟搭建温馨家园。
 
-最后，由来自缅甸、越南、印度尼西亚等国留学生组成的云南师范大学“和声国际”合唱团演唱《同一首歌》，将开幕式推向高潮。
+现场还聘任8名学生为“护鸟小使者”，他们将化身生态宣传员，把爱鸟护鸟理念传递到更多地方。
 
-来自乌克兰的19岁留学生尼科身着帅气的新中式服装与搭档共同完成开幕式主持工作，他略显紧张又十分激动，“能站上舞台是对我中文学习成果最好的证明。
+除林场主场活动外，该校爱鸟协会同步在哈尔滨开展科普宣传，通过鸟类标本展示、趣味互动讲解，向民众普及鸟类保护知识。
 
 ## 相关推荐
 
-- 2026-06-29 13:38 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 13:43 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 13:27 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 13:34 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 13:29 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 13:32 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 13:40 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 13:24 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 13:42 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 13:46 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 13:41 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 13:23 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 13:44 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 13:44 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 13:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 13:36 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 13:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 13:45 - [F1奥地利大奖赛正赛集锦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 13:48 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 13:43 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 13:26 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 13:42 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 13:50 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 13:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 13:26 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 13:45 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:46 - [向佑说向佐是一生依靠](http://www.blog.minike.top/Article/details/922564149823.shtml)
-- 2026-06-29 13:21 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/64120043120.shtml)
-- 2026-06-29 13:40 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/09825821.shtml)
-- 2026-06-29 13:33 - [记者率先试乘西十高铁](https://www.share.minike.top/Article/details/69653058334.shtml)
-- 2026-06-29 13:41 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/69934531245.shtml)
-- 2026-06-29 13:39 - [退休化学教授帮医药研发人员制毒](https://www.blog.minike.top/Article/details/87499810258.shtml)
-- 2026-06-29 13:19 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/904962.shtml)
-- 2026-06-29 13:42 - [王楚钦周启豪爆分](http://www.share.minike.top/Article/details/890781189.shtml)
-- 2026-06-29 13:34 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/36010648980.shtml)
-- 2026-06-29 13:45 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/220990712937.shtml)
-- 2026-06-29 13:36 - [航空运输旅客服务质量国标将实施](http://www.share.kurohicncr.top/Article/details/9388306425.shtml)
-- 2026-06-29 13:24 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/758483361032.shtml)
-- 2026-06-29 13:20 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/81521760045.shtml)
-- 2026-06-29 13:20 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/98565755.shtml)
-- 2026-06-29 13:34 - [严浩翔FIY断层第一](https://www.share.kurohicncr.top/Article/details/06208.shtml)
+- 2026-06-29 13:40 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/228811016.shtml)
+- 2026-06-29 13:53 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/0837245187.shtml)
+- 2026-06-29 13:42 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/41960.shtml)
+- 2026-06-29 13:42 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/37950814675.shtml)
+- 2026-06-29 13:39 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/33105218.shtml)
+- 2026-06-29 13:50 - [周生如故](https://www.share.minike.top/Article/details/699234418290.shtml)
+- 2026-06-29 13:50 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/743080413.shtml)
+- 2026-06-29 13:43 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/942399.shtml)
+- 2026-06-29 13:34 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/960751663.shtml)
+- 2026-06-29 13:44 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.share.kurohicncr.top/Article/details/62427891.shtml)
+- 2026-06-29 13:30 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/581547269308.shtml)
+- 2026-06-29 13:30 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/949518451.shtml)
+- 2026-06-29 13:27 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/63099737543.shtml)
+- 2026-06-29 13:37 - [实习期把公司领导开除了](http://www.blog.minike.top/Article/details/98231.shtml)
+- 2026-06-29 13:44 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/6509393167.shtml)

@@ -1,59 +1,57 @@
-# 涉未成年人犯罪“双下降”背后的民主法治答卷
+# 美联储：正密切关注估值过高和金融杠杆等风险因素
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-从代表建议“办理”到系统施策“治理”(坚持和完善人民代表大会制度) ——涉未成年人犯罪“双下降”背后的民主法治答卷 本报记者 倪弋 今年《最高人民检察院工作报告》显示，2025年检察机关起诉侵害未成年人犯罪和受理审查起诉未成年人犯罪同比分别下降2.2%和9.8%，为近5年来首次“双下降”。“双下降”背后，是各有关方面协同发力的结果。全国人大代表建议在其中也发挥了重要作用。一条从
+中新社纽约5月8日电 美国联邦储备委员会8日发布的半年度金融稳定报告显示，美联储正密切关注资产估值过高和金融杠杆等风险因素。 美联储在报告中称，美国股票价格处于历史高位，而股票风险溢价则接近低位，这意味着投资者承担较高风险却未必能获得相应回报。此外，许多对冲基金用自身债务为其持仓融资，金融行业的杠杆率引发越来越多投资者担忧。 报告称，私募信贷作为美国贷款市场快速扩张的领域，正日
 
 ## 正文
 
-从代表建议“办理”到系统施策“治理”(坚持和完善人民代表大会制度) ——涉未成年人犯罪“双下降”背后的民主法治答卷 本报记者 倪弋 今年《最高人民检察院工作报告》显示，2025年检察机关起诉侵害未成年人犯罪和受理审查起诉未成年人犯罪同比分别下降2.2%和9.8%，为近5年来首次“双下降”。
+中新社纽约5月8日电 美国联邦储备委员会8日发布的半年度金融稳定报告显示，美联储正密切关注资产估值过高和金融杠杆等风险因素。
 
-“双下降”背后，是各有关方面协同发力的结果。
+美联储在报告中称，美国股票价格处于历史高位，而股票风险溢价则接近低位，这意味着投资者承担较高风险却未必能获得相应回报。
 
-全国人大代表建议在其中也发挥了重要作用。
+此外，许多对冲基金用自身债务为其持仓融资，金融行业的杠杆率引发越来越多投资者担忧。
 
-一条从代表建议“提出”到“办理”再到系统施策“治理”的全过程人民民主制度链条，清晰而有力。
+报告称，私募信贷作为美国贷款市场快速扩张的领域，正日益取代部分传统银行业务。
 
-在2025年全国两会上，全国人大代表、中共安徽省委党史研究院(省地方志研究院)二级教授吴梅芳提出《关于履行检察职能加强未成年人犯罪预防和治理工作的建议》(以下简称《建议》)。
+自去年年中以来，随着一些私募信贷机构出现限制赎回等违约事件，投资者情绪变得越来越负面。
 
-《建议》被全国人大常委会委员长会议确定为重点督办建议，由最高人民检察院主办，中央网信办、教育部、公安部、共青团中央协办。
+报告称，尽管投资者担忧私募信贷基金面临赎回压力，但研究人员指出，2026年第一季度这些基金的资金流出仅小幅高于新资金流入，整体赎回请求仍处于可控范围。
 
-《建议》及其办理实践，被全国人大常委会办公厅和代表工作委员会列为高质量办理代表建议典型案例之一。
+报告还提到人工智能和地缘政治问题可能带来的风险。
 
-一份沉甸甸的人大代表建议 《建议》的产生，源于一名教师的深切忧思。
+四分之三的受访者将地缘政治风险列为首要担忧，约70%的受访者认为石油危机与战争有关。
 
 ## 相关推荐
 
-- 2026-06-29 13:21 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 13:47 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 13:44 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 13:23 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 13:23 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 13:24 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 13:45 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 13:35 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 13:43 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 13:18 - [双高胎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 13:26 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 13:36 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 13:26 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 13:47 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 13:25 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 13:49 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 13:36 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 13:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 13:53 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 13:53 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 13:37 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 13:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 13:40 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 13:34 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:19 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/5904926.shtml)
-- 2026-06-29 13:20 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/3338325076.shtml)
-- 2026-06-29 13:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/7102834216.shtml)
-- 2026-06-29 13:31 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.minike.top/Article/details/43372.shtml)
-- 2026-06-29 13:27 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/241236542836.shtml)
-- 2026-06-29 13:39 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.blog.kurohicncr.top/Article/details/9390823.shtml)
-- 2026-06-29 13:25 - [男子偶遇婴儿被锁车内大哭挣扎](https://www.share.kurohicncr.top/Article/details/963761.shtml)
-- 2026-06-29 13:28 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.kurohicncr.top/Article/details/452712771108.shtml)
-- 2026-06-29 13:37 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/6695659514.shtml)
-- 2026-06-29 13:25 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/68150.shtml)
-- 2026-06-29 13:18 - [欧洲超1300例超额死亡与高温有关](https://www.share.kurohicncr.top/Article/details/173810991182.shtml)
-- 2026-06-29 13:47 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/97531999868.shtml)
-- 2026-06-29 13:44 - [欧委会总部只给高层开空调](http://www.blog.minike.top/Article/details/709986310.shtml)
-- 2026-06-29 13:24 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/38958116.shtml)
-- 2026-06-29 13:24 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/697163805396.shtml)
+- 2026-06-29 13:44 - [金牌调解](https://www.share.kurohicncr.top/Article/details/59730.shtml)
+- 2026-06-29 13:28 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/0221645545.shtml)
+- 2026-06-29 13:27 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/762480.shtml)
+- 2026-06-29 13:52 - [加拿大92分钟绝杀](https://www.share.minike.top/Article/details/393202217639.shtml)
+- 2026-06-29 13:40 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/090925913313.shtml)
+- 2026-06-29 13:39 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/38425241.shtml)
+- 2026-06-29 13:51 - [记者率先试乘西十高铁](https://www.blog.kurohicncr.top/Article/details/2432549192.shtml)
+- 2026-06-29 13:26 - [第一炉香](http://www.share.minike.top/Article/details/8235658.shtml)
+- 2026-06-29 13:24 - [【独家】牧神记 第89集 明心](https://www.blog.minike.top/Article/details/6344687.shtml)
+- 2026-06-29 13:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/4831776613.shtml)
+- 2026-06-29 13:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/872311.shtml)
+- 2026-06-29 13:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/7229989828.shtml)
+- 2026-06-29 13:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/83572.shtml)
+- 2026-06-29 13:24 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/9000864.shtml)
+- 2026-06-29 13:36 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/65484198.shtml)

@@ -1,61 +1,57 @@
-# 券商并购提速，板块或迎中长期关注契机
+# 中国黄金协会：Q1黄金消费量同比增4.41% 黄金ETF增仓量同比增115%
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-近期有报道称，两家券商拟进行深度整合。券商整合再提速，如何看待券商板块关注机会？ （资料参考：中国经营报，2026.4.20） 一、并购潮延续，行业格局持续优化 本次收购是2026年第2起券商合并案例，2024年以来第9起重要合并案例。纵观当前券商并购热潮，三大主流路径清晰可见，行业格局正从过去的“一超多强，分散竞争”加速向“头部引领+特色细分”的新生态演进。 一是头部券商强强
+来源：智通财经网 据中国黄金协会最新统计数据显示，2026年一季度，我国黄金消费量303.292吨，同比增长4.41%。其中：黄金首饰84.620吨，同比下降37.10%；金条及金币202.062吨，同比增长46.40%；工业及其他用金16.610吨，同比下降7.43%。 受国际金价高位运行且大幅波动的影响，国内黄金首饰消费持续承压，黄金首饰消费量继续下滑。与此同时，黄金投资需
 
 ## 正文
 
-近期有报道称，两家券商拟进行深度整合。
+来源：智通财经网 据中国黄金协会最新统计数据显示，2026年一季度，我国黄金消费量303.292吨，同比增长4.41%。
 
-券商整合再提速，如何看待券商板块关注机会？
+其中：黄金首饰84.620吨，同比下降37.10%；金条及金币202.062吨，同比增长46.40%；工业及其他用金16.610吨，同比下降7.43%。
 
-（资料参考：中国经营报，2026.4.20） 一、并购潮延续，行业格局持续优化 本次收购是2026年第2起券商合并案例，2024年以来第9起重要合并案例。
+受国际金价高位运行且大幅波动的影响，国内黄金首饰消费持续承压，黄金首饰消费量继续下滑。
 
-纵观当前券商并购热潮，三大主流路径清晰可见，行业格局正从过去的“一超多强，分散竞争”加速向“头部引领+特色细分”的新生态演进。
+与此同时，黄金投资需求强劲，金条、金币成为市场热门投资品类，银行销售渠道金条销量大幅增长。
 
-一是头部券商强强联合，打造具有国际影响力的一流投行。
+此外，高金价推高了工业企业用金成本，黄金的需求也随之出现一定程度的下降。
 
-比如某头部券商于2025年12月披露重大资产重组预案，拟通过换股吸收合并另外两家券商，开创了“三合一”重组新模式，印证了国资体系通过并购重组加快建设一流投资银行的路线图。
+2026年一季度，国内原料产金81.065吨，同比减少6.178吨，同比下降7.08%；进口原料产金55.165吨，同比增加1.578吨，同比增长2.94%。
 
-二是区域国资整合，打造本土龙头券商。
+国内原料和进口原料共计生产黄金136.230吨，同比减少4.600吨，同比下降3.27%。
 
-以多家区域国资券商收购同区域同业机构为代表，区域内的国资券商正在加速整合。
+2026年一季度，黄金行业矿山与冶炼厂集中开展安全检查，对各类生产设施进行隐患排查，部分企业依规停产检修。
 
 ## 相关推荐
 
-- 2026-06-29 13:39 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 13:32 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 13:30 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 13:37 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 13:23 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 13:39 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 13:32 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 13:31 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 13:43 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 13:43 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 13:40 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 13:45 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 13:36 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 13:29 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 13:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 13:43 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 13:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 13:45 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 13:24 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 13:41 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 13:46 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 13:52 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 13:48 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 13:31 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 13:31 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 13:25 - [多只A股发布股价异动公告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:43 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/6810190723.shtml)
-- 2026-06-29 13:25 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/410081.shtml)
-- 2026-06-29 13:39 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/543218414138.shtml)
-- 2026-06-29 13:28 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/351677.shtml)
-- 2026-06-29 13:25 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/5528317.shtml)
-- 2026-06-29 13:35 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/95977460698.shtml)
-- 2026-06-29 13:19 - [急先锋](http://www.share.kurohicncr.top/Article/details/80211535995.shtml)
-- 2026-06-29 13:37 - [一生一世](http://www.share.kurohicncr.top/Article/details/983128.shtml)
-- 2026-06-29 13:45 - [三都主：淘汰赛我会支持日本](https://www.share.minike.top/Article/details/40255.shtml)
-- 2026-06-29 13:35 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/5465799162.shtml)
-- 2026-06-29 13:42 - [农发行总行专家委员会委员杜晓力被查](https://www.share.kurohicncr.top/Article/details/053365585.shtml)
-- 2026-06-29 13:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/4915320.shtml)
-- 2026-06-29 13:19 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/06572140442.shtml)
-- 2026-06-29 13:31 - [委内瑞拉地震已致1450死3150伤](https://www.blog.kurohicncr.top/Article/details/5442207434.shtml)
-- 2026-06-29 13:41 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/720103588.shtml)
+- 2026-06-29 13:43 - [《昨夜将至》为何是悬疑黑马](https://www.share.kurohicncr.top/Article/details/775708078076.shtml)
+- 2026-06-29 13:29 - [世界杯用球成部分门将噩梦](http://www.share.kurohicncr.top/Article/details/32428.shtml)
+- 2026-06-29 13:38 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/598267.shtml)
+- 2026-06-29 13:40 - [恋与深空底线不该被娱乐化](http://www.blog.minike.top/Article/details/928047183912.shtml)
+- 2026-06-29 13:24 - [唐艺昕女儿接唐艺昕回家](http://www.share.kurohicncr.top/Article/details/565892023.shtml)
+- 2026-06-29 13:33 - [水利部部署南方地区暴雨洪水防御工作](https://www.share.kurohicncr.top/Article/details/419767719857.shtml)
+- 2026-06-29 13:26 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/57258273048.shtml)
+- 2026-06-29 13:48 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/766170.shtml)
+- 2026-06-29 13:51 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/5213336.shtml)
+- 2026-06-29 13:24 - [和阿根廷球员家属一起看球](http://www.blog.minike.top/Article/details/570888305.shtml)
+- 2026-06-29 13:44 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.kurohicncr.top/Article/details/8720622.shtml)
+- 2026-06-29 13:43 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/131508.shtml)
+- 2026-06-29 13:52 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.minike.top/Article/details/562784517.shtml)
+- 2026-06-29 13:41 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/18362.shtml)
+- 2026-06-29 13:29 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/53943753.shtml)

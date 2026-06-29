@@ -1,60 +1,60 @@
-# 沪上阿姨午前逆势涨超7% 股东自愿延长禁售期彰显发展信心
+# 时政微观察丨为民造福，坚持当“老百姓的官”
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-沪上阿姨（02589）最高涨超11%，本月累计涨幅超80%。截至发稿，股价上涨7.05%，报141.30港元，成交额1.32亿港元。 沪上阿姨近期宣布，控股股东阵营在原禁售期基础上延长6个月至2026年11月7日，其他首发前股东延长3个月至2026年8月7日。公告称，禁售期延长表明前述股东对该公司的未来前景及长期价值充满信心，且不排除基于业务发展情况进一步延长。2025年，公司
+政绩之本，在于为民。 中国共产党把为民办事、为民造福作为最重要的政绩，把为老百姓办了多少好事实事作为检验政绩的重要标准。 当前，树立和践行正确政绩观学习教育正在深入扎实开展，为民造福是“十六字”总要求之一。习近平总书记作出重要指示指出：“我们党是立党为公、执政为民的党，是全心全意为人民服务的党，只有不断以良好政绩推动党和国家事业发展、造福人民，才能践行好党的宗旨，也才能完成好党
 
 ## 正文
 
-沪上阿姨（02589）最高涨超11%，本月累计涨幅超80%。
+政绩之本，在于为民。
 
-截至发稿，股价上涨7.05%，报141.30港元，成交额1.32亿港元。
+中国共产党把为民办事、为民造福作为最重要的政绩，把为老百姓办了多少好事实事作为检验政绩的重要标准。
 
-沪上阿姨近期宣布，控股股东阵营在原禁售期基础上延长6个月至2026年11月7日，其他首发前股东延长3个月至2026年8月7日。
+当前，树立和践行正确政绩观学习教育正在深入扎实开展，为民造福是“十六字”总要求之一。
 
-公告称，禁售期延长表明前述股东对该公司的未来前景及长期价值充满信心，且不排除基于业务发展情况进一步延长。
+习近平总书记作出重要指示指出：“我们党是立党为公、执政为民的党，是全心全意为人民服务的党，只有不断以良好政绩推动党和国家事业发展、造福人民，才能践行好党的宗旨，也才能完成好党的历史使命。
 
-2025年，公司实现营收44.7亿元，同比增长36.0%，经调净利润5.7亿元，同比增长36.4%。
+” 《时政微观察》与你一起重温习近平总书记关于为民造福的重要论述，牢固树立和践行正确政绩观。
 
-截至去年第四季度，公司总门店数达到11449家，同比增长24.8%，其中，下半年新开门店2749家，占全年新开门店的75%以上。
+永远保持对人民的赤子之心 民心是最大的政治，决定事业兴衰成败。
 
-银河证券认为，26年公司门店扩张可期，单店经营有望保持平稳。
+2022年秋天，党的二十大闭幕后不久，习近平总书记带领新当选的二十届中共中央政治局常委来到延安瞻仰革命圣地。
 
-得益于沪上阿姨与茶瀑布成熟的门店模型，且与不断扩容的加盟群体核心需求高度契合，该行预计2026年公司门店规模将持续保持稳定且高速的扩张态势。
+总书记深情回顾：延安时期，“要求党的干部‘把屁股端端地坐在老百姓的这一面’，形成了‘只见公仆不见官’的生动局面”。
 
 ## 相关推荐
 
-- 2026-06-29 13:32 - [世界杯用球成部分门将噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 13:40 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 13:18 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 13:23 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 13:37 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 13:43 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 13:44 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 13:34 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 13:46 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 13:21 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 13:27 - [王楚钦美国大满贯晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 13:40 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 13:45 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 13:30 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 13:33 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 13:46 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 13:47 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 13:51 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 13:33 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 13:25 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 13:53 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 13:32 - [多只A股发布股价异动公告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 13:24 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 13:46 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 13:53 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 13:38 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 13:29 - [为什么6月以来北方频繁降雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 13:35 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:39 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/2765453691.shtml)
-- 2026-06-29 13:45 - [美伊同意停止互袭](http://www.share.kurohicncr.top/Article/details/469733802.shtml)
-- 2026-06-29 13:23 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/36956556.shtml)
-- 2026-06-29 13:31 - [汪东城回应45岁婚约](http://www.share.minike.top/Article/details/05582.shtml)
-- 2026-06-29 13:21 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/28743852.shtml)
-- 2026-06-29 13:34 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/083224851.shtml)
-- 2026-06-29 13:26 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/975723.shtml)
-- 2026-06-29 13:40 - [光与夜之恋](https://www.share.minike.top/Article/details/3053092788.shtml)
-- 2026-06-29 13:25 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/1002764.shtml)
-- 2026-06-29 13:22 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/46014708892.shtml)
-- 2026-06-29 13:18 - [恋与深空需直面玩家6大疑问](https://www.blog.minike.top/Article/details/98566.shtml)
-- 2026-06-29 13:43 - [手游300亿数据或被军事化运用](https://www.blog.minike.top/Article/details/139923277.shtml)
-- 2026-06-29 13:40 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/99254958.shtml)
-- 2026-06-29 13:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/53278344735.shtml)
-- 2026-06-29 13:21 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/0695324.shtml)
+- 2026-06-29 13:27 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/49491884.shtml)
+- 2026-06-29 13:39 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.kurohicncr.top/Article/details/91658895.shtml)
+- 2026-06-29 13:27 - [人民日报评“AI脸看腻了”](https://www.blog.minike.top/Article/details/391940736.shtml)
+- 2026-06-29 13:31 - [扬名立万](https://www.blog.minike.top/Article/details/973009595.shtml)
+- 2026-06-29 13:49 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.kurohicncr.top/Article/details/12357.shtml)
+- 2026-06-29 13:33 - [沙丘](https://www.blog.kurohicncr.top/Article/details/55536501.shtml)
+- 2026-06-29 13:48 - [送你一朵小红花](https://www.blog.minike.top/Article/details/31145481.shtml)
+- 2026-06-29 13:49 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/117528.shtml)
+- 2026-06-29 13:43 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/452469053.shtml)
+- 2026-06-29 13:50 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.kurohicncr.top/Article/details/90345.shtml)
+- 2026-06-29 13:25 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.minike.top/Article/details/703845.shtml)
+- 2026-06-29 13:52 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.blog.minike.top/Article/details/67884.shtml)
+- 2026-06-29 13:43 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/507287.shtml)
+- 2026-06-29 13:36 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/714348977572.shtml)
+- 2026-06-29 13:48 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/83532636637.shtml)

@@ -1,56 +1,58 @@
-# 财经早报：特朗普称黎以停火将延长三周，已完全控制了霍尔木兹海峡丨2026年4月24日
+# 亿道信息7亿元并购调查：标的公司千万级直销客户业务，缘何交由一家 “合伙企业” 承接？
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-【头条要闻】 特朗普称黎以停火将延长三周 当地时间4月23日，美国总统唐纳德·特朗普在其社交媒体“真实社交”发文表示，以色列与黎巴嫩之间的停火协议将延长三周。 特朗普再称“不着急”“没压力” 想同伊朗达成“永久协议” 美国总统特朗普23日再次强调自己在结束对伊朗战事上没有压力、不急于同伊朗达成协议，并表示想达成“最好”、“永久”的协议。 特朗普当天在社交媒体发文，称时间在美国这
+登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者｜赵李南 每经编辑｜杜宇 此前，亿道信息（SZ001314，股价57.84元，市值82.50亿元）公告称，拟以约7.15亿元的对价并购深圳市成为信息股份有限公司（以下简称成为信息）100%股权。据亿道信息公告，成为信息2025年前三季度的第一大客户为E Headway Media，系成为信息在印度的经销商。《每日经济新闻
 
 ## 正文
 
-【头条要闻】 特朗普称黎以停火将延长三周 当地时间4月23日，美国总统唐纳德·特朗普在其社交媒体“真实社交”发文表示，以色列与黎巴嫩之间的停火协议将延长三周。
+登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者｜赵李南 每经编辑｜杜宇 此前，亿道信息（SZ001314，股价57.84元，市值82.50亿元）公告称，拟以约7.15亿元的对价并购深圳市成为信息股份有限公司（以下简称成为信息）100%股权。
 
-特朗普再称“不着急”“没压力” 想同伊朗达成“永久协议” 美国总统特朗普23日再次强调自己在结束对伊朗战事上没有压力、不急于同伊朗达成协议，并表示想达成“最好”、“永久”的协议。
+据亿道信息公告，成为信息2025年前三季度的第一大客户为E Headway Media，系成为信息在印度的经销商。
 
-特朗普当天在社交媒体发文，称时间在美国这边，说自己“或许是心理压力最小的那一个”，“我拥有全世界最充裕的时间，伊朗却没有”。
+《每日经济新闻》记者（下称“每经记者”）调查发现，在印度官方公司注册网站上，查不到这家第一大客户。
 
-接下来的形势只会对伊朗方面愈发不利，“时间并不站在他们那边”。
+这意味着E Headway Media很可能是个体户或合伙企业。
 
-特朗普称美国不会对伊朗使用核武器 美国总统唐纳德・特朗普于周四在白宫椭圆形办公室回应记者提问时明确表态，不会对伊朗使用核武器，直接否定了相关猜测。
+亿道信息方面回应每经记者采访时称，E Headway Media为普通合伙企业。
 
-当被问及是否考虑动用核武器时，特朗普直言不讳地答道：“不会。
+2025年，成为信息将其印度的千万级直销大客户转交给了E Headway Media承接。
 
-” 他说道：“怎么会有人问出这么愚蠢的问题？
+广东华商律师事务所对亿道信息的此次并购案，出具了法律意见书。
 
-我为什么要动用核武器？
+值得注意的是，该法律意见书提供了成为信息主要经销商的基本情况。
 
 ## 相关推荐
 
-- 2026-06-29 13:23 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 13:18 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 13:24 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 13:33 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 13:26 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 13:40 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 13:37 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 13:39 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 13:26 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 13:19 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 13:39 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 13:54 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 13:32 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 13:34 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 13:37 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 13:31 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 13:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 13:31 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 13:35 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 13:33 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 13:24 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 13:43 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:28 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/77361861.shtml)
-- 2026-06-29 13:30 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/161499136890.shtml)
-- 2026-06-29 13:31 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/71795.shtml)
-- 2026-06-29 13:24 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/687246.shtml)
-- 2026-06-29 13:40 - [欧洲超1300例超额死亡与高温有关](https://www.share.minike.top/Article/details/77476312.shtml)
-- 2026-06-29 13:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/9947870166.shtml)
-- 2026-06-29 13:31 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/1574995268.shtml)
-- 2026-06-29 13:36 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/139315283.shtml)
-- 2026-06-29 13:30 - [各路“神仙”扎堆洛阳乘地铁](http://www.blog.minike.top/Article/details/58171576947.shtml)
-- 2026-06-29 13:25 - [明星大侦探第一季](http://www.share.minike.top/Article/details/758884244.shtml)
-- 2026-06-29 13:21 - [马斯克也站到了光里](http://www.share.kurohicncr.top/Article/details/5772759605.shtml)
-- 2026-06-29 13:29 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/109176634.shtml)
-- 2026-06-29 13:19 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/341064915.shtml)
-- 2026-06-29 13:40 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/671484846.shtml)
-- 2026-06-29 13:33 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/28424831.shtml)
+- 2026-06-29 13:36 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/608506604.shtml)
+- 2026-06-29 13:48 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/39939023611.shtml)
+- 2026-06-29 13:29 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/648467355.shtml)
+- 2026-06-29 13:27 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/009015553349.shtml)
+- 2026-06-29 13:35 - [男子偶遇婴儿被锁车内大哭挣扎](https://www.blog.minike.top/Article/details/8859742.shtml)
+- 2026-06-29 13:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/433467378.shtml)
+- 2026-06-29 13:41 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/39108293552.shtml)
+- 2026-06-29 13:39 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/7954935409.shtml)
+- 2026-06-29 13:24 - [Agent带来token消耗爆炸](https://www.blog.kurohicncr.top/Article/details/56371233.shtml)
+- 2026-06-29 13:27 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/124864870.shtml)
+- 2026-06-29 13:33 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/818520314.shtml)
+- 2026-06-29 13:37 - [北极荒岛生存挑战](http://www.blog.kurohicncr.top/Article/details/20135.shtml)
+- 2026-06-29 13:34 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/5873112.shtml)
+- 2026-06-29 13:42 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.share.kurohicncr.top/Article/details/97051.shtml)
+- 2026-06-29 13:25 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/89736518.shtml)

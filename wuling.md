@@ -1,50 +1,60 @@
-# 广东省委副书记、省长孟凡利到广州市调研
+# 前4月广西对东盟贸易平稳向好 电动汽车出口增逾286%
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-人民财讯4月22日电，据南方+客户端，4月22日，广东省委副书记、省长孟凡利到广州市调研，孟凡利走进广汽集团、文远知行、广州数科集团等深入调研企业生产经营情况，并与广州市及省直部门负责同志就广州工业经济运行和现代化产业体系建设深入交流讨论。他强调，广州市要做好二季度经济工作，抓好工业企业稳增长和工业经济运行工作，加快项目建设和固定资产投资进度，促进市场繁荣和服务业加快发展，努力
+【东盟专线】前4月广西对东盟贸易平稳向好 电动汽车出口增逾286% 中新社南宁5月11日电 (韦佳秀 刘宇阳)南宁海关11日介绍，今年前4个月，广西外贸进出口额达2774.5亿元(人民币，下同)，同比(下同)增长7.1%。 得益于中国—东盟跨境产业链稳定，今年前4个月，广西对东盟进出口1389.6亿元，东盟仍稳居广西第一大贸易伙伴地位。其中，广西对越南进出口1002亿元，对马来
 
 ## 正文
 
-人民财讯4月22日电，据南方+客户端，4月22日，广东省委副书记、省长孟凡利到广州市调研，孟凡利走进广汽集团、文远知行、广州数科集团等深入调研企业生产经营情况，并与广州市及省直部门负责同志就广州工业经济运行和现代化产业体系建设深入交流讨论。
+【东盟专线】前4月广西对东盟贸易平稳向好 电动汽车出口增逾286% 中新社南宁5月11日电 (韦佳秀 刘宇阳)南宁海关11日介绍，今年前4个月，广西外贸进出口额达2774.5亿元(人民币，下同)，同比(下同)增长7.1%。
 
-他强调，广州市要做好二季度经济工作，抓好工业企业稳增长和工业经济运行工作，加快项目建设和固定资产投资进度，促进市场繁荣和服务业加快发展，努力争取以半年胜为全年胜打下坚实基础。
+得益于中国—东盟跨境产业链稳定，今年前4个月，广西对东盟进出口1389.6亿元，东盟仍稳居广西第一大贸易伙伴地位。
 
-要持续加大工业投入力度，用好全社会的力量，汇聚市内外的资源，培育和引进更多工业特别是先进制造业市场主体，突出重点产业、重点产品、重点集群、重点企业发力，加快形成大企业顶天立地、中小企业铺天盖地、新锐企业开天辟地的好局面。
+其中，广西对越南进出口1002亿元，对马来西亚、柬埔寨进出口增速均超四成。
 
-责任编辑：刘万里 SF014
+今年前4个月，广西进口额达1201.8亿元，增长25.4%。
+
+其中，水果进口增长迅猛。
+
+今年东盟榴莲丰产，在中国国内需求持续旺盛叠加口岸通关效能提升的带动下，广西进口水果13.8亿元，增长78.1%；进口榴莲10.9亿元，增长165.4%。
+
+同时，广西规上工业增加值增速加快，带动大宗商品等生产原料进口需求旺盛。
+
+今年前4个月，广西进口大宗商品2406.7万吨，价值726.4亿元，增长24.2%。
 
 ## 相关推荐
 
-- 2026-06-29 13:40 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 13:19 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 13:36 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 13:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 13:46 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 13:37 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 13:29 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 13:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 13:25 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 13:41 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 13:20 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 13:28 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 13:29 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 13:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 13:51 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 13:38 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 13:34 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 13:28 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 13:33 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 13:32 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 13:46 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 13:24 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 13:45 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 13:31 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 13:39 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 13:51 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:35 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/9257233008.shtml)
-- 2026-06-29 13:47 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/062766686.shtml)
-- 2026-06-29 13:40 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/32578962.shtml)
-- 2026-06-29 13:46 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/36913414.shtml)
-- 2026-06-29 13:43 - [T1 vs KC MSI](http://www.share.kurohicncr.top/Article/details/0099535465.shtml)
-- 2026-06-29 13:25 - [曾沛慈夺冠后人气](https://www.share.kurohicncr.top/Article/details/547356902.shtml)
-- 2026-06-29 13:29 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/90393712876.shtml)
-- 2026-06-29 13:24 - [媒体人：警惕日本再次成战争加害国](http://www.share.minike.top/Article/details/666697018700.shtml)
-- 2026-06-29 13:22 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/90464702124.shtml)
-- 2026-06-29 13:42 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/230120276.shtml)
-- 2026-06-29 13:34 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/162800.shtml)
-- 2026-06-29 13:28 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/16928.shtml)
-- 2026-06-29 13:28 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/8510607742.shtml)
-- 2026-06-29 13:43 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.kurohicncr.top/Article/details/84031.shtml)
-- 2026-06-29 13:41 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.minike.top/Article/details/025026533.shtml)
+- 2026-06-29 13:51 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/206817.shtml)
+- 2026-06-29 13:49 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/76048.shtml)
+- 2026-06-29 13:29 - [韩体育部长回应李在明痛批](http://www.share.minike.top/Article/details/88614962945.shtml)
+- 2026-06-29 13:34 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/6774070565.shtml)
+- 2026-06-29 13:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/142084060.shtml)
+- 2026-06-29 13:39 - [严浩翔FIY断层第一](https://www.share.kurohicncr.top/Article/details/3712048.shtml)
+- 2026-06-29 13:46 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/58096125553.shtml)
+- 2026-06-29 13:24 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/42048797313.shtml)
+- 2026-06-29 13:38 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/3514895862.shtml)
+- 2026-06-29 13:26 - [水利部部署南方地区暴雨洪水防御工作](http://www.share.kurohicncr.top/Article/details/807201.shtml)
+- 2026-06-29 13:31 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/297896312.shtml)
+- 2026-06-29 13:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/4250483.shtml)
+- 2026-06-29 13:47 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/9358091.shtml)
+- 2026-06-29 13:53 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/842895140221.shtml)
+- 2026-06-29 13:44 - [这位猫咪，请你自重！](https://www.share.kurohicncr.top/Article/details/4243206725.shtml)

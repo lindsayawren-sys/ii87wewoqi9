@@ -1,56 +1,58 @@
-# 国务院食安办部署开展“五一”和端午期间食品安全工作
+# 十战十捷 天舟“后勤官”的多年升级路
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-记者今天了解到，国务院食安办印发通知，要求各地提前部署安排，切实做好“五一”和端午期间食品安全监管执法工作，有效防范化解食品安全风险隐患，确保人民群众度过欢乐祥和的节日假期。 通知要求，各地要加强食品生产销售环节监管，聚焦大宗消费食品、节令食品、网红食品、保健食品等重点品类，以批发市场、销售连锁企业、大型电商平台等为重点场所，强化全链条、线上线下一体风险排查，督促食品生产经营主
+中新网海南文昌5月11日电 题：十战十捷 天舟“后勤官”的多年升级路 记者 马帅莎 5月11日，天舟十号货运飞船在文昌航天发射场成功发射。这是中国发射的第10艘货运飞船。 作为中国空间站的物资补给“后勤官”，天舟货运飞船是世界现役货物运输能力最大、在轨支持能力最全面的货运飞船。它不仅承担物资补给、空间科学技术试验、废弃物下行及受控陨落等任务，还能在停靠空间站期间，支持空间站维持
 
 ## 正文
 
-记者今天了解到，国务院食安办印发通知，要求各地提前部署安排，切实做好“五一”和端午期间食品安全监管执法工作，有效防范化解食品安全风险隐患，确保人民群众度过欢乐祥和的节日假期。
+中新网海南文昌5月11日电 题：十战十捷 天舟“后勤官”的多年升级路 记者 马帅莎 5月11日，天舟十号货运飞船在文昌航天发射场成功发射。
 
-通知要求，各地要加强食品生产销售环节监管，聚焦大宗消费食品、节令食品、网红食品、保健食品等重点品类，以批发市场、销售连锁企业、大型电商平台等为重点场所，强化全链条、线上线下一体风险排查，督促食品生产经营主体全面落实食品安全主体责任，加大监督检查力度，严厉打击制售假冒伪劣、虚假宣传、非法添加等违法违规行为。
+这是中国发射的第10艘货运飞船。
 
-要强化餐饮服务环节监管，以连锁餐饮、旅游团餐、网红餐饮为重点对象，强化日常监督检查；紧盯“幽灵外卖”、无堂食外卖经营不规范等突出问题，抓好网络餐饮食品安全问题治理；压实校园等集中用餐单位食品安全主体责任，深入排查各类风险隐患；全面加强农村集体聚餐管理，坚决遏制群体性食品安全事故发生。
+作为中国空间站的物资补给“后勤官”，天舟货运飞船是世界现役货物运输能力最大、在轨支持能力最全面的货运飞船。
 
-要加大食品安全抽检力度。
+它不仅承担物资补给、空间科学技术试验、废弃物下行及受控陨落等任务，还能在停靠空间站期间，支持空间站维持轨道和调整姿态，具有不可替代的作用。
 
-围绕粽子等节令食品、节日期间风险较高食品和掺杂掺假、“两超一非”、虚假宣传等群众反映强烈的问题，组织开展专项抽检，对抽检不合格食品加大核查处置力度，切实消除食品安全风险。
+自2017年4月首飞以来，天舟货运飞船的“飞天之路”已经走过多个年头。
 
-同时要畅通食品安全投诉举报渠道，依法维护消费者合法权益；严格落实食品安全应急值班、重大事项报告等制度要求，积极稳妥处置食品安全突发事件。
+从天舟一号到天舟十号，天舟货运飞船经历了多次技术升级与迭代，朝着“装得更多、送得更快、飞得更稳、成本更低”的方向持续迈进，物资运输与补给的效率和能力不断增强。
 
-(总台央视记者 李晶晶)
+2017年4月，天舟一号货运飞船成功发射，中国实现“太空送货”“从0到1”的突破。
+
+这次飞行任务突破和验证了空间站货物运输、推进剂在轨补加等关键技术，标志着中国载人航天工程第二步胜利完成。
 
 ## 相关推荐
 
-- 2026-06-29 13:42 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 13:28 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 13:22 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 13:29 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 13:46 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 13:25 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 13:22 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 13:20 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 13:26 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 13:45 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 13:44 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 13:32 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 13:26 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 13:37 - [沙特足协主席发布声明主动请辞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 13:44 - [我们注定是一撮县城葱姜蒜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 13:33 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 13:41 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 13:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 13:51 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 13:40 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 13:47 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 13:32 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 13:44 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 13:30 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/3906853075.shtml)
-- 2026-06-29 13:39 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.kurohicncr.top/Article/details/046246.shtml)
-- 2026-06-29 13:19 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/965431.shtml)
-- 2026-06-29 13:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/5609801.shtml)
-- 2026-06-29 13:40 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/51250126211.shtml)
-- 2026-06-29 13:26 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/963835.shtml)
-- 2026-06-29 13:25 - [下飞机后，我做了个很蠢的决定......](https://www.share.minike.top/Article/details/884483.shtml)
-- 2026-06-29 13:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/91225.shtml)
-- 2026-06-29 13:23 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/32988180.shtml)
-- 2026-06-29 13:20 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/51031.shtml)
-- 2026-06-29 13:40 - [在委侨团负责人：家乡的帮助很及时](https://www.share.minike.top/Article/details/1844981660.shtml)
-- 2026-06-29 13:27 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/81691155.shtml)
-- 2026-06-29 13:44 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/4182217587.shtml)
-- 2026-06-29 13:18 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/44505343.shtml)
-- 2026-06-29 13:18 - [加拿大92分钟绝杀南非](http://www.blog.kurohicncr.top/Article/details/98162.shtml)
+- 2026-06-29 13:31 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/333219.shtml)
+- 2026-06-29 13:26 - [北极荒岛生存挑战](https://www.blog.minike.top/Article/details/195085.shtml)
+- 2026-06-29 13:26 - [德国队前往比赛场地遭遇囧途](https://www.share.kurohicncr.top/Article/details/27555788.shtml)
+- 2026-06-29 13:40 - [吴昕要助理买的药6年前已停产](https://www.blog.minike.top/Article/details/971480310.shtml)
+- 2026-06-29 13:29 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/4648861.shtml)
+- 2026-06-29 13:51 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/234372234045.shtml)
+- 2026-06-29 13:39 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/016055578771.shtml)
+- 2026-06-29 13:32 - [李连杰回应网传不管前妻俩女儿](http://www.share.kurohicncr.top/Article/details/06647529.shtml)
+- 2026-06-29 13:45 - [扫黑风暴](http://www.share.minike.top/Article/details/93573951466.shtml)
+- 2026-06-29 13:41 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/7940631692.shtml)
+- 2026-06-29 13:45 - [伊朗球员致歉](https://www.share.minike.top/Article/details/837086197.shtml)
+- 2026-06-29 13:27 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/805012632.shtml)
+- 2026-06-29 13:31 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/633257.shtml)
+- 2026-06-29 13:28 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/818594945880.shtml)
+- 2026-06-29 13:29 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/5386473049.shtml)

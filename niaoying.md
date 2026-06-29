@@ -1,57 +1,60 @@
-# SpaceX称有关xAI传播色情内容的调查会损害其IPO市场准入
+# 摩根大通策略师：下半年维持做多新兴市场股票立场
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-据报道，SpaceX在其最近提交的招股说明书中警告称，针对其人工智能部门xAI创建和传播性虐待图像的多项调查可能会导致其失去某些市场的准入资格。 在有关风险因素的部分中，SpaceX提交的S-1上市申请文件称，全球众多机构“正在积极调查并就社交媒体或人工智能的使用情况”展开相关研究，这些研究涉及广告、消费者保护以及有害内容的传播等方面的问题。 SpaceX在S-1文件中强调，该
+摩根大通策略师表示，新兴市场股票有望在今年下半年迎来新一轮显著反弹，继续看好该类资产表现优于发达市场股票。 由米斯拉夫・马泰伊卡领衔的策略师团队称，人工智能投资热潮仍在延续；而新兴市场相关标的估值更低、上行潜力更大。 团队预判后续美债收益率走低、美元走弱，将利好新兴市场股市。 预计伊朗局势趋于稳定，缓解市场对原油供应的担忧。 新兴市场当前估值吸引力凸显：相对市盈率较发达市场处于
 
 ## 正文
 
-据报道，SpaceX在其最近提交的招股说明书中警告称，针对其人工智能部门xAI创建和传播性虐待图像的多项调查可能会导致其失去某些市场的准入资格。
+摩根大通策略师表示，新兴市场股票有望在今年下半年迎来新一轮显著反弹，继续看好该类资产表现优于发达市场股票。
 
-在有关风险因素的部分中，SpaceX提交的S-1上市申请文件称，全球众多机构“正在积极调查并就社交媒体或人工智能的使用情况”展开相关研究，这些研究涉及广告、消费者保护以及有害内容的传播等方面的问题。
+由米斯拉夫・马泰伊卡领衔的策略师团队称，人工智能投资热潮仍在延续；而新兴市场相关标的估值更低、上行潜力更大。
 
-SpaceX在S-1文件中强调，该公司面临的一项挑战是“有指控称，其人工智能产品被用于创建未经同意的露骨图像或内容，其中涉及儿童的性化场景”。
+团队预判后续美债收益率走低、美元走弱，将利好新兴市场股市。
 
-该文件指出，此类监管调查可能使SpaceX面临诉讼、责任和政府处罚——“包括失去进入某些市场的机会，这种情况过去曾发生过”。
+预计伊朗局势趋于稳定，缓解市场对原油供应的担忧。
 
-目前尚不清楚潜在的监管措施是会阻止SpaceX整体进入某些市场，还是只会影响其子公司xAI。
+新兴市场当前估值吸引力凸显：相对市盈率较发达市场处于历史极低水平，同时机构低配仓位仍处低位，资金流入节奏正在加快。
 
-尽管监管文件中列举的风险因素包括爱尔兰数据保护委员会于2月份发起的一项调查，但xAI公司因其平台上大量出现的性暗示图片而面临全球审查。
+欧洲市场方面，强烈看好矿业、半导体及工业板块。
 
-这些内容在2025年末和2026年初尤为突出，主要内容是该公司社交媒体平台X上近乎全裸的女性和儿童图片。
+周期类消费股下半年行情有望改善，目前估值处于相对低位；但需注意，在伊朗冲突出现明确缓和迹象前，这类板块很难迎来强势表现。
 
-xAI在1月份表示，已采取措施阻止用户请求获取真实人物的性暗示图片，并表示会阻止用户在相关法律禁止的地区生成此类内容。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 13:41 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 13:25 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 13:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 13:30 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 13:23 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 13:27 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 13:22 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 13:31 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-29 13:47 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 13:25 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 13:30 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 13:24 - [王楚钦美国大满贯晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 13:34 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 13:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 13:43 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 13:42 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 13:52 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 13:38 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 13:47 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 13:44 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 13:43 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 13:39 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 13:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 13:53 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 13:29 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:19 - [《昨夜将至》为何是悬疑黑马](http://www.share.minike.top/Article/details/82373.shtml)
-- 2026-06-29 13:45 - [恋与深空评分暴跌至1.8](http://www.blog.kurohicncr.top/Article/details/0858671.shtml)
-- 2026-06-29 13:44 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/95819.shtml)
-- 2026-06-29 13:26 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/136593271617.shtml)
-- 2026-06-29 13:32 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/3328902573.shtml)
-- 2026-06-29 13:27 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/0640886910.shtml)
-- 2026-06-29 13:35 - [陈靖可虞书欣领衔主演](https://www.share.minike.top/Article/details/3063952677.shtml)
-- 2026-06-29 13:41 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/96572881.shtml)
-- 2026-06-29 13:36 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/97165.shtml)
-- 2026-06-29 13:31 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/48952.shtml)
-- 2026-06-29 13:32 - [2025年人口增长10强城市出炉](http://www.blog.minike.top/Article/details/81405.shtml)
-- 2026-06-29 13:36 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.blog.minike.top/Article/details/14395971.shtml)
-- 2026-06-29 13:46 - [海军舰艇编队将赴香港](http://www.share.kurohicncr.top/Article/details/503116719.shtml)
-- 2026-06-29 13:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/11830.shtml)
-- 2026-06-29 13:36 - [毒液2](http://www.share.kurohicncr.top/Article/details/313900223316.shtml)
+- 2026-06-29 13:49 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/93857153611.shtml)
+- 2026-06-29 13:32 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/71876.shtml)
+- 2026-06-29 13:46 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/38555926398.shtml)
+- 2026-06-29 13:24 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.blog.minike.top/Article/details/39884.shtml)
+- 2026-06-29 13:34 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.minike.top/Article/details/9283235.shtml)
+- 2026-06-29 13:41 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.minike.top/Article/details/507317847851.shtml)
+- 2026-06-29 13:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/6101679.shtml)
+- 2026-06-29 13:48 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/713121532.shtml)
+- 2026-06-29 13:37 - [欧洲超1300例超额死亡与高温有关](http://www.share.minike.top/Article/details/99961191531.shtml)
+- 2026-06-29 13:29 - [南部战区位南海海域进行例行巡航](https://www.blog.kurohicncr.top/Article/details/09375.shtml)
+- 2026-06-29 13:51 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.share.kurohicncr.top/Article/details/1801664833.shtml)
+- 2026-06-29 13:25 - [F1奥地利大奖赛正赛集锦](https://www.blog.minike.top/Article/details/110948256309.shtml)
+- 2026-06-29 13:50 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/003413.shtml)
+- 2026-06-29 13:52 - [撒旦的腋窝是什么比喻](http://www.blog.kurohicncr.top/Article/details/505378610534.shtml)
+- 2026-06-29 13:52 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/1663920655.shtml)

@@ -1,61 +1,60 @@
-# 渝琼联袂展示民族文化 “渝见石榴红”绽放北京
+# 重磅政策信号，加速创新药医保准入！华宝基金药ETF、港股通创新药ETF逆转收涨，520880近3日吸金逾3.59亿元
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网北京4月23日电 题：渝琼联袂展示民族文化 “渝见石榴红”绽放北京 作者 梁钦卿 贾楠 4月23日，中华民族共同体体验馆2026年第二期中华优秀文化体验项目在北京开展。本次轮展由重庆市与海南省联袂承办，两地以“渝琼千里目，山海同心圆”为联动主题，充分体现中华民族大家庭内部手足相亲、守望相助的深厚情谊。 渝琼联动，共绘同心圆 中华民族共同体体验馆是全国首个以铸牢中华民族共同
+5月11日，AH创新药早盘水下震荡，午后突然发力拉升，大面积收红。 A股制药板块普涨，场内唯一药ETF华宝（562050）*放量收涨1.03%站上5日均线。成份股普洛药业涨停，权重股百济神州涨5.89%。信立泰跌停为主要拖累，公司昨日公告JK07心衰治疗临床研究阶段性数据，分析指出，该数据疗效未定或引发市场担忧。 港股通创新药显著分化，权重股涨跌参半，康方生物、信达生物跌2%左
 
 ## 正文
 
-中新网北京4月23日电 题：渝琼联袂展示民族文化 “渝见石榴红”绽放北京 作者 梁钦卿 贾楠 4月23日，中华民族共同体体验馆2026年第二期中华优秀文化体验项目在北京开展。
+5月11日，AH创新药早盘水下震荡，午后突然发力拉升，大面积收红。
 
-本次轮展由重庆市与海南省联袂承办，两地以“渝琼千里目，山海同心圆”为联动主题，充分体现中华民族大家庭内部手足相亲、守望相助的深厚情谊。
+A股制药板块普涨，场内唯一药ETF华宝（562050）*放量收涨1.03%站上5日均线。
 
-渝琼联动，共绘同心圆 中华民族共同体体验馆是全国首个以铸牢中华民族共同体意识为核心主题的国家级文化展示与体验平台，承担着讲好中华民族共同体故事、构筑中华民族共有精神家园、促进各民族广泛交往交流交融的重要使命。
+成份股普洛药业涨停，权重股百济神州涨5.89%。
 
-开展仪式上，重庆带来苗族歌舞《娇阿依》、川剧绝活《变脸·吐火》，海南展示黎族特色文艺节目。
+信立泰跌停为主要拖累，公司昨日公告JK07心衰治疗临床研究阶段性数据，分析指出，该数据疗效未定或引发市场担忧。
 
-渝琼共同演绎共创舞蹈《织卡织卡+织月亮》，以非遗织锦为文化纽带，生动诠释中华民族多元一体、各美其美、美美与共的深刻内涵。
+港股通创新药显著分化，权重股涨跌参半，康方生物、信达生物跌2%左右，中国生物制药涨4.24%，翰森制药涨1.21%。
 
-本次联袂轮展是渝琼两地民族文化的精彩对话，也是两地民族工作经验的互学互鉴，更是新时代各地区携手推进中华民族共同体建设的生动缩影。
+100%创新药研发标的——港股通创新药ETF华宝（520880）午后翻红，成功收涨，全天振幅达2.85%。
 
-石榴花开，绽放一家亲 重庆展区以“渝见石榴红·共筑中国梦”为总主题，黔江、石柱、秀山、酉阳、彭水五个民族地区区县联动参与，将“各民族像石榴籽一样紧紧抱在一起”的核心理念贯穿全流程，通过静态展陈、动态展演、数字互动、非遗体验、区县轮展等多种形式，全面展现重庆在推进中华民族共同体建设中的责任担当与实践成效。
+值得关注的是，520880场内持续放量溢价，显示买盘尤为活跃，全天成交额5.36亿元，较上日激增100%！
 
-此次展陈设置室内六大展厅以及室外五大展示区。
+此前3日合计逾3.59亿元资金大举净申购。
 
 ## 相关推荐
 
-- 2026-06-29 13:21 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 13:21 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 13:22 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 13:40 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 13:33 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 13:22 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 13:18 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 13:26 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 13:21 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 13:43 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-29 13:19 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 13:27 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 13:23 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 13:43 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 13:38 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 13:36 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 13:40 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 13:53 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 13:51 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 13:39 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 13:50 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 13:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 13:46 - [本周做什么都顺的星座](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 13:30 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 13:46 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 13:47 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 13:46 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 13:37 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 13:29 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/42605609.shtml)
-- 2026-06-29 13:33 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/300840892.shtml)
-- 2026-06-29 13:46 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/48180619.shtml)
-- 2026-06-29 13:23 - [毕业寄几百斤快递回家女生发声](http://www.blog.kurohicncr.top/Article/details/695257464.shtml)
-- 2026-06-29 13:38 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/001455147.shtml)
-- 2026-06-29 13:22 - [日本主帅：对战胜巴西很有信心](https://www.blog.minike.top/Article/details/5055666290.shtml)
-- 2026-06-29 13:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/498976055492.shtml)
-- 2026-06-29 13:28 - [6月我国降水为何偏多](https://www.blog.kurohicncr.top/Article/details/819581.shtml)
-- 2026-06-29 13:37 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/337531.shtml)
-- 2026-06-29 13:25 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/64200335842.shtml)
-- 2026-06-29 13:22 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.share.kurohicncr.top/Article/details/775813705973.shtml)
-- 2026-06-29 13:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/10042247322.shtml)
-- 2026-06-29 13:19 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.minike.top/Article/details/69418911146.shtml)
-- 2026-06-29 13:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/02980.shtml)
-- 2026-06-29 13:22 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/797588.shtml)
+- 2026-06-29 13:45 - [中国避暑神器在欧洲卖爆了](http://www.share.kurohicncr.top/Article/details/55747554.shtml)
+- 2026-06-29 13:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/8886469.shtml)
+- 2026-06-29 13:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/3865255317.shtml)
+- 2026-06-29 13:27 - [韩体育部长回应李在明痛批](http://www.share.kurohicncr.top/Article/details/64490019681.shtml)
+- 2026-06-29 13:50 - [我们注定是一撮县城葱姜蒜](http://www.blog.kurohicncr.top/Article/details/854295825.shtml)
+- 2026-06-29 13:47 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/6675360.shtml)
+- 2026-06-29 13:26 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/851536.shtml)
+- 2026-06-29 13:32 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/8708695838.shtml)
+- 2026-06-29 13:49 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.minike.top/Article/details/648869301418.shtml)
+- 2026-06-29 13:27 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/46429939984.shtml)
+- 2026-06-29 13:45 - [我们注定是一撮县城葱姜蒜](http://www.share.kurohicncr.top/Article/details/761238111423.shtml)
+- 2026-06-29 13:30 - [世界杯用球成部分门将噩梦](http://www.share.kurohicncr.top/Article/details/553944076598.shtml)
+- 2026-06-29 13:48 - [TLAW vs DCG MSI](https://www.blog.kurohicncr.top/Article/details/17080446.shtml)
+- 2026-06-29 13:44 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.minike.top/Article/details/900998.shtml)
+- 2026-06-29 13:51 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/27987317.shtml)

@@ -1,54 +1,54 @@
-# 一间中国礼物商店，如何让在地非遗老技艺“活”在当下？
+# 2026世界人形机器人运动会能量传递国内首站明日启动
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月23日 20:14 来源：中国新闻网 从浙江丽水的菜市场，到上海浦东的礼物商店。13年时间，一个人从一筐柿子干开始，搭建起一张覆盖全国二十多个省市县的协作网络，让河南羊毛毡、西藏牦牛制品、云南竹编、江苏米酒……这些带着“泥土味”的非遗技艺，摆脱失传的命运，“活”在了当下。今天，这间开在浦东的中国礼物商店，已不仅仅只是一个商店，而更像是一座连接乡村与都市
+2026世界人形机器人运动会能量传递国内首站将于明天启动。 在白茶核心产区福建福鼎，人形机器人与人类协作，深度参与制茶工艺，同步完成数据采集，为技术落地奠定基础。 作为全球首个以人形机器人为竞技主体的综合性体育赛事，人形机器人运动会通过“能量传递”活动，将前沿科技植入传统文化与生产场景。它以真实任务倒逼技术迭代，全方位检验并展示人形机器人的服务潜力，为人形机器人真正融入我们的生
 
 ## 正文
 
-发布时间：2026年04月23日 20:14 来源：中国新闻网 从浙江丽水的菜市场，到上海浦东的礼物商店。
+2026世界人形机器人运动会能量传递国内首站将于明天启动。
 
-13年时间，一个人从一筐柿子干开始，搭建起一张覆盖全国二十多个省市县的协作网络，让河南羊毛毡、西藏牦牛制品、云南竹编、江苏米酒……这些带着“泥土味”的非遗技艺，摆脱失传的命运，“活”在了当下。
+在白茶核心产区福建福鼎，人形机器人与人类协作，深度参与制茶工艺，同步完成数据采集，为技术落地奠定基础。
 
-今天，这间开在浦东的中国礼物商店，已不仅仅只是一个商店，而更像是一座连接乡村与都市、传统与现代的桥梁。
+作为全球首个以人形机器人为竞技主体的综合性体育赛事，人形机器人运动会通过“能量传递”活动，将前沿科技植入传统文化与生产场景。
 
-它所要回答的问题是：非遗，如何才能不被遗忘？
+它以真实任务倒逼技术迭代，全方位检验并展示人形机器人的服务潜力，为人形机器人真正融入我们的生产与生活按下加速键。
 
-什么才是“越在地，越国际”？
-
-(李佳佳 李秋莹 娄瀚锟) 责任编辑：【于晓】
+(总台记者 许梦哲 沈立)
 
 ## 相关推荐
 
-- 2026-06-29 13:42 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 13:21 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 13:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 13:37 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 13:39 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 13:42 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 13:28 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 13:32 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 13:42 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 13:28 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 13:38 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 13:29 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 13:52 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 13:47 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 13:37 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 13:53 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 13:42 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 13:29 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 13:49 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 13:50 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 13:49 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 13:31 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 13:34 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 13:48 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 13:50 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 13:39 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:36 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/20975036.shtml)
-- 2026-06-29 13:22 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/924014000.shtml)
-- 2026-06-29 13:46 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/8833878.shtml)
-- 2026-06-29 13:42 - [航空运输旅客服务质量国标将实施](http://www.share.minike.top/Article/details/852125.shtml)
-- 2026-06-29 13:41 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.minike.top/Article/details/48923.shtml)
-- 2026-06-29 13:20 - [毒液2](https://www.blog.minike.top/Article/details/243207152496.shtml)
-- 2026-06-29 13:26 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.kurohicncr.top/Article/details/20308.shtml)
-- 2026-06-29 13:24 - [毒液2](http://www.blog.kurohicncr.top/Article/details/89268984261.shtml)
-- 2026-06-29 13:22 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/67149.shtml)
-- 2026-06-29 13:24 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/794495889299.shtml)
-- 2026-06-29 13:25 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/211261204.shtml)
-- 2026-06-29 13:21 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/44004924685.shtml)
-- 2026-06-29 13:46 - [王楚钦3比0周启豪](https://www.blog.minike.top/Article/details/7089213.shtml)
-- 2026-06-29 13:39 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/430781052324.shtml)
-- 2026-06-29 13:25 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/711906584.shtml)
+- 2026-06-29 13:33 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/763693409322.shtml)
+- 2026-06-29 13:32 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/825480021110.shtml)
+- 2026-06-29 13:53 - [王楚钦3-0周启豪 晋级32强](http://www.share.kurohicncr.top/Article/details/8938900.shtml)
+- 2026-06-29 13:49 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/75710.shtml)
+- 2026-06-29 13:28 - [链博会上的机器人太全能了](http://www.blog.kurohicncr.top/Article/details/533265815873.shtml)
+- 2026-06-29 13:53 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/38647719.shtml)
+- 2026-06-29 13:51 - [我们注定是一撮县城葱姜蒜](https://www.share.minike.top/Article/details/36568958.shtml)
+- 2026-06-29 13:29 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/20454647.shtml)
+- 2026-06-29 13:33 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.minike.top/Article/details/2727067.shtml)
+- 2026-06-29 13:31 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/07436.shtml)
+- 2026-06-29 13:38 - [DeepSeek联合北京大学发布论文](https://www.blog.kurohicncr.top/Article/details/09662.shtml)
+- 2026-06-29 13:32 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/1701283.shtml)
+- 2026-06-29 13:52 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.share.minike.top/Article/details/50341805.shtml)
+- 2026-06-29 13:27 - [白玉兰最佳女主角提名片段](http://www.share.kurohicncr.top/Article/details/4697993.shtml)
+- 2026-06-29 13:36 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.blog.minike.top/Article/details/1666594111.shtml)

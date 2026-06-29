@@ -1,61 +1,57 @@
-# 美联航宣布夏季机票价格最高将上调20%
+# 国家统计局：4月份CPI温和回升，PPI涨幅扩大
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-伊朗局势导致航空燃油价格暴涨，但旅客出行意愿依然坚挺。他们愿意支付更高费用乘坐飞机，因此航空公司将更多成本转嫁给了消费者。 美联航首席执行官斯科特・柯比周三表示，今年夏季机票预订需求旺盛，公司得以在出行旺季将票价上调15%至20%。 他周三发言时称，票价上涨部分原因是伊朗局势爆发前至今，航空燃油成本已翻倍。燃油是航空公司仅次于人力成本的第二大支出。 尽管成本上升，美联航上季度利
+中新网5月11日电 据国家统计局网站消息，国家统计局城市司首席统计师董莉娟在解读2026年4月份CPI和PPI数据时指出，2026年4月份CPI温和回升，PPI涨幅扩大。 4月份，受国际原油价格变动和假期出行需求增加影响，居民消费价格指数(CPI)环比上涨0.3%，同比上涨1.2%，扣除食品和能源价格的核心CPI同比上涨1.2%，保持温和回升。受国际大宗商品价格快速上涨，国内部
 
 ## 正文
 
-伊朗局势导致航空燃油价格暴涨，但旅客出行意愿依然坚挺。
+中新网5月11日电 据国家统计局网站消息，国家统计局城市司首席统计师董莉娟在解读2026年4月份CPI和PPI数据时指出，2026年4月份CPI温和回升，PPI涨幅扩大。
 
-他们愿意支付更高费用乘坐飞机，因此航空公司将更多成本转嫁给了消费者。
+4月份，受国际原油价格变动和假期出行需求增加影响，居民消费价格指数(CPI)环比上涨0.3%，同比上涨1.2%，扣除食品和能源价格的核心CPI同比上涨1.2%，保持温和回升。
 
-美联航首席执行官斯科特・柯比周三表示，今年夏季机票预订需求旺盛，公司得以在出行旺季将票价上调15%至20%。
+受国际大宗商品价格快速上涨，国内部分行业需求增加、市场竞争秩序不断优化等因素影响，工业生产者出厂价格指数(PPI)环比上涨1.7%，同比上涨2.8%，涨幅比上月均有所扩大。
 
-他周三发言时称，票价上涨部分原因是伊朗局势爆发前至今，航空燃油成本已翻倍。
+一、CPI温和回升 从环比看，全国CPI环比由上月下降0.7%转为上涨0.3%，高于季节性水平0.4个百分点，主要受能源和出行服务价格上涨影响。
 
-燃油是航空公司仅次于人力成本的第二大支出。
+受国际原油价格波动影响，国内能源价格上涨5.7%，涨幅比上月扩大0.9个百分点，影响CPI环比上涨约0.39个百分点。
 
-尽管成本上升，美联航上季度利润仍高于去年同期。
+其中，汽油价格上涨12.6%。
 
-柯比表示，今年第一季度，美联航已将40%至50%的燃油成本上涨部分通过票价转嫁出去。
+服务价格由上月下降1.1%转为上涨0.5%，高于季节性水平0.2个百分点，影响CPI环比上涨约0.22个百分点。
 
-得益于机票需求强劲，他预计今年晚些时候可通过进一步提价覆盖全部新增燃油成本。
+其中，受清明节假期、“五一”假期及部分地区春假影响，出行服务需求明显增加，飞机票、交通工具租赁、旅行社收费和宾馆住宿价格分别上涨29.2%、8.6%、4.5%和3.9%，涨幅均高于季节性水平，四项合计影响CPI环比上涨约0.17个百分点；医疗服务价格上涨0.6%，影响CPI环比上涨约0.04个百分点。
 
 ## 相关推荐
 
-- 2026-06-29 13:26 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 13:24 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 13:44 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 13:20 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 13:41 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 13:34 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 13:26 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 13:25 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 13:39 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 13:43 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 13:45 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 13:19 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 13:28 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 13:42 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 13:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 13:52 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 13:41 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 13:27 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 13:26 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 13:43 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 13:49 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 13:45 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 13:42 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 13:41 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 13:37 - [为什么6月以来北方频繁降雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 13:52 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:36 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/19652754864.shtml)
-- 2026-06-29 13:40 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/764098266.shtml)
-- 2026-06-29 13:19 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/302422283.shtml)
-- 2026-06-29 13:35 - [灿如繁星定档](https://www.share.kurohicncr.top/Article/details/777925509.shtml)
-- 2026-06-29 13:40 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/4253745490.shtml)
-- 2026-06-29 13:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/482746960050.shtml)
-- 2026-06-29 13:41 - [行程万里不忘初心](https://www.share.minike.top/Article/details/2308145.shtml)
-- 2026-06-29 13:37 - [扫黑风暴](http://www.blog.minike.top/Article/details/0402750426.shtml)
-- 2026-06-29 13:33 - [张真源解读相思锁](http://www.blog.kurohicncr.top/Article/details/00634210.shtml)
-- 2026-06-29 13:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/972086107424.shtml)
-- 2026-06-29 13:35 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/61233449.shtml)
-- 2026-06-29 13:38 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/6020005713.shtml)
-- 2026-06-29 13:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/115973095983.shtml)
-- 2026-06-29 13:18 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/469919472.shtml)
-- 2026-06-29 13:27 - [游戏数据竟被用于军事目的](https://www.blog.kurohicncr.top/Article/details/6607851295.shtml)
+- 2026-06-29 13:31 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/84159788392.shtml)
+- 2026-06-29 13:43 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.share.minike.top/Article/details/6940853.shtml)
+- 2026-06-29 13:30 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/49238471838.shtml)
+- 2026-06-29 13:42 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/102670.shtml)
+- 2026-06-29 13:31 - [金牌调解](https://www.share.kurohicncr.top/Article/details/759354630680.shtml)
+- 2026-06-29 13:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/567015.shtml)
+- 2026-06-29 13:24 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/5626218.shtml)
+- 2026-06-29 13:52 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/270915153771.shtml)
+- 2026-06-29 13:47 - [送你一朵小红花](https://www.share.minike.top/Article/details/1379543866.shtml)
+- 2026-06-29 13:42 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.minike.top/Article/details/06126008.shtml)
+- 2026-06-29 13:37 - [俄军新型无人机战力如何](https://www.blog.kurohicncr.top/Article/details/62399765144.shtml)
+- 2026-06-29 13:46 - [水利部部署南方地区暴雨洪水防御工作](http://www.blog.minike.top/Article/details/178112394.shtml)
+- 2026-06-29 13:24 - [委内瑞拉地震死亡人数升至1450人](https://www.share.minike.top/Article/details/4568631184.shtml)
+- 2026-06-29 13:25 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/88602.shtml)
+- 2026-06-29 13:29 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/03036283807.shtml)

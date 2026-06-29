@@ -1,58 +1,61 @@
-# （投资中国）外资加码中国化工领域：赢创、福华合资项目在四川竣工
+# 建起“石榴籽小银行” 把民族团结“存”进日常
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新社成都4月23日电 (单鹏)记者23日从四川省经济合作局获悉，赢创福华2万吨特种级双氧水项目竣工暨福华20万吨工业级双氧水项目投产仪式当日在四川省乐山市举行。两大项目的落地实施，将为乐山乃至四川化工新材料与电子化学品产业建圈强链注入新动力。据了解，赢创工业集团是一家总部位于德国的全球特种化工领域重要企业。赢创福华2万吨特种级双氧水项目由赢创工业集团与福华通达化学股份有限公司
+在内蒙古各地中小学推进铸牢中华民族共同体意识教育的背景下，舍伯吐镇第一小学这家乡镇校园里的“小银行”，以孩子们听得懂、看得见、摸得着的方式，让民族团结的种子在日常点滴中悄然生根。 在内蒙古自治区通辽市科左中旗舍伯吐镇第一小学的校园里，有一家特殊的“银行”。这里不办存取款业务，“办理”的是孩子们的好习惯、好品德和各民族学生之间的团结情谊。 这家名为“石榴籽小银行”的校园德育平台，
 
 ## 正文
 
-中新社成都4月23日电 (单鹏)记者23日从四川省经济合作局获悉，赢创福华2万吨特种级双氧水项目竣工暨福华20万吨工业级双氧水项目投产仪式当日在四川省乐山市举行。
+在内蒙古各地中小学推进铸牢中华民族共同体意识教育的背景下，舍伯吐镇第一小学这家乡镇校园里的“小银行”，以孩子们听得懂、看得见、摸得着的方式，让民族团结的种子在日常点滴中悄然生根。
 
-两大项目的落地实施，将为乐山乃至四川化工新材料与电子化学品产业建圈强链注入新动力。
+在内蒙古自治区通辽市科左中旗舍伯吐镇第一小学的校园里，有一家特殊的“银行”。
 
-据了解，赢创工业集团是一家总部位于德国的全球特种化工领域重要企业。
+这里不办存取款业务，“办理”的是孩子们的好习惯、好品德和各民族学生之间的团结情谊。
 
-赢创福华2万吨特种级双氧水项目由赢创工业集团与福华通达化学股份有限公司合资共建，是乐山首个外资化工项目。
+这家名为“石榴籽小银行”的校园德育平台，自开业以来成为全校师生每天的“牵挂”。
 
-项目于2025年6月正式启动，产品将直供光伏太阳能电池、无菌包装、医药及化妆品等领域，以高纯度、环保型特性替代传统材料。
+橙、绿、青、蓝、黄、紫、红七色行为卡，分别对应逐梦、好学、美德、探索、阳光、阅美、活力七个维度。
 
-目前，该项目双氧水生产装置已完成建设并进入试生产阶段，预计于今年第二季度实现首批商业化产品的供应。
+学生在课堂发言、互助同学、参与劳动、传承民族文化、遵守校园规则等方面有优秀表现，老师当场发卡，存入学生人手一本的《石榴籽成长存折》。
 
-赢创工业集团董事长库乐满(Christian Kullmann)在仪式上表示，此次合作具有重要战略意义：“项目充分体现了赢创的技术优势与福华的本地资源优势高效结合，将共同为本地及全球客户提供高质量的解决方案。
+看见即奖励 “石榴籽小银行”构建了“一卡一折、三阶晋级”的完整体系。
 
-” 双氧水作为一种应用广泛的化学品，覆盖电子、可再生能源、无菌包装等多个行业。
+集齐5张基础卡可兑换“逐梦娃”或“好学娃”徽章，集齐5张特色卡可兑换“美德娃”“探索娃”“阳光娃”“阅美娃”或“活力娃”徽章，同时获得相应的“红领巾奖章”认证。
 
 ## 相关推荐
 
-- 2026-06-29 13:27 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 13:23 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 13:34 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 13:46 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 13:28 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 13:34 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 13:19 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 13:31 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 13:29 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 13:40 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 13:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 13:33 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 13:47 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-29 13:41 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 13:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 13:24 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 13:43 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 13:35 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 13:32 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 13:42 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 13:43 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 13:50 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 13:25 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 13:39 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 13:35 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 13:24 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 13:50 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:19 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/38582455.shtml)
-- 2026-06-29 13:23 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/464837.shtml)
-- 2026-06-29 13:26 - [李在明称韩国足协任命了无能之人](https://www.share.minike.top/Article/details/1448042749.shtml)
-- 2026-06-29 13:25 - [一生一世](http://www.blog.minike.top/Article/details/7594954799.shtml)
-- 2026-06-29 13:47 - [人民日报评“AI脸看腻了”](http://www.blog.kurohicncr.top/Article/details/479779863077.shtml)
-- 2026-06-29 13:34 - [毕业寄几百斤快递回家女生发声](https://www.share.kurohicncr.top/Article/details/8330442043.shtml)
-- 2026-06-29 13:36 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/105751.shtml)
-- 2026-06-29 13:43 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/49874972697.shtml)
-- 2026-06-29 13:35 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.kurohicncr.top/Article/details/85803.shtml)
-- 2026-06-29 13:26 - [东部机场集团新增釜山航线](http://www.share.kurohicncr.top/Article/details/0367207.shtml)
-- 2026-06-29 13:42 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/359644.shtml)
-- 2026-06-29 13:27 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/0950614.shtml)
-- 2026-06-29 13:35 - [Mrbeast的30天不吃饭挑战](https://www.blog.minike.top/Article/details/315990851.shtml)
-- 2026-06-29 13:25 - [极限挑战第一季](http://www.blog.minike.top/Article/details/57486909712.shtml)
-- 2026-06-29 13:31 - [毕业寄几百斤快递回家女生发声](http://www.share.minike.top/Article/details/2526846294.shtml)
+- 2026-06-29 13:37 - [初心如磐 红色足迹](http://www.blog.kurohicncr.top/Article/details/74037232.shtml)
+- 2026-06-29 13:41 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/48814123.shtml)
+- 2026-06-29 13:51 - [向佑说向佐是一生依靠](https://www.share.minike.top/Article/details/88274079.shtml)
+- 2026-06-29 13:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/480298304381.shtml)
+- 2026-06-29 13:35 - [急先锋](http://www.blog.kurohicncr.top/Article/details/7376113.shtml)
+- 2026-06-29 13:51 - [普京称俄处于命运攸关之际](https://www.blog.minike.top/Article/details/387453283.shtml)
+- 2026-06-29 13:31 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/00287911.shtml)
+- 2026-06-29 13:48 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/844212296664.shtml)
+- 2026-06-29 13:26 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/14647.shtml)
+- 2026-06-29 13:26 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/477267134682.shtml)
+- 2026-06-29 13:42 - [啊啊啊](https://www.share.minike.top/Article/details/9020509.shtml)
+- 2026-06-29 13:27 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.kurohicncr.top/Article/details/24897.shtml)
+- 2026-06-29 13:41 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/14033.shtml)
+- 2026-06-29 13:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/3285325.shtml)
+- 2026-06-29 13:52 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/4855296.shtml)

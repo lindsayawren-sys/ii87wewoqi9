@@ -1,61 +1,61 @@
-# 福建宁德启动“一句话见民生”机制 专解民众身边“小而急”难题
+# 宗馥莉被曝罢免销售负责人，直管营销
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网宁德4月23日电 (记者 叶茂)“楼下路灯坏了三天没人修”“小区门口占道经营影响通行”“老人办社保多跑了一趟路”……这些民众身边的“小而急”问题，今后在福建省宁德市将有更快捷的反映和解决通道。 23日，2026年宁德市“一句话见民生”工作动员部署会召开，正式启动“一句话见民生”社情民意快速响应机制，并向首批75位来自基层一线的民生观察员颁发聘书。 “一句话见民生”机制是宁
+据界面新闻，娃哈哈和宏胜饮料在去年经历一系列人事波动后，今年再次迎来核心部门人员的变动。 据报道，5月11日，宏胜饮料集团发布一份组织架构调整及人员任免通知。其中一个重点是：将营销中心划归总裁统筹直管；营销中心总监兼销售公司总经理吴汀燕被免职。宏胜饮料集团的总裁即为宗馥莉。 同时，对销售公司内设科室整合重组，组成两大科室：商超特通管理科和渠道管理科，新科室承接原有全部业务职能。
 
 ## 正文
 
-中新网宁德4月23日电 (记者 叶茂)“楼下路灯坏了三天没人修”“小区门口占道经营影响通行”“老人办社保多跑了一趟路”……这些民众身边的“小而急”问题，今后在福建省宁德市将有更快捷的反映和解决通道。
+据界面新闻，娃哈哈和宏胜饮料在去年经历一系列人事波动后，今年再次迎来核心部门人员的变动。
 
-23日，2026年宁德市“一句话见民生”工作动员部署会召开，正式启动“一句话见民生”社情民意快速响应机制，并向首批75位来自基层一线的民生观察员颁发聘书。
+据报道，5月11日，宏胜饮料集团发布一份组织架构调整及人员任免通知。
 
-“一句话见民生”机制是宁德市民生专项行动指挥部创新推行的民生诉求快速响应机制。
+其中一个重点是：将营销中心划归总裁统筹直管；营销中心总监兼销售公司总经理吴汀燕被免职。
 
-民众或民生观察员只需用一句话、一张图等“短平快”的方式，清晰描述身边民生问题和建议，平台即可快速归集、部门快速办理、结果快速反馈，形成“收集—研判—办理—反馈”的闭环式社情民意快速响应体系，实现“民有所呼、我有所应”。
+宏胜饮料集团的总裁即为宗馥莉。
 
-据介绍，此次聘任的75名民生观察员都是宁德各县(市、区)从一线推选出来的“民情哨兵”。
+同时，对销售公司内设科室整合重组，组成两大科室：商超特通管理科和渠道管理科，新科室承接原有全部业务职能。
 
-他们将通过走访社区、街巷、校园、医院、市场等地，重点收集教育、医疗、养老、交通、环境、城市管理等方面的民生诉求。
+简单说，宏胜饮料集团和娃哈哈品牌的“营销中心”更像是管理和运营体系，“销售公司”则是具体承接经销商、渠道和回款的实体公司，两者是前后台的关系。
 
-同时，还承担监督反馈、政策宣传、评价建言和正向引导等职责，既对民生项目落地、部门办事效能等进行客观监督，也向民众解读惠民补贴、养老医保等政策，提升民众知晓率和获得感。
+此外，宏胜饮料还宣布了这些科室的相关负责人及相关人士变动。
 
-在工作重点上，民生观察员们将紧盯噪声扰民、停车难、道路破损、设施故障、养老就餐、上学就医、物业管理等高频痛点，聚焦“贴民心十大工程”“静夜守护”以及长者食堂、口袋公园、老旧小区改造等专项行动，依托工作平台，通过拍照或短视频，配以简短文字说明，规范上报线索，确保真实可查。
+其中大部分人员都是升职，而只有吴汀燕和吴潘潘（原计划中心生产管理科科长）被免职。
 
 ## 相关推荐
 
-- 2026-06-29 13:40 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 13:25 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 13:39 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 13:41 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 13:27 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 13:35 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 13:41 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 13:29 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 13:27 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 13:25 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 13:27 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 13:34 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 13:21 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 13:25 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 13:20 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 13:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 13:45 - [加拿大92分钟绝杀南非](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 13:45 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 13:43 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 13:35 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 13:51 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 13:44 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 13:48 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 13:31 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 13:45 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 13:49 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 13:46 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 13:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 13:46 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 13:45 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:46 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/817720082.shtml)
-- 2026-06-29 13:42 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/6674830505.shtml)
-- 2026-06-29 13:32 - [三都主：淘汰赛我会支持日本](http://www.blog.kurohicncr.top/Article/details/18002458868.shtml)
-- 2026-06-29 13:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/649614654.shtml)
-- 2026-06-29 13:23 - [三都主：淘汰赛我会支持日本](https://www.share.minike.top/Article/details/0869418.shtml)
-- 2026-06-29 13:35 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/61698162810.shtml)
-- 2026-06-29 13:23 - [三都主：淘汰赛我会支持日本](https://www.blog.minike.top/Article/details/864327352.shtml)
-- 2026-06-29 13:38 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/28249.shtml)
-- 2026-06-29 13:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/498443.shtml)
-- 2026-06-29 13:36 - [勇敢的心第二部](https://www.share.minike.top/Article/details/4413584.shtml)
-- 2026-06-29 13:47 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.kurohicncr.top/Article/details/3961381172.shtml)
-- 2026-06-29 13:46 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/9995423738.shtml)
-- 2026-06-29 13:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/25194958081.shtml)
-- 2026-06-29 13:42 - [F1奥地利大奖赛正赛集锦](https://www.share.minike.top/Article/details/05671.shtml)
-- 2026-06-29 13:27 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/162029.shtml)
+- 2026-06-29 13:50 - [这开放世界游戏，竟然允许玩家屠城？](http://www.blog.minike.top/Article/details/22032.shtml)
+- 2026-06-29 13:31 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/68392252.shtml)
+- 2026-06-29 13:34 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/5736655.shtml)
+- 2026-06-29 13:32 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/338858570636.shtml)
+- 2026-06-29 13:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/55170449777.shtml)
+- 2026-06-29 13:27 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/6044039.shtml)
+- 2026-06-29 13:28 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.kurohicncr.top/Article/details/49209478.shtml)
+- 2026-06-29 13:43 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.kurohicncr.top/Article/details/8221678.shtml)
+- 2026-06-29 13:44 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.minike.top/Article/details/731975289322.shtml)
+- 2026-06-29 13:26 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/217558.shtml)
+- 2026-06-29 13:44 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/9344421.shtml)
+- 2026-06-29 13:40 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/13371183713.shtml)
+- 2026-06-29 13:29 - [网友偶遇胡军和李乃文](http://www.blog.minike.top/Article/details/84018796768.shtml)
+- 2026-06-29 13:44 - [游戏数据被用于军事目的 国安部提醒](http://www.blog.minike.top/Article/details/719686.shtml)
+- 2026-06-29 13:29 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/16275372.shtml)

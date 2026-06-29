@@ -1,58 +1,45 @@
-# 我和我的海军——写在人民海军成立77周年之际
+# 外商来华参展：中国很强大，我们来这做生意很放心
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-新华社北京4月22日电 题：我和我的海军——写在人民海军成立77周年之际 新华社记者李秉宣、翟翔、李杰 我的海军，从来不是一句简单的称谓。 梦想、使命、自豪，短短几字，饱含深情——这是一个饱受苦难的民族向海图强的时代呐喊，是无数将士劈波斩浪、逐梦深蓝的生动写照，是亿万中华儿女与舰运国运同频共振的命运交响。 今年4月23日是人民海军成立77周年纪念日，让我们挂起满旗，吹响海军笛。
+发布时间：2026年05月09日 14:42 来源：中国新闻网 近日，一位外商在浦东国际机场口岸办理入境边检手续时，向移民管理警察盛赞中国营商环境：“中国很强大，我们来做生意很放心。” (制作 刘鹏 素材来源 上海机场边检站） 责任编辑：【罗攀】
 
 ## 正文
 
-新华社北京4月22日电 题：我和我的海军——写在人民海军成立77周年之际 新华社记者李秉宣、翟翔、李杰 我的海军，从来不是一句简单的称谓。
+发布时间：2026年05月09日 14:42 来源：中国新闻网 近日，一位外商在浦东国际机场口岸办理入境边检手续时，向移民管理警察盛赞中国营商环境：“中国很强大，我们来做生意很放心。
 
-梦想、使命、自豪，短短几字，饱含深情——这是一个饱受苦难的民族向海图强的时代呐喊，是无数将士劈波斩浪、逐梦深蓝的生动写照，是亿万中华儿女与舰运国运同频共振的命运交响。
-
-今年4月23日是人民海军成立77周年纪念日，让我们挂起满旗，吹响海军笛。
-
-这不仅是海军将士的节日，更是所有关心和热爱人民海军的人们共同的节日。
-
-梦想 近日，刚过而立之年的陈虞文完成了一个心愿。
-
-悬挂着我国首艘航母辽宁舰巨幅照片的展台前，陈虞文郑重地将一封回信捐赠给中国人民解放军海军博物馆。
-
-航空母舰，从来都不仅是一艘战舰。
-
-对海军官兵来说，她是人民海军的图腾，是集中了数十万海军将士力量与情感的符号。
+” (制作 刘鹏 素材来源 上海机场边检站） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 13:21 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 13:35 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 13:46 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 13:26 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 13:41 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 13:23 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 13:29 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 13:20 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 13:44 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 13:43 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 13:40 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 13:23 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 13:46 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 13:44 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 13:49 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 13:34 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 13:28 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 13:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 13:36 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 13:32 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 13:42 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 13:44 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 13:42 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:24 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.minike.top/Article/details/50960.shtml)
-- 2026-06-29 13:39 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/217708.shtml)
-- 2026-06-29 13:35 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/072016.shtml)
-- 2026-06-29 13:44 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/9476453.shtml)
-- 2026-06-29 13:41 - [42岁郭碧婷纯素颜状态](https://www.share.kurohicncr.top/Article/details/158700.shtml)
-- 2026-06-29 13:21 - [永远保持对人民的赤子之心](https://www.share.minike.top/Article/details/512014.shtml)
-- 2026-06-29 13:26 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/1774834516.shtml)
-- 2026-06-29 13:41 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/766152017.shtml)
-- 2026-06-29 13:37 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/704070215280.shtml)
-- 2026-06-29 13:47 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/179721053096.shtml)
-- 2026-06-29 13:42 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/9299902.shtml)
-- 2026-06-29 13:44 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/37525.shtml)
-- 2026-06-29 13:24 - [A股](https://www.blog.minike.top/Article/details/78173420821.shtml)
-- 2026-06-29 13:23 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.kurohicncr.top/Article/details/18406912273.shtml)
-- 2026-06-29 13:36 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/02810.shtml)
+- 2026-06-29 13:38 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.kurohicncr.top/Article/details/043866477640.shtml)
+- 2026-06-29 13:32 - [42岁郭碧婷纯素颜状态](http://www.blog.kurohicncr.top/Article/details/149833433.shtml)
+- 2026-06-29 13:36 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/759505296.shtml)
+- 2026-06-29 13:27 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/854286686.shtml)
+- 2026-06-29 13:25 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.kurohicncr.top/Article/details/2408538.shtml)
+- 2026-06-29 13:32 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/01740829.shtml)
+- 2026-06-29 13:36 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/490978975.shtml)
+- 2026-06-29 13:48 - [明星大侦探第一季](https://www.share.minike.top/Article/details/83381.shtml)
+- 2026-06-29 13:47 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.minike.top/Article/details/40619765414.shtml)
+- 2026-06-29 13:38 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/069163800.shtml)
+- 2026-06-29 13:43 - [俄称继续推进 乌称打击俄军设施](https://www.blog.kurohicncr.top/Article/details/38261775.shtml)
+- 2026-06-29 13:30 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/261299499.shtml)
+- 2026-06-29 13:38 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/916333603312.shtml)
+- 2026-06-29 13:43 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/688554.shtml)
+- 2026-06-29 13:43 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/64379401.shtml)

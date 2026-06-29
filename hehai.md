@@ -1,57 +1,58 @@
-# 黑龙江“换心人”健康存活32年 刷新亚洲纪录
+# 张雪机车发布安全隐患公告
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨4月23日电(记者 刘璐)“遵照医嘱、规律生活、阳光心态。”4月23日，在哈尔滨医科大学附属第二医院(以下简称哈医大二院)第二十二届“4.26爱心日”大型义诊活动现场，术后健康存活32年的于文峰总结了自己的“养心经”。 作为中国最早开展脏器移植研究的医院之一，1994年2月，哈医大二院为黑龙江省尚志市帽儿山镇中学教师于文峰成功实施了同种异体心脏移植手术。术后，他重返
+5月10日，张雪机车官方微信发布公告（文末附公告全文），“旅狼牌”500RR与500F的磁电机线束压板，在长期高负荷振动工况下可能存在疲劳断裂风险，断裂后会导致发动机损坏。 为了消除隐患，针对以下范围的“旅狼牌”500RR和500F，工厂提供3项免费服务。符合召回范围的车辆包括：25款500RR单摇臂‌：SD000028–SD021720、TD000251–TD001672；2
 
 ## 正文
 
-中新网哈尔滨4月23日电(记者 刘璐)“遵照医嘱、规律生活、阳光心态。
+5月10日，张雪机车官方微信发布公告（文末附公告全文），“旅狼牌”500RR与500F的磁电机线束压板，在长期高负荷振动工况下可能存在疲劳断裂风险，断裂后会导致发动机损坏。
 
-”4月23日，在哈尔滨医科大学附属第二医院(以下简称哈医大二院)第二十二届“4.26爱心日”大型义诊活动现场，术后健康存活32年的于文峰总结了自己的“养心经”。
+为了消除隐患，针对以下范围的“旅狼牌”500RR和500F，工厂提供3项免费服务。
 
-作为中国最早开展脏器移植研究的医院之一，1994年2月，哈医大二院为黑龙江省尚志市帽儿山镇中学教师于文峰成功实施了同种异体心脏移植手术。
+符合召回范围的车辆包括：25款500RR单摇臂‌：SD000028–SD021720、TD000251–TD001672；25款500RR双摇臂‌：SD000100–SD001795、TD000179–TD000234；25款500RR青春版‌：SD000002–SD000664、TD000011–TD000030；500F‌：SD000101–SD002636、TD000014–TD000146。
 
-术后，他重返教学一线。
+本次免费服务包含三项内容：一是免费更换升级版磁电机线束压板；二是整车点检；三是车辆到店处理完成后，为发动机延长一年质保。
 
-32年过去，如今63岁的于文峰依然保持着良好的生活状态，是亚洲心脏移植术后存活纪录保持者。
+公告还对服务进行了进一步说明，对于更换升级版磁电机线束压板，建议车辆行驶里程大于10000公里的，尽快与门店预约，到店处理；车辆已做完首次保养的（500公里），可在下一次5000公里到店保养时进行处理。
 
-他表示，自己每天坚持散步、打太极拳，保证三餐规律和充足睡眠，最重要的是保持阳光心态。
+另外，公告中明确列出了整车点检包括发动机检查、转向检查、离合检查、传动检查、制动检查、冷却系统检查、换挡检查、关键部位扭矩。
 
-于文峰的经历也映射着中国心脏移植技术的持续发展。
+更换磁电机线束压板、整车点检两个项目全部完成预估1-2小时。
 
-据哈医大二院心血管病医院院长、心内科主任于波介绍，心脏移植和人工心脏是终末期心力衰竭患者最后的生命防线。
+此次为张雪机车主动公告并提供延保等补偿措施，体现其对产品质量问题的积极应对态度‌‌。
 
 ## 相关推荐
 
-- 2026-06-29 13:36 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 13:43 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 13:29 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 13:27 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 13:29 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 13:46 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 13:25 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 13:27 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 13:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 13:33 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 13:27 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 13:47 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 13:47 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 13:46 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 13:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 13:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 13:46 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 13:29 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 13:29 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 13:41 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 13:32 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 13:27 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 13:52 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:22 - [普京称俄处于命运攸关之际](https://www.share.minike.top/Article/details/3378747.shtml)
-- 2026-06-29 13:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/19999147849.shtml)
-- 2026-06-29 13:29 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/0787847211.shtml)
-- 2026-06-29 13:37 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/262478.shtml)
-- 2026-06-29 13:23 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.blog.kurohicncr.top/Article/details/48245877678.shtml)
-- 2026-06-29 13:38 - [毒液2](https://www.blog.minike.top/Article/details/71484914058.shtml)
-- 2026-06-29 13:40 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/12528901.shtml)
-- 2026-06-29 13:24 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/420382206.shtml)
-- 2026-06-29 13:21 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.share.minike.top/Article/details/492483523050.shtml)
-- 2026-06-29 13:45 - [梅朗雄主张法国退出北约](http://www.share.kurohicncr.top/Article/details/195279.shtml)
-- 2026-06-29 13:36 - [撒旦的腋窝是什么比喻](http://www.blog.kurohicncr.top/Article/details/06463.shtml)
-- 2026-06-29 13:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/95927712.shtml)
-- 2026-06-29 13:21 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/637777740.shtml)
-- 2026-06-29 13:44 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/714462491685.shtml)
-- 2026-06-29 13:41 - [这位猫咪，请你自重！](https://www.blog.minike.top/Article/details/894210905279.shtml)
+- 2026-06-29 13:38 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/7799054533.shtml)
+- 2026-06-29 13:37 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/2507625.shtml)
+- 2026-06-29 13:44 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/4795388480.shtml)
+- 2026-06-29 13:42 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/156836356306.shtml)
+- 2026-06-29 13:46 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.blog.kurohicncr.top/Article/details/230821.shtml)
+- 2026-06-29 13:44 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/29657410040.shtml)
+- 2026-06-29 13:25 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/3752848034.shtml)
+- 2026-06-29 13:36 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/9818764.shtml)
+- 2026-06-29 13:32 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/4993371.shtml)
+- 2026-06-29 13:54 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.kurohicncr.top/Article/details/47876.shtml)
+- 2026-06-29 13:31 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/720191378109.shtml)
+- 2026-06-29 13:27 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/38695.shtml)
+- 2026-06-29 13:28 - [6月我国降水为何偏多](http://www.share.minike.top/Article/details/391955664720.shtml)
+- 2026-06-29 13:43 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/866104448173.shtml)
+- 2026-06-29 13:42 - [初心如磐 红色足迹](https://www.blog.kurohicncr.top/Article/details/153430647.shtml)

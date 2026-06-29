@@ -1,61 +1,51 @@
-# 中华优秀科普图书榜2025年度榜单在京发布
+# 探访全球首座储能电池"灯塔工厂" 揭秘一颗电芯的诞生
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网北京4月25日电 (记者 应妮)中华优秀科普图书榜2025年度榜单发布仪式暨新时代科普出版与全民阅读推广论坛24日在中国大百科全书出版社举办。 中国科普作家协会理事长王春法指出，在信息过载、知识爆炸的时代，优质科普榜单犹如全民阅读的“精准导航”，能为公众甄别精品、指引方向，中华优秀科普图书榜不仅是对优秀科普创作的高度认可，也对科普创作生态具有价值引领作用。 中国出版协会副
+发布时间：2026年05月09日 07:37 来源：中国新闻网 5月8日，记者走进位于重庆铜梁高新区的海辰储能重庆基地，实地探访储能电池制造的全流程。搅拌、涂布、模切、卷绕、热压……在全球首座储能电池“灯塔工厂”内，磷酸铁锂、石墨等原材料，先后经过极片制造、电芯组装、电芯测试3个环节、22道工序，最终蜕变为合格成品。 据介绍，海辰储能重庆基地每天能产出约10万颗电池，其核心并非
 
 ## 正文
 
-中新网北京4月25日电 (记者 应妮)中华优秀科普图书榜2025年度榜单发布仪式暨新时代科普出版与全民阅读推广论坛24日在中国大百科全书出版社举办。
+发布时间：2026年05月09日 07:37 来源：中国新闻网 5月8日，记者走进位于重庆铜梁高新区的海辰储能重庆基地，实地探访储能电池制造的全流程。
 
-中国科普作家协会理事长王春法指出，在信息过载、知识爆炸的时代，优质科普榜单犹如全民阅读的“精准导航”，能为公众甄别精品、指引方向，中华优秀科普图书榜不仅是对优秀科普创作的高度认可，也对科普创作生态具有价值引领作用。
+搅拌、涂布、模切、卷绕、热压……在全球首座储能电池“灯塔工厂”内，磷酸铁锂、石墨等原材料，先后经过极片制造、电芯组装、电芯测试3个环节、22道工序，最终蜕变为合格成品。
 
-中国出版协会副理事长李朋义强调，科学普及是全民阅读中不可或缺的“硬核”内容，优质科普阅读能够帮助公众辨别真伪、理解世界、拥抱变化，需要高质量的科普出版供给。
+据介绍，海辰储能重庆基地每天能产出约10万颗电池，其核心并非简单“机器换人”。
 
-他表示，本次活动设置了丰富多元的议题，让科学家、科普作家、出版人、教育工作者等科普阅读相关各方对话交流，有助于构建共建共享的科普阅读生态圈。
+基地深度融合生成式人工智能、机器学习及人工智能物联网等前沿技术，部署40余个数字化解决方案，覆盖原材料管理、电芯制造与成品交付全链路，让优品率、产能、设备综合效率等关键指标实现大幅提升。
 
-中国大百科全书出版社社长高世屹宣读了入榜图书榜单。
-
-据介绍，活动于今年2月启动，共征集到150余家出版单位近千种图书参评。
-
-组委会邀请众多科普专家、出版专家、知名书评人等参与评选，最终推荐年度榜单图书共33种，其中入选图书20种、融合图书3种，提名图书10种。
-
-榜单图书主题覆盖自然科学、工程技术、医学健康、少儿科普等多个领域，集中展现了我国科普出版的最新成果与创作活力。
+(张霁雯 制作 王佳琪) 责任编辑：【张燕玲】
 
 ## 相关推荐
 
-- 2026-06-29 13:45 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 13:43 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 13:24 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 13:40 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 13:24 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 13:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 13:28 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 13:33 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 13:38 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 13:22 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 13:24 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 13:28 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 13:45 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 13:44 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 13:38 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 13:38 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 13:46 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 13:42 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 13:36 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 13:53 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 13:39 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 13:41 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 13:25 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 13:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 13:52 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 13:44 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:42 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/56211.shtml)
-- 2026-06-29 13:38 - [撒旦的腋窝是什么比喻](https://www.share.kurohicncr.top/Article/details/836850.shtml)
-- 2026-06-29 13:31 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.minike.top/Article/details/89784372.shtml)
-- 2026-06-29 13:23 - [四川宜宾地震致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/38925.shtml)
-- 2026-06-29 13:33 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/427652.shtml)
-- 2026-06-29 13:29 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.minike.top/Article/details/467984957535.shtml)
-- 2026-06-29 13:23 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/09908584.shtml)
-- 2026-06-29 13:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/684596140216.shtml)
-- 2026-06-29 13:35 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/150658.shtml)
-- 2026-06-29 13:30 - [天道](http://www.share.minike.top/Article/details/2402771805.shtml)
-- 2026-06-29 13:43 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/096694785446.shtml)
-- 2026-06-29 13:19 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/036870290.shtml)
-- 2026-06-29 13:24 - [久坐小心“死臀综合征”](https://www.blog.minike.top/Article/details/2431118480.shtml)
-- 2026-06-29 13:33 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.minike.top/Article/details/335843.shtml)
-- 2026-06-29 13:41 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/02336016.shtml)
+- 2026-06-29 13:40 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.minike.top/Article/details/094645423.shtml)
+- 2026-06-29 13:27 - [扫黑风暴](https://www.share.minike.top/Article/details/7057169.shtml)
+- 2026-06-29 13:33 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/88177146.shtml)
+- 2026-06-29 13:28 - [韩媒破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/18951317699.shtml)
+- 2026-06-29 13:32 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/40642.shtml)
+- 2026-06-29 13:53 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/557884861378.shtml)
+- 2026-06-29 13:41 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/84723.shtml)
+- 2026-06-29 13:28 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/281187.shtml)
+- 2026-06-29 13:50 - [实习期把公司领导开除了](http://www.share.minike.top/Article/details/256026.shtml)
+- 2026-06-29 13:35 - [男子月薪五千卖房借贷给女友转账百万](http://www.blog.kurohicncr.top/Article/details/079532628385.shtml)
+- 2026-06-29 13:33 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.kurohicncr.top/Article/details/352484.shtml)
+- 2026-06-29 13:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/4359902.shtml)
+- 2026-06-29 13:46 - [A股](http://www.share.minike.top/Article/details/355843894574.shtml)
+- 2026-06-29 13:28 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/53146100.shtml)
+- 2026-06-29 13:40 - [金价银价下跌 油价上涨](http://www.share.kurohicncr.top/Article/details/474422408675.shtml)

@@ -1,59 +1,58 @@
-# 2026昆明·泰国节启幕 以文化搭建中泰交流桥梁
+# 1.5万亿元险资重仓股曝光
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新社昆明4月22日电 (记者 韩帅南)香甜的泰式奶茶在碎冰里冒泡，冬阴功的酸辣在空气中弥漫，戴着面具的孔剧演员以优雅缓慢的舞姿演绎泰国的古老史诗......2026昆明·泰国节22日在昆明启幕，市民可一站式触摸“千佛之国”的文脉与烟火。 昆明·泰国节由泰王国驻昆明总领事馆主办，今年是第16届，集传统演艺、特色市集、手工体验于一体，将持续至4月26日。活动现场的泰国特色集市共设
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！随着A股一季报披露工作正式收官，险资等市场核心机构的投资布局路径逐步清晰。 数据显示，截至一季度末，险资作为上市公司前十大流通股东，合计重仓A股标的达523只，较2025年末的510只增加13只，持股总量累计达到1004亿股。从持仓规模来看，以一季度末股价计算，险资重仓股总市值达到1.5万亿元，其中银行股持
 
 ## 正文
 
-中新社昆明4月22日电 (记者 韩帅南)香甜的泰式奶茶在碎冰里冒泡，冬阴功的酸辣在空气中弥漫，戴着面具的孔剧演员以优雅缓慢的舞姿演绎泰国的古老史诗......2026昆明·泰国节22日在昆明启幕，市民可一站式触摸“千佛之国”的文脉与烟火。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-昆明·泰国节由泰王国驻昆明总领事馆主办，今年是第16届，集传统演艺、特色市集、手工体验于一体，将持续至4月26日。
+随着A股一季报披露工作正式收官，险资等市场核心机构的投资布局路径逐步清晰。
 
-活动现场的泰国特色集市共设59个参展商摊位和两个特装展位，汇聚泰式美食、手工艺品、文创好物及特色农产品等。
+数据显示，截至一季度末，险资作为上市公司前十大流通股东，合计重仓A股标的达523只，较2025年末的510只增加13只，持股总量累计达到1004亿股。
 
-泰国参展商陆奕将手工织造的泰式服饰带来展售，“泰服是蕴含泰国文化的传统民族服饰，非常华美，希望借这次机会让更多中国朋友了解。
+从持仓规模来看，以一季度末股价计算，险资重仓股总市值达到1.5万亿元，其中银行股持仓市值占比达到23.3%，依旧是险资配置的“中坚力量”。
 
-” 舞台区轮番上演泰拳、泰国舞蹈等表演。
+十大重仓股银行占据六席 银行板块是险资一季度的仓底。
 
-特别是被誉为泰国艺术瑰宝的“孔剧”首次亮相泰国节，这项被列入人类非物质文化遗产代表作名录的传统假面舞剧吸引市民驻足欣赏。
+在险资持仓市值排名前十的个股中，银行股占据六席，分别是：平安银行、兴业银行、浦发银行、招商银行、农业银行、华夏银行。
 
-昆明市民秦浩曾多次前往泰国旅游，但本届泰国节依然给他带来惊喜，“以往去泰国都是看海、品美食，这次在家门口观赏地道的孔剧和泰拳表演，很过瘾。
+除了原有的“老底”之外，一季度险资还加大了银行股的配置力度，新进成为多家银行股的前十大股东。
 
-” 云南是中国陆上距离泰国最近的省份。
+如中国人寿在一季度新进杭州银行、上海银行、江苏银行前十大流通股东；新华保险则新进邮储银行、中国银行前十大股东行列，截至一季度末分别持有上述两家银行1.1亿股、1.67亿股，持股比例分别为0.15%、0.08%；太平人寿新进中国银行11.39亿股，持股占比0.07%。
 
 ## 相关推荐
 
-- 2026-06-29 13:25 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 13:47 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 13:37 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 13:32 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 13:28 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 13:22 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 13:26 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 13:18 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 13:30 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 13:34 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 13:20 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 13:39 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 13:40 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 13:40 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 13:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 13:44 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 13:44 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 13:27 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 13:52 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 13:49 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 13:25 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 13:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 13:52 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 13:43 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 13:38 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:22 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/001034.shtml)
-- 2026-06-29 13:20 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/10613.shtml)
-- 2026-06-29 13:30 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/99221.shtml)
-- 2026-06-29 13:21 - [沙丘](http://www.share.kurohicncr.top/Article/details/4904509468.shtml)
-- 2026-06-29 13:45 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/39712342.shtml)
-- 2026-06-29 13:35 - [一见倾心](http://www.share.kurohicncr.top/Article/details/7641956.shtml)
-- 2026-06-29 13:20 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/011187776.shtml)
-- 2026-06-29 13:45 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/8566829.shtml)
-- 2026-06-29 13:42 - [毕业群都在出什么东西](https://www.share.minike.top/Article/details/69873333.shtml)
-- 2026-06-29 13:25 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/2216024.shtml)
-- 2026-06-29 13:24 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.blog.minike.top/Article/details/870933.shtml)
-- 2026-06-29 13:19 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/0096736.shtml)
-- 2026-06-29 13:36 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/68586.shtml)
-- 2026-06-29 13:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/18396941707.shtml)
-- 2026-06-29 13:20 - [多家银行收紧个人贵金属业务](http://www.share.minike.top/Article/details/3010283111.shtml)
+- 2026-06-29 13:25 - [在委侨团负责人：家乡的帮助很及时](http://www.share.minike.top/Article/details/123778.shtml)
+- 2026-06-29 13:44 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/16247.shtml)
+- 2026-06-29 13:27 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.share.kurohicncr.top/Article/details/48120851.shtml)
+- 2026-06-29 13:52 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/3796717.shtml)
+- 2026-06-29 13:41 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/9853320802.shtml)
+- 2026-06-29 13:27 - [加拿大92分钟绝杀](http://www.blog.minike.top/Article/details/147007548685.shtml)
+- 2026-06-29 13:37 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.minike.top/Article/details/965668521560.shtml)
+- 2026-06-29 13:39 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/791647.shtml)
+- 2026-06-29 13:52 - [久坐小心“死臀综合征”](https://www.share.minike.top/Article/details/3181007507.shtml)
+- 2026-06-29 13:47 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/598151253.shtml)
+- 2026-06-29 13:51 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/56431872.shtml)
+- 2026-06-29 13:38 - [链博会上的机器人太全能了](http://www.share.kurohicncr.top/Article/details/70861058067.shtml)
+- 2026-06-29 13:49 - [委内瑞拉地震死亡人数升至1450人](http://www.blog.kurohicncr.top/Article/details/60332623.shtml)
+- 2026-06-29 13:52 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/243074865.shtml)
+- 2026-06-29 13:48 - [请回答王牌2019](https://www.share.minike.top/Article/details/66428.shtml)

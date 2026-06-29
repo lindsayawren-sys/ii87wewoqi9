@@ -1,59 +1,53 @@
-# 人民锐评：全民阅读时代，实体书店如何转型升级？
+# 全球油价飙升，莫迪呼吁印度民众节约燃油
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-金台岩 来源：人民网-观点频道 “共促全民阅读，共建书香社会”，4月20日至22日，第五届全民阅读大会在江西南昌举办，“全民阅读活动周”同步启动。2026年修订版《全民阅读促进条例》正式施行，全民阅读由倡议上升为国家法定制度。 《第二十三次全国国民阅读调查报告》显示，2025年数字化阅读方式(电脑端网络在线阅读、手机阅读、电子阅读器阅读、Pad阅读、听书、视频讲书等)的接触率为
+受全球能源价格大涨冲击，印度外汇储备承压，印度总理纳伦德拉・莫迪周日呼吁民众及企业节约燃油，并重启居家办公模式，以减少汽油和柴油消耗。 莫迪表示，民众和企业应优先恢复新冠疫情高峰期广泛推行的居家办公、线上会议模式，此举将惠及国家整体利益。 莫迪称，国际燃油价格高企，印度必须通过减少汽油、柴油消耗来节省外汇开支。责任编辑：李桐
 
 ## 正文
 
-金台岩 来源：人民网-观点频道 “共促全民阅读，共建书香社会”，4月20日至22日，第五届全民阅读大会在江西南昌举办，“全民阅读活动周”同步启动。
+受全球能源价格大涨冲击，印度外汇储备承压，印度总理纳伦德拉・莫迪周日呼吁民众及企业节约燃油，并重启居家办公模式，以减少汽油和柴油消耗。
 
-2026年修订版《全民阅读促进条例》正式施行，全民阅读由倡议上升为国家法定制度。
+莫迪表示，民众和企业应优先恢复新冠疫情高峰期广泛推行的居家办公、线上会议模式，此举将惠及国家整体利益。
 
-《第二十三次全国国民阅读调查报告》显示，2025年数字化阅读方式(电脑端网络在线阅读、手机阅读、电子阅读器阅读、Pad阅读、听书、视频讲书等)的接触率为80.8%，较2024年的80.6%增长了0.2个百分点。
+莫迪称，国际燃油价格高企，印度必须通过减少汽油、柴油消耗来节省外汇开支。
 
-数字化时代，人们阅读习惯日渐改变，实体书店如何借势焕新？
-
-书店的独立价值与核心竞争力又在哪里？
-
-无需回避，一些书店从书籍种类、服务质量到环境，难以满足当下消费者的多元需求。
-
-一方面，实体书店租金等运营成本较高，往往靠“图书+X”的运营模式，引入咖啡、文创、轻餐饮等才能勉强收支平衡。
-
-多元经营下，一些书店不重视图书质量，什么好卖摆什么。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 13:46 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 13:26 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 13:37 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 13:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 13:33 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 13:47 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 13:35 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 13:21 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-29 13:32 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 13:36 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 13:26 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 13:43 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 13:39 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 13:24 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 13:51 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 13:49 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 13:52 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 13:29 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 13:32 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 13:25 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 13:37 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 13:29 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 13:36 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 13:27 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 13:25 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 13:51 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 13:30 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 13:38 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:42 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/0977742506.shtml)
-- 2026-06-29 13:32 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/568159.shtml)
-- 2026-06-29 13:46 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/27477378834.shtml)
-- 2026-06-29 13:43 - [小娘惹](http://www.share.kurohicncr.top/Article/details/34986105878.shtml)
-- 2026-06-29 13:21 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/19871717.shtml)
-- 2026-06-29 13:24 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.minike.top/Article/details/9854551.shtml)
-- 2026-06-29 13:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/877552519.shtml)
-- 2026-06-29 13:43 - [为什么欧洲人不装空调](http://www.blog.kurohicncr.top/Article/details/65596299256.shtml)
-- 2026-06-29 13:28 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/629375397.shtml)
-- 2026-06-29 13:32 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/01010749.shtml)
-- 2026-06-29 13:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/03677.shtml)
-- 2026-06-29 13:25 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/51277842177.shtml)
-- 2026-06-29 13:47 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/480082039.shtml)
-- 2026-06-29 13:46 - [【独家】牧神记 第89集 明心](http://www.blog.minike.top/Article/details/39778724334.shtml)
-- 2026-06-29 13:39 - [为什么欧洲人不装空调](https://www.share.minike.top/Article/details/044527.shtml)
+- 2026-06-29 13:39 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.minike.top/Article/details/64742.shtml)
+- 2026-06-29 13:48 - [下飞机后，我做了个很蠢的决定......](https://www.blog.kurohicncr.top/Article/details/35455292.shtml)
+- 2026-06-29 13:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/57157.shtml)
+- 2026-06-29 13:25 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/6384147.shtml)
+- 2026-06-29 13:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/7917452188.shtml)
+- 2026-06-29 13:52 - [3D打印不是工业革命，它是……](http://www.share.minike.top/Article/details/616749429.shtml)
+- 2026-06-29 13:53 - [全国第三艘万车级汽车运输船交付](http://www.blog.kurohicncr.top/Article/details/64480888575.shtml)
+- 2026-06-29 13:39 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/643936660.shtml)
+- 2026-06-29 13:43 - [张一山说杨紫早该拿奖了](https://www.blog.minike.top/Article/details/6219564.shtml)
+- 2026-06-29 13:49 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/2051207886.shtml)
+- 2026-06-29 13:39 - [普京称俄处于命运攸关之际](http://www.share.kurohicncr.top/Article/details/73022808.shtml)
+- 2026-06-29 13:43 - [这位天才台湾人第一次来大陆，开智了](http://www.blog.kurohicncr.top/Article/details/798432.shtml)
+- 2026-06-29 13:45 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/792519.shtml)
+- 2026-06-29 13:40 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/737220.shtml)
+- 2026-06-29 13:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/46252.shtml)

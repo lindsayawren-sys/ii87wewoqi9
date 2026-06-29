@@ -1,60 +1,57 @@
-# 中东局势紧张之际 日本消费者物价涨幅回升
+# 澳大利亚卫生官员：涉疫邮轮返澳人员将隔离至少三周
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-受中东战事推高能源成本影响，日本3月份消费者物价涨幅小幅加快。周五公布的政府数据显示，不包括生鲜食品的消费者价格同比上涨1.8%，涨幅高于2月份的1.6%。该涨幅与媒体对经济学家调查得出的预测相符。能源价格降幅放缓，3月份下降5.7%，而2月份的降幅为9.1%，这反映出中东冲突引发的油价飙升。在地缘政治不确定性加剧之际，外界普遍预计日本央行将在下周的会议上维持政策利率不变。然而
+中新社悉尼5月11日电(记者 薄雯雯)澳大利亚卫生和老年护理部长马克·巴特勒11日表示，从涉汉坦病毒疫情的“洪迪厄斯”号邮轮疏散并返回澳大利亚的6人将接受至少三周隔离。 据澳大利亚广播公司报道，这6人包括4名澳大利亚公民、1名澳永久居民以及1名新西兰公民。他们预计将于11日晚些时候从西班牙特内里费岛搭乘澳政府安排的包机返澳，机上将配备医护人员。抵澳后，相关人员将被送往西澳大利亚
 
 ## 正文
 
-受中东战事推高能源成本影响，日本3月份消费者物价涨幅小幅加快。
+中新社悉尼5月11日电(记者 薄雯雯)澳大利亚卫生和老年护理部长马克·巴特勒11日表示，从涉汉坦病毒疫情的“洪迪厄斯”号邮轮疏散并返回澳大利亚的6人将接受至少三周隔离。
 
-周五公布的政府数据显示，不包括生鲜食品的消费者价格同比上涨1.8%，涨幅高于2月份的1.6%。
+据澳大利亚广播公司报道，这6人包括4名澳大利亚公民、1名澳永久居民以及1名新西兰公民。
 
-该涨幅与媒体对经济学家调查得出的预测相符。
+他们预计将于11日晚些时候从西班牙特内里费岛搭乘澳政府安排的包机返澳，机上将配备医护人员。
 
-能源价格降幅放缓，3月份下降5.7%，而2月份的降幅为9.1%，这反映出中东冲突引发的油价飙升。
+抵澳后，相关人员将被送往西澳大利亚州首府珀斯附近的隔离设施。
 
-在地缘政治不确定性加剧之际，外界普遍预计日本央行将在下周的会议上维持政策利率不变。
+巴特勒表示，目前尚无澳大利亚人出现汉坦病毒感染症状。
 
-然而，由于能源成本不断上升和日圆走弱有可能加速基本通胀，该央行可能会继续寻求进一步加息。
+他说，汉坦病毒潜伏期可能长达42天，但传播风险通常会在前两周后下降，因此澳政府决定采取“预防性措施”。
 
-该央行的政策委员会定于周二发布关于增长和物价的最新预测。
+政府将在三周隔离期结束后，根据进一步的卫生建议决定后续安排。
 
-责任编辑：王永生
+他还称，由于返澳人员需搭乘小型飞机进行长途飞行，旅途中存在一定传播风险。
 
 ## 相关推荐
 
-- 2026-06-29 13:46 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 13:24 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 13:29 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 13:20 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 13:41 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 13:28 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 13:25 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 13:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 13:47 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 13:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 13:19 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 13:45 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 13:28 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 13:31 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 13:31 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 13:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 13:52 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 13:29 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 13:25 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 13:39 - [A股限售股解禁一览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 13:34 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 13:39 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 13:39 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 13:33 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 13:42 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:36 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/5596394196.shtml)
-- 2026-06-29 13:23 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/91477.shtml)
-- 2026-06-29 13:39 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/60324539744.shtml)
-- 2026-06-29 13:28 - [T1对战KC](https://www.share.minike.top/Article/details/822384.shtml)
-- 2026-06-29 13:21 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.minike.top/Article/details/353973.shtml)
-- 2026-06-29 13:42 - [吴磊爱上回收了](https://www.share.kurohicncr.top/Article/details/69727251313.shtml)
-- 2026-06-29 13:43 - [北极荒岛生存挑战](http://www.share.minike.top/Article/details/068774071.shtml)
-- 2026-06-29 13:40 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/772247497814.shtml)
-- 2026-06-29 13:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/757928.shtml)
-- 2026-06-29 13:33 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/979584.shtml)
-- 2026-06-29 13:27 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/07291023.shtml)
-- 2026-06-29 13:19 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/079713399.shtml)
-- 2026-06-29 13:40 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/3597405.shtml)
-- 2026-06-29 13:42 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/8278425.shtml)
-- 2026-06-29 13:28 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/315979820.shtml)
+- 2026-06-29 13:52 - [爱情有烟火你是知道我爱看什么的](http://www.share.kurohicncr.top/Article/details/719342504.shtml)
+- 2026-06-29 13:52 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/068308.shtml)
+- 2026-06-29 13:31 - [医药股集体爆发](http://www.share.kurohicncr.top/Article/details/06032141584.shtml)
+- 2026-06-29 13:34 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/99342.shtml)
+- 2026-06-29 13:27 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.kurohicncr.top/Article/details/062119691.shtml)
+- 2026-06-29 13:38 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/30602462584.shtml)
+- 2026-06-29 13:46 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/887602121401.shtml)
+- 2026-06-29 13:52 - [F1奥地利正赛战报](https://www.share.kurohicncr.top/Article/details/854989410120.shtml)
+- 2026-06-29 13:30 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/21147111.shtml)
+- 2026-06-29 13:37 - [为什么6月以来北方频繁降雨](http://www.share.minike.top/Article/details/817962307424.shtml)
+- 2026-06-29 13:39 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/59129885.shtml)
+- 2026-06-29 13:50 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/1938513920.shtml)
+- 2026-06-29 13:26 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/10050121.shtml)
+- 2026-06-29 13:28 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/1009686.shtml)
+- 2026-06-29 13:35 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.kurohicncr.top/Article/details/49348.shtml)

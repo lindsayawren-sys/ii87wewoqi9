@@ -1,58 +1,58 @@
-# Robinhood面向散户的投资工具入股OpenAI
+# 云南保山以咖为景、发力精品——国产咖啡有“咖位”（经济新方位·服务业扩能提质）
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-Robinhood周三宣布，其面向散户投资者的专属投资工具Robinhood Ventures Fund I已入股私营人工智能公司OpenAI，持有少量股份。 该基金为散户投资者提供投资多家私营科技公司的渠道，此次向这家AI巨头投资了7500万美元。该基金已于今年3月上市，并在纽约证券交易所开始交易。 Robinhood Ventures Fund I总裁在声明中表示：“Ope
+云南保山以咖为景、发力精品—— 国产咖啡有“咖位”（经济新方位·服务业扩能提质） 本报记者 杨文明《人民日报》（2026年05月10日 第 02 版） “一、二、三，开始！”咖啡师李金合打开喷枪，加热后的虹吸壶里，咖啡逐渐沸腾，游客举起手机，记录下这一瞬间。 自驾滇西北的游客专程来体验、当地人路过也会被吸引……凭借独特的喷枪煮咖啡手艺和满满仪式感，云南省保山市隆阳区芒宽彝族傣族
 
 ## 正文
 
-Robinhood周三宣布，其面向散户投资者的专属投资工具Robinhood Ventures Fund I已入股私营人工智能公司OpenAI，持有少量股份。
+云南保山以咖为景、发力精品—— 国产咖啡有“咖位”（经济新方位·服务业扩能提质） 本报记者 杨文明《人民日报》（2026年05月10日 第 02 版） “一、二、三，开始！
 
-该基金为散户投资者提供投资多家私营科技公司的渠道，此次向这家AI巨头投资了7500万美元。
+”咖啡师李金合打开喷枪，加热后的虹吸壶里，咖啡逐渐沸腾，游客举起手机，记录下这一瞬间。
 
-该基金已于今年3月上市，并在纽约证券交易所开始交易。
+自驾滇西北的游客专程来体验、当地人路过也会被吸引……凭借独特的喷枪煮咖啡手艺和满满仪式感，云南省保山市隆阳区芒宽彝族傣族乡的“路边咖啡馆”，自打去年“火出圈”，就没闲下过。
 
-Robinhood Ventures Fund I总裁在声明中表示：“OpenAI是一家前沿的人工智能公司，我们非常自豪能将其纳入基金组合。
+咖啡馆更像“咖啡摊”。
 
-作为该基金迄今为止最大的投资之一，这凸显了我们的核心使命：为普通投资者提供我们认为正在塑造未来的变革型公司的投资机会。
+经营者兼咖啡师李金合花3000元搭起凉棚；烧烤、冷饮、特产，周边农户纷纷跟着出摊，各类业态逐步完善；相关部门引导合规有序经营，增设停车场、公厕，更好服务游客。
 
-” 此举标志着两家公司在去年夏季公开争执后的和解。
+为什么能吸引游客？
 
-此前，Robinhood在欧洲推出OpenAI和SpaceX的“代币化”股票，但OpenAI公开表示这些代币不代表公司实际股权。
+李金合分析，自己种的咖啡味道不错，更关键的是用喷枪煮咖啡，“视觉冲击力强，适合互联网传播。
 
-与此前不同，此次该基金通过购买OpenAI普通股完成投资，属于传统的股权投资结构。
+”李金合说，自己只种了百亩咖啡，但卖出去的不止千亩产量。
 
 ## 相关推荐
 
-- 2026-06-29 13:42 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 13:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 13:39 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 13:20 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 13:21 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 13:41 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 13:32 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 13:19 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 13:37 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 13:42 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 13:42 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 13:41 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 13:42 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 13:28 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 13:32 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 13:29 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 13:29 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 13:27 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 13:44 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 13:46 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 13:53 - [赵今麦客串电影版开端](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 13:36 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 13:46 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 13:32 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:43 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/60392840.shtml)
-- 2026-06-29 13:40 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.kurohicncr.top/Article/details/556243324.shtml)
-- 2026-06-29 13:24 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/33766.shtml)
-- 2026-06-29 13:39 - [毕业寄几百斤快递回家女生发声](http://www.blog.kurohicncr.top/Article/details/9365978.shtml)
-- 2026-06-29 13:25 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/2748738121.shtml)
-- 2026-06-29 13:40 - [女子遭家暴两次起诉离婚均被驳回](https://www.share.minike.top/Article/details/097461231216.shtml)
-- 2026-06-29 13:38 - [下飞机后，我做了个很蠢的决定......](https://www.blog.kurohicncr.top/Article/details/030990965380.shtml)
-- 2026-06-29 13:44 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.minike.top/Article/details/2792422771.shtml)
-- 2026-06-29 13:43 - [异世界一点都不好玩！](https://www.share.minike.top/Article/details/5838295.shtml)
-- 2026-06-29 13:24 - [世界杯用球成部分门将噩梦](http://www.blog.kurohicncr.top/Article/details/756460.shtml)
-- 2026-06-29 13:27 - [中餐厅南北饮食差异](http://www.blog.minike.top/Article/details/05526135044.shtml)
-- 2026-06-29 13:32 - [杨紫《生命树》播放量破百亿](https://www.blog.minike.top/Article/details/810860783636.shtml)
-- 2026-06-29 13:37 - [天道](http://www.share.kurohicncr.top/Article/details/4486882746.shtml)
-- 2026-06-29 13:32 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/997980610005.shtml)
-- 2026-06-29 13:34 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/9220504.shtml)
+- 2026-06-29 13:49 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/53347.shtml)
+- 2026-06-29 13:41 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/335445.shtml)
+- 2026-06-29 13:46 - [极限挑战第一季](http://www.share.minike.top/Article/details/7394909971.shtml)
+- 2026-06-29 13:38 - [市民骑哈啰单车79分钟付30元](http://www.blog.kurohicncr.top/Article/details/006312481570.shtml)
+- 2026-06-29 13:24 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/0689442.shtml)
+- 2026-06-29 13:39 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/320584331.shtml)
+- 2026-06-29 13:41 - [周生如故](https://www.share.minike.top/Article/details/7119745538.shtml)
+- 2026-06-29 13:31 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/1097395944.shtml)
+- 2026-06-29 13:47 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/7228145.shtml)
+- 2026-06-29 13:36 - [BW2026游览指南](http://www.blog.kurohicncr.top/Article/details/25754273624.shtml)
+- 2026-06-29 13:31 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/54889992.shtml)
+- 2026-06-29 13:47 - [王楚钦3-0周启豪 晋级32强](https://www.share.kurohicncr.top/Article/details/039767154172.shtml)
+- 2026-06-29 13:32 - [天道](https://www.share.minike.top/Article/details/81726641977.shtml)
+- 2026-06-29 13:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/74647.shtml)
+- 2026-06-29 13:50 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/6500655997.shtml)

@@ -1,61 +1,57 @@
-# 拍照识字、自动翻译 探索打开古籍的N种方式！
+# 申通快递年营收556亿：并表丹鸟物流 菜鸟套现3.6亿
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-古籍是我国文化宝库的重要部分，承载着丰富的历史、文化和智慧。而许多古籍都是竖版书，繁体字、文言文，阅读有门槛。不过，AI的助力使得许多古籍成为触手可及的知识，翻译，答疑一条龙服务，让阅读古籍成为更多人的日常。国家图书馆联合全国180多家古籍收藏单位，打造了一座“云端古籍图书馆”——中华古籍智慧化服务平台。上线一年多以来，已经上传了1.3万多种14余万册古籍。古代纪年自动换算现代
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷递 雷递网 雷建平 5月10日 申通快递（股票代码：002468.SZ）日前发布2025年的年报。年报显示，申通快递2025年营收555.86亿，较上年同期的471.69亿元增长17.84%。 申通快递2025年归属于上市公司股东净利13.69亿，较上同期的10.4亿元增长31.61%；扣非后净利1
 
 ## 正文
 
-古籍是我国文化宝库的重要部分，承载着丰富的历史、文化和智慧。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-而许多古籍都是竖版书，繁体字、文言文，阅读有门槛。
+来源：雷递 雷递网 雷建平 5月10日 申通快递（股票代码：002468.SZ）日前发布2025年的年报。
 
-不过，AI的助力使得许多古籍成为触手可及的知识，翻译，答疑一条龙服务，让阅读古籍成为更多人的日常。
+年报显示，申通快递2025年营收555.86亿，较上年同期的471.69亿元增长17.84%。
 
-国家图书馆联合全国180多家古籍收藏单位，打造了一座“云端古籍图书馆”——中华古籍智慧化服务平台。
+申通快递2025年归属于上市公司股东净利13.69亿，较上同期的10.4亿元增长31.61%；扣非后净利13.95亿，较上年同期的10.17亿增长37%。
 
-上线一年多以来，已经上传了1.3万多种14余万册古籍。
+申通快递2025年第四季度营收为170.16亿，净利为6.13亿，扣非后净利为6.37亿元。
 
-古代纪年自动换算现代纪年，古代地名转换今天省市一键查询。
+申通快递2026年第一季度营收为156.86亿，较上年同期的120亿元增长30.74%。
 
-古籍内容可以通过大模型实现文言文与白话文，简繁体、横竖版转换。
+申通快递2026年第一季度净利为4.59亿，较上同期的2.36亿增长94%；扣非后净利为4.64亿，较上年同期的2.3亿增长101%。
 
-总台央视记者 于茜：“文津漾楫”是国家图书馆新推出的古籍阅读小程序，依托于中华古籍智慧化服务平台，现在已经能实现拍照识别对联、诗词和古籍原文等功能，利用AI助手大家可以随时随地阅读自己喜欢的古代典籍。
+申通并表丹鸟物流 菜鸟套现3.6亿 申通快递是2025年7月宣布斥资3.62亿元收购丹鸟物流100%股权。
 
 ## 相关推荐
 
-- 2026-06-29 13:31 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 13:27 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 13:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 13:27 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 13:30 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 13:40 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 13:23 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 13:35 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 13:45 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-29 13:19 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 13:29 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 13:33 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 13:46 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 13:38 - [世界杯用球成部分门将噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 13:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 13:41 - [2025年人口增长10强城市出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 13:48 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 13:37 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 13:35 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 13:49 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 13:47 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 13:26 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 13:40 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 13:32 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 13:41 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 13:46 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:24 - [四川宜宾地震](http://www.share.minike.top/Article/details/7978729.shtml)
-- 2026-06-29 13:38 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/9384997430.shtml)
-- 2026-06-29 13:30 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/4672894.shtml)
-- 2026-06-29 13:27 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/036498484200.shtml)
-- 2026-06-29 13:18 - [【独家】牧神记 第89集 明心](https://www.blog.kurohicncr.top/Article/details/1627059159.shtml)
-- 2026-06-29 13:38 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/365126078.shtml)
-- 2026-06-29 13:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/9139720.shtml)
-- 2026-06-29 13:44 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/213444421.shtml)
-- 2026-06-29 13:41 - [向佑说向佐是一生依靠](http://www.share.minike.top/Article/details/665215471510.shtml)
-- 2026-06-29 13:34 - [A股](http://www.blog.kurohicncr.top/Article/details/70225.shtml)
-- 2026-06-29 13:19 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/67697484.shtml)
-- 2026-06-29 13:31 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/91656.shtml)
-- 2026-06-29 13:33 - [德国队前往比赛场地遭遇囧途](http://www.blog.kurohicncr.top/Article/details/31811274.shtml)
-- 2026-06-29 13:46 - [时光音乐会](http://www.share.minike.top/Article/details/2376193407.shtml)
-- 2026-06-29 13:27 - [我们注定是一撮县城葱姜蒜](https://www.share.kurohicncr.top/Article/details/3838439241.shtml)
+- 2026-06-29 13:34 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/211850934.shtml)
+- 2026-06-29 13:36 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.blog.minike.top/Article/details/6754885.shtml)
+- 2026-06-29 13:27 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/484886774170.shtml)
+- 2026-06-29 13:43 - [李连杰回应网传不管前妻俩女儿](https://www.share.minike.top/Article/details/862799678455.shtml)
+- 2026-06-29 13:52 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/964680980.shtml)
+- 2026-06-29 13:32 - [恋与深空需直面玩家6大疑问](https://www.blog.minike.top/Article/details/50884613.shtml)
+- 2026-06-29 13:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/69914186.shtml)
+- 2026-06-29 13:53 - [普京称考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/28972.shtml)
+- 2026-06-29 13:34 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/148349.shtml)
+- 2026-06-29 13:40 - [李连杰回应网传不管前妻俩女儿](https://www.blog.minike.top/Article/details/415876424812.shtml)
+- 2026-06-29 13:44 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.kurohicncr.top/Article/details/92842016.shtml)
+- 2026-06-29 13:48 - [恋与深空底线不该被娱乐化](http://www.share.kurohicncr.top/Article/details/493631.shtml)
+- 2026-06-29 13:30 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/181694754.shtml)
+- 2026-06-29 13:26 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/8052207.shtml)
+- 2026-06-29 13:51 - [速度与激情9](https://www.blog.minike.top/Article/details/2713734597.shtml)

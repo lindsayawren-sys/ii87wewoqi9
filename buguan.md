@@ -1,56 +1,58 @@
-# ETF涨跌和指数为啥不一样？一文看懂ETF折溢价和套利机制
+# 酒价内参5月11日价格发布：飞天茅台下跌2元
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-有朋友在后台问：“我买了一只跨境ETF，为什么跟踪的指数还没动，基金的价格却跌了好几个点？” 这个问题，其实指向了ETF投资中一个非常基础、却容易被忽视的概念——ETF的两个市场。 今天我们就花几分钟，把这件事聊清楚。 【ETF的两个市场】 ETF和普通场外基金最大的不同，在于它有两个市场，并且这两个市场的价格形成机制完全不同。 第一个，叫二级市场。 为什么把二级市场放在最前面
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月11日整体继续回暖。如果主要单品各取一瓶整体打包售卖，今日总售价为9955元，较昨日上涨11元，创下近12天以来最高。市场连续两日走强，终端交投情绪保持活跃，核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨五跌一平，涨跌结构均
 
 ## 正文
 
-有朋友在后台问：“我买了一只跨境ETF，为什么跟踪的指数还没动，基金的价格却跌了好几个点？
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月11日整体继续回暖。
 
-” 这个问题，其实指向了ETF投资中一个非常基础、却容易被忽视的概念——ETF的两个市场。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9955元，较昨日上涨11元，创下近12天以来最高。
 
-今天我们就花几分钟，把这件事聊清楚。
+市场连续两日走强，终端交投情绪保持活跃，核心单品涨跌分化依然显著。
 
-【ETF的两个市场】 ETF和普通场外基金最大的不同，在于它有两个市场，并且这两个市场的价格形成机制完全不同。
+今日白酒市场11大单品五涨五跌一平，涨跌结构均衡。
 
-第一个，叫二级市场。
+上涨方面，古井贡古20与青花郎涨幅居前，均上涨5元/瓶，双双收获二连阳。
 
-为什么把二级市场放在最前面？
+前者价格连续两日快速回弹，重回月内高位550元关口，后者创下近一月最高价格，近期该酒品在700元关口附近波动较为剧烈；习酒君品上涨4元/瓶；国窖1573上涨3元/瓶；五粮液1618上涨1元/瓶。
 
-因为这是我们接触最多的市场——平时用股票账户买卖ETF的地方。
+下跌方面，茅台系飞天茅台与精品茅台均下跌2元/瓶；青花汾20、洋河梦之蓝M6+及水晶剑南春均下跌1元/瓶。
 
-和买卖股票一样，大家互相竞价，价格受买卖双方的力量对比、市场情绪、资金流向影响，实时跳动。
+五粮液普五八代的价格环比保持不变。
 
 ## 相关推荐
 
-- 2026-06-29 13:29 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 13:32 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 13:47 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 13:33 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 13:40 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 13:26 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 13:27 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 13:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 13:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 13:44 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 13:52 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 13:40 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 13:42 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 13:33 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 13:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 13:26 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 13:35 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 13:43 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 13:47 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 13:48 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 13:31 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 13:46 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/660642838.shtml)
-- 2026-06-29 13:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/8874379.shtml)
-- 2026-06-29 13:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/917059907333.shtml)
-- 2026-06-29 13:34 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/38791771.shtml)
-- 2026-06-29 13:23 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/026778552912.shtml)
-- 2026-06-29 13:38 - [农发行总行专家委员会委员杜晓力被查](http://www.share.minike.top/Article/details/1994301288.shtml)
-- 2026-06-29 13:33 - [医护人员观影《四渡》传承长征精神](https://www.share.kurohicncr.top/Article/details/640338559164.shtml)
-- 2026-06-29 13:20 - [退休化学教授帮医药研发人员制毒](https://www.blog.minike.top/Article/details/857728852872.shtml)
-- 2026-06-29 13:47 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/06398513.shtml)
-- 2026-06-29 13:26 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/86608673039.shtml)
-- 2026-06-29 13:39 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/03699931.shtml)
-- 2026-06-29 13:33 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/8996930.shtml)
-- 2026-06-29 13:42 - [北极荒岛生存挑战](https://www.share.minike.top/Article/details/25089.shtml)
-- 2026-06-29 13:24 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/38403617434.shtml)
-- 2026-06-29 13:47 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/315994122160.shtml)
+- 2026-06-29 13:47 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/11779486732.shtml)
+- 2026-06-29 13:37 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/07198.shtml)
+- 2026-06-29 13:33 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/259465395134.shtml)
+- 2026-06-29 13:36 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.share.kurohicncr.top/Article/details/519280.shtml)
+- 2026-06-29 13:39 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/920217956288.shtml)
+- 2026-06-29 13:30 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/1926125356.shtml)
+- 2026-06-29 13:51 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/0274385.shtml)
+- 2026-06-29 13:24 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/604166741833.shtml)
+- 2026-06-29 13:32 - [2025年人口增长10强城市出炉](https://www.blog.kurohicncr.top/Article/details/79117133.shtml)
+- 2026-06-29 13:39 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/50775.shtml)
+- 2026-06-29 13:44 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/8869224379.shtml)
+- 2026-06-29 13:39 - [媒体评恋与深空争议](https://www.share.kurohicncr.top/Article/details/155423550.shtml)
+- 2026-06-29 13:28 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/428859003564.shtml)
+- 2026-06-29 13:29 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/515320307.shtml)
+- 2026-06-29 13:37 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/5016805359.shtml)

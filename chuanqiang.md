@@ -1,52 +1,59 @@
-# 市场监管总局：从严打击群众反映强烈的互联网广告违法行为
+# 内塔尼亚胡不排除动用武力手段移除伊朗浓缩铀
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-记者今天(23日)了解到，市场监管总局印发《关于深化互联网广告生态治理工作的通知》和《互联网广告市场秩序整治重点任务》，对深化互联网广告生态治理工作作出全面部署，同时决定开展为期半年的互联网广告市场秩序整治行动。《关于深化互联网广告生态治理工作的通知》首次提出“互联网广告生态治理”的概念，部署健全互联网广告监管制度体系、压实互联网平台企业主体责任、加大重点领域和新业态的广告监管
+以色列总理本雅明．内塔尼亚胡在定于周日晚间播出的哥伦比亚广播公司《60分钟》节目专访中表示，对伊朗的战争尚未结束，他不排除通过武力手段转移伊朗核材料的可能性。 他说：“我认为这场战争取得了巨大成果。但还没有结束，因为还有核材料，也就是浓缩铀，必须从伊朗移出。” 当被问及是否会通过武力手段转移这些材料时，内塔尼亚胡说：“你肯定会问我这些问题。但我会避而不谈，因为我不会谈论我们的军
 
 ## 正文
 
-记者今天(23日)了解到，市场监管总局印发《关于深化互联网广告生态治理工作的通知》和《互联网广告市场秩序整治重点任务》，对深化互联网广告生态治理工作作出全面部署，同时决定开展为期半年的互联网广告市场秩序整治行动。
+以色列总理本雅明．内塔尼亚胡在定于周日晚间播出的哥伦比亚广播公司《60分钟》节目专访中表示，对伊朗的战争尚未结束，他不排除通过武力手段转移伊朗核材料的可能性。
 
-《关于深化互联网广告生态治理工作的通知》首次提出“互联网广告生态治理”的概念，部署健全互联网广告监管制度体系、压实互联网平台企业主体责任、加大重点领域和新业态的广告监管力度、加强监测技术和执法能力建设、强化广告宣传导向和价值引领等五方面治理任务。
+他说：“我认为这场战争取得了巨大成果。
 
-市场监管总局决定将加强互联网广告市场秩序整治作为推进互联网广告生态治理的突破口，拟通过为期半年的整治行动，依法从严打击群众反映强烈的互联网广告违法行为，切实维护互联网广告市场秩序。
+但还没有结束，因为还有核材料，也就是浓缩铀，必须从伊朗移出。
 
-市场监管总局印发《互联网广告市场秩序整治重点任务》，围绕强化互联网广告导向监管、加强对直播电商中广告活动的监管、强化对人工智能生成式广告的监管、加大对互联网弹窗广告的规范力度、加大对“矩阵式”互联网广告投放行为的规范力度、进一步压实互联网平台的主体责任等六个方面，细化工作任务，聚焦突出问题精准发力，全力维护良好互联网广告市场秩序。
+” 当被问及是否会通过武力手段转移这些材料时，内塔尼亚胡说：“你肯定会问我这些问题。
 
-(总台央视记者 王婧)
+但我会避而不谈，因为我不会谈论我们的军事可能性、计划或任何类似的事情。
+
+” 伊朗的高浓缩铀需要从遭到美国和以色列打击的核设施中转移出来，如果要这样做，官员们必须决定将这些材料运往何处。
+
+内塔尼亚胡说：“如果达成协议，就可以进去把材料运出来。
+
+我不会给出一个时间表，但我要说，这是一项极其重要的任务。
 
 ## 相关推荐
 
-- 2026-06-29 13:32 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 13:33 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 13:40 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 13:30 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 13:19 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 13:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 13:32 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 13:22 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 13:38 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 13:34 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 13:32 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 13:31 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 13:48 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 13:41 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 13:29 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 13:25 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 13:26 - [加拿大92分钟绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 13:35 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 13:51 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 13:31 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 13:51 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 13:44 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 13:40 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 13:53 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 13:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:39 - [当我回母校教书](https://www.blog.minike.top/Article/details/850276452329.shtml)
-- 2026-06-29 13:43 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.blog.minike.top/Article/details/9932635.shtml)
-- 2026-06-29 13:43 - [张真源解读相思锁](https://www.share.kurohicncr.top/Article/details/2995599.shtml)
-- 2026-06-29 13:35 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.blog.kurohicncr.top/Article/details/78654580174.shtml)
-- 2026-06-29 13:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/467687.shtml)
-- 2026-06-29 13:42 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/0532358488.shtml)
-- 2026-06-29 13:45 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/9525149410.shtml)
-- 2026-06-29 13:38 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/606161.shtml)
-- 2026-06-29 13:38 - [《昨夜将至》为何是悬疑黑马](http://www.share.minike.top/Article/details/05147929980.shtml)
-- 2026-06-29 13:26 - [王祖蓝现场观看美加墨世界杯](https://www.blog.minike.top/Article/details/38919.shtml)
-- 2026-06-29 13:23 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/67646561631.shtml)
-- 2026-06-29 13:39 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/241988975875.shtml)
-- 2026-06-29 13:37 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.minike.top/Article/details/911606603999.shtml)
-- 2026-06-29 13:38 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/8217111.shtml)
-- 2026-06-29 13:37 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/09851707841.shtml)
+- 2026-06-29 13:46 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/965103078017.shtml)
+- 2026-06-29 13:48 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/086000.shtml)
+- 2026-06-29 13:52 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/07887661942.shtml)
+- 2026-06-29 13:32 - [韩国队出局是因为内讧吗](https://www.blog.minike.top/Article/details/668366322078.shtml)
+- 2026-06-29 13:40 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/8102741.shtml)
+- 2026-06-29 13:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/5647734.shtml)
+- 2026-06-29 13:27 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/761975778964.shtml)
+- 2026-06-29 13:49 - [DSpark论文深度解读](http://www.blog.kurohicncr.top/Article/details/37054.shtml)
+- 2026-06-29 13:28 - [普京称考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/4708447.shtml)
+- 2026-06-29 13:38 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.minike.top/Article/details/58159352.shtml)
+- 2026-06-29 13:47 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/749133572382.shtml)
+- 2026-06-29 13:52 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/9506401.shtml)
+- 2026-06-29 13:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/469583.shtml)
+- 2026-06-29 13:29 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/495732887944.shtml)
+- 2026-06-29 13:47 - [三都主：淘汰赛我会支持日本](http://www.share.kurohicncr.top/Article/details/3228504.shtml)

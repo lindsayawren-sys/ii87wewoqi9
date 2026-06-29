@@ -1,61 +1,46 @@
-# 中国首套66千伏碳纤维应急抢修塔研制成功
+# 伊朗驻华大使谈伊中外长会晤成果：支持中方推进多边主义的立场
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网长春4月23日电 (记者 郭佳)近日，中国首套66千伏碳纤维应急抢修塔在国网电力工程研究院有限公司完成断导线、断地线、风载、覆冰等极端工况试验，正式具备现场应用能力。 国网吉林省电力有限公司(下称“国网吉林电力”)23日发布上述消息。当天，该公司联合东北电力大学、吉林化纤集团、国网电力工程研究院有限公司、吉林化工大学签约成立电力工程碳纤维应用技术研究院，旨在深化碳纤维材料
+发布时间：2026年05月09日 12:36 来源：中国新闻网 5月8日，伊朗驻华大使馆召开新闻发布会，伊朗驻华大使法兹里就近日伊中外长会晤成果进行了阐释与回应。伊朗驻华大使法兹里在新闻发布会上发言时表示，伊中有着全面战略伙伴关系，中国始终在伊朗困难时期予以坚定支持、鼎力相助，我们不会忘记那些在艰难时刻与我们同行的朋友。 记者 谢龙飞 北京报道 责任编辑：【张燕玲】
 
 ## 正文
 
-中新网长春4月23日电 (记者 郭佳)近日，中国首套66千伏碳纤维应急抢修塔在国网电力工程研究院有限公司完成断导线、断地线、风载、覆冰等极端工况试验，正式具备现场应用能力。
+发布时间：2026年05月09日 12:36 来源：中国新闻网 5月8日，伊朗驻华大使馆召开新闻发布会，伊朗驻华大使法兹里就近日伊中外长会晤成果进行了阐释与回应。
 
-国网吉林省电力有限公司(下称“国网吉林电力”)23日发布上述消息。
+伊朗驻华大使法兹里在新闻发布会上发言时表示，伊中有着全面战略伙伴关系，中国始终在伊朗困难时期予以坚定支持、鼎力相助，我们不会忘记那些在艰难时刻与我们同行的朋友。
 
-当天，该公司联合东北电力大学、吉林化纤集团、国网电力工程研究院有限公司、吉林化工大学签约成立电力工程碳纤维应用技术研究院，旨在深化碳纤维材料在电力工程领域的应用研发与产业化推广。
-
-66千伏电网是衔接区域主网与终端用户的关键枢纽。
-
-传统钢结构应急抢修塔单体重近8吨，在山区、沼泽等复杂地形运输部署需数日，难以把握抢修“黄金窗口期”，制约应急响应处置效能。
-
-针对行业痛点，国网吉林电力牵头组建跨学科攻关团队。
-
-研发中创新采用“内嵌套+外抱箍”连接结构，避免打孔造成的结构强度损耗，同步优化桁架整体布局，实现塔体减重超50%。
-
-同时，团队筛选出专用碳纤维复合材料配方，攻克低温、强风、覆冰等复杂环境下的应用难题。
+记者 谢龙飞 北京报道 责任编辑：【张燕玲】
 
 ## 相关推荐
 
-- 2026-06-29 13:38 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 13:44 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 13:31 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 13:26 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 13:32 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 13:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 13:23 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 13:47 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 13:37 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 13:33 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 13:39 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 13:45 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 13:35 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 13:29 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 13:19 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 13:36 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 13:52 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 13:34 - [DeepSeek联合北京大学发布论文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 13:52 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 13:37 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 13:26 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 13:44 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 13:30 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 13:33 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 13:29 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:23 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/246461539.shtml)
-- 2026-06-29 13:40 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/04256795611.shtml)
-- 2026-06-29 13:23 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/50275853.shtml)
-- 2026-06-29 13:46 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/516751192179.shtml)
-- 2026-06-29 13:22 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/52874.shtml)
-- 2026-06-29 13:44 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/501755.shtml)
-- 2026-06-29 13:25 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/9828975298.shtml)
-- 2026-06-29 13:24 - [宜宾5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/82769.shtml)
-- 2026-06-29 13:34 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.blog.minike.top/Article/details/740075761027.shtml)
-- 2026-06-29 13:22 - [杨紫 你幸福的话我会比你先流泪](https://www.share.minike.top/Article/details/2178839605.shtml)
-- 2026-06-29 13:38 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/237518120.shtml)
-- 2026-06-29 13:36 - [袁隆平院士 不容诋毁！](http://www.blog.minike.top/Article/details/607584.shtml)
-- 2026-06-29 13:29 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/259461032471.shtml)
-- 2026-06-29 13:42 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.kurohicncr.top/Article/details/494342123.shtml)
-- 2026-06-29 13:32 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/3757238.shtml)
+- 2026-06-29 13:33 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/77407.shtml)
+- 2026-06-29 13:53 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/270086959.shtml)
+- 2026-06-29 13:42 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/73602938344.shtml)
+- 2026-06-29 13:35 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.minike.top/Article/details/22919001.shtml)
+- 2026-06-29 13:36 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/462896794380.shtml)
+- 2026-06-29 13:45 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.minike.top/Article/details/3539375.shtml)
+- 2026-06-29 13:32 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/9508572567.shtml)
+- 2026-06-29 13:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/5010543463.shtml)
+- 2026-06-29 13:40 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/8688874.shtml)
+- 2026-06-29 13:24 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.kurohicncr.top/Article/details/3327638822.shtml)
+- 2026-06-29 13:48 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.minike.top/Article/details/37515.shtml)
+- 2026-06-29 13:46 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/73968927692.shtml)
+- 2026-06-29 13:25 - [曝歌手第七期帮唱阵容](https://www.share.kurohicncr.top/Article/details/48217177834.shtml)
+- 2026-06-29 13:34 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/01856639.shtml)
+- 2026-06-29 13:32 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/21177.shtml)

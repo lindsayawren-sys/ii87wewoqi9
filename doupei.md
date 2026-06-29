@@ -1,57 +1,50 @@
-# 统筹推进商业航天标准化建设 商业航天标准体系（1.0版）发布
+# 江西省政协原党组成员、副主席胡幼桃被提起公诉
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-新华社成都4月24日电(记者李倩薇、宋晨)4月24日，在第十一个“中国航天日”主场活动启动仪式上，国家航天局、国家市场监督管理总局联合发布《商业航天标准体系(1.0版)》，旨在深入贯彻落实国家战略，推进商业航天高质量发展，发挥标准化在产业发展中的引领性和基础性作用，统筹推进商业航天标准化建设。据介绍，这一体系遵循“全链条、全领域、模块化、可重构”思路，聚焦“箭星场用治”总体布局
+中新网5月9日电 据最高人民检察院微博消息，江西省政协原党组成员、副主席胡幼桃涉嫌受贿一案，由国家监察委员会调查终结，移送检察机关审查起诉。最高人民检察院依法以涉嫌受贿罪对胡幼桃作出逮捕决定，并指定由浙江省温州市人民检察院审查起诉。近日，温州市人民检察院已向温州市中级人民法院提起公诉。 检察机关在审查起诉阶段，依法告知了被告人胡幼桃享有的诉讼权利，并讯问了被告人，听取了辩护人的
 
 ## 正文
 
-新华社成都4月24日电(记者李倩薇、宋晨)4月24日，在第十一个“中国航天日”主场活动启动仪式上，国家航天局、国家市场监督管理总局联合发布《商业航天标准体系(1.0版)》，旨在深入贯彻落实国家战略，推进商业航天高质量发展，发挥标准化在产业发展中的引领性和基础性作用，统筹推进商业航天标准化建设。
+中新网5月9日电 据最高人民检察院微博消息，江西省政协原党组成员、副主席胡幼桃涉嫌受贿一案，由国家监察委员会调查终结，移送检察机关审查起诉。
 
-据介绍，这一体系遵循“全链条、全领域、模块化、可重构”思路，聚焦“箭星场用治”总体布局、全产业链创新、发展模式变革和健康生态打造，构建商业航天标准体系，下设行业治理、研发制造、发射和测运控、空间应用服务、基础共性、设施设备等6个一级分支，包含32个二级分支与100个三级分支，规划标准项目千余项。
+最高人民检察院依法以涉嫌受贿罪对胡幼桃作出逮捕决定，并指定由浙江省温州市人民检察院审查起诉。
 
-体系涵盖国际、国内各级各类适用标准。
+近日，温州市人民检察院已向温州市中级人民法院提起公诉。
 
-体系的发布将为我国商业航天标准化建设、实现高质量安全发展提供坚实支撑。
+检察机关在审查起诉阶段，依法告知了被告人胡幼桃享有的诉讼权利，并讯问了被告人，听取了辩护人的意见。
 
-后续，国家航天局将持续优化商业航天标准体系顶层设计，加速商业航天标准有效供给，开发商业航天标准服务平台，加紧建设商业航天标准服务“一张网”，助力商业航天高质量发展和航天强国建设。
-
-(完)
+检察机关起诉指控：被告人胡幼桃利用担任江西省发展计划委员会副主任，江西省财政厅党组书记、厅长，江西省地税局党组书记，江西省副省长，江西省政协副主席等职务上的便利，为他人谋取利益，非法收受他人财物，数额特别巨大，依法应当以受贿罪追究其刑事责任。
 
 ## 相关推荐
 
-- 2026-06-29 13:46 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 13:32 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 13:34 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 13:22 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 13:36 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 13:28 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 13:24 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 13:25 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 13:25 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 13:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 13:39 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 13:29 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 13:39 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 13:29 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 13:44 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 13:41 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 13:35 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 13:38 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 13:28 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 13:40 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 13:47 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 13:51 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 13:44 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 13:46 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 13:34 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:41 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/12479297720.shtml)
-- 2026-06-29 13:22 - [日本主帅：目标是冠军](https://www.blog.kurohicncr.top/Article/details/90606629006.shtml)
-- 2026-06-29 13:29 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/603716881.shtml)
-- 2026-06-29 13:31 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/85145324.shtml)
-- 2026-06-29 13:32 - [韩媒破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/765988.shtml)
-- 2026-06-29 13:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/7720650441.shtml)
-- 2026-06-29 13:37 - [王楚钦 表演球擦网](https://www.share.kurohicncr.top/Article/details/495105525679.shtml)
-- 2026-06-29 13:24 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/820287441904.shtml)
-- 2026-06-29 13:35 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/3467334908.shtml)
-- 2026-06-29 13:30 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.minike.top/Article/details/31133.shtml)
-- 2026-06-29 13:47 - [灿如繁星定档](http://www.blog.minike.top/Article/details/24191004640.shtml)
-- 2026-06-29 13:30 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/118454842948.shtml)
-- 2026-06-29 13:19 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/4100432130.shtml)
-- 2026-06-29 13:24 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/1747835209.shtml)
-- 2026-06-29 13:43 - [T1对战KC](https://www.blog.kurohicncr.top/Article/details/112352.shtml)
+- 2026-06-29 13:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/601414586.shtml)
+- 2026-06-29 13:45 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/619291392930.shtml)
+- 2026-06-29 13:42 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/9046223242.shtml)
+- 2026-06-29 13:39 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/04811892.shtml)
+- 2026-06-29 13:45 - [杨紫《生命树》播放量破百亿](https://www.share.kurohicncr.top/Article/details/256644872381.shtml)
+- 2026-06-29 13:52 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/0180701024.shtml)
+- 2026-06-29 13:42 - [世界杯超牛补水广告出现了](http://www.blog.minike.top/Article/details/12721357.shtml)
+- 2026-06-29 13:28 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/9181049546.shtml)
+- 2026-06-29 13:40 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.minike.top/Article/details/30169651103.shtml)
+- 2026-06-29 13:39 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/521290.shtml)
+- 2026-06-29 13:25 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/803732.shtml)
+- 2026-06-29 13:38 - [高市早苗口齿不清被质疑醉酒](http://www.blog.kurohicncr.top/Article/details/1915484.shtml)
+- 2026-06-29 13:36 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/3143765496.shtml)
+- 2026-06-29 13:44 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/79374.shtml)
+- 2026-06-29 13:28 - [多家银行收紧个人贵金属业务](https://www.blog.minike.top/Article/details/637645843831.shtml)

@@ -1,60 +1,51 @@
-# 谷歌已将AI广泛用于编程 CEO透露目前超7成新代码是由AI生成
+# 钱朝阳任南方电网董事长、党组书记
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：TechWeb 4月23日消息，据外媒报道，在OpenAI、谷歌、DeepSeek、阿里等一众国内外厂商推出的生成式人工智能模型中，编程是一项重要的能力和测试指标，AI大模型也在大量用于编程等工作。 外媒最新的报道就显示，谷歌就在将AI广泛用于编程，他们已有大量的新代码是AI生成。 对于利用AI生成代
+5月9日，中国南方电网有限责任公司召开中层以上管理人员大会。中央组织部有关负责同志宣布了中央关于中国南方电网有限责任公司董事长、党组书记调整的决定：钱朝阳同志任中国南方电网有限责任公司董事长、党组书记，免去其中国南方电网有限责任公司总经理职务；免去孟振平同志的中国南方电网有限责任公司董事长、党组书记职务。相关职务任免，按有关法律和章程的规定办理。责任编辑：刘万里 SF014
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+5月9日，中国南方电网有限责任公司召开中层以上管理人员大会。
 
-来源：TechWeb 4月23日消息，据外媒报道，在OpenAI、谷歌、DeepSeek、阿里等一众国内外厂商推出的生成式人工智能模型中，编程是一项重要的能力和测试指标，AI大模型也在大量用于编程等工作。
+中央组织部有关负责同志宣布了中央关于中国南方电网有限责任公司董事长、党组书记调整的决定：钱朝阳同志任中国南方电网有限责任公司董事长、党组书记，免去其中国南方电网有限责任公司总经理职务；免去孟振平同志的中国南方电网有限责任公司董事长、党组书记职务。
 
-外媒最新的报道就显示，谷歌就在将AI广泛用于编程，他们已有大量的新代码是AI生成。
+相关职务任免，按有关法律和章程的规定办理。
 
-对于利用AI生成代码，谷歌及母公司Alphabet的CEO桑达尔•皮查伊近日就透露，谷歌内部利用AI生产代码已有一段时间，目前75%的新代码是由AI生产，再由工程师审核，较去年的50%近一步提升。
-
-在去年4月份，皮查伊也曾透露AI生成代码的数据，当时他提到的是已经超过30%。
-
-在去年年底，谷歌的CFO也透露他们已有近一半的代码是由AI生成。
-
-就谷歌方面透露的消息来看，他们大量使用AI生成的代码，也经历了一个过程，在2024年的10月份，他们曾透露有超过25%的新代码是由AI生产。
-
-在去年4月份超过30%，就意味着在半年的时间里，只提升了5%，快速提升是从去年年中开始的。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 13:35 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 13:20 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 13:18 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 13:22 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 13:19 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 13:36 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 13:24 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 13:35 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 13:30 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 13:45 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 13:35 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 13:25 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 13:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 13:42 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 13:29 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 13:30 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 13:24 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 13:41 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 13:51 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 13:34 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 13:49 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 13:31 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 13:29 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 13:41 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 13:29 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 13:24 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 13:38 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:38 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/152895917.shtml)
-- 2026-06-29 13:23 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/093319978.shtml)
-- 2026-06-29 13:38 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/89473497.shtml)
-- 2026-06-29 13:23 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/319404631.shtml)
-- 2026-06-29 13:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/90176130.shtml)
-- 2026-06-29 13:28 - [【独家】牧神记 第89集 明心](http://www.blog.kurohicncr.top/Article/details/98388.shtml)
-- 2026-06-29 13:33 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/47969685745.shtml)
-- 2026-06-29 13:22 - [林昀儒不敌17岁小将止步首轮](https://www.share.minike.top/Article/details/21050345.shtml)
-- 2026-06-29 13:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/36161990.shtml)
-- 2026-06-29 13:46 - [市民骑哈啰单车79分钟付30元](http://www.blog.minike.top/Article/details/476728888890.shtml)
-- 2026-06-29 13:36 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/54312.shtml)
-- 2026-06-29 13:46 - [天道](http://www.share.kurohicncr.top/Article/details/57539964822.shtml)
-- 2026-06-29 13:20 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/729810819910.shtml)
-- 2026-06-29 13:19 - [请回答王牌2019](http://www.share.minike.top/Article/details/16405087.shtml)
-- 2026-06-29 13:37 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/81770914.shtml)
+- 2026-06-29 13:52 - [东部机场集团新增釜山航线](http://www.blog.minike.top/Article/details/052378.shtml)
+- 2026-06-29 13:53 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/53937916018.shtml)
+- 2026-06-29 13:38 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/447117.shtml)
+- 2026-06-29 13:39 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/61188.shtml)
+- 2026-06-29 13:45 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/76141939.shtml)
+- 2026-06-29 13:36 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/511520.shtml)
+- 2026-06-29 13:46 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/94273440.shtml)
+- 2026-06-29 13:40 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/310734945365.shtml)
+- 2026-06-29 13:24 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/48621510.shtml)
+- 2026-06-29 13:35 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/08224292846.shtml)
+- 2026-06-29 13:34 - [东部机场集团新增釜山航线](http://www.blog.kurohicncr.top/Article/details/97879290578.shtml)
+- 2026-06-29 13:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/275193.shtml)
+- 2026-06-29 13:39 - [毒液2](https://www.share.kurohicncr.top/Article/details/39800.shtml)
+- 2026-06-29 13:49 - [双高胎](http://www.blog.kurohicncr.top/Article/details/36332648416.shtml)
+- 2026-06-29 13:38 - [加拿大92分钟绝杀南非](http://www.share.minike.top/Article/details/223602.shtml)

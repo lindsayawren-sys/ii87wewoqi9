@@ -1,61 +1,45 @@
-# 东西问｜诗句挂在联合国，炸弹落在德黑兰：风暴中，诗歌最无力也最有力
+# 中国外运将于6月29日派发末期股息每股0.1754港元
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网北京4月23日电 题：诗句挂在联合国，炸弹落在德黑兰：风暴中，诗歌最无力也最有力 作者 贺劭清 李嘉茵 “波斯大地不因世间的苦难而悲伤，只要有神荫如你般笼罩其上。哦，主啊，请从风暴中守护这片土地——只要土地长存，风暴亦将永恒。” 4月21日，美伊两周停火来到了最后时刻。面对“摧毁一切”的威胁，伊朗总统佩泽希齐扬在社交平台分享了一段诗句——出自古波斯诗人萨迪之手。 波斯，有
+中国外运（00598）发布公告，将于2026年6月29日派发截至2025年12月31日止年度末期股息每股0.1754港元。责任编辑：卢昱君
 
 ## 正文
 
-中新网北京4月23日电 题：诗句挂在联合国，炸弹落在德黑兰：风暴中，诗歌最无力也最有力 作者 贺劭清 李嘉茵 “波斯大地不因世间的苦难而悲伤，只要有神荫如你般笼罩其上。
+中国外运（00598）发布公告，将于2026年6月29日派发截至2025年12月31日止年度末期股息每股0.1754港元。
 
-哦，主啊，请从风暴中守护这片土地——只要土地长存，风暴亦将永恒。
-
-” 4月21日，美伊两周停火来到了最后时刻。
-
-面对“摧毁一切”的威胁，伊朗总统佩泽希齐扬在社交平台分享了一段诗句——出自古波斯诗人萨迪之手。
-
-波斯，有诗国之名。
-
-萨迪，是诗国最伟大的诗人之一。
-
-八个世纪前，半生颠沛流离的萨迪游历埃及、阿拉伯、印度等地，历经战乱与磨难，用一生的见闻与哲思为波斯文明写下了温柔一笔。
-
-从十字军东征到美以伊战事，风暴在中东从未停歇，而萨迪的诗歌也在这片土地传唱至今。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 13:34 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 13:43 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 13:25 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 13:18 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 13:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 13:32 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 13:23 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 13:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 13:24 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 13:29 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 13:28 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 13:31 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 13:47 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 13:26 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 13:53 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 13:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 13:44 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 13:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 13:35 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 13:40 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 13:35 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 13:42 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 13:37 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 13:34 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 13:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:41 - [女子遭家暴两次起诉离婚均被驳回](http://www.blog.minike.top/Article/details/305696389427.shtml)
-- 2026-06-29 13:36 - [刘仲华院士愿当贺永辉导师](http://www.blog.kurohicncr.top/Article/details/441886634133.shtml)
-- 2026-06-29 13:34 - [女心理师](https://www.blog.kurohicncr.top/Article/details/115773606.shtml)
-- 2026-06-29 13:25 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/25889.shtml)
-- 2026-06-29 13:33 - [李连杰回应网传不管前妻俩女儿](https://www.blog.minike.top/Article/details/698459025.shtml)
-- 2026-06-29 13:42 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.share.minike.top/Article/details/9948349.shtml)
-- 2026-06-29 13:41 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/74042.shtml)
-- 2026-06-29 13:46 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/515144193157.shtml)
-- 2026-06-29 13:38 - [伊朗球员致歉](http://www.blog.kurohicncr.top/Article/details/72981003.shtml)
-- 2026-06-29 13:46 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/189691.shtml)
-- 2026-06-29 13:20 - [毕业寄几百斤快递回家女生发声](http://www.blog.kurohicncr.top/Article/details/2371453909.shtml)
-- 2026-06-29 13:39 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/96153.shtml)
-- 2026-06-29 13:46 - [普京称考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/7472428.shtml)
-- 2026-06-29 13:36 - [小娘惹](http://www.share.kurohicncr.top/Article/details/10337.shtml)
-- 2026-06-29 13:45 - [李在明称韩国足协任命了无能之人](http://www.blog.kurohicncr.top/Article/details/24791849347.shtml)
+- 2026-06-29 13:26 - [韩国队启程回国众将回避镜头](http://www.share.kurohicncr.top/Article/details/121846489547.shtml)
+- 2026-06-29 13:30 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/0377141.shtml)
+- 2026-06-29 13:43 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.kurohicncr.top/Article/details/32204024940.shtml)
+- 2026-06-29 13:43 - [去了一趟潮汕。](https://www.share.kurohicncr.top/Article/details/08868705724.shtml)
+- 2026-06-29 13:39 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/24161517526.shtml)
+- 2026-06-29 13:26 - [绘画区你赢了](http://www.blog.minike.top/Article/details/15384335.shtml)
+- 2026-06-29 13:44 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/028304265101.shtml)
+- 2026-06-29 13:37 - [多只A股发布股价异动公告](https://www.share.minike.top/Article/details/91374914750.shtml)
+- 2026-06-29 13:52 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/32911.shtml)
+- 2026-06-29 13:37 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/2548302.shtml)
+- 2026-06-29 13:53 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/061918072.shtml)
+- 2026-06-29 13:32 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/71552.shtml)
+- 2026-06-29 13:44 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/245632.shtml)
+- 2026-06-29 13:41 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/47138190.shtml)
+- 2026-06-29 13:46 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/69089774938.shtml)

@@ -1,56 +1,59 @@
-# 绝味鸭脖上市9年首亏！连续5年隐匿营收，补税3.4亿，现金流萎缩，过去近2年平均每天关店约6家
+# 首台、首艘、首位 本周我国多项硬核成果刷屏出圈
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！红星资本局4月23日消息，“鸭脖大王”绝味食品（603517.SH，简称：ST绝味（维权））出现上市9年以来的首次亏损。 绝味食品的亏损，一方面是由于财务管理失控导致的补缴税款及滞纳金超3.42亿元；另一方面则是因为占绝味食品收入超八成的“卤制食品销售”业务出现了业绩下滑。 据窄门餐眼数据，截至4月23日，
+本周 我国在量子计算、高端造船、体育竞技等 多个领域斩获重磅成果 全方位展现出中国的创新活力制造实力与大国担当 “本源悟空-180”来了 我国第四代自主超导量子计算机上线 记者9日从安徽省量子计算芯片重点实验室获悉，搭载单核180个计算比特自主超导量子芯片的“本源悟空-180”量子计算机已上线运行，今日起开始接收全球量子计算任务。 第四代自主超导量子计算机“本源悟空-180”由
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+本周 我国在量子计算、高端造船、体育竞技等 多个领域斩获重磅成果 全方位展现出中国的创新活力制造实力与大国担当 “本源悟空-180”来了 我国第四代自主超导量子计算机上线 记者9日从安徽省量子计算芯片重点实验室获悉，搭载单核180个计算比特自主超导量子芯片的“本源悟空-180”量子计算机已上线运行，今日起开始接收全球量子计算任务。
 
-红星资本局4月23日消息，“鸭脖大王”绝味食品（603517.SH，简称：ST绝味（维权））出现上市9年以来的首次亏损。
+第四代自主超导量子计算机“本源悟空-180”由我国自主研发，全链条自主可控。
 
-绝味食品的亏损，一方面是由于财务管理失控导致的补缴税款及滞纳金超3.42亿元；另一方面则是因为占绝味食品收入超八成的“卤制食品销售”业务出现了业绩下滑。
+其搭载的量子计算芯片系统、量子计算测控系统、量子计算环境支撑系统及量子计算机操作系统等4个关键核心体系，均由本源量子全栈自主研制。
 
-据窄门餐眼数据，截至4月23日，绝味鸭脖全国在营门店数量约为10272家，相比2024年6月底的14969家，已减少了超过4500家。
+全球首艘 2.4万箱甲醇双燃料集装箱船建造完工 5月8日，全球首艘2.4万箱甲醇双燃料集装箱船在江苏南通建造完工并命名。
 
-红星资本局注意到，在卤味行业整体承压的背景下，从2025年开始，绝味食品陆续推出了主打社区全时段鲜食的“鲜卤超市”、售卖热煲快餐的“绝味煲煲”，以及包含炸卤、烤串的“绝味plus”等门店。
+该船是目前世界最大级别甲醇双燃料集装箱船，标志着我国在超大型清洁能源船舶设计建造领域取得又一重大突破。
 
-图据视觉中国 主业下滑叠加补税3.42亿元 绝味上市9年来首亏 4月22日晚间，绝味食品发布了2025年财报。
+该船被命名为“东方智慧”轮，总长399.99米，型宽61.3米，最多可装载24168个标准集装箱，载重吨达22.5万吨，各项尺度与性能指标均为全球同类船型标杆。
 
-2025年，公司实现营业收入54.67亿元，同比下降12.62%；归母净利润由上年的盈利2.27亿元转为亏损1.91亿元，同比下跌184.11%；归母扣非净利润为0.75亿元，与上年同期相比下降62.82%，公司经营承压。
+全球首个室内降雪场景 新能源汽车全季冰雪试验场开工 5月8日，全球首个具备室内降雪场景的智能网联新能源汽车全季冰雪试验基地项目在内蒙古牙克石市正式奠基开工，标志着我国汽车极端环境测试领域建设迈出里程碑式一步。
 
-分行业来看，占比超八成的“卤制食品销售”业务2025年实现营收44.9亿元，同比下滑14.04%，毛利率降低0.76个百分点至33.2%。
+该项目重点布局了五大核心功能区，涵盖新能源汽车三电系统标定、底盘系统低附标定、智能网联汽车降雪场景模拟测试、飞行汽车测试及底盘系统高附标定，全面覆盖智能网联新能源汽车极端环境测试需求。
 
 ## 相关推荐
 
-- 2026-06-29 13:23 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 13:29 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 13:35 - [赵今麦客串电影版开端](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-29 13:37 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 13:36 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 13:37 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 13:39 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 13:35 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 13:23 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 13:33 - [游戏数据竟被用于军事目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 13:50 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 13:44 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 13:38 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 13:41 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 13:38 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 13:49 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 13:43 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 13:51 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 13:26 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 13:27 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 13:39 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 13:50 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 13:30 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:43 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.minike.top/Article/details/54156.shtml)
-- 2026-06-29 13:47 - [DeepSeek联合北京大学发布论文](http://www.share.kurohicncr.top/Article/details/2880157.shtml)
-- 2026-06-29 13:37 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/53104.shtml)
-- 2026-06-29 13:34 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/53241965838.shtml)
-- 2026-06-29 13:25 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/07969.shtml)
-- 2026-06-29 13:18 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/6139893293.shtml)
-- 2026-06-29 13:43 - [久坐小心“死臀综合征”](http://www.share.kurohicncr.top/Article/details/3659106248.shtml)
-- 2026-06-29 13:36 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/842900980174.shtml)
-- 2026-06-29 13:29 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.kurohicncr.top/Article/details/8059721367.shtml)
-- 2026-06-29 13:39 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/615200873.shtml)
-- 2026-06-29 13:19 - [灿如繁星定档](http://www.blog.minike.top/Article/details/170769805.shtml)
-- 2026-06-29 13:19 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/392553895114.shtml)
-- 2026-06-29 13:19 - [天道](https://www.blog.minike.top/Article/details/0776566.shtml)
-- 2026-06-29 13:20 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/602316.shtml)
-- 2026-06-29 13:26 - [一见倾心](https://www.blog.minike.top/Article/details/798663674.shtml)
+- 2026-06-29 13:41 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/24534180.shtml)
+- 2026-06-29 13:45 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/135816.shtml)
+- 2026-06-29 13:38 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/522898152008.shtml)
+- 2026-06-29 13:46 - [亚洲成世界杯最大失意者联盟](https://www.blog.minike.top/Article/details/087960819.shtml)
+- 2026-06-29 13:52 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/460142362.shtml)
+- 2026-06-29 13:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/729981274.shtml)
+- 2026-06-29 13:45 - [未来5年全国能源体系将呈现这些特征](https://www.share.kurohicncr.top/Article/details/2828327.shtml)
+- 2026-06-29 13:51 - [媒体：高考后消费应量力而行适度有度](https://www.share.kurohicncr.top/Article/details/5090120.shtml)
+- 2026-06-29 13:53 - [流金岁月](https://www.share.kurohicncr.top/Article/details/15461040718.shtml)
+- 2026-06-29 13:52 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/0792798.shtml)
+- 2026-06-29 13:34 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/742346868679.shtml)
+- 2026-06-29 13:39 - [吴海燕兰西雅漫步复兴岛](http://www.blog.kurohicncr.top/Article/details/503170283.shtml)
+- 2026-06-29 13:46 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/69747164950.shtml)
+- 2026-06-29 13:40 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/2738168568.shtml)
+- 2026-06-29 13:25 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/09152783082.shtml)

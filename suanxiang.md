@@ -1,51 +1,59 @@
-# 华润饮料获非执行董事王德刚2日累计增持5.96万股 耗资约52.97万港元
+# 华泰期货：海峡通航仍未恢复，燃料油市场结构存在支撑
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，4月20日-21日，非执行董事王德刚分别增持华润饮料（02460）3.46万股、2.5万股，每股分别作价8.913港元、8.85港元，总金额约为52.97万港元。增持后最新持股数目为9万股。责任编辑：卢昱君
+来源：华泰期货 作者： 康远宁 市场分析 本周燃料油期货市场表现：市场仍围绕中东地缘局势进行交易。本周传闻美伊接近达成停战谅解备忘录，市场对霍尔木兹海峡重新开放的预期增加，国际油价一度大幅回撤，并带动燃料油价格下跌。然而，截至目前事态并未真正明朗，海峡维持封锁状态，油价依然处于相对高位区间。FU主力合约周度跌幅录得4.49%，LU主力合约周度跌幅录得6.28%。 供应方面：在美
 
 ## 正文
 
-香港联交所最新资料显示，4月20日-21日，非执行董事王德刚分别增持华润饮料（02460）3.46万股、2.5万股，每股分别作价8.913港元、8.85港元，总金额约为52.97万港元。
+来源：华泰期货 作者： 康远宁 市场分析 本周燃料油期货市场表现：市场仍围绕中东地缘局势进行交易。
 
-增持后最新持股数目为9万股。
+本周传闻美伊接近达成停战谅解备忘录，市场对霍尔木兹海峡重新开放的预期增加，国际油价一度大幅回撤，并带动燃料油价格下跌。
 
-责任编辑：卢昱君
+然而，截至目前事态并未真正明朗，海峡维持封锁状态，油价依然处于相对高位区间。
+
+FU主力合约周度跌幅录得4.49%，LU主力合约周度跌幅录得6.28%。
+
+供应方面：在美以与伊朗双方的冲突爆发后，中东地区石油供应面临巨大冲击。
+
+由于霍尔木兹海峡被封锁，波斯湾燃料油出口受到阻断，从品质上看中东生产燃料油以高硫为主。
+
+参考Kpler口径，2025年波斯湾整体高硫燃料油月均发货量估计在337.6万吨，大概占到全球高硫燃料油海运发货量的29%。
+
+目前海峡通行的油轮数量依然维持低位，从船期数据来看，中东4月高硫燃料油发货量预计在71万吨，环比减少68万吨，同比下降332万吨，5月份截止目前的发货量预计在45万吨。
 
 ## 相关推荐
 
-- 2026-06-29 13:36 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 13:23 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 13:29 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 13:18 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 13:26 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 13:45 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 13:32 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 13:42 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 13:22 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 13:24 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 13:32 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 13:25 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 13:22 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 13:27 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 13:41 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 13:41 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 13:50 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 13:39 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 13:41 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 13:31 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 13:51 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 13:33 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 13:50 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 13:33 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 13:53 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 13:45 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 13:29 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 13:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:36 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/4385123552.shtml)
-- 2026-06-29 13:36 - [毕业寄几百斤快递回家女生发声](https://www.share.kurohicncr.top/Article/details/74542179283.shtml)
-- 2026-06-29 13:26 - [市民骑哈啰单车79分钟被收费30元](https://www.share.kurohicncr.top/Article/details/24323.shtml)
-- 2026-06-29 13:44 - [金价银价下跌 油价上涨](https://www.share.minike.top/Article/details/5366033.shtml)
-- 2026-06-29 13:39 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/328457.shtml)
-- 2026-06-29 13:35 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.minike.top/Article/details/9340268565.shtml)
-- 2026-06-29 13:34 - [扬名立万](https://www.share.minike.top/Article/details/39310697.shtml)
-- 2026-06-29 13:27 - [初心如磐 红色足迹](https://www.blog.minike.top/Article/details/6219635775.shtml)
-- 2026-06-29 13:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/5690412.shtml)
-- 2026-06-29 13:20 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/0095626017.shtml)
-- 2026-06-29 13:24 - [Mrbeast的30天不吃饭挑战](https://www.share.kurohicncr.top/Article/details/94504598.shtml)
-- 2026-06-29 13:34 - [NBA交易](http://www.share.kurohicncr.top/Article/details/46361.shtml)
-- 2026-06-29 13:22 - [毒液2](http://www.blog.minike.top/Article/details/342247027869.shtml)
-- 2026-06-29 13:28 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/66069520708.shtml)
-- 2026-06-29 13:34 - [游戏数据竟被用于军事目的](https://www.blog.minike.top/Article/details/90072158154.shtml)
+- 2026-06-29 13:42 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/13709641.shtml)
+- 2026-06-29 13:24 - [赵今麦客串电影版开端](http://www.blog.kurohicncr.top/Article/details/55017937837.shtml)
+- 2026-06-29 13:30 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/42377532310.shtml)
+- 2026-06-29 13:39 - [向佑说向佐是一生依靠](http://www.share.kurohicncr.top/Article/details/89352.shtml)
+- 2026-06-29 13:38 - [为什么欧洲人不装空调](http://www.blog.kurohicncr.top/Article/details/858559771.shtml)
+- 2026-06-29 13:35 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/984290.shtml)
+- 2026-06-29 13:32 - [海军舰艇编队将赴香港](http://www.blog.kurohicncr.top/Article/details/378834.shtml)
+- 2026-06-29 13:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/49176413.shtml)
+- 2026-06-29 13:31 - [吴海燕兰西雅漫步复兴岛](https://www.blog.kurohicncr.top/Article/details/032743.shtml)
+- 2026-06-29 13:32 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/82689887.shtml)
+- 2026-06-29 13:31 - [比亚迪为什么卖得越多市值越低](https://www.blog.minike.top/Article/details/17714774.shtml)
+- 2026-06-29 13:47 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/197872543542.shtml)
+- 2026-06-29 13:35 - [俄称继续推进 乌称打击俄军设施](http://www.share.minike.top/Article/details/4981549.shtml)
+- 2026-06-29 13:30 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/529700.shtml)
+- 2026-06-29 13:50 - [天道](http://www.blog.kurohicncr.top/Article/details/9237590.shtml)

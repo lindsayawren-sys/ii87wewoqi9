@@ -1,49 +1,56 @@
-# 君实生物遭BNP PARIBAS SA减持51.02万股 每股作价27.6港元
+# 为什么想“成为妈妈”？记者蹲点产房见证母爱与新生
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，4月20日，BNP PARIBAS SA减持君实生物（01877）51.02万股，每股作价27.6港元，总金额约为1408.15万港元。减持后最新持股数目为2315.7万股，最新持股比例为8.9%。责任编辑：卢昱君
+发布时间：2026年05月10日 11:56 来源：中国新闻网 “成为妈妈，是一种很真实的幸福。” 产房里，刚经历分娩阵痛的二胎妈妈，看着趴在自己胸口的小生命，瞬间红了眼眶。 而另一位新手妈妈在“成为妈妈”之后，更能理解自己妈妈的选择了，“所有的决定都是为这个孩子好”。 妈妈为什么选择“成为妈妈”？“成为妈妈”究竟意味着什么？这场与新生命的双向奔赴，究竟藏着怎样的人生答案？ 母
 
 ## 正文
 
-香港联交所最新数据显示，4月20日，BNP PARIBAS SA减持君实生物（01877）51.02万股，每股作价27.6港元，总金额约为1408.15万港元。
+发布时间：2026年05月10日 11:56 来源：中国新闻网 “成为妈妈，是一种很真实的幸福。
 
-减持后最新持股数目为2315.7万股，最新持股比例为8.9%。
+” 产房里，刚经历分娩阵痛的二胎妈妈，看着趴在自己胸口的小生命，瞬间红了眼眶。
 
-责任编辑：卢昱君
+而另一位新手妈妈在“成为妈妈”之后，更能理解自己妈妈的选择了，“所有的决定都是为这个孩子好”。
+
+妈妈为什么选择“成为妈妈”？
+
+“成为妈妈”究竟意味着什么？
+
+这场与新生命的双向奔赴，究竟藏着怎样的人生答案？
+
+母亲节前夕，中新社记者走进产房，在这个新生命诞生的地方，亦是女孩儿真正成为妈妈的“战场”，探寻答案。
+
+记者 李佳悦 实习 唐梅芳 林倬安 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 13:43 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 13:26 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 13:39 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 13:26 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 13:44 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 13:19 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 13:30 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 13:24 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 13:37 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 13:31 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 13:29 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 13:24 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 13:37 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 13:46 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 13:53 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 13:50 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 13:53 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 13:48 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 13:24 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 13:34 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 13:42 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 13:47 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 13:25 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:38 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/567896.shtml)
-- 2026-06-29 13:31 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/4057999567.shtml)
-- 2026-06-29 13:20 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/013904438.shtml)
-- 2026-06-29 13:44 - [和阿根廷球员家属一起看球](http://www.blog.kurohicncr.top/Article/details/29167197.shtml)
-- 2026-06-29 13:40 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/056821916.shtml)
-- 2026-06-29 13:31 - [千与千寻](https://www.share.minike.top/Article/details/05241.shtml)
-- 2026-06-29 13:22 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/58442247.shtml)
-- 2026-06-29 13:28 - [王楚钦周启豪爆分](http://www.blog.minike.top/Article/details/146327094424.shtml)
-- 2026-06-29 13:35 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/015411.shtml)
-- 2026-06-29 13:38 - [实习期把公司领导开除了](https://www.share.kurohicncr.top/Article/details/978897754.shtml)
-- 2026-06-29 13:33 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/66219485.shtml)
-- 2026-06-29 13:46 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.share.minike.top/Article/details/64877192895.shtml)
-- 2026-06-29 13:33 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/751817212.shtml)
-- 2026-06-29 13:37 - [水利部部署南方地区暴雨洪水防御工作](http://www.blog.minike.top/Article/details/99108705871.shtml)
-- 2026-06-29 13:44 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/97864626099.shtml)
+- 2026-06-29 13:41 - [白玉兰最佳女主角提名片段](http://www.blog.kurohicncr.top/Article/details/81633732.shtml)
+- 2026-06-29 13:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/94556.shtml)
+- 2026-06-29 13:35 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/025067373.shtml)
+- 2026-06-29 13:25 - [高考志愿今起开始填报](http://www.blog.kurohicncr.top/Article/details/44683006728.shtml)
+- 2026-06-29 13:39 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/804208.shtml)
+- 2026-06-29 13:53 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/987841181985.shtml)
+- 2026-06-29 13:34 - [加拿大92分钟绝杀南非](https://www.blog.minike.top/Article/details/8427268804.shtml)
+- 2026-06-29 13:29 - [F1奥地利大奖赛正赛集锦](http://www.share.minike.top/Article/details/599982632.shtml)
+- 2026-06-29 13:34 - [河南考699分女生已接到清华大学电话](https://www.share.minike.top/Article/details/139203728.shtml)
+- 2026-06-29 13:41 - [李在明称韩国足协任命了无能之人](https://www.share.minike.top/Article/details/61803.shtml)
+- 2026-06-29 13:38 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/513602681869.shtml)
+- 2026-06-29 13:36 - [直击宜宾地震：监控剧烈摇晃](http://www.share.kurohicncr.top/Article/details/51381975014.shtml)
+- 2026-06-29 13:51 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/38604165782.shtml)
+- 2026-06-29 13:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/4938469.shtml)
+- 2026-06-29 13:36 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.share.minike.top/Article/details/3856483.shtml)

@@ -1,57 +1,49 @@
-# 乒乓球机器人球技如何？最新研究称可超越人类精英乒乓球手
+# 三星未来退市后售后与售卖仍如常？线下探店解答！
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网北京4月23日电 (记者 孙自法)国际学术期刊《自然》最新发表一篇机器人学论文称，索尼公司人工智能研发部门(Sony AI)开发的一个基于人工智能的乒乓球机器人系统，其表现可超越人类的精英乒乓球手。 这项研究结果表明，机器人系统有潜力执行复杂的实时互动任务，并预示其在快速准确物理交互的领域有着更广泛的应用前景。 该论文介绍，乒乓球对机器人而言是一种极富挑战性的运动，因为它
+发布时间：2026年05月09日 13:22 来源：中国新闻网 近日三星宣布停售在华部分商品，引发“退市”传闻与消费者售后担忧。中新社记者实地走访北京三星线下门店，工作人员明确回应，仅终止直营模式转为代理商运营，产品仍可正常购买，售后保障保持不变。(曹旭帆 王东宇) 责任编辑：【罗攀】
 
 ## 正文
 
-中新网北京4月23日电 (记者 孙自法)国际学术期刊《自然》最新发表一篇机器人学论文称，索尼公司人工智能研发部门(Sony AI)开发的一个基于人工智能的乒乓球机器人系统，其表现可超越人类的精英乒乓球手。
+发布时间：2026年05月09日 13:22 来源：中国新闻网 近日三星宣布停售在华部分商品，引发“退市”传闻与消费者售后担忧。
 
-这项研究结果表明，机器人系统有潜力执行复杂的实时互动任务，并预示其在快速准确物理交互的领域有着更广泛的应用前景。
+中新社记者实地走访北京三星线下门店，工作人员明确回应，仅终止直营模式转为代理商运营，产品仍可正常购买，售后保障保持不变。
 
-该论文介绍，乒乓球对机器人而言是一种极富挑战性的运动，因为它需要在极低延迟感知(最小化延迟处理速度)下作出快速反应，准确预测包括复杂旋转球在内的球运动轨迹。
-
-在过去的研究中，多种机器人系统尝试应对这些难题，但通常都是请初学者或业余球手来测试，使用非标准、经改造的器材(通常会限制球的旋转和速度)，并采用非标准的规则。
-
-在本项研究中，论文第一作者和通讯作者、Sony AI团队Peter Dürr与同事一起，研发推出了一个自动机器人系统，能与卓越的人类乒乓球手对战。
-
-这个乒乓球机器人系统名为Ace，由使用摄像机网络的高速感知系统、基于AI的控制系统以及一个拥有8个关节的高速机器臂组成。
-
-论文作者在一系列比赛中评估了Ace的表现，这些比赛基于日本职业乒乓球联赛规则进行，参赛选手包括5位精英选手(每位都有10年以上的乒乓球实战经验，平均每周训练20小时)，两位职业选手(均活跃于日本职业联赛)。
-
-Ace在与精英选手的5场比赛中赢得了3场，但与两位职业选手的比赛都落败了(过程中赢了一局)。
+(曹旭帆 王东宇) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 13:43 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 13:27 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 13:30 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 13:20 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 13:42 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 13:24 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 13:29 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 13:27 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 13:28 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 13:42 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 13:20 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 13:40 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 13:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 13:41 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 13:24 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 13:24 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 13:47 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 13:31 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 13:37 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 13:28 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 13:24 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 13:27 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 13:36 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 13:31 - [海清白玉兰奖运](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:41 - [多只A股发布股价异动公告](http://www.blog.kurohicncr.top/Article/details/38007.shtml)
-- 2026-06-29 13:19 - [普京称考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/26284.shtml)
-- 2026-06-29 13:43 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/80574.shtml)
-- 2026-06-29 13:27 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.kurohicncr.top/Article/details/62109107146.shtml)
-- 2026-06-29 13:40 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.minike.top/Article/details/50253787.shtml)
-- 2026-06-29 13:42 - [美国近12万名科技员工被解雇](https://www.blog.kurohicncr.top/Article/details/65415628.shtml)
-- 2026-06-29 13:37 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/755124542.shtml)
-- 2026-06-29 13:45 - [马杜罗社交媒体账号再发文](https://www.share.kurohicncr.top/Article/details/597560.shtml)
-- 2026-06-29 13:45 - [比亚迪市值为何蒸发8000亿](https://www.blog.kurohicncr.top/Article/details/385286906045.shtml)
-- 2026-06-29 13:36 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/432383664442.shtml)
-- 2026-06-29 13:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/685249595.shtml)
-- 2026-06-29 13:18 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/4646670.shtml)
-- 2026-06-29 13:25 - [流金岁月](http://www.blog.minike.top/Article/details/1962645029.shtml)
-- 2026-06-29 13:45 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/6204500404.shtml)
-- 2026-06-29 13:26 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/81647947208.shtml)
+- 2026-06-29 13:28 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/51902588507.shtml)
+- 2026-06-29 13:25 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/40688430.shtml)
+- 2026-06-29 13:53 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/72584088.shtml)
+- 2026-06-29 13:52 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/329274853.shtml)
+- 2026-06-29 13:28 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/983227496069.shtml)
+- 2026-06-29 13:24 - [沙特足协主席发布声明主动请辞](http://www.blog.kurohicncr.top/Article/details/56560450.shtml)
+- 2026-06-29 13:32 - [市民骑哈啰单车79分钟被收费30元](http://www.share.kurohicncr.top/Article/details/0185166.shtml)
+- 2026-06-29 13:46 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.share.kurohicncr.top/Article/details/582298525.shtml)
+- 2026-06-29 13:47 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/73957.shtml)
+- 2026-06-29 13:35 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/137210162.shtml)
+- 2026-06-29 13:30 - [DeepSeek联合北京大学发布论文](https://www.blog.kurohicncr.top/Article/details/911976702.shtml)
+- 2026-06-29 13:29 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/10807774.shtml)
+- 2026-06-29 13:41 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/0955226484.shtml)
+- 2026-06-29 13:40 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/0621097643.shtml)
+- 2026-06-29 13:25 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/81177805621.shtml)

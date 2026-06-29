@@ -1,60 +1,56 @@
-# 广西举办残疾人读书日活动 作家现场分享阅读力量
+# 华泰期货：股指上行，高景气度板块表现占优
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网南宁4月23日电(张广权 李卓恒)4月23日，“书香逐梦，桂在阅读”2026年广西残疾人读书日活动在南宁举行。 本次活动由广西壮族自治区残疾人联合会(以下简称“广西残联”)主办，南宁市残疾人联合会承办。 广西残联宣文部主任张朝志在致辞中表示，广西残联始终重视残疾人文化建设，着力补齐阅读资源短板，保障残疾人平等享有阅读权利。他希望残疾人朋友养成良好阅读习惯，在阅读中成长，并
+来源：华泰期货 作者： 汪雅航 市场分析 宏观政策仍将发力。宏观方面，国务院常务会议指出，宏观政策要在用好、用足上下功夫，坚持靠前发力，不断提升实施效能。做强国内大循环要在供需协同、联动升级上求突破，落实和完善服务业扩能提质举措，加强水网、新型电网、算力网、新一代通信网、城市地下管网、物流网等规划建设。会议听取全国综合交通运输体系建设情况汇报，要求统筹推进交通基础设施建设，坚持
 
 ## 正文
 
-中新网南宁4月23日电(张广权 李卓恒)4月23日，“书香逐梦，桂在阅读”2026年广西残疾人读书日活动在南宁举行。
+来源：华泰期货 作者： 汪雅航 市场分析 宏观政策仍将发力。
 
-本次活动由广西壮族自治区残疾人联合会(以下简称“广西残联”)主办，南宁市残疾人联合会承办。
+宏观方面，国务院常务会议指出，宏观政策要在用好、用足上下功夫，坚持靠前发力，不断提升实施效能。
 
-广西残联宣文部主任张朝志在致辞中表示，广西残联始终重视残疾人文化建设，着力补齐阅读资源短板，保障残疾人平等享有阅读权利。
+做强国内大循环要在供需协同、联动升级上求突破，落实和完善服务业扩能提质举措，加强水网、新型电网、算力网、新一代通信网、城市地下管网、物流网等规划建设。
 
-他希望残疾人朋友养成良好阅读习惯，在阅读中成长，并呼吁全社会关注残疾人文化需求，营造残健融合良好氛围。
+会议听取全国综合交通运输体系建设情况汇报，要求统筹推进交通基础设施建设，坚持一体布局、系统集成，切实用好存量资源、做优增量供给。
 
-随后，图书捐赠仪式举行。
+会议审议通过《中华人民共和国矿产资源法实施条例（草案）》。
 
-针对南宁市残疾人活动中心盲文书籍短缺的情况，广西残联向该中心捐赠了一批盲文书籍。
+地缘方面，特朗普表示，美国可能会恢复旨在疏导霍尔木兹海峡受困船只的“自由计划”行动。
 
-阅读分享环节中，视力障碍作家李莹讲述失明后通过阅读重拾信心的经历，如何克服困难开始创作之路；残疾人作家林竹结合自身创作经历，鼓励残疾人用文字表达自我。
+伊朗正在制定霍尔木兹海峡相关法律草案。
 
-对于怀揣文学梦的残疾人朋友，广西作家鬼子建议残疾人朋友从自身出发，不必局限于现实生活，可尝试玄幻等想象类题材。
+伊朗议会已和外交部、港口与海事组织等相关机构召开多次会议，就草案内容进行讨论。
 
 ## 相关推荐
 
-- 2026-06-29 13:30 - [伊朗球员致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 13:40 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 13:40 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 13:39 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 13:29 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 13:24 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 13:43 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 13:37 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 13:27 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 13:26 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 13:22 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 13:19 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 13:28 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 13:24 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 13:46 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 13:50 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 13:49 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 13:49 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 13:53 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 13:43 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 13:38 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 13:38 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 13:51 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 13:30 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:32 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/9632836752.shtml)
-- 2026-06-29 13:41 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/502823492106.shtml)
-- 2026-06-29 13:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/615625.shtml)
-- 2026-06-29 13:43 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/707877543694.shtml)
-- 2026-06-29 13:39 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/380291409.shtml)
-- 2026-06-29 13:26 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.minike.top/Article/details/128151.shtml)
-- 2026-06-29 13:35 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/458542.shtml)
-- 2026-06-29 13:47 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.blog.kurohicncr.top/Article/details/763006.shtml)
-- 2026-06-29 13:44 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/0217928.shtml)
-- 2026-06-29 13:37 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/73057974.shtml)
-- 2026-06-29 13:35 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/611011254.shtml)
-- 2026-06-29 13:22 - [俄军新型无人机战力如何](http://www.blog.kurohicncr.top/Article/details/021091830216.shtml)
-- 2026-06-29 13:19 - [沙特足协主席发布声明主动请辞](https://www.blog.minike.top/Article/details/68438451.shtml)
-- 2026-06-29 13:21 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/1850972.shtml)
-- 2026-06-29 13:33 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/075877162.shtml)
+- 2026-06-29 13:52 - [中餐厅南北饮食差异](https://www.share.minike.top/Article/details/01543.shtml)
+- 2026-06-29 13:46 - [美国近12万名科技员工被解雇](http://www.blog.minike.top/Article/details/442487574.shtml)
+- 2026-06-29 13:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/5057243.shtml)
+- 2026-06-29 13:38 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/51190676.shtml)
+- 2026-06-29 13:39 - [日本主帅：对战胜巴西很有信心](https://www.blog.minike.top/Article/details/53817023989.shtml)
+- 2026-06-29 13:30 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/201952722853.shtml)
+- 2026-06-29 13:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/7096914417.shtml)
+- 2026-06-29 13:49 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/279409391495.shtml)
+- 2026-06-29 13:27 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/307521510.shtml)
+- 2026-06-29 13:25 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/287040200094.shtml)
+- 2026-06-29 13:40 - [女子遭家暴两次起诉离婚均被驳回](https://www.blog.minike.top/Article/details/05017652539.shtml)
+- 2026-06-29 13:35 - [女子遭家暴两次起诉离婚均被驳回](https://www.blog.kurohicncr.top/Article/details/478496481609.shtml)
+- 2026-06-29 13:49 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/86095.shtml)
+- 2026-06-29 13:42 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/477485470369.shtml)
+- 2026-06-29 13:44 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/25603952613.shtml)

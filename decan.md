@@ -1,58 +1,60 @@
-# 商务部：将着力打响“出口中国”品牌 与世界共享中国发展新机遇
+# 广西加强面向东盟的知识产权保护
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网4月23日电 商务部23日下午举行新闻发布会，介绍近期商务领域重点工作有关情况。商务部新闻发言人何咏前介绍，今年一季度，我国进口保持了良好的增长态势，同比增长19.6%，展现出了中国外贸的强劲韧性和中国市场的巨大潜力。从主要产品看，高新技术产业快速发展，集成电路、电脑零部件进口增长41.4%、45.3%。消费潜能持续激发，消费品进口增长5.4%。国内工业运行稳中有进，大宗
+中新网南宁5月9日电(秦玉贤 张文军)5月9日，由广西壮族自治区市场监管局、广西贸促会联合主办的知识产权保护助力广西高质量发展研讨会在南宁召开。本次研讨会以“贯通南北科创链，链接东盟新蓝海”为主题，为广西知识产权事业的全链条发展和加强面向东盟的知识产权保护提供强有力的智力支撑。来自北京大学、中国政法大学、北京航空航天大学等知名高校知识产权领域的专家学者、企业及服务机构代表约80
 
 ## 正文
 
-中新网4月23日电 商务部23日下午举行新闻发布会，介绍近期商务领域重点工作有关情况。
+中新网南宁5月9日电(秦玉贤 张文军)5月9日，由广西壮族自治区市场监管局、广西贸促会联合主办的知识产权保护助力广西高质量发展研讨会在南宁召开。
 
-商务部新闻发言人何咏前介绍，今年一季度，我国进口保持了良好的增长态势，同比增长19.6%，展现出了中国外贸的强劲韧性和中国市场的巨大潜力。
+本次研讨会以“贯通南北科创链，链接东盟新蓝海”为主题，为广西知识产权事业的全链条发展和加强面向东盟的知识产权保护提供强有力的智力支撑。
 
-从主要产品看，高新技术产业快速发展，集成电路、电脑零部件进口增长41.4%、45.3%。
+来自北京大学、中国政法大学、北京航空航天大学等知名高校知识产权领域的专家学者、企业及服务机构代表约80人参会。
 
-消费潜能持续激发，消费品进口增长5.4%。
+当前，广西紧抓中国—东盟自贸区3.0版建设重大机遇，加速布局人工智能等新兴产业，着力构建“北上广研发—广西集成—东盟应用”差异化产业发展新路径。
 
-国内工业运行稳中有进，大宗商品进口量保持增长，原油、铁矿砂、粮食分别增长8.9%、10.5%、11.2%。
+知识产权作为激发产业创新活力、护航企业跨境出海、规范保障东盟跨境经贸合作的核心战略资源，作用愈发凸显。
 
-从来源地看，我国自150多个国家和地区的进口实现了增长，东盟保持我第一大进口来源地，占进口总额的14.8%。
+研讨会上，与会专家学者聚焦人工智能赋能知识产权创新应用、广西企业出海数据合规建设、涉外知识产权法律风险防控、中国—东盟跨境知识产权保护协同共治等核心议题开展深度交流研讨，精准研判广西企业开拓东盟市场过程中面临的知识产权侵权防范、合规管理体系构建、跨境知识产权纠纷多元化解等痛点难点，立足专业视角提出务实对策与建议。
 
-自RCEP成员国、欧洲、拉美进口分别增长25%、26.4%、26.3%，均高于整体增速。
+专家们认为，在数字经济与人工智能迅猛发展的背景下，知识产权保护面临新的机遇与挑战，广西应充分利用毗邻东盟的区位优势和产业发展实际，加强南北创新链协同，将知识产权打造为推动区域高质量发展，深化与东盟科创合作的“金钥匙”。
 
-从贸易主体看，各类经营主体全面增长。
+本次研讨会搭建的政产学研交流合作平台，进一步强化了广西知识产权保护工作的顶层谋划与实践落地，完善面向东盟的知识产权服务体系，助力企业提升涉外知识产权风险应对能力，为知识产权赋能广西高水平开放与高质量发展注入新动能。
 
 ## 相关推荐
 
-- 2026-06-29 13:35 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 13:20 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 13:21 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 13:24 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 13:43 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 13:33 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 13:19 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 13:24 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 13:38 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 13:22 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 13:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 13:45 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 13:50 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 13:46 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 13:30 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 13:38 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 13:37 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 13:41 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 13:30 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 13:52 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 13:52 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 13:47 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 13:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 13:24 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 13:50 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 13:53 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:18 - [千与千寻](https://www.share.minike.top/Article/details/42028126956.shtml)
-- 2026-06-29 13:19 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/31151754.shtml)
-- 2026-06-29 13:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/83700.shtml)
-- 2026-06-29 13:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/90687.shtml)
-- 2026-06-29 13:46 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/8574844761.shtml)
-- 2026-06-29 13:37 - [明星大侦探第一季](https://www.share.minike.top/Article/details/295364.shtml)
-- 2026-06-29 13:43 - [当我回母校教书](http://www.blog.minike.top/Article/details/73866599.shtml)
-- 2026-06-29 13:35 - [克洛普：加拿大主帅还能继续创造历史](http://www.blog.kurohicncr.top/Article/details/60333245188.shtml)
-- 2026-06-29 13:34 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.minike.top/Article/details/0931497274.shtml)
-- 2026-06-29 13:18 - [我国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/60001327378.shtml)
-- 2026-06-29 13:25 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/317485971824.shtml)
-- 2026-06-29 13:35 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/92155835.shtml)
-- 2026-06-29 13:40 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/744348244.shtml)
-- 2026-06-29 13:41 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/203388887.shtml)
-- 2026-06-29 13:26 - [各路“神仙”扎堆洛阳乘地铁](http://www.blog.minike.top/Article/details/938736.shtml)
+- 2026-06-29 13:44 - [青春环游记第三季](https://www.blog.minike.top/Article/details/9823130181.shtml)
+- 2026-06-29 13:49 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/02929396.shtml)
+- 2026-06-29 13:31 - [第一炉香](https://www.share.kurohicncr.top/Article/details/16541.shtml)
+- 2026-06-29 13:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/6854404260.shtml)
+- 2026-06-29 13:30 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.share.minike.top/Article/details/146248922.shtml)
+- 2026-06-29 13:28 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/13762567.shtml)
+- 2026-06-29 13:53 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/619660632117.shtml)
+- 2026-06-29 13:28 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/1958257740.shtml)
+- 2026-06-29 13:43 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/6562327130.shtml)
+- 2026-06-29 13:26 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/5187641255.shtml)
+- 2026-06-29 13:52 - [医护人员观影《四渡》传承长征精神](https://www.share.minike.top/Article/details/80101.shtml)
+- 2026-06-29 13:31 - [委内瑞拉地震死亡人数升至1450人](https://www.share.kurohicncr.top/Article/details/44750.shtml)
+- 2026-06-29 13:47 - [俄称继续推进 乌称打击俄军设施](https://www.blog.kurohicncr.top/Article/details/755109512.shtml)
+- 2026-06-29 13:25 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/1767578899.shtml)
+- 2026-06-29 13:36 - [沙特足协主席发布声明主动请辞](https://www.blog.minike.top/Article/details/143454.shtml)

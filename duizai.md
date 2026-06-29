@@ -1,57 +1,57 @@
-# 美军登上从伊朗运载原油的油轮 德黑兰继续威胁霍尔木兹海峡过往船只
+# 芯片变脸，华宝基金科创芯片ETF（589190）跌近3%，标的指数4月以来涨超41%，行情到哪了？
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-美国军方表示，美军在印度洋登上一艘从伊朗运载原油的受制裁超级油轮。这是美国对伊朗海运封锁中的最新行动。 五角大楼在X平台声明中称，隔夜的这次行动涉及一艘名为Majestic X的油轮。该船也被称为Phonix，是一艘可运输200万桶原油的超大型原油运输船。 五角大楼称，Majestic X属于无国籍船舶，而国际航运数据库Equasis则显示，该船悬挂虚假船旗航行。 在美国持续加
+5月8日，国产芯片掉头下跌，寒武纪、海光信息跌超5%，华虹公司、中芯国际跌超4%，全“芯”布局芯片产业的科创芯片ETF华宝（589190）低开低走，场内价格一度跌逾3%，收跌2.73%。 节后三个交易日，科创芯片整体延续节前上攻态势，589190跟踪的上证科创板芯片指数区间累计上涨4.99%。拉长时间看，科创芯片指数4月以来涨幅超41%，较万得全A指数超额逾29个百分点。 注：
 
 ## 正文
 
-美国军方表示，美军在印度洋登上一艘从伊朗运载原油的受制裁超级油轮。
+5月8日，国产芯片掉头下跌，寒武纪、海光信息跌超5%，华虹公司、中芯国际跌超4%，全“芯”布局芯片产业的科创芯片ETF华宝（589190）低开低走，场内价格一度跌逾3%，收跌2.73%。
 
-这是美国对伊朗海运封锁中的最新行动。
+节后三个交易日，科创芯片整体延续节前上攻态势，589190跟踪的上证科创板芯片指数区间累计上涨4.99%。
 
-五角大楼在X平台声明中称，隔夜的这次行动涉及一艘名为Majestic X的油轮。
+拉长时间看，科创芯片指数4月以来涨幅超41%，较万得全A指数超额逾29个百分点。
 
-该船也被称为Phonix，是一艘可运输200万桶原油的超大型原油运输船。
+注：上证科创板芯片指数近5个完整年度涨跌幅为2021年 6.87%，2022年 -33.69%，2023年 7.26%，2024年 34.52%，2025年 61.33%，指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
 
-五角大楼称，Majestic X属于无国籍船舶，而国际航运数据库Equasis则显示，该船悬挂虚假船旗航行。
+今日行情变脸，一方面或由于隔夜美股芯片股回撤，费城半导体指数跌超2.7%；另一方面，中东局势再起波折，压制市场风险偏好。
 
-在美国持续加大对伊朗施压力度之际，德黑兰方面实际上已几乎令霍尔木兹海峡通航停摆，阻止数亿桶石油和燃料以及其他商业运输通过这条水道。
+回归板块基本面，在AI浪潮+全链涨价+国产替代等主线催化下，产业超级景气周期不改。
 
-周三，伊朗在这条水道袭击了至少三艘船只，并将其中两艘引至本国水域。
+机构亦展望乐观，中信证券指出，国产算力已进入正循环，DeepSeek V4深度适配，国产算力芯片逐步迎来从“能用”到“好用”的拐点，950PR出货在即，寒武纪、海光信息等一季报高增验证景气度，国产两存与先进制程扩产推动半导体设备国产化率持续提升。
 
-此次登检Majestic X之前，美方已对超大型原油运输船Hedy和Hero II采取拦截行动。
+* 展望5-6月，中信证券认为，模型进入周级迭代新阶段，预计年中将迎各主要模型公司大版本更新，商业化加速进入正循环。
 
 ## 相关推荐
 
-- 2026-06-29 13:22 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 13:21 - [普京称俄处于命运攸关之际](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 13:42 - [网友偶遇胡军和李乃文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 13:38 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 13:38 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 13:18 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 13:23 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 13:26 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 13:43 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 13:45 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 13:34 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 13:29 - [Mrbeast的30天不吃饭挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 13:50 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 13:54 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 13:36 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 13:30 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 13:35 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 13:25 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 13:24 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 13:44 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 13:46 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 13:50 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:47 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/338196.shtml)
-- 2026-06-29 13:44 - [A股限售股解禁一览](http://www.share.minike.top/Article/details/9144773012.shtml)
-- 2026-06-29 13:38 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/54930072034.shtml)
-- 2026-06-29 13:27 - [如果你一直单身，你准备怎么养老？](https://www.blog.kurohicncr.top/Article/details/706434052.shtml)
-- 2026-06-29 13:29 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/062876.shtml)
-- 2026-06-29 13:23 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.kurohicncr.top/Article/details/925964.shtml)
-- 2026-06-29 13:27 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.kurohicncr.top/Article/details/29842.shtml)
-- 2026-06-29 13:30 - [TOP 无畏契约](http://www.share.kurohicncr.top/Article/details/37911.shtml)
-- 2026-06-29 13:25 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/28272.shtml)
-- 2026-06-29 13:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/53297373139.shtml)
-- 2026-06-29 13:30 - [曾沛慈夺冠后人气](https://www.share.kurohicncr.top/Article/details/160973621711.shtml)
-- 2026-06-29 13:38 - [王楚钦3-0周启豪 晋级32强](http://www.blog.minike.top/Article/details/02699399.shtml)
-- 2026-06-29 13:41 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.kurohicncr.top/Article/details/409904.shtml)
-- 2026-06-29 13:46 - [在委侨团负责人：家乡的帮助很及时](http://www.share.minike.top/Article/details/167028562803.shtml)
-- 2026-06-29 13:31 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/1103032.shtml)
+- 2026-06-29 13:52 - [久坐小心“死臀综合征”](http://www.blog.minike.top/Article/details/20522282.shtml)
+- 2026-06-29 13:31 - [女子遭家暴两次起诉离婚均被驳回](http://www.share.kurohicncr.top/Article/details/155228084867.shtml)
+- 2026-06-29 13:50 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/776520211.shtml)
+- 2026-06-29 13:40 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/85379261.shtml)
+- 2026-06-29 13:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/398418382567.shtml)
+- 2026-06-29 13:34 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/53087094183.shtml)
+- 2026-06-29 13:32 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/32564095337.shtml)
+- 2026-06-29 13:49 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/42555.shtml)
+- 2026-06-29 13:25 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/080294753.shtml)
+- 2026-06-29 13:27 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/108589918.shtml)
+- 2026-06-29 13:38 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/759029.shtml)
+- 2026-06-29 13:35 - [腾讯回应做独立支付APP](http://www.share.kurohicncr.top/Article/details/641732514.shtml)
+- 2026-06-29 13:31 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/916114.shtml)
+- 2026-06-29 13:41 - [俄军新型无人机战力如何](http://www.share.minike.top/Article/details/415127864024.shtml)
+- 2026-06-29 13:25 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/611216857037.shtml)

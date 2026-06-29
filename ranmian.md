@@ -1,56 +1,58 @@
-# 赛峰集团因发动机交付量激增实现营收两位数增长
+# 中国海外发展午后涨近4% 前4个月累计合约物业销售金额同比上升13.7%
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 为空客、波音飞机提供动力的发动机交付量增长 63% 受 LEAP 航空发动机交付量大幅增长推动，赛峰集团一季度调整后营收攀升。 这家法国航空航天集团周四表示，一季度调整后营收增长 19%，至 86.2 亿欧元（101.2 亿美元）；合并营收为 84.9 亿欧元，高于 2025 年同期的 73.8 亿欧元。 增长主要得益于LEAP 发动机交付
+中国海外发展（00688）午后股价上涨3.83%，现报16.53元，成交额12.176亿港元。 5月8日，中国海外发展发布公告，于2026年4月，中国海外系列公司的合约物业销售金额约人民币241.91亿元，按年上升20.0%；而相应的销售面积约为80.21万平方米，按年上升9.0%。2026年1月至4月，中国海外系列公司累计合约物业销售金额约人民币757.11亿元，按年上升13
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 为空客、波音飞机提供动力的发动机交付量增长 63% 受 LEAP 航空发动机交付量大幅增长推动，赛峰集团一季度调整后营收攀升。
+中国海外发展（00688）午后股价上涨3.83%，现报16.53元，成交额12.176亿港元。
 
-这家法国航空航天集团周四表示，一季度调整后营收增长 19%，至 86.2 亿欧元（101.2 亿美元）；合并营收为 84.9 亿欧元，高于 2025 年同期的 73.8 亿欧元。
+5月8日，中国海外发展发布公告，于2026年4月，中国海外系列公司的合约物业销售金额约人民币241.91亿元，按年上升20.0%；而相应的销售面积约为80.21万平方米，按年上升9.0%。
 
-增长主要得益于LEAP 发动机交付量激增 63%，该发动机为空客和波音多款机型提供动力。
+2026年1月至4月，中国海外系列公司累计合约物业销售金额约人民币757.11亿元，按年上升13.7%；而相应的累计销售面积约261.92万平方米，按年下跌10.6%。
 
-赛峰称，零部件销售额与服务销售额分别增长 29% 和 43%。
+光大证券指出，中国海外发展地产开发品牌优势明显，“中海好房子LivingOS 系统”全面落实好房子“安全、舒适、绿色、智慧”特质。
 
-集团表示，防务业务订单延续良好增长势头，主要受欧洲市场强劲需求拉动。
+2026年1-4月，公司销售金额为757.1亿元（同比提升13.7%）稳居行业前列，销售均价为2.89万元/平方米（同比提升27.1%），销售趋势边际向好。
 
-公司维持 2026 年业绩展望不变，预计： 责任编辑：郭明煜
+该行认为，目前房地产行业仍处于磨底阶段，城市分化和区域分化持续加深，公司龙头地位稳固，销售边际向好。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:41 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 13:32 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 13:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 13:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 13:41 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 13:47 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 13:30 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 13:33 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 13:34 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 13:31 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 13:41 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 13:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 13:41 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 13:36 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 13:44 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 13:44 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 13:53 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 13:36 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 13:41 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 13:30 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 13:39 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 13:34 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 13:33 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 13:32 - [曾沛慈夺冠后人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 13:44 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 13:30 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 13:47 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 13:42 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:22 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/282969777895.shtml)
-- 2026-06-29 13:25 - [水利部部署南方地区暴雨洪水防御工作](https://www.share.kurohicncr.top/Article/details/892483.shtml)
-- 2026-06-29 13:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/230063.shtml)
-- 2026-06-29 13:19 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/45451.shtml)
-- 2026-06-29 13:21 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/719995.shtml)
-- 2026-06-29 13:18 - [记者暗访贵州和云南多个养老机构](https://www.blog.kurohicncr.top/Article/details/25867.shtml)
-- 2026-06-29 13:27 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/08382447364.shtml)
-- 2026-06-29 13:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/980097.shtml)
-- 2026-06-29 13:39 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/21913.shtml)
-- 2026-06-29 13:30 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.minike.top/Article/details/45620886163.shtml)
-- 2026-06-29 13:27 - [天道](https://www.blog.kurohicncr.top/Article/details/8281122240.shtml)
-- 2026-06-29 13:22 - [2026年Mac能玩游戏了吗](http://www.blog.minike.top/Article/details/9983104.shtml)
-- 2026-06-29 13:29 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.minike.top/Article/details/9005168162.shtml)
-- 2026-06-29 13:42 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/15250740.shtml)
-- 2026-06-29 13:36 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/12101959169.shtml)
+- 2026-06-29 13:32 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/32568.shtml)
+- 2026-06-29 13:31 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/63693122.shtml)
+- 2026-06-29 13:47 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/119387332.shtml)
+- 2026-06-29 13:43 - [市民骑哈啰单车79分钟付30元](http://www.blog.kurohicncr.top/Article/details/4631292356.shtml)
+- 2026-06-29 13:45 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/4795358217.shtml)
+- 2026-06-29 13:29 - [张真源解读相思锁](http://www.share.kurohicncr.top/Article/details/76870355.shtml)
+- 2026-06-29 13:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/963807083.shtml)
+- 2026-06-29 13:49 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/3298312922.shtml)
+- 2026-06-29 13:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/35518379.shtml)
+- 2026-06-29 13:33 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.minike.top/Article/details/2813744330.shtml)
+- 2026-06-29 13:30 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/8992838851.shtml)
+- 2026-06-29 13:49 - [赵今麦客串电影版开端](http://www.blog.kurohicncr.top/Article/details/664463557501.shtml)
+- 2026-06-29 13:27 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/860043376.shtml)
+- 2026-06-29 13:53 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.blog.minike.top/Article/details/9977081025.shtml)
+- 2026-06-29 13:45 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/8497934493.shtml)

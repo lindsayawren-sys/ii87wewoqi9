@@ -1,60 +1,57 @@
-# 在分期乐普惠的帮助下，70亩吴茱萸熬过丰收前夜
+# 百名上海交大学子携40项科研成果亮相 解码未来科技新可能
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-微风之中，老吴站在成片的吴茱萸中间，这里位于湖北省黄石市阳新县，目之所及是他种下的70亩的吴茱萸。眼前这些苗株尚不及腰，但仅需熬过今年，明年吴茱萸就会开始结果，然后正式进入收获的丰产期。 就在几个月前，老吴还在为资金发愁。早期平整荒山的投入，外加后续买苗、栽种、除草、修枝、打药、施肥等人工成本，两年多的持续投入，几乎已经耗干了他手上的流动资金。还有一年就将迎来收获季，如何熬过这
+中新网上海5月11日电(记者 许婧)未来电池如何破解“放着也会老化”的难题？免疫细胞与癌细胞的“对话密码”怎样破译？机器人能否仅凭“直觉”完成精细操作？10日，上海交通大学溥渊未来技术学院“溥渊未来学者计划”项目展示活动在该校包玉刚图书馆举行，17个学院的100名学子携40项前沿科研项目集中亮相，在未来能源、未来健康、人工智能融合三大领域展现创新探索成果。 作为教育部公布的全国
 
 ## 正文
 
-微风之中，老吴站在成片的吴茱萸中间，这里位于湖北省黄石市阳新县，目之所及是他种下的70亩的吴茱萸。
+中新网上海5月11日电(记者 许婧)未来电池如何破解“放着也会老化”的难题？
 
-眼前这些苗株尚不及腰，但仅需熬过今年，明年吴茱萸就会开始结果，然后正式进入收获的丰产期。
+免疫细胞与癌细胞的“对话密码”怎样破译？
 
-就在几个月前，老吴还在为资金发愁。
+机器人能否仅凭“直觉”完成精细操作？
 
-早期平整荒山的投入，外加后续买苗、栽种、除草、修枝、打药、施肥等人工成本，两年多的持续投入，几乎已经耗干了他手上的流动资金。
+10日，上海交通大学溥渊未来技术学院“溥渊未来学者计划”项目展示活动在该校包玉刚图书馆举行，17个学院的100名学子携40项前沿科研项目集中亮相，在未来能源、未来健康、人工智能融合三大领域展现创新探索成果。
 
-还有一年就将迎来收获季，如何熬过这段艰难的时光，成了困扰老吴的难题。
+作为教育部公布的全国首批12所未来技术学院之一，上海交大溥渊未来技术学院2021年8月揭牌成立，“溥渊未来学者计划”由该学院于2023年2月发起，是面向全校本科生的科研素养培养计划，旨在培养未来科技创新领军人才。
 
-得益于分期乐普惠的及时支持，老吴如今有充裕的资金雇人给吴茱萸修条、施肥，安心等待丰产期的到来。
+面向国家“双碳”目标与新能源产业发展需求，“溥渊未来学者计划”学子们将目光投向了下一代电池技术的微观世界，力图解开制约性能瓶颈的核心谜题。
 
-这片吴茱萸差点断在资金上 黄石居于鄂赣皖三个中医药大省交汇点，中药材产业链基础较好，尤以阳新县的中药材得天独厚，吴茱萸就是其中一种。
+固态电池因兼具高安全性与高能量密度，被认为是下一代电池的重要方向，但“日历老化”问题制约其应用。
 
-吴茱萸以其果实入药，立秋之后果实大规模成熟，形似花椒的果实中富含多种生物碱——如吴茱萸碱等，被认为在镇痛、抗炎及调节胃肠功能等方面具有一定功效。
+刘丽颖围绕固态电池复合正极老化机制展开研究，模拟不同条件下的电池老化过程，试图找出“放着变差”的核心原因，为固态电池优化提供参考。
 
 ## 相关推荐
 
-- 2026-06-29 13:23 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 13:34 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 13:32 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 13:39 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 13:28 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 13:36 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 13:37 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 13:44 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 13:38 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 13:29 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 13:28 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 13:32 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 13:19 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 13:44 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 13:26 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 13:28 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 13:24 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 13:27 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 13:49 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 13:29 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 13:42 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 13:45 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 13:51 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 13:52 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 13:26 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:45 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/17700.shtml)
-- 2026-06-29 13:30 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/84534341.shtml)
-- 2026-06-29 13:40 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/528421629216.shtml)
-- 2026-06-29 13:46 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.kurohicncr.top/Article/details/44684.shtml)
-- 2026-06-29 13:23 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/9300296671.shtml)
-- 2026-06-29 13:24 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/182122774.shtml)
-- 2026-06-29 13:24 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/3846483.shtml)
-- 2026-06-29 13:26 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/9959019984.shtml)
-- 2026-06-29 13:19 - [【独家】牧神记 第89集 明心](http://www.blog.minike.top/Article/details/071454.shtml)
-- 2026-06-29 13:30 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/1442092139.shtml)
-- 2026-06-29 13:31 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/375882787.shtml)
-- 2026-06-29 13:43 - [一生一世](https://www.blog.kurohicncr.top/Article/details/719585831981.shtml)
-- 2026-06-29 13:26 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/095376770586.shtml)
-- 2026-06-29 13:24 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/48818.shtml)
-- 2026-06-29 13:24 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/36981034927.shtml)
+- 2026-06-29 13:46 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/543537246134.shtml)
+- 2026-06-29 13:34 - [美人鱼](http://www.share.minike.top/Article/details/34761653591.shtml)
+- 2026-06-29 13:37 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/5538458.shtml)
+- 2026-06-29 13:30 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/12485.shtml)
+- 2026-06-29 13:29 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/572499527.shtml)
+- 2026-06-29 13:43 - [T1对战KC](https://www.share.kurohicncr.top/Article/details/5559469.shtml)
+- 2026-06-29 13:44 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/861334411.shtml)
+- 2026-06-29 13:28 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/9737178.shtml)
+- 2026-06-29 13:43 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/7534699.shtml)
+- 2026-06-29 13:31 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/58493906053.shtml)
+- 2026-06-29 13:43 - [实习期把公司领导开除了](http://www.share.kurohicncr.top/Article/details/948716492.shtml)
+- 2026-06-29 13:47 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/5351603603.shtml)
+- 2026-06-29 13:37 - [事关个税 明日截止请抓紧办理](https://www.blog.minike.top/Article/details/308032690925.shtml)
+- 2026-06-29 13:42 - [加拿大92分钟绝杀南非](https://www.share.kurohicncr.top/Article/details/394647641.shtml)
+- 2026-06-29 13:46 - [赵露思爸爸拍vlog翻车了](http://www.share.minike.top/Article/details/63913906.shtml)

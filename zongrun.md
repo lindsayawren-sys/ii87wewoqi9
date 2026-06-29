@@ -1,60 +1,56 @@
-# 欧盟对俄罗斯发起新一轮制裁
+# 新兴市场在伊朗战争期间表现良好 贝莱德等机构称传统投资策略已过时
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新社布鲁塞尔4月23日电 (记者 德永健)欧盟23日对俄罗斯发起新一轮制裁，涉及能源、金融、贸易、媒体等多个领域。 据欧盟理事会当日发布的公告，欧盟能源制裁涉及俄罗斯石油勘探、开采、炼制、运输等一系列环节，同时认定46艘油轮隶属于俄罗斯“影子船队”，禁止这些油轮驶入欧盟管辖范围内的港口。 金融制裁方面，欧盟将20家俄罗斯银行及4家第三国金融机构列为制裁对象，并以提供加密货币服
+从持续了两个多月的中东危机来看，在市场承压时抛售新兴市场资产的传统策略已不再是万无一失的防御交易。 新兴市场长期以来被视为风险最高的资产之一，但在伊朗战争期间却出人意料地表现良好。今年以来，新兴市场股票涨幅超过20%，是标普500指数涨幅的三倍多。新兴市场货币处于历史高位，而且相对于发达市场的债券溢价也保持稳定。 贝莱德、PGIM、丹斯克银行和Robeco的投资者表示，这是更广
 
 ## 正文
 
-中新社布鲁塞尔4月23日电 (记者 德永健)欧盟23日对俄罗斯发起新一轮制裁，涉及能源、金融、贸易、媒体等多个领域。
+从持续了两个多月的中东危机来看，在市场承压时抛售新兴市场资产的传统策略已不再是万无一失的防御交易。
 
-据欧盟理事会当日发布的公告，欧盟能源制裁涉及俄罗斯石油勘探、开采、炼制、运输等一系列环节，同时认定46艘油轮隶属于俄罗斯“影子船队”，禁止这些油轮驶入欧盟管辖范围内的港口。
+新兴市场长期以来被视为风险最高的资产之一，但在伊朗战争期间却出人意料地表现良好。
 
-金融制裁方面，欧盟将20家俄罗斯银行及4家第三国金融机构列为制裁对象，并以提供加密货币服务为由，将一家吉尔吉斯斯坦实体及俄罗斯所有加密货币交易平台列为制裁对象。
+今年以来，新兴市场股票涨幅超过20%，是标普500指数涨幅的三倍多。
 
-贸易制裁方面，欧盟以支持俄罗斯军工复合体为由，将58家公司和相关人员及16家第三国实体列为制裁对象。
+新兴市场货币处于历史高位，而且相对于发达市场的债券溢价也保持稳定。
 
-以打击制裁规避为由，禁止向吉尔吉斯斯坦出口数控机床和无线电设备。
+贝莱德、PGIM、丹斯克银行和Robeco的投资者表示，这是更广泛趋势的一部分，他们指出资产类别发生了根本性的变化：各国政府正在增加外汇储备，而日益健全的制度和政策制定有助于吸收市场冲击。
 
-在进出口领域，将总值逾3.6亿欧元的欧盟产品纳入对俄出口禁令，将总值逾5.7亿欧元的俄罗斯产品纳入对俄进口禁令。
+与此同时，特朗普推动的政策转变以及美联储面临的压力，动摇了投资者对美国资产安全性的信心，促使他们寻找替代投资标的。
 
-此外，欧盟以乌克兰儿童问题为由，将俄罗斯5名个人和一家实体列为制裁对象。
+“新兴市场的韧性远超传统市场认知所显示的水平，”丹斯克银行的资金经理Soeren Moerch表示。
 
-以打击制裁规避为由，在制裁俄罗斯媒体的基础上，将相关媒体的镜像网站也列为制裁对象。
+当然，收益并非均匀分布，一些国家面临的风险尤其大。
 
 ## 相关推荐
 
-- 2026-06-29 13:41 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 13:45 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 13:25 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 13:27 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 13:44 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 13:38 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 13:28 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 13:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 13:27 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 13:41 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 13:45 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 13:24 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 13:18 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 13:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 13:33 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 13:37 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 13:50 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 13:34 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 13:41 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 13:27 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 13:29 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 13:52 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 13:29 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 13:37 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:29 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/933587586686.shtml)
-- 2026-06-29 13:25 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.minike.top/Article/details/743783049601.shtml)
-- 2026-06-29 13:21 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/424131983.shtml)
-- 2026-06-29 13:36 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/81189201.shtml)
-- 2026-06-29 13:32 - [周生如故](http://www.blog.minike.top/Article/details/493964.shtml)
-- 2026-06-29 13:44 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/59741580356.shtml)
-- 2026-06-29 13:28 - [《昨夜将至》为何是悬疑黑马](http://www.share.kurohicncr.top/Article/details/06333791.shtml)
-- 2026-06-29 13:27 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/69080353221.shtml)
-- 2026-06-29 13:29 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/931992.shtml)
-- 2026-06-29 13:18 - [詹俊预测德国大胜巴拉圭](http://www.share.kurohicncr.top/Article/details/79655041.shtml)
-- 2026-06-29 13:22 - [吴海燕兰西雅漫步复兴岛](http://www.blog.minike.top/Article/details/6198960707.shtml)
-- 2026-06-29 13:33 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.minike.top/Article/details/94675476729.shtml)
-- 2026-06-29 13:21 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/8825754973.shtml)
-- 2026-06-29 13:38 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/63210648.shtml)
-- 2026-06-29 13:26 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/84694.shtml)
+- 2026-06-29 13:50 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/5278027451.shtml)
+- 2026-06-29 13:38 - [为什么欧洲人不装空调](http://www.share.kurohicncr.top/Article/details/11103750970.shtml)
+- 2026-06-29 13:39 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/28286195.shtml)
+- 2026-06-29 13:31 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/08193789124.shtml)
+- 2026-06-29 13:32 - [游戏数据被用于军事目的 国安部提醒](https://www.share.minike.top/Article/details/9642894655.shtml)
+- 2026-06-29 13:42 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/91045.shtml)
+- 2026-06-29 13:30 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/182495.shtml)
+- 2026-06-29 13:42 - [第一炉香](http://www.share.kurohicncr.top/Article/details/1969016.shtml)
+- 2026-06-29 13:48 - [四川宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/80610477393.shtml)
+- 2026-06-29 13:44 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/536522244.shtml)
+- 2026-06-29 13:31 - [王楚钦美国大满贯晋级32强](http://www.share.minike.top/Article/details/43415806190.shtml)
+- 2026-06-29 13:52 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/5036262.shtml)
+- 2026-06-29 13:42 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.minike.top/Article/details/69471717892.shtml)
+- 2026-06-29 13:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/3018358923.shtml)
+- 2026-06-29 13:30 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/10705697.shtml)

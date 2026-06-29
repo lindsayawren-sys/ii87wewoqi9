@@ -1,57 +1,60 @@
-# 中东僵局压制市场情绪，美股周四尾盘承压走低
+# 海南离岛免税新政实施半年购物金额222.2亿元
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-当地时间4月23日尾盘，美国股市延续开盘时的弱势格局，三大指数集体下跌，投资者对中东局势持续僵持及企业财报表现分化保持谨慎。 尾盘实时数据 北京时间4月24日凌晨，道指跌约0.2%，纳指跌幅扩大至0.55%左右，标普500指数跌约0.2%。早盘开盘时，道指跌0.36%，纳指跌0.44%，标普500指数跌0.26%。尾盘阶段，下跌个股数量明显占优，下跌个股数超过上涨个股数。 地缘
+中新网海口5月11日电 (陈思筠 云金玉)据海口海关11日统计，自2025年11月海南离岛免税新政实施至2026年4月30日，海关监管离岛免税购物金额222.2亿元，购物人数297.3万人次，购物件数1745万件，同比分别增长22.6%、9.4%、5.5%。 “以前来海南购物，可选的商品类别比较有限。这次来海南，我不仅能给自家宠物购买零食套装，还能够买到心仪的迷你吉他，真是太让
 
 ## 正文
 
-当地时间4月23日尾盘，美国股市延续开盘时的弱势格局，三大指数集体下跌，投资者对中东局势持续僵持及企业财报表现分化保持谨慎。
+中新网海口5月11日电 (陈思筠 云金玉)据海口海关11日统计，自2025年11月海南离岛免税新政实施至2026年4月30日，海关监管离岛免税购物金额222.2亿元，购物人数297.3万人次，购物件数1745万件，同比分别增长22.6%、9.4%、5.5%。
 
-尾盘实时数据 北京时间4月24日凌晨，道指跌约0.2%，纳指跌幅扩大至0.55%左右，标普500指数跌约0.2%。
+“以前来海南购物，可选的商品类别比较有限。
 
-早盘开盘时，道指跌0.36%，纳指跌0.44%，标普500指数跌0.26%。
+这次来海南，我不仅能给自家宠物购买零食套装，还能够买到心仪的迷你吉他，真是太让我惊喜了。
 
-尾盘阶段，下跌个股数量明显占优，下跌个股数超过上涨个股数。
+”来自江苏的李女士说。
 
-地缘僵局压制风险偏好 美伊局势仍是市场焦点。
+“新政实施后，我们感觉到门店的客流量和销量都有明显增长。
 
-尽管美国总统特朗普此前宣布无限期延长停火协议，但美国对伊朗港口的封锁仍在继续，伊朗方面则在霍尔木兹海峡扣押了两艘船只。
+”万宁王府井国际免税港相关负责人介绍，“我们也积极响应政策，加大供货力度，丰富品牌品类，更好地满足消费者多元化的需求。
 
-布伦特原油维持在每桶100美元上方，加剧了市场对通胀和美国经济前景的担忧。
+” 离岛免税新政的实施，围绕普通游客、岛内居民和离境出行人群三类消费主体进行规则优化，补齐了商品供给短板，拓宽免税商品品类范围，免税商品品类由原来的45大类扩充至47大类，增加了宠物用品和可随身携带乐器两类商品。
 
-分析人士指出，市场对中东消息已显出一定“疲劳感”，投资者正将注意力重新转向美联储政策与企业基本面。
+同时，对既有商品进行优化扩容，小家电类新增扫地机器人、吸尘器、睡眠仪等15种商品，电子消费品类新增数码摄影器材、无人机2种商品，更好满足顾客多元化的消费需求。
 
 ## 相关推荐
 
-- 2026-06-29 13:47 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 13:45 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 13:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 13:18 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 13:24 - [A股限售股解禁一览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 13:25 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 13:20 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 13:25 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 13:43 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 13:26 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 13:30 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 13:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 13:24 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 13:32 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 13:39 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 13:53 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 13:48 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 13:37 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 13:52 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 13:50 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 13:50 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 13:24 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 13:46 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 13:44 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 13:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:18 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/004332.shtml)
-- 2026-06-29 13:36 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/35614934.shtml)
-- 2026-06-29 13:41 - [T1零封KC MSI](http://www.share.minike.top/Article/details/792299395723.shtml)
-- 2026-06-29 13:30 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.minike.top/Article/details/01334.shtml)
-- 2026-06-29 13:47 - [2026年Mac能玩游戏了吗](http://www.blog.kurohicncr.top/Article/details/022906755.shtml)
-- 2026-06-29 13:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/709277.shtml)
-- 2026-06-29 13:41 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/42714802.shtml)
-- 2026-06-29 13:18 - [T1对战KC](https://www.blog.minike.top/Article/details/663893.shtml)
-- 2026-06-29 13:24 - [NBA交易](http://www.share.kurohicncr.top/Article/details/326877.shtml)
-- 2026-06-29 13:19 - [詹俊：巴西能凭借两大优势战胜日本](https://www.blog.minike.top/Article/details/01999147790.shtml)
-- 2026-06-29 13:19 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/332941698062.shtml)
-- 2026-06-29 13:34 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/912653471678.shtml)
-- 2026-06-29 13:38 - [智界V9成为高端圈层共同选择](http://www.share.kurohicncr.top/Article/details/553062.shtml)
-- 2026-06-29 13:35 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/272736433.shtml)
-- 2026-06-29 13:24 - [恋与深空需直面玩家6大疑问](https://www.blog.kurohicncr.top/Article/details/13322500.shtml)
+- 2026-06-29 13:36 - [韩体育部长回应李在明痛批](http://www.blog.minike.top/Article/details/96535.shtml)
+- 2026-06-29 13:47 - [哈兰德之歌火到国外](http://www.blog.minike.top/Article/details/0636411341.shtml)
+- 2026-06-29 13:26 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/316532944.shtml)
+- 2026-06-29 13:33 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/35760520392.shtml)
+- 2026-06-29 13:49 - [青春环游记第三季](https://www.share.minike.top/Article/details/810381.shtml)
+- 2026-06-29 13:29 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.kurohicncr.top/Article/details/865945743718.shtml)
+- 2026-06-29 13:45 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/72961311216.shtml)
+- 2026-06-29 13:34 - [李连杰回应网传不管前妻俩女儿](https://www.share.kurohicncr.top/Article/details/8521011.shtml)
+- 2026-06-29 13:49 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/8211096.shtml)
+- 2026-06-29 13:49 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/01350.shtml)
+- 2026-06-29 13:45 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/255586273674.shtml)
+- 2026-06-29 13:25 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/99559375.shtml)
+- 2026-06-29 13:42 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.minike.top/Article/details/2868643034.shtml)
+- 2026-06-29 13:32 - [为什么欧洲人不装空调](https://www.blog.kurohicncr.top/Article/details/268837750831.shtml)
+- 2026-06-29 13:53 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/27958.shtml)

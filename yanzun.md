@@ -1,51 +1,49 @@
-# 国家知识产权局：2025年我国共授权发明专利97.2万件
+# 法国卫生部长确认：一名法国乘客汉坦病毒检测呈阳性
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网4月23日电 国务院新闻办公室23日举行新闻发布会，介绍2025年中国知识产权强国建设有关情况。 国家知识产权局副局长芮文彪表示，2025年我国知识产权创造质量持续提高。全年共授权发明专利97.2万件，注册商标420.6万件，登记著作权1067.7万件，认定地理标志产品104个，核准地理标志作为集体商标、证明商标注册51件，授予植物新品种权6986件。我国成为世界上首个发
+中新网5月11日电 据法新社报道，当地时间11日，法国卫生部长里斯特表示，一名从涉汉坦病毒疫情邮轮“洪迪厄斯”号下船的法国女子汉坦病毒检测呈阳性。 据报道，这名女乘客此前从“洪迪厄斯”号邮轮被接回巴黎，并正在接受隔离，她在当地时间10日晚上开始感到非常不适，“检测结果呈阳性”。
 
 ## 正文
 
-中新网4月23日电 国务院新闻办公室23日举行新闻发布会，介绍2025年中国知识产权强国建设有关情况。
+中新网5月11日电 据法新社报道，当地时间11日，法国卫生部长里斯特表示，一名从涉汉坦病毒疫情邮轮“洪迪厄斯”号下船的法国女子汉坦病毒检测呈阳性。
 
-国家知识产权局副局长芮文彪表示，2025年我国知识产权创造质量持续提高。
-
-全年共授权发明专利97.2万件，注册商标420.6万件，登记著作权1067.7万件，认定地理标志产品104个，核准地理标志作为集体商标、证明商标注册51件，授予植物新品种权6986件。
-
-我国成为世界上首个发明专利有效量超过500万件的国家，在量子科技、生物制造、脑机接口、6G通信等未来产业布局了一批关键核心技术专利。
+据报道，这名女乘客此前从“洪迪厄斯”号邮轮被接回巴黎，并正在接受隔离，她在当地时间10日晚上开始感到非常不适，“检测结果呈阳性”。
 
 ## 相关推荐
 
-- 2026-06-29 13:34 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 13:29 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 13:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 13:26 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 13:34 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 13:28 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 13:44 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 13:37 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 13:46 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 13:29 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 13:43 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 13:44 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 13:40 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 13:47 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 13:53 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 13:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 13:43 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 13:33 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 13:44 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 13:39 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 13:41 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 13:36 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 13:45 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 13:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 13:29 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 13:45 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 13:52 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 13:50 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:45 - [强⁶](https://www.share.minike.top/Article/details/207026923572.shtml)
-- 2026-06-29 13:45 - [韩国拟将部分刑责年龄降至13岁](https://www.blog.kurohicncr.top/Article/details/0167942863.shtml)
-- 2026-06-29 13:23 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/284565.shtml)
-- 2026-06-29 13:25 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/100422219.shtml)
-- 2026-06-29 13:34 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.kurohicncr.top/Article/details/1732350677.shtml)
-- 2026-06-29 13:28 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/277591.shtml)
-- 2026-06-29 13:43 - [游戏数据被用于军事目的 国安部提醒](http://www.blog.minike.top/Article/details/24917.shtml)
-- 2026-06-29 13:20 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/9736720.shtml)
-- 2026-06-29 13:44 - [双高胎](http://www.blog.minike.top/Article/details/827173177101.shtml)
-- 2026-06-29 13:20 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/6672007.shtml)
-- 2026-06-29 13:19 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/27837588527.shtml)
-- 2026-06-29 13:28 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/726871.shtml)
-- 2026-06-29 13:47 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.kurohicncr.top/Article/details/1051836.shtml)
-- 2026-06-29 13:26 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/411043588083.shtml)
-- 2026-06-29 13:44 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/06975731852.shtml)
+- 2026-06-29 13:48 - [森保一：日本队要亲手改写历史](https://www.blog.minike.top/Article/details/65860005.shtml)
+- 2026-06-29 13:36 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/25162.shtml)
+- 2026-06-29 13:26 - [水利部部署南方地区暴雨洪水防御工作](http://www.share.kurohicncr.top/Article/details/9935042652.shtml)
+- 2026-06-29 13:42 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.blog.kurohicncr.top/Article/details/984977547.shtml)
+- 2026-06-29 13:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/57946259.shtml)
+- 2026-06-29 13:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/330982.shtml)
+- 2026-06-29 13:36 - [比亚迪为什么卖得越多市值越低](http://www.share.kurohicncr.top/Article/details/5762550.shtml)
+- 2026-06-29 13:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/66791.shtml)
+- 2026-06-29 13:29 - [网友偶遇胡军和李乃文](http://www.share.minike.top/Article/details/140537914973.shtml)
+- 2026-06-29 13:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/13427.shtml)
+- 2026-06-29 13:38 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/10760.shtml)
+- 2026-06-29 13:26 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/32089494790.shtml)
+- 2026-06-29 13:31 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.share.kurohicncr.top/Article/details/533318.shtml)
+- 2026-06-29 13:32 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/921727429.shtml)
+- 2026-06-29 13:24 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/49657.shtml)

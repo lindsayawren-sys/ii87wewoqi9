@@ -1,52 +1,55 @@
-# 第十三批在韩志愿军烈士遗骸安葬仪式将于今天上午举行
+# 海洋潜水作业风险高？可下潜万米的仿生机器人来“替班”
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-第十三批12位在韩中国人民志愿军烈士遗骸于4月22日回国。今天上午，安葬仪式将在沈阳抗美援朝烈士陵园举行。 4月22日，第十三批12位在韩志愿军烈士遗骸及相关遗物由我国空军运-20B运输机从韩国接回至辽宁沈阳。运-20B运输机进入中国领空后，4架歼-20战机护航伴飞，以最高礼仪致敬先烈。 今天上午，第十三批在韩中国人民志愿军烈士遗骸安葬仪式将在沈阳抗美援朝烈士陵园举行。 忠魂不
+发布时间：2026年05月10日 21:19 来源：中国新闻网 5月10日，第28届中国北京国际科技产业博览会正在举行。本届北京科博会主题为“科技引领 创享未来”，在展厅内，一款可以下潜万米的仿生机器人亮相北京丰台展区。世航智能科技有限公司工作人员江婉佳在接受中新社记者采访时介绍，该款全栈自研的虎鲸海洋通用具身机器人，可以在水下720度全自由度运动，最深可以下潜至海下一万米。过
 
 ## 正文
 
-第十三批12位在韩中国人民志愿军烈士遗骸于4月22日回国。
+发布时间：2026年05月10日 21:19 来源：中国新闻网 5月10日，第28届中国北京国际科技产业博览会正在举行。
 
-今天上午，安葬仪式将在沈阳抗美援朝烈士陵园举行。
+本届北京科博会主题为“科技引领 创享未来”，在展厅内，一款可以下潜万米的仿生机器人亮相北京丰台展区。
 
-4月22日，第十三批12位在韩志愿军烈士遗骸及相关遗物由我国空军运-20B运输机从韩国接回至辽宁沈阳。
+世航智能科技有限公司工作人员江婉佳在接受中新社记者采访时介绍，该款全栈自研的虎鲸海洋通用具身机器人，可以在水下720度全自由度运动，最深可以下潜至海下一万米。
 
-运-20B运输机进入中国领空后，4架歼-20战机护航伴飞，以最高礼仪致敬先烈。
+过去，海下船舶清洁作业多靠人工完成，然而海下浪、流、涌、高压、高盐、高腐蚀等作业环境存在诸多危险性，搭载了清洁模块的“虎鲸机器人”可以代替人类精准地贴合船的侧壁和底面开展清洁工作，有效降低了水下人工作业的潜在风险。
 
-今天上午，第十三批在韩中国人民志愿军烈士遗骸安葬仪式将在沈阳抗美援朝烈士陵园举行。
-
-忠魂不泯浩气长存吾辈当以盛世中华告慰英灵 向英烈致敬！
+(谢龙飞 卢晓娜 林倬安 制作 王嘉怡) 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 13:25 - [向佑说向佐是一生依靠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 13:18 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 13:43 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 13:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 13:24 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 13:33 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 13:23 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 13:35 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 13:43 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 13:36 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 13:31 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 13:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 13:53 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 13:36 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 13:48 - [BW2026游览指南](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 13:45 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 13:39 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 13:43 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 13:43 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 13:33 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 13:32 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 13:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 13:53 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 13:28 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 13:31 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:31 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/038948.shtml)
-- 2026-06-29 13:43 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/889572774.shtml)
-- 2026-06-29 13:43 - [多只A股发布股价异动公告](https://www.blog.minike.top/Article/details/6456521439.shtml)
-- 2026-06-29 13:22 - [三都主：淘汰赛我会支持日本](http://www.share.minike.top/Article/details/87604952.shtml)
-- 2026-06-29 13:34 - [吴建豪老婆](http://www.blog.minike.top/Article/details/040442.shtml)
-- 2026-06-29 13:36 - [普京称俄处于命运攸关之际](http://www.share.minike.top/Article/details/120227.shtml)
-- 2026-06-29 13:29 - [三都主：淘汰赛我会支持日本](http://www.blog.kurohicncr.top/Article/details/37292475.shtml)
-- 2026-06-29 13:24 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/01691831.shtml)
-- 2026-06-29 13:37 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/38283118.shtml)
-- 2026-06-29 13:29 - [功率半导体缺货涨价](http://www.share.minike.top/Article/details/76581.shtml)
-- 2026-06-29 13:35 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/1044183041.shtml)
-- 2026-06-29 13:20 - [当我回母校教书](https://www.blog.minike.top/Article/details/565276.shtml)
-- 2026-06-29 13:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/52851527.shtml)
-- 2026-06-29 13:25 - [王楚钦首轮赢下国乒德比](http://www.share.minike.top/Article/details/04850882.shtml)
-- 2026-06-29 13:35 - [F1奥地利大奖赛正赛集锦](https://www.blog.kurohicncr.top/Article/details/7742120.shtml)
+- 2026-06-29 13:48 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.blog.kurohicncr.top/Article/details/717707005955.shtml)
+- 2026-06-29 13:31 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/219020907.shtml)
+- 2026-06-29 13:47 - [BW2026游览指南](http://www.share.minike.top/Article/details/9112301.shtml)
+- 2026-06-29 13:25 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/9599797.shtml)
+- 2026-06-29 13:25 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/088120471143.shtml)
+- 2026-06-29 13:43 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/3092119.shtml)
+- 2026-06-29 13:52 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/81226289.shtml)
+- 2026-06-29 13:49 - [李连杰回应网传不管前妻俩女儿](https://www.share.minike.top/Article/details/679075225488.shtml)
+- 2026-06-29 13:51 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/396895633.shtml)
+- 2026-06-29 13:31 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/88199401851.shtml)
+- 2026-06-29 13:31 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/5570236.shtml)
+- 2026-06-29 13:50 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/445905.shtml)
+- 2026-06-29 13:33 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/2472864.shtml)
+- 2026-06-29 13:39 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/248893166.shtml)
+- 2026-06-29 13:36 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.kurohicncr.top/Article/details/6257493.shtml)

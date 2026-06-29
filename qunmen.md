@@ -1,59 +1,58 @@
-# 江西云居山采茶忙 千年“禅茶”谷雨飘香
+# 新紫光集团宣布组建新兴科技创新联盟，董事长李滨：剥离非核心业务，将全部资源集中于智能科技产业
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月22日 19:17 来源：中国新闻网 谷雨时节，海拔近千米的江西永修云居山上，云雾缭绕，满目青翠。千年古刹真如禅寺周边的上百亩茶园里，灰布短褂的僧众腰挎竹篓，十指翻飞，将一芽一叶的鲜嫩春茶采入篓中。 农禅宗风初创于四祖道信，其后马祖道一建丛林、百丈怀海立清规，将农禅并重确立为丛林制度。千年之后，云居山真如禅寺依然保留着这一传统。每年清明至谷雨，始建于公
+新浪科技讯 5月9日下午消息，在近日的2026新紫光集团创新峰会上，新紫光集团发布技术全家桶，展示集团面向AI时代的全产业链布局与科技创新成果，正式宣布组建新兴科技创新联盟并落地两支产业基金，还完成多项重要战略合作签约。 会上，新紫光集团董事长李滨发表了题为《创新时代》的主旨演讲。他表示，团队接手集团时，面临的是负债高达1500亿元的沉重包袱，业务横跨银行、保险、地产、教育等与
 
 ## 正文
 
-发布时间：2026年04月22日 19:17 来源：中国新闻网 谷雨时节，海拔近千米的江西永修云居山上，云雾缭绕，满目青翠。
+新浪科技讯 5月9日下午消息，在近日的2026新紫光集团创新峰会上，新紫光集团发布技术全家桶，展示集团面向AI时代的全产业链布局与科技创新成果，正式宣布组建新兴科技创新联盟并落地两支产业基金，还完成多项重要战略合作签约。
 
-千年古刹真如禅寺周边的上百亩茶园里，灰布短褂的僧众腰挎竹篓，十指翻飞，将一芽一叶的鲜嫩春茶采入篓中。
+会上，新紫光集团董事长李滨发表了题为《创新时代》的主旨演讲。
 
-农禅宗风初创于四祖道信，其后马祖道一建丛林、百丈怀海立清规，将农禅并重确立为丛林制度。
+他表示，团队接手集团时，面临的是负债高达1500亿元的沉重包袱，业务横跨银行、保险、地产、教育等与智能科技毫不相干的众多领域，协同缺失，资源内耗，面对AI时代的新机遇几乎无力响应。
 
-千年之后，云居山真如禅寺依然保留着这一传统。
+新紫光开启了一场彻底的自我重建：2022年1月重整前负债1355亿元，截止目前，经过持续努力，负债已经降低74.2%，债务危机彻底成为历史。
 
-每年清明至谷雨，始建于公元808年的云居山真如禅寺全寺上下“出坡”采茶，成为这处“农禅并重”典范最生动的春日光景。
+李滨表示，聚焦，是新紫光重建的核心战略动作。
 
-作为曹洞宗全球传播的源头与中枢，真如禅寺在国际禅宗界享有重要地位。
+新紫光剥离非核心业务，将全部资源集中于智能科技产业，布局“半导体芯片、ICT通信基础设施、AI”三大支柱领域，以“大研发、大制造、大市场”三大举措赋能各成员企业创新发展。
 
-20世纪80年代，凭借其悠久的历史传承以及“农禅并重、冬参夏学”的严谨家风，被评为中国汉传佛教三大样板丛林之一。
+聚焦的成效已在市场中得到验证：集团营收同比增长超20%，除了已有3家上市公司外，多家核心产业公司IPO进程持续提速。
 
-从凌晨采茶到深夜焙干，一日劳作随暮鼓收工。
+峰会上，新紫光发布了“新紫光集团全家桶”，首次以整体形态系统呈现其面向AI时代的全产业链布局。
 
 ## 相关推荐
 
-- 2026-06-29 13:47 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 13:44 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 13:29 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 13:39 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 13:38 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 13:21 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 13:36 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 13:34 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 13:29 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 13:21 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 13:24 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 13:43 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 13:18 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 13:37 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 13:40 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 13:47 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 13:27 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 13:27 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 13:26 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 13:45 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 13:36 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 13:48 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 13:34 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 13:31 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 13:24 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:43 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/638934521.shtml)
-- 2026-06-29 13:41 - [王楚钦美国大满贯晋级32强](https://www.share.minike.top/Article/details/5450606052.shtml)
-- 2026-06-29 13:29 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/965539281746.shtml)
-- 2026-06-29 13:25 - [日本主帅：对战胜巴西很有信心](https://www.blog.kurohicncr.top/Article/details/11773607.shtml)
-- 2026-06-29 13:42 - [天道](http://www.share.kurohicncr.top/Article/details/82596554.shtml)
-- 2026-06-29 13:38 - [詹俊：巴西能凭借两大优势战胜日本](https://www.blog.kurohicncr.top/Article/details/75122.shtml)
-- 2026-06-29 13:21 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/5073807.shtml)
-- 2026-06-29 13:25 - [为什么欧洲人不装空调](http://www.blog.minike.top/Article/details/062488.shtml)
-- 2026-06-29 13:32 - [T1对战KC](http://www.share.minike.top/Article/details/504977416481.shtml)
-- 2026-06-29 13:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/369819136.shtml)
-- 2026-06-29 13:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/623585.shtml)
-- 2026-06-29 13:44 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/533302.shtml)
-- 2026-06-29 13:32 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/16165835745.shtml)
-- 2026-06-29 13:45 - [久坐小心“死臀综合征”](http://www.blog.kurohicncr.top/Article/details/98923080.shtml)
-- 2026-06-29 13:29 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/068571449.shtml)
+- 2026-06-29 13:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/2021964.shtml)
+- 2026-06-29 13:28 - [TOP 无畏契约](https://www.blog.minike.top/Article/details/94976441675.shtml)
+- 2026-06-29 13:38 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/93640.shtml)
+- 2026-06-29 13:47 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/19030.shtml)
+- 2026-06-29 13:53 - [人民日报评“AI脸看腻了”](https://www.blog.minike.top/Article/details/04586157.shtml)
+- 2026-06-29 13:41 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/164014.shtml)
+- 2026-06-29 13:30 - [一生一世](https://www.share.minike.top/Article/details/100893844.shtml)
+- 2026-06-29 13:39 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.minike.top/Article/details/60087113144.shtml)
+- 2026-06-29 13:37 - [比亚迪为什么卖得越多市值越低](http://www.share.minike.top/Article/details/29996.shtml)
+- 2026-06-29 13:48 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/62891601493.shtml)
+- 2026-06-29 13:49 - [媒体人：警惕日本再次成战争加害国](http://www.share.minike.top/Article/details/7932365435.shtml)
+- 2026-06-29 13:35 - [智界V9成为高端圈层共同选择](https://www.share.minike.top/Article/details/995929.shtml)
+- 2026-06-29 13:46 - [多家银行收紧个人贵金属业务](http://www.blog.kurohicncr.top/Article/details/613330309.shtml)
+- 2026-06-29 13:50 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/17354.shtml)
+- 2026-06-29 13:43 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/21833.shtml)

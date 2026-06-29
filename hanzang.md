@@ -1,59 +1,56 @@
-# 湖南龙山文旅推介活动落地长沙 构建文旅协同发展新生态
+# 护航新技术，也守护“慢行者”——《中国网络法治发展报告（2025年）》解读
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网长沙4月22日电 (记者 杨华峰)4月22日，湖南龙山县2026年度文旅资源跨区域营销推介活动(长沙站)在长沙举行。活动全面展现龙山秀美山水、千年文脉与浓郁民俗，现场发布多重利好政策，旨在深化长沙与龙山的文旅联动，续写对口帮扶的山海情深。 龙山县是湖南省首批旅游资源重点县，境内里耶古城遗址出土的近3.8万枚秦简，被誉为“21世纪最重大的考古发现之一”。如今，这些沉睡千年的
+国家互联网信息办公室近日发布《中国网络法治发展报告(2025年)》(以下简称“报告”)，全面盘点2025年我国网络法治建设的丰硕成果，系统总结经验，持续凝聚共识。 据国家互联网信息办公室网络法治局负责人介绍，这是国家网信办连续第二年发布网络法治综合性年度报告。 当前，网络空间蓬勃发展，法治面临的现实场景越发复杂。从生成式人工智能的知识产权边界，到“内卷式”竞争对市场环境的侵蚀，
 
 ## 正文
 
-中新网长沙4月22日电 (记者 杨华峰)4月22日，湖南龙山县2026年度文旅资源跨区域营销推介活动(长沙站)在长沙举行。
+国家互联网信息办公室近日发布《中国网络法治发展报告(2025年)》(以下简称“报告”)，全面盘点2025年我国网络法治建设的丰硕成果，系统总结经验，持续凝聚共识。
 
-活动全面展现龙山秀美山水、千年文脉与浓郁民俗，现场发布多重利好政策，旨在深化长沙与龙山的文旅联动，续写对口帮扶的山海情深。
+据国家互联网信息办公室网络法治局负责人介绍，这是国家网信办连续第二年发布网络法治综合性年度报告。
 
-龙山县是湖南省首批旅游资源重点县，境内里耶古城遗址出土的近3.8万枚秦简，被誉为“21世纪最重大的考古发现之一”。
+当前，网络空间蓬勃发展，法治面临的现实场景越发复杂。
 
-如今，这些沉睡千年的历史记忆通过创意转化，已衍生出“秦小禄”卡通 IP、“九九乘法口诀表”复刻书签、“二半而一”情侣吊坠等一系列可触摸、可带走的文创产品。
+从生成式人工智能的知识产权边界，到“内卷式”竞争对市场环境的侵蚀，再到外卖骑手等新业态劳动者的权益保障，一系列时代性课题相伴而生。
 
-近年来，龙山县以秦简博物馆为核心，规划建设秦文化主题公园，持续深耕文创产品研发，全力打造全国知名秦文化 IP，让深厚的秦文明在新时代焕发新生。
+立足“十五五”开局的关键节点，报告既为新技术发展划定法治边界，也为特殊群体筑牢权益屏障，释放出网络法治建设的清晰信号。
 
-与此同时，该县正全力创建湖南文旅融合示范区，交通路网日趋完善，文旅业态不断丰富。
+技术向善 为人工智能等新技术系上法治“缰绳”“2025年中国网络法治在网络立法、网络执法、网络司法等方面都取得重大进展，并体现出依法治理、技术先行的显著特征。
 
-据了解，长沙自1994年对口帮扶龙山以来，始终将龙山发展视作“自家事”，投入援助资金、实施帮扶项目，在基础设施建设、特色产业培育、民生保障改善、文旅品质提升等领域精准发力，让武陵深山逐步焕发蓬勃生机。
+”中国人民大学法学院吴玉章高级讲席教授、中国法学会网络信息法学研究会副会长张新宝表示。
 
-30余年间，长沙的持续帮扶不仅助力龙山顺利脱贫摘帽，更为其接续推进乡村振兴筑牢根基。
+在网络立法层面，新技术新应用治理规范不断丰富。
 
 ## 相关推荐
 
-- 2026-06-29 13:33 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 13:33 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 13:37 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 13:22 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 13:47 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 13:28 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 13:44 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 13:43 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 13:24 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 13:46 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 13:31 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 13:36 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 13:23 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 13:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 13:44 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 13:42 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 13:30 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 13:44 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 13:26 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 13:52 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 13:27 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 13:30 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 13:35 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:19 - [毕业寄几百斤快递回家女生发声](https://www.blog.kurohicncr.top/Article/details/58766.shtml)
-- 2026-06-29 13:41 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/192276.shtml)
-- 2026-06-29 13:45 - [沙丘](http://www.share.minike.top/Article/details/829259.shtml)
-- 2026-06-29 13:29 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.share.minike.top/Article/details/160411680142.shtml)
-- 2026-06-29 13:47 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.kurohicncr.top/Article/details/09510.shtml)
-- 2026-06-29 13:21 - [男子偶遇婴儿被锁车内大哭挣扎](https://www.blog.minike.top/Article/details/22696547556.shtml)
-- 2026-06-29 13:24 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/097555.shtml)
-- 2026-06-29 13:40 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/86176.shtml)
-- 2026-06-29 13:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/177949759334.shtml)
-- 2026-06-29 13:34 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/19716122283.shtml)
-- 2026-06-29 13:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/08851.shtml)
-- 2026-06-29 13:26 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.minike.top/Article/details/78639654712.shtml)
-- 2026-06-29 13:42 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/006383407248.shtml)
-- 2026-06-29 13:43 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/5121571306.shtml)
-- 2026-06-29 13:34 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/71966902.shtml)
+- 2026-06-29 13:33 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/120599819443.shtml)
+- 2026-06-29 13:54 - [ENC瓦中国香港负印度数据图](http://www.blog.minike.top/Article/details/6681569538.shtml)
+- 2026-06-29 13:40 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/355963578598.shtml)
+- 2026-06-29 13:48 - [四川宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/77058.shtml)
+- 2026-06-29 13:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/360565784.shtml)
+- 2026-06-29 13:27 - [未来5年全国能源体系将呈现这些特征](https://www.share.kurohicncr.top/Article/details/47902167.shtml)
+- 2026-06-29 13:48 - [吴海燕兰西雅漫步复兴岛](https://www.blog.kurohicncr.top/Article/details/413773.shtml)
+- 2026-06-29 13:45 - [爱很美味](https://www.share.minike.top/Article/details/0459807724.shtml)
+- 2026-06-29 13:47 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/15206539138.shtml)
+- 2026-06-29 13:41 - [本周做什么都顺的星座](https://www.share.minike.top/Article/details/898227.shtml)
+- 2026-06-29 13:52 - [网约车司机转账15000元后被乘客拉黑](http://www.share.minike.top/Article/details/6401194.shtml)
+- 2026-06-29 13:44 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/72650.shtml)
+- 2026-06-29 13:47 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/79965639964.shtml)
+- 2026-06-29 13:45 - [民进党为什么拼命抹黑统战](http://www.blog.kurohicncr.top/Article/details/42825429.shtml)
+- 2026-06-29 13:42 - [日媒称韩国史诗级上上签终成噩梦](http://www.blog.minike.top/Article/details/56116.shtml)

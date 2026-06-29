@@ -1,57 +1,56 @@
-# 欧洲股市持稳 交易员密切关注伊朗相关新闻和企业财报
+# 一场股东会投10张反对票！可靠股份“内斗”两年不休：高管再折一将，前老板娘称“经营不合规”
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-欧洲股市在连续三日下跌后出现震荡，交易员们一方面关注油价上涨以及关于伊朗停火的矛盾消息，另一方面则关注欧莱雅和雀巢发布的积极财报。 斯托克欧洲600指数收盘基本持平。阿斯麦控股股价下跌2.1%，此前台积电称将推迟至2029年后再将阿斯麦最先进的光刻机用于芯片生产。 本周以来，市场对伊朗与美国停火以及船只能否获准通过霍尔木兹海峡的担忧，一直令欧洲交易员感到不安。周四，美国总统唐纳
+登录新浪财经APP 搜索【信披】查看更多考评等级 文 | 《BUG》栏目 张奥 近日，被称为“中国银发产业第一股”的可靠股份接连交出两份“成绩单”：2025年营收11.5亿元，净利润0.36亿元；2026年一季度实现营收2.91亿元，归母净利润仅0.02亿元，较上年同期的1858.96万元暴跌89.89%；扣除非经常性损益后的归母净利润更降至21.22万元，同比大幅下滑98.7
 
 ## 正文
 
-欧洲股市在连续三日下跌后出现震荡，交易员们一方面关注油价上涨以及关于伊朗停火的矛盾消息，另一方面则关注欧莱雅和雀巢发布的积极财报。
+登录新浪财经APP 搜索【信披】查看更多考评等级 文 | 《BUG》栏目 张奥 近日，被称为“中国银发产业第一股”的可靠股份接连交出两份“成绩单”：2025年营收11.5亿元，净利润0.36亿元；2026年一季度实现营收2.91亿元，归母净利润仅0.02亿元，较上年同期的1858.96万元暴跌89.89%；扣除非经常性损益后的归母净利润更降至21.22万元，同比大幅下滑98.79%，几乎濒临亏损边缘。
 
-斯托克欧洲600指数收盘基本持平。
+同时，公司高管之间的内斗已经持续两年且再度“升级”。
 
-阿斯麦控股股价下跌2.1%，此前台积电称将推迟至2029年后再将阿斯麦最先进的光刻机用于芯片生产。
+副总经理、董事会秘书王向亭因个人原因主动申请辞职，彻底退出公司。
 
-本周以来，市场对伊朗与美国停火以及船只能否获准通过霍尔木兹海峡的担忧，一直令欧洲交易员感到不安。
+关于原因，可靠股份第二大股东、董事鲍佳（系董事长金利伟前期）向《BUG》栏目透露，公司内部推行“跪拜感恩老板文化”：“安排员工参加感恩培训教育。
 
-周四，美国总统唐纳德·特朗普下令美国海军开火击沉任何在该水道布雷的船只，这表明两国间的紧张局势依然较高。
+上市后高管持续频繁离职更换的核心原因，仍然是在短期满足董事长需求与长期满足合法合规要求之间，存在着无法逾越的鸿沟。
 
-与此同时，受服务业急剧下滑影响，欧元区商业活动意外萎缩，这是自2024年底以来的首次。
+” 与财报同期公布的第五届董事会第二十次会议决议显示，董事鲍佳对审议通过的17项议案中的10项均投出反对票。
 
-在财报季繁忙的一周里，投资者也在密切关注公司业绩表现。
+鲍佳直言，会议公告再次对其的反对意见进行了大幅删改从而隐瞒投资者相关重要信息，“实在无法容忍该行为”，已就此事向证监会官方渠道举报。
 
-巴克莱欧洲股票策略主管Emmanuel Cau表示，“美伊谈判缺乏进展，可能在股市强劲反弹后给市场带来现实考验。
+对于与鲍佳的争讨何时结束等事宜，可靠股份内部人士表示，无法确定具体（结束）时间，“正努力做好业绩经营，尽量改善现状，同（鲍佳争论的进展）以董事会后续决议公告为准”。
 
 ## 相关推荐
 
-- 2026-06-29 13:46 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 13:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 13:21 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 13:34 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 13:26 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 13:42 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 13:37 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 13:46 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 13:42 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 13:45 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 13:33 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 13:31 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 13:25 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 13:24 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 13:25 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 13:51 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 13:29 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 13:31 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 13:33 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 13:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 13:51 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:37 - [网友偶遇胡军和李乃文](http://www.share.minike.top/Article/details/279247.shtml)
-- 2026-06-29 13:33 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/00721788.shtml)
-- 2026-06-29 13:40 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/10804494258.shtml)
-- 2026-06-29 13:31 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/263847.shtml)
-- 2026-06-29 13:43 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/1908282860.shtml)
-- 2026-06-29 13:23 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/19415.shtml)
-- 2026-06-29 13:24 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/512321908.shtml)
-- 2026-06-29 13:39 - [农发行总行专家委员会委员杜晓力被查](http://www.blog.minike.top/Article/details/78522.shtml)
-- 2026-06-29 13:30 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/15470624853.shtml)
-- 2026-06-29 13:31 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/25137222495.shtml)
-- 2026-06-29 13:28 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/868638712.shtml)
-- 2026-06-29 13:18 - [爱很美味](https://www.blog.minike.top/Article/details/504315298.shtml)
-- 2026-06-29 13:19 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/456284.shtml)
-- 2026-06-29 13:21 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/19081.shtml)
-- 2026-06-29 13:47 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.minike.top/Article/details/60828139.shtml)
+- 2026-06-29 13:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/698947998864.shtml)
+- 2026-06-29 13:25 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/518672516353.shtml)
+- 2026-06-29 13:52 - [四川宜宾地震](https://www.blog.minike.top/Article/details/5351514.shtml)
+- 2026-06-29 13:47 - [这位猫咪，请你自重！](http://www.share.minike.top/Article/details/976712464145.shtml)
+- 2026-06-29 13:24 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.kurohicncr.top/Article/details/388778.shtml)
+- 2026-06-29 13:53 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/074359289.shtml)
+- 2026-06-29 13:49 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/487890.shtml)
+- 2026-06-29 13:24 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/861399438.shtml)
+- 2026-06-29 13:28 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/91226.shtml)
+- 2026-06-29 13:44 - [白玉兰最佳女主角提名片段](http://www.share.kurohicncr.top/Article/details/87788627.shtml)
+- 2026-06-29 13:35 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/580363396826.shtml)
+- 2026-06-29 13:32 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/910818427049.shtml)
+- 2026-06-29 13:45 - [赵露思爸爸拍vlog翻车了](http://www.blog.kurohicncr.top/Article/details/473490.shtml)
+- 2026-06-29 13:29 - [NBA交易](https://www.share.minike.top/Article/details/984946.shtml)
+- 2026-06-29 13:43 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/752101.shtml)

@@ -1,58 +1,60 @@
-# 中国（南京）软件谷与中国信通院打造智能经济新生态
+# 护航小微企业“拔节生长”
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网北京4月23日电 (记者 刘亮)记者23日从中国信通院获悉，中国(南京)软件谷与中国信息通信研究院近日正式签署战略合作框架协议，双方将紧扣国家“人工智能+”行动部署与“打造智能经济新形态”政策导向，聚焦数字员工平台建设与OPC(一人公司)模式创新，构建“平台化承载、场景化落地、产业化孵化、治理化运行”的新型合作体系。当前，人工智能正从“生成内容”向“执行任务、协同工作、交
+农业银行持续深化落实支持小微企业融资协调工作机制，因地制宜联动政企合作，优化服务流程，打通融资堵点，为小微企业高质量发展注入金融动能。截至今年3月末，农业银行已累计为“推荐清单”内441万户小微企业发放贷款超6万亿元。全方位金融服务助湘企扬帆出海在遥远的阿尔及利亚，一片片标识着“神州龙”中文字样的标准化厂房，已成为当地独具特色的中国印记。这是来自湖南省的湘潭神州龙实业有限公司（
 
 ## 正文
 
-中新网北京4月23日电 (记者 刘亮)记者23日从中国信通院获悉，中国(南京)软件谷与中国信息通信研究院近日正式签署战略合作框架协议，双方将紧扣国家“人工智能+”行动部署与“打造智能经济新形态”政策导向，聚焦数字员工平台建设与OPC(一人公司)模式创新，构建“平台化承载、场景化落地、产业化孵化、治理化运行”的新型合作体系。
+农业银行持续深化落实支持小微企业融资协调工作机制，因地制宜联动政企合作，优化服务流程，打通融资堵点，为小微企业高质量发展注入金融动能。
 
-当前，人工智能正从“生成内容”向“执行任务、协同工作、交付结果”的新阶段加速演进。
+截至今年3月末，农业银行已累计为“推荐清单”内441万户小微企业发放贷款超6万亿元。
 
-2026年政府工作报告首次明确“打造智能经济新形态”，将人工智能作为拓展经济增长新空间的核心引擎，而OPC一人公司凭借“超级个体+ AI协同”的新型组织形态，已成为激发市场活力的重要载体，全国注册量年增超47%，长三角地区更是集聚近半数新增主体。
+全方位金融服务助湘企扬帆出海在遥远的阿尔及利亚，一片片标识着“神州龙”中文字样的标准化厂房，已成为当地独具特色的中国印记。
 
-作为中国首个软件名城核心承载区与南京人工智能生态建设主阵地，中国(南京)软件谷已集聚AI企业381家、从业人员超5万人，“AI·镜界”人工智能生态街区等载体加速成型，着力推动产业从单点应用迈向生态化协同。
+这是来自湖南省的湘潭神州龙实业有限公司（以下简称“神州龙”）在非洲大陆打造的“中国制造”样板，也是湘企勇拓海外市场的生动缩影。
 
-据了解，中国(南京)软件谷与中国信通院拟共建标准化数字员工供给体系，整合底层技术形成可复用、可扩展的智能化服务矩阵，同时建立覆盖全生命周期的OPC场景适配规范，破解单人公司智能化转型的合规与稳定性难题，护航“单人成军”创业新模式。
+2024年8月，神州龙阿尔及利亚子公司签下一笔千万元级的钢材大单，却在原材料采购环节遭遇500万元资金缺口，生产一度受阻。
 
-合作拟聚焦产业研究、跨境电商、制造运维等高频场景，加速数实融合落地；通过定向培养复合型AI人才、开展企业管理者专项培训，推动传统企业向OPC模式演化重构。
+得知企业难处，农业银行湘潭分行小微企业融资协调工作机制专班第一时间通过“湘汇贷”快速发放500万元纯信用贷款，帮助企业稳住了这张来之不易的订单。
 
-双方还将搭建面向中小企业与创业者的公共AI能力底座，开放算力、数据等核心资源，带动数据治理、运维审计等配套服务链发展，进一步完善区域“创新链—产业链—资金链—人才链”深度融合的智能原生产业生态。
+随着企业订单量持续攀升，该分行专班又为其采购原材料与日常经营提供了金融支持。
 
-(完)
+今年3月，正值生产旺季，神州龙阿尔及利亚子公司贷款即将到期，农业银行湘潭分行专班及时运用无还本续贷政策，支持企业资金周转无缝衔接，同时通过配套结售汇及外汇衍生品服务，帮助企业有效规避了汇率波动风险。
 
 ## 相关推荐
 
-- 2026-06-29 13:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 13:24 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 13:23 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 13:40 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 13:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 13:36 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 13:36 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 13:33 - [BW2026游览指南](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 13:39 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 13:27 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 13:36 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 13:33 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 13:27 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 13:31 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 13:41 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 13:36 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 13:25 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 13:36 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 13:31 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 13:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 13:53 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 13:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 13:30 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 13:27 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 13:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 13:24 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:31 - [吴昕要助理买的药6年前已停产](https://www.blog.kurohicncr.top/Article/details/5628416020.shtml)
-- 2026-06-29 13:25 - [腾讯回应做独立支付APP](http://www.blog.minike.top/Article/details/83464989155.shtml)
-- 2026-06-29 13:39 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/94685536.shtml)
-- 2026-06-29 13:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/4149503.shtml)
-- 2026-06-29 13:24 - [久坐小心“死臀综合征”](https://www.share.minike.top/Article/details/24607723.shtml)
-- 2026-06-29 13:40 - [女心理师](http://www.share.minike.top/Article/details/15477414261.shtml)
-- 2026-06-29 13:21 - [恋与深空失控领地](https://www.share.minike.top/Article/details/25742.shtml)
-- 2026-06-29 13:42 - [为什么6月以来北方频繁降雨](https://www.share.kurohicncr.top/Article/details/4716388.shtml)
-- 2026-06-29 13:32 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/200518860447.shtml)
-- 2026-06-29 13:21 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/2291766017.shtml)
-- 2026-06-29 13:44 - [事关个税 明日截止请抓紧办理](https://www.share.minike.top/Article/details/82529859592.shtml)
-- 2026-06-29 13:45 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/8477039049.shtml)
-- 2026-06-29 13:45 - [2026年Mac能玩游戏了吗](https://www.share.kurohicncr.top/Article/details/34315.shtml)
-- 2026-06-29 13:41 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/487089365.shtml)
-- 2026-06-29 13:24 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/5584913.shtml)
+- 2026-06-29 13:50 - [送你一朵小红花](https://www.share.minike.top/Article/details/24674995.shtml)
+- 2026-06-29 13:47 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/370550.shtml)
+- 2026-06-29 13:39 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/211191350.shtml)
+- 2026-06-29 13:31 - [亚洲成世界杯最大失意者联盟](http://www.blog.kurohicncr.top/Article/details/3353912289.shtml)
+- 2026-06-29 13:47 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/761363844.shtml)
+- 2026-06-29 13:45 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/2237613862.shtml)
+- 2026-06-29 13:48 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/63053505.shtml)
+- 2026-06-29 13:33 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/9254501409.shtml)
+- 2026-06-29 13:44 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.kurohicncr.top/Article/details/9592032.shtml)
+- 2026-06-29 13:47 - [金刚川](http://www.blog.kurohicncr.top/Article/details/898459211.shtml)
+- 2026-06-29 13:34 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/4687449.shtml)
+- 2026-06-29 13:32 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/744948.shtml)
+- 2026-06-29 13:53 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/694978469533.shtml)
+- 2026-06-29 13:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/618920.shtml)
+- 2026-06-29 13:50 - [航空运输旅客服务质量国标将实施](https://www.share.minike.top/Article/details/51059.shtml)

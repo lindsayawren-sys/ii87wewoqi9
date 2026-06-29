@@ -1,58 +1,55 @@
-# 长江有色：美股齐跌科技股领跌大盘资金谨慎 24日锡价或涨跌不大
+# “软黄金”冬虫夏草新鲜上市：线下交易与线上直播带货并行
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-期货市场：美股齐跌科技股领跌大盘风险资产集体遭抛售，隔夜伦锡收跌1.35%；最新收盘报49910美元/吨，下跌685美元，跌幅为1.35%，成交量为416手，持仓量21285万手；国内方面，夜盘沪期锡高位运行，尾盘小幅收涨。主力合约沪锡2605收报391490元/吨，上涨420元，涨幅报0.11%。 伦敦金属交易所（LME）4月23日伦锡库存量8795吨，较前一交易日库存量减少
+发布时间：2026年05月10日 16:13 来源：中国新闻网 4月至6月，青海高原的“软黄金”冬虫夏草先后迎来采挖季，新鲜冬虫夏草已上市。连日来，记者探访青海省规模最大的冬虫夏草交易市场，该市场内门庭若市，商贩不仅晾晒包裹着泥土的新鲜冬虫夏草，且刷土、挑选、真空打包、邮寄于一体。老商户守着产地货源，坚守品质；外地客商千里寻货，认准野生；传统线下交易与线上直播带货并行，让高原珍
 
 ## 正文
 
-期货市场：美股齐跌科技股领跌大盘风险资产集体遭抛售，隔夜伦锡收跌1.35%；最新收盘报49910美元/吨，下跌685美元，跌幅为1.35%，成交量为416手，持仓量21285万手；国内方面，夜盘沪期锡高位运行，尾盘小幅收涨。
+发布时间：2026年05月10日 16:13 来源：中国新闻网 4月至6月，青海高原的“软黄金”冬虫夏草先后迎来采挖季，新鲜冬虫夏草已上市。
 
-主力合约沪锡2605收报391490元/吨，上涨420元，涨幅报0.11%。
+连日来，记者探访青海省规模最大的冬虫夏草交易市场，该市场内门庭若市，商贩不仅晾晒包裹着泥土的新鲜冬虫夏草，且刷土、挑选、真空打包、邮寄于一体。
 
-伦敦金属交易所（LME）4月23日伦锡库存量8795吨，较前一交易日库存量减少45吨。
+老商户守着产地货源，坚守品质；外地客商千里寻货，认准野生；传统线下交易与线上直播带货并行，让高原珍品走得更远。
 
-长江锡业网讯：今日沪锡期货全线高开，主力月2605合约开盘报393040元/吨涨1970元/吨，9：15分沪锡主力2605合约报391970元/吨，上涨900元，涨幅为0.23%，沪期锡高开后呈现高位震荡运行；宏观面：隔夜伦锡领跌全场，核心来自两大宏观利空共振。
+冬虫夏草是青藏高原及其周边地区特有珍稀物种资源，中国冬虫夏草产量占世界产量的98%，其中超六成源自青海。
 
-一是美国 4 月制造业 PMI 初值录得 54.0，创下近四年新高，彻底强化美联储高利率维持更久的鹰派预期，美元指数应声收涨，直接压制以美元计价的伦锡估值；二是美股三大指数集体收跌，市场风险偏好快速回落，叠加五一节前临近，多头集中获利了结离场，进一步放大了伦锡的跌幅。
+“十四五”期间，青海省冬虫夏草保护利用面积达7000万亩，总产量达612吨，总产值896亿元，出口额达6.4亿元。
 
-供需端 供应端，缅甸锡矿复产进程缓慢，印尼收紧锡出口审批，全球锡矿供应增量有限，国内冶炼厂受原料库存偏低制约，开工率维持低位，现货流通持续偏紧；需求端，AI 服务器、半导体封装、光伏焊带等领域刚需韧性充足，叠加两办节能降碳新政对高端电子焊料的需求提振，为锡价提供了坚实的底部支撑。
-
-后市走势前瞻与核心关注变量 当前锡市呈现 “供应偏紧、刚需托底” 的紧平衡格局。
-
-4 月 24 日市场核心聚焦美联储官员讲话、美元走势、下游五一节前补库持续性三大变量。
+(孙睿 制作 王嘉怡) 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 13:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 13:19 - [毕业寄几百斤快递回家女生发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 13:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 13:28 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 13:25 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 13:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 13:40 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 13:32 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 13:44 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 13:25 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 13:20 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 13:30 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 13:26 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 13:39 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 13:41 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 13:30 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 13:48 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 13:25 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 13:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 13:31 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 13:44 - [DSpark论文深度解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 13:37 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 13:43 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 13:35 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 13:51 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:25 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/52472627549.shtml)
-- 2026-06-29 13:46 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/51673163463.shtml)
-- 2026-06-29 13:45 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/1059652725.shtml)
-- 2026-06-29 13:27 - [高考志愿今起开始填报](http://www.blog.minike.top/Article/details/4609827.shtml)
-- 2026-06-29 13:19 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.minike.top/Article/details/713717699948.shtml)
-- 2026-06-29 13:25 - [男子偶遇婴儿被锁车内大哭挣扎](https://www.share.minike.top/Article/details/47396887352.shtml)
-- 2026-06-29 13:34 - [沙特足协主席发布声明主动请辞](https://www.blog.kurohicncr.top/Article/details/4310156087.shtml)
-- 2026-06-29 13:34 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.kurohicncr.top/Article/details/64040594.shtml)
-- 2026-06-29 13:34 - [美伊同意停止互袭](http://www.blog.kurohicncr.top/Article/details/5187096.shtml)
-- 2026-06-29 13:43 - [韩国政府将对世界杯出局追责](https://www.share.minike.top/Article/details/97920024.shtml)
-- 2026-06-29 13:19 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/373781.shtml)
-- 2026-06-29 13:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/9474344.shtml)
-- 2026-06-29 13:42 - [6月我国降水为何偏多](http://www.share.kurohicncr.top/Article/details/1994187381.shtml)
-- 2026-06-29 13:39 - [T1对战KC](http://www.share.minike.top/Article/details/557239416882.shtml)
-- 2026-06-29 13:25 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/47664958459.shtml)
+- 2026-06-29 13:27 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/4784750076.shtml)
+- 2026-06-29 13:29 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/517156857.shtml)
+- 2026-06-29 13:40 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/79610.shtml)
+- 2026-06-29 13:42 - [河南考699分女生已接到清华大学电话](http://www.share.minike.top/Article/details/959522750029.shtml)
+- 2026-06-29 13:53 - [未来5年全国能源体系将呈现这些特征](https://www.share.kurohicncr.top/Article/details/628965343.shtml)
+- 2026-06-29 13:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/11165340613.shtml)
+- 2026-06-29 13:41 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/77211021.shtml)
+- 2026-06-29 13:50 - [北极荒岛生存挑战](http://www.share.kurohicncr.top/Article/details/3299472.shtml)
+- 2026-06-29 13:30 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/54597.shtml)
+- 2026-06-29 13:46 - [撒旦的腋窝是什么比喻](https://www.share.kurohicncr.top/Article/details/053878.shtml)
+- 2026-06-29 13:27 - [《昨夜将至》为何是悬疑黑马](https://www.blog.minike.top/Article/details/704147773.shtml)
+- 2026-06-29 13:27 - [双高胎](http://www.blog.minike.top/Article/details/713778.shtml)
+- 2026-06-29 13:41 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/0080779.shtml)
+- 2026-06-29 13:48 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/660281475.shtml)
+- 2026-06-29 13:52 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/04902.shtml)

@@ -1,60 +1,60 @@
-# 光大期货：4月24日软商品日报
+# Brand Finance 2026中国品牌价值500强发布：29个汽车品牌入选，累计品牌价值同比增长10%
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西4月前三周出口糖和糖蜜73.85万吨，日均出口量为6.15万吨，较上年4月全月日均出口量7.75万吨减少21%。现货报价方面，广西制糖集团报价区间为5320~5410元/吨，云南制糖集团报价5150~ 5230元/吨，报价持平；加工糖厂主流报价区间为5620~5880元/吨，少数上
+新浪财经讯，总部位于英国伦敦的品牌估值机构品牌金融集团9日发布《Brand Finance 2026中国品牌价值500强》报告，报告显示，2026年中国500强品牌的总品牌价值突破2.1万亿美元，品牌价值总额较上年增长7.6%，其中排名前10的品牌价值占比高达36%。 报告显示，抖音以1535.4 亿美元的品牌价值，连续第三年居中国品牌价值榜首，跃居全球第六，同比增长 45.1
 
 ## 正文
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西4月前三周出口糖和糖蜜73.85万吨，日均出口量为6.15万吨，较上年4月全月日均出口量7.75万吨减少21%。
+新浪财经讯，总部位于英国伦敦的品牌估值机构品牌金融集团9日发布《Brand Finance 2026中国品牌价值500强》报告，报告显示，2026年中国500强品牌的总品牌价值突破2.1万亿美元，品牌价值总额较上年增长7.6%，其中排名前10的品牌价值占比高达36%。
 
-现货报价方面，广西制糖集团报价区间为5320~5410元/吨，云南制糖集团报价5150~ 5230元/吨，报价持平；加工糖厂主流报价区间为5620~5880元/吨，少数上调10~20元/吨。
+报告显示，抖音以1535.4 亿美元的品牌价值，连续第三年居中国品牌价值榜首，跃居全球第六，同比增长 45.1%，在全球社交与数字商业领域持续赶超欧美传统巨头。
 
-原糖近期低位反弹，但仍受制于供应充足，反弹幅度较温和。
+国家电网以突破1000以美元品牌价值稳居中国第二，全球第十，创历史新高。
 
-未来短期关注巴西压榨数据，中期关注天气及通胀担忧带来的成本抬升问题。
+之后是金融领域工行、建行、中行、农行。
 
-国内方面，淡季现货成交温和，广西即将全面收榨，未来核心在于去库进度及进口节奏。
+四大行同时集体入围全球前二十强，显示全球金融话语权稳步提升。
 
-期价如继续反弹需关注来自保值盘的压力。
+新能源领域，比亚迪、宁德时代等品牌加速海外布局，在欧洲、东南亚市场份额持续扩大，成为“中国制造”向“中国创造”转型的典型代表。
 
-棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周四，ICE美棉上涨0.94%，报收79.38美分/磅，郑棉主力合约环比上涨0.46%，报收16285元/吨，主力合约持仓环比增加8560手至83.31万手，棉花3128B现货价格指数17330元/吨，较前一日增加75元/吨。
+同时，近年来，随着中国品牌在产业变革中展现出的强劲韧性与创新活力，本年度共有29个汽车品牌入选中国品牌价值500强，累计品牌价值546亿美元，占榜单总价值的 3%，实现了10%的同比增长。
 
-国际市场方面，近期盘面对中东局势扰动逐渐脱敏，但需警惕霍尔木兹海峡长时间封锁导致原油价格偏强。
+在头部阵营中，比亚迪以173亿美元的品牌价值继续稳居首位，同比增长23%；吉利汽车以45亿美元的品牌价值位列第二，同比增长 26%；问界以34亿美元的品牌价值位列第三，并凭借 78分的品牌强度成为年度最强中国汽车品牌。
 
 ## 相关推荐
 
-- 2026-06-29 13:33 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 13:37 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 13:42 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 13:41 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 13:25 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 13:39 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 13:39 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 13:23 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 13:45 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 13:21 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 13:35 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 13:38 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 13:33 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 13:18 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 13:44 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 13:37 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 13:32 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 13:28 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 13:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 13:46 - [普京称俄处于命运攸关之际](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 13:48 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 13:41 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 13:31 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 13:47 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 13:44 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 13:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 13:43 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 13:35 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:21 - [医护人员观影《四渡》传承长征精神](https://www.blog.kurohicncr.top/Article/details/476589789.shtml)
-- 2026-06-29 13:43 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/39923465.shtml)
-- 2026-06-29 13:23 - [游戏数据被用于军事目的 国安部提醒](http://www.blog.minike.top/Article/details/302697732.shtml)
-- 2026-06-29 13:26 - [王佳佳江疏影13年前后同框对比](http://www.blog.minike.top/Article/details/290832239267.shtml)
-- 2026-06-29 13:35 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/825245.shtml)
-- 2026-06-29 13:46 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/40945954181.shtml)
-- 2026-06-29 13:29 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.kurohicncr.top/Article/details/5925410357.shtml)
-- 2026-06-29 13:24 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/31504710954.shtml)
-- 2026-06-29 13:37 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/364921190.shtml)
-- 2026-06-29 13:43 - [小娘惹](http://www.share.kurohicncr.top/Article/details/038000506078.shtml)
-- 2026-06-29 13:33 - [日媒称韩国史诗级上上签终成噩梦](https://www.share.kurohicncr.top/Article/details/34629586167.shtml)
-- 2026-06-29 13:26 - [严浩翔FIY断层第一](http://www.blog.minike.top/Article/details/94176.shtml)
-- 2026-06-29 13:18 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/9919113827.shtml)
-- 2026-06-29 13:29 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/493481.shtml)
-- 2026-06-29 13:19 - [极限挑战第一季](https://www.share.minike.top/Article/details/1457559.shtml)
+- 2026-06-29 13:39 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/1880005.shtml)
+- 2026-06-29 13:36 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/24194978.shtml)
+- 2026-06-29 13:47 - [一生一世](http://www.blog.minike.top/Article/details/6037879.shtml)
+- 2026-06-29 13:31 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/004940003320.shtml)
+- 2026-06-29 13:47 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/09671.shtml)
+- 2026-06-29 13:38 - [媒体评恋与深空争议](http://www.blog.kurohicncr.top/Article/details/6606815600.shtml)
+- 2026-06-29 13:43 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/506071051754.shtml)
+- 2026-06-29 13:43 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/48570264490.shtml)
+- 2026-06-29 13:38 - [BW2026游览指南](https://www.share.minike.top/Article/details/44751.shtml)
+- 2026-06-29 13:33 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/0855431.shtml)
+- 2026-06-29 13:28 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/4942835.shtml)
+- 2026-06-29 13:28 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/79976690.shtml)
+- 2026-06-29 13:34 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/5266523.shtml)
+- 2026-06-29 13:29 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/444146458.shtml)
+- 2026-06-29 13:32 - [海军舰艇编队将赴香港](https://www.share.minike.top/Article/details/077440913909.shtml)

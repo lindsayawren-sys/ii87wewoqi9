@@ -1,59 +1,53 @@
-# 微软承诺180亿美元用于澳大利亚AI扩张
+# 康耐特光学注销262.85万股已购回H股
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-微软表示，将在2029年前向澳大利亚投资250亿澳元（约合179亿美元）。这是该公司在单一国家最大规模的投资。 这笔资金将用于加强网络安全、AI培训、Azure AI超算以及云基础设施。微软预计，在此期间将其在澳大利亚的商业云和AI能力提升140%。 此举表明科技公司正加大在海外AI基础设施的投资。随着AI需求上升，微软可以留住企业客户并强化Azure。 在悉尼，首席执行官萨提
+康耐特光学（02276）发布公告，截至2026年4月30日，本公司于香港联合交易所有限公司进行一系列H股回购，合共回购262.85万股H股（股份回购），约占本公司于2025年6月12日股东大会批准回购H股的一般授权当日的已发行股本总额约0.548%。根据董事局于2026年5月5日通过的决议案，本公司回购的全部262.85万股H股已于2026年5月8日注销。股份回购所用资金总额为
 
 ## 正文
 
-微软表示，将在2029年前向澳大利亚投资250亿澳元（约合179亿美元）。
+康耐特光学（02276）发布公告，截至2026年4月30日，本公司于香港联合交易所有限公司进行一系列H股回购，合共回购262.85万股H股（股份回购），约占本公司于2025年6月12日股东大会批准回购H股的一般授权当日的已发行股本总额约0.548%。
 
-这是该公司在单一国家最大规模的投资。
+根据董事局于2026年5月5日通过的决议案，本公司回购的全部262.85万股H股已于2026年5月8日注销。
 
-这笔资金将用于加强网络安全、AI培训、Azure AI超算以及云基础设施。
+股份回购所用资金总额为1.297亿港元（不包括交易成本）。
 
-微软预计，在此期间将其在澳大利亚的商业云和AI能力提升140%。
+于根据H股回购计划回购的H股被注销后，本公司已发行H股总数将由5.069亿股减少至5.043亿股H股。
 
-此举表明科技公司正加大在海外AI基础设施的投资。
+本公司或会视乎市场情况，继续实施其2026年H股回购计划。
 
-随着AI需求上升，微软可以留住企业客户并强化Azure。
-
-在悉尼，首席执行官萨提亚·纳德拉表示，澳大利亚可以利用AI来推动其经济增长。
-
-澳大利亚官方对此消息表示欢迎，并承诺与微软合作改善基础设施和能源供应。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:45 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 13:20 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 13:38 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 13:24 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 13:20 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 13:39 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 13:37 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 13:41 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 13:43 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 13:37 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 13:42 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 13:20 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 13:36 - [我们注定是一撮县城葱姜蒜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 13:29 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 13:52 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 13:35 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 13:51 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 13:26 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 13:53 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 13:41 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 13:46 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 13:31 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 13:27 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 13:40 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:26 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/57953370.shtml)
-- 2026-06-29 13:22 - [吴海燕兰西雅漫步复兴岛](https://www.share.kurohicncr.top/Article/details/179590733554.shtml)
-- 2026-06-29 13:42 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/109008.shtml)
-- 2026-06-29 13:36 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/951767327374.shtml)
-- 2026-06-29 13:23 - [曾沛慈夺冠后人气](http://www.blog.kurohicncr.top/Article/details/4794539535.shtml)
-- 2026-06-29 13:28 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/499383366442.shtml)
-- 2026-06-29 13:29 - [委内瑞拉地震已致1450死3150伤](http://www.share.minike.top/Article/details/50611434179.shtml)
-- 2026-06-29 13:25 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/51890052.shtml)
-- 2026-06-29 13:21 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.minike.top/Article/details/839937442224.shtml)
-- 2026-06-29 13:18 - [《昨夜将至》为何是悬疑黑马](https://www.share.kurohicncr.top/Article/details/1104050.shtml)
-- 2026-06-29 13:42 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/98475334.shtml)
-- 2026-06-29 13:26 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.minike.top/Article/details/13415569.shtml)
-- 2026-06-29 13:47 - [为什么欧洲人不装空调](https://www.blog.minike.top/Article/details/45634641.shtml)
-- 2026-06-29 13:43 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/47454.shtml)
-- 2026-06-29 13:39 - [普京称考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/0051586.shtml)
+- 2026-06-29 13:30 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/58656472.shtml)
+- 2026-06-29 13:44 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/789560367.shtml)
+- 2026-06-29 13:31 - [DeepSeek联合北京大学发布论文](http://www.blog.kurohicncr.top/Article/details/777289275.shtml)
+- 2026-06-29 13:43 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/2523475146.shtml)
+- 2026-06-29 13:37 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/39264.shtml)
+- 2026-06-29 13:47 - [媒体：高考后消费应量力而行适度有度](http://www.share.minike.top/Article/details/216050178.shtml)
+- 2026-06-29 13:50 - [毕业寄几百斤快递回家女生发声](http://www.share.minike.top/Article/details/187775.shtml)
+- 2026-06-29 13:32 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.share.kurohicncr.top/Article/details/722783689427.shtml)
+- 2026-06-29 13:30 - [我们注定是一撮县城葱姜蒜](http://www.blog.kurohicncr.top/Article/details/612794.shtml)
+- 2026-06-29 13:26 - [TOP 无畏契约](https://www.share.kurohicncr.top/Article/details/80272.shtml)
+- 2026-06-29 13:43 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/909452.shtml)
+- 2026-06-29 13:25 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/77622.shtml)
+- 2026-06-29 13:44 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/341493921.shtml)
+- 2026-06-29 13:43 - [巴基斯坦军方打死29名武装分子](http://www.share.minike.top/Article/details/850775043670.shtml)
+- 2026-06-29 13:44 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/84223.shtml)

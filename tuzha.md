@@ -1,60 +1,58 @@
-# 名医进山村 留下“徒弟”守乡亲
+# 成都“三角梅大楼”迎来盛花期
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-“刘大夫，我母亲腰痛好点了，该怎么避免复发？”近日，北京门头沟区陇驾庄村村民门亚宁来到妙峰山镇卫生院二楼问诊。当天接诊的大夫叫刘洋，是当地一位小有名气的青年医生。 妙峰山镇卫生院位于京西山区，刘洋已在此工作12年，她的成长与九三学社北京市委会的一个社会服务工作密切相关。 2014年2月，为响应首都统一战线“8＋1”行动号召，九三学社北京市委会首个“名医工作室”在妙峰山镇卫生院挂
+北方热力加码！今年首轮高温过程来袭，之后要一直热下去了吗？一纸侨批寄深情 《给阿嬷的情书》出圈带来何种启示？一文速览俄罗斯胜利日红场阅兵：五大看点，一个变化美国黄牛半夜笑醒？有世界杯决赛三层门票标价1150万美元网购常规扣款变“贷款” 支付捆绑乱象如何整治？为啥越来越多的人开始追求“活人感”？为什么有些人更容易上当？与学历高低、聪明与否无关躺着就能赚钱？航天卧床实验没你想得那么
 
 ## 正文
 
-“刘大夫，我母亲腰痛好点了，该怎么避免复发？
+北方热力加码！
 
-”近日，北京门头沟区陇驾庄村村民门亚宁来到妙峰山镇卫生院二楼问诊。
+今年首轮高温过程来袭，之后要一直热下去了吗？
 
-当天接诊的大夫叫刘洋，是当地一位小有名气的青年医生。
+一纸侨批寄深情 《给阿嬷的情书》出圈带来何种启示？
 
-妙峰山镇卫生院位于京西山区，刘洋已在此工作12年，她的成长与九三学社北京市委会的一个社会服务工作密切相关。
+一文速览俄罗斯胜利日红场阅兵：五大看点，一个变化美国黄牛半夜笑醒？
 
-2014年2月，为响应首都统一战线“8＋1”行动号召，九三学社北京市委会首个“名医工作室”在妙峰山镇卫生院挂牌成立，定期聘请三甲医院知名专家坐诊，为周边村民治病解困。
+有世界杯决赛三层门票标价1150万美元网购常规扣款变“贷款” 支付捆绑乱象如何整治？
 
-这一年也是刘洋扎根乡村的第一年。
+为啥越来越多的人开始追求“活人感”？
 
-彼时，她抓药“心里没底”，针灸、拔罐只会“基础操作”。
+为什么有些人更容易上当？
 
-随着“名医工作室”活动不断开展，专家不仅定期坐诊，还让卫生院的医护人员跟师学习。
+与学历高低、聪明与否无关躺着就能赚钱？
 
 ## 相关推荐
 
-- 2026-06-29 13:22 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 13:20 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 13:42 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 13:30 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 13:18 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 13:24 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 13:40 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 13:45 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 13:21 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 13:20 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 13:32 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 13:36 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 13:36 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 13:22 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 13:32 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 13:45 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 13:48 - [向佑说向佐是一生依靠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 13:28 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 13:41 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 13:47 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 13:49 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 13:50 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 13:39 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 13:45 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 13:45 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 13:32 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:46 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.kurohicncr.top/Article/details/031693535984.shtml)
-- 2026-06-29 13:26 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/3849113.shtml)
-- 2026-06-29 13:31 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/18501778.shtml)
-- 2026-06-29 13:45 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.kurohicncr.top/Article/details/283357344608.shtml)
-- 2026-06-29 13:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/424795412.shtml)
-- 2026-06-29 13:27 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/29470464242.shtml)
-- 2026-06-29 13:45 - [TOP 无畏契约](https://www.blog.kurohicncr.top/Article/details/869811.shtml)
-- 2026-06-29 13:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/22236120.shtml)
-- 2026-06-29 13:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/114673.shtml)
-- 2026-06-29 13:19 - [天道](https://www.blog.kurohicncr.top/Article/details/08182.shtml)
-- 2026-06-29 13:27 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/110096407.shtml)
-- 2026-06-29 13:39 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/09290159.shtml)
-- 2026-06-29 13:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/01390.shtml)
-- 2026-06-29 13:36 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/5760935412.shtml)
-- 2026-06-29 13:44 - [唐艺昕女儿接唐艺昕回家](https://www.share.kurohicncr.top/Article/details/79699763811.shtml)
+- 2026-06-29 13:26 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/760713.shtml)
+- 2026-06-29 13:35 - [【独家】牧神记 第89集 明心](https://www.blog.minike.top/Article/details/274609340580.shtml)
+- 2026-06-29 13:31 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/71000402.shtml)
+- 2026-06-29 13:31 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/170361189470.shtml)
+- 2026-06-29 13:44 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/02787631.shtml)
+- 2026-06-29 13:48 - [速度与激情9](http://www.blog.minike.top/Article/details/167434718778.shtml)
+- 2026-06-29 13:44 - [AG 钟意](http://www.blog.minike.top/Article/details/484942519.shtml)
+- 2026-06-29 13:33 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/7264347153.shtml)
+- 2026-06-29 13:51 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/4662771.shtml)
+- 2026-06-29 13:41 - [6月我国降水为何偏多](http://www.blog.kurohicncr.top/Article/details/094351494.shtml)
+- 2026-06-29 13:24 - [异世界一点都不好玩！](http://www.blog.kurohicncr.top/Article/details/6196700730.shtml)
+- 2026-06-29 13:52 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/607470.shtml)
+- 2026-06-29 13:53 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/60805743889.shtml)
+- 2026-06-29 13:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/8062820.shtml)
+- 2026-06-29 13:40 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/96005696760.shtml)

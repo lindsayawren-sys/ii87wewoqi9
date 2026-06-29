@@ -1,59 +1,44 @@
-# 从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈”
+# 绿地香港首4个月合约销售约为25.64亿元 同比增加191.36%
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网杭州4月23日电 题：从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈” 作者 林波 曹丹 孙琳茹 拿破仑的军事手谕、卢梭未发表的法律文书、莫奈的艺术札记……这些墨迹斑驳的纸页，不仅是历史的鲜活证物，更是阅读行为的生动见证。它们诞生于沉思、对话、抗争与创造之中，唯有通过深度阅读，才能重焕生机。 4月23日是世界阅读日，在浙江大学(下称“浙大”)图书馆主馆展厅，“法兰西
+绿地香港（00337）发布公告，2026年首4个月，本公司、其子公司及其联属公司（统称本集团）的合约销售约为人民币25.64亿元，同比增加191.36%，已售合约总建筑面积则约为30.84万平方米。责任编辑：卢昱君
 
 ## 正文
 
-中新网杭州4月23日电 题：从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈” 作者 林波 曹丹 孙琳茹 拿破仑的军事手谕、卢梭未发表的法律文书、莫奈的艺术札记……这些墨迹斑驳的纸页，不仅是历史的鲜活证物，更是阅读行为的生动见证。
+绿地香港（00337）发布公告，2026年首4个月，本公司、其子公司及其联属公司（统称本集团）的合约销售约为人民币25.64亿元，同比增加191.36%，已售合约总建筑面积则约为30.84万平方米。
 
-它们诞生于沉思、对话、抗争与创造之中，唯有通过深度阅读，才能重焕生机。
-
-4月23日是世界阅读日，在浙江大学(下称“浙大”)图书馆主馆展厅，“法兰西文心与阅读之光——法国名人名家手稿珍品展”正在举行，35件跨越三个世纪的珍贵手稿，将师生带入一场与历史对话、与思想对坐的文化盛宴。
-
-据浙大图书馆党委书记兼副馆长王苑介绍，这场展览是2026年“书香浙大”阅读文化节“览见新知”板块的重要组成部分。
-
-本届阅读文化节以“书香引航”“共读共振”“览见新知”三大板块为支撑，依托这座拥有12个分馆体系的高校图书馆，践行“时时、处处、人人皆可阅读”的理念，让阅读成为一种生活方式。
-
-“我们鼓励学生走进历史深处，同时积极参与中外文化交流、中西文明互鉴。
-
-”王苑介绍，展览还展示了包括浙大法国研究院首席专家许钧翻译《追忆似水年华》的手稿等研究成果。
-
-“阅读更重要的是有所输出，把自己的感受通过文字表达出来，这样也有助于更好地深入思考。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:19 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 13:38 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 13:25 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 13:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 13:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 13:43 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 13:18 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 13:18 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 13:23 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 13:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 13:21 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 13:24 - [向佑说向佐是一生依靠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 13:42 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 13:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 13:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 13:25 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 13:46 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 13:27 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 13:34 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 13:37 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 13:34 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 13:50 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 13:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:18 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/915959978.shtml)
-- 2026-06-29 13:18 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/276963771231.shtml)
-- 2026-06-29 13:34 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/179395534.shtml)
-- 2026-06-29 13:46 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/34729651.shtml)
-- 2026-06-29 13:43 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/7383011.shtml)
-- 2026-06-29 13:44 - [双高胎](https://www.share.minike.top/Article/details/133210270.shtml)
-- 2026-06-29 13:28 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/76313.shtml)
-- 2026-06-29 13:36 - [赵今麦客串电影版开端](http://www.blog.kurohicncr.top/Article/details/7279611.shtml)
-- 2026-06-29 13:21 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/8762056912.shtml)
-- 2026-06-29 13:25 - [加拿大92分钟绝杀成世界杯首个16强](https://www.share.kurohicncr.top/Article/details/796846.shtml)
-- 2026-06-29 13:33 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/9506006831.shtml)
-- 2026-06-29 13:43 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.kurohicncr.top/Article/details/203528.shtml)
-- 2026-06-29 13:45 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.kurohicncr.top/Article/details/873804901396.shtml)
-- 2026-06-29 13:22 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/669413813233.shtml)
-- 2026-06-29 13:33 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/375290482553.shtml)
+- 2026-06-29 13:48 - [恋与深空需直面玩家6大疑问](http://www.blog.minike.top/Article/details/77050624253.shtml)
+- 2026-06-29 13:33 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/040303.shtml)
+- 2026-06-29 13:51 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/7731270.shtml)
+- 2026-06-29 13:26 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/675776388.shtml)
+- 2026-06-29 13:32 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/90875412.shtml)
+- 2026-06-29 13:27 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/088672138108.shtml)
+- 2026-06-29 13:24 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/11152027.shtml)
+- 2026-06-29 13:35 - [和阿根廷球员家属一起看球](http://www.share.kurohicncr.top/Article/details/6762050.shtml)
+- 2026-06-29 13:24 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/58801.shtml)
+- 2026-06-29 13:47 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/02323637366.shtml)
+- 2026-06-29 13:48 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/955769.shtml)
+- 2026-06-29 13:35 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/89040587.shtml)
+- 2026-06-29 13:29 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.kurohicncr.top/Article/details/49213.shtml)
+- 2026-06-29 13:44 - [韩体育部长回应李在明痛批](http://www.blog.minike.top/Article/details/12866870.shtml)
+- 2026-06-29 13:49 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/868102946.shtml)

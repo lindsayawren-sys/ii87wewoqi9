@@ -1,61 +1,59 @@
-# 瑞士政府微调资本新规，瑞银仍需增资200亿美元
+# 机床ETF华夏（159663）：一场被低估的“智造革命”正在上演
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-据媒体4月23日报道，瑞士政府周三宣布对瑞银集团（UBS）的新资本规则提案作出部分让步，但坚持要求其为海外业务提供全额资本支持，预计该行仍需额外补充约200亿美元资本金。 根据修改后的方案，瑞士政府在无形资产处理上作出妥协：瑞银将无需立即从其资本金中全额扣除软件和递延税资产，而是采纳与欧盟一致的更温和方案。瑞银此前估计，若全额扣除这些资产，其资本金将减少约110亿美元。 然而，
+近期，当市场的目光聚焦于人工智能、芯片等板块之时，有一个被市场忽视的主题也在不断创出新高，那就是机床。 2026年以来，机床ETF华夏（159663），这只规模并不大的ETF产品表现惊人，截至5月8日，今年以来的净值增长率高达40.26%，在股票型ETF中名列前茅。这一表现并非偶然，而是多重因素共振下的必然结果。数据背后，我们看到的是一场正在发生的制造业升级浪潮，以及中国工业母
 
 ## 正文
 
-据媒体4月23日报道，瑞士政府周三宣布对瑞银集团（UBS）的新资本规则提案作出部分让步，但坚持要求其为海外业务提供全额资本支持，预计该行仍需额外补充约200亿美元资本金。
+近期，当市场的目光聚焦于人工智能、芯片等板块之时，有一个被市场忽视的主题也在不断创出新高，那就是机床。
 
-根据修改后的方案，瑞士政府在无形资产处理上作出妥协：瑞银将无需立即从其资本金中全额扣除软件和递延税资产，而是采纳与欧盟一致的更温和方案。
+2026年以来，机床ETF华夏（159663），这只规模并不大的ETF产品表现惊人，截至5月8日，今年以来的净值增长率高达40.26%，在股票型ETF中名列前茅。
 
-瑞银此前估计，若全额扣除这些资产，其资本金将减少约110亿美元。
+这一表现并非偶然，而是多重因素共振下的必然结果。
 
-然而，政府在核心条款上维持强硬立场，坚持要求瑞银必须使用最高质量的核心资本（CET1）为其海外子公司提供100%的资本支持，而非此前要求的60%。
+数据背后，我们看到的是一场正在发生的制造业升级浪潮，以及中国工业母机从“大而不强”向“高精尖”跨越的历史性机遇。
 
-瑞士政府认为，此举是防止重演瑞士信贷倒闭危机的关键。
+01 景气加速回升，需求端全面复苏 从去年三季度以来，机床行业的景气度已经开始全面回升。
 
-瑞银对此表示反对，认为该要求过于苛刻，将削弱其国际竞争力。
+今年一季度，更是延续了加速回升的态势。
 
-受新规影响，瑞银股价此前表现落后于同行。
+微观层面，头部机床厂商的订单情况验证了行业景气的真实性。
 
-不过，受此次部分让步消息提振，瑞银股价周三盘前上涨超3%。
+一批机床行业头部公司一季度业绩实现了双位数增长。
 
 ## 相关推荐
 
-- 2026-06-29 13:30 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 13:42 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 13:44 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 13:47 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 13:29 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 13:20 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 13:37 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 13:34 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 13:27 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 13:35 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 13:19 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 13:21 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 13:20 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 13:41 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 13:31 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 13:40 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 13:30 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 13:25 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 13:42 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 13:44 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 13:44 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 13:24 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 13:45 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 13:48 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 13:30 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 13:27 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 13:52 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 13:41 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:18 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/7510474.shtml)
-- 2026-06-29 13:19 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/61963792.shtml)
-- 2026-06-29 13:41 - [沙丘](https://www.blog.kurohicncr.top/Article/details/4379156278.shtml)
-- 2026-06-29 13:24 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/86135831194.shtml)
-- 2026-06-29 13:24 - [王楚钦美国大满贯晋级32强](https://www.blog.kurohicncr.top/Article/details/411737539508.shtml)
-- 2026-06-29 13:44 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/212834279360.shtml)
-- 2026-06-29 13:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/37409.shtml)
-- 2026-06-29 13:30 - [德国队前往比赛场地遭遇囧途](http://www.share.kurohicncr.top/Article/details/552409391.shtml)
-- 2026-06-29 13:38 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/710556511217.shtml)
-- 2026-06-29 13:25 - [袁隆平院士 不容诋毁！](https://www.share.kurohicncr.top/Article/details/420448998792.shtml)
-- 2026-06-29 13:19 - [民进党为什么拼命抹黑统战](http://www.blog.kurohicncr.top/Article/details/27308.shtml)
-- 2026-06-29 13:44 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/198465415984.shtml)
-- 2026-06-29 13:19 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/10129078149.shtml)
-- 2026-06-29 13:30 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/6549871665.shtml)
-- 2026-06-29 13:28 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/935774660760.shtml)
+- 2026-06-29 13:43 - [毒液2](https://www.blog.kurohicncr.top/Article/details/744048316531.shtml)
+- 2026-06-29 13:48 - [《昨夜将至》为何是悬疑黑马](http://www.share.minike.top/Article/details/2745658.shtml)
+- 2026-06-29 13:45 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/90152659605.shtml)
+- 2026-06-29 13:36 - [下飞机后，我做了个很蠢的决定......](http://www.share.minike.top/Article/details/326314.shtml)
+- 2026-06-29 13:51 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/7556313847.shtml)
+- 2026-06-29 13:53 - [腾讯回应做独立支付APP](http://www.share.kurohicncr.top/Article/details/15620.shtml)
+- 2026-06-29 13:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/4050288.shtml)
+- 2026-06-29 13:29 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/754749138.shtml)
+- 2026-06-29 13:49 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/11215559342.shtml)
+- 2026-06-29 13:46 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/86489417980.shtml)
+- 2026-06-29 13:39 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/189508305.shtml)
+- 2026-06-29 13:38 - [双高胎](https://www.share.minike.top/Article/details/11206966.shtml)
+- 2026-06-29 13:36 - [詹俊：巴西能凭借两大优势战胜日本](https://www.share.kurohicncr.top/Article/details/734854.shtml)
+- 2026-06-29 13:38 - [网友偶遇胡军和李乃文](https://www.blog.kurohicncr.top/Article/details/911095642.shtml)
+- 2026-06-29 13:32 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/99439935.shtml)

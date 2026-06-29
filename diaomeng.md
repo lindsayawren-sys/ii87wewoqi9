@@ -1,56 +1,56 @@
-# 社保基金重仓+机构高关注股来了（附名单）
+# 华尔街顶级律所如何沦为内幕交易“泄密通道”
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！随着年报、一季报陆续发布，机构调研评级动作显著升温。 据证券时报·数据宝统计，截至4月23日，4月以来55家机构合计进行3523次“买入型”（包括买入、增持、推荐、强烈推荐、强烈买入）评级，合计覆盖1099股。 70股获10家及以上机构评级 从个股来看，4月以来共有70股获至少10家机构评级，其中贵州茅台、
+2022年夏天，亚马逊收购扫地机器人制造商iRobot的谈判进入白热化阶段，古德温·普罗克特律师事务所（Goodwin Procter） 律师正担任iRobot的法律顾问。 美国当局称，随后数月里，一个由十余人组成的网络（包括三兄弟和一名美发师）开始大量买入iRobot股票与期权。当年8月收购消息公布时，该团伙非法获利超170万美元，两名成员互发香槟表情符号庆祝。 美国检方与证
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+2022年夏天，亚马逊收购扫地机器人制造商iRobot的谈判进入白热化阶段，古德温·普罗克特律师事务所（Goodwin Procter） 律师正担任iRobot的法律顾问。
 
-随着年报、一季报陆续发布，机构调研评级动作显著升温。
+美国当局称，随后数月里，一个由十余人组成的网络（包括三兄弟和一名美发师）开始大量买入iRobot股票与期权。
 
-据证券时报·数据宝统计，截至4月23日，4月以来55家机构合计进行3523次“买入型”（包括买入、增持、推荐、强烈推荐、强烈买入）评级，合计覆盖1099股。
+当年8月收购消息公布时，该团伙非法获利超170万美元，两名成员互发香槟表情符号庆祝。
 
-70股获10家及以上机构评级 从个股来看，4月以来共有70股获至少10家机构评级，其中贵州茅台、盐津铺子、中际旭创、华利集团获机构评级家数居前，分别有32家、22家、21家、20家。
+美国检方与证券监管机构表示，这些情报均来自古德温律所内部。
 
-贵州茅台2025年度营收、净利润出现上市以来首次下滑，机构仍保持高度关注。
+在周三公布的刑事指控中，检方称，曾在盛德、瑞生、古德温等顶级律所任职的43岁耶鲁法学院毕业生尼科洛·努拉夫尚（Nicolo Nourafchan），是这场长达十年内幕交易案的核心人物。
 
-公司发布2025年度分红预案，合计拟派发现金红利350.33亿元（含税），2025年度现金分红总额将达到650.33亿元，续创历史新高。
+这一涉案网络从常春藤盟校法学院延伸至华尔街律所，律师们从供职律所窃取并购机密信息，传递给亲友及关联人员。
 
-盐津铺子2025年报显示，实现归母净利润7.48亿元，同比增长16.95%，连续4年实现双位数增长。
+当局已起诉30人，美国证券交易委员会（SEC）另对21人提起民事诉讼。
 
-公司在业绩说明会上表示，公司海外业务发展亮眼，2025年，海外业务实现销售收入1.71亿元，同比增长172.47%，自有品牌Mowon进入泰国7-11、美国99RanchMarket、新加坡思必客等主流零售终端，覆盖近30个国家和地区，出海战略取得阶段性进展。
+并购法律顾问业务已是华尔街律所最赚钱的领域之一，即便初级律师年薪也可达数十万美元。
 
 ## 相关推荐
 
-- 2026-06-29 13:34 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 13:20 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 13:37 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 13:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 13:23 - [2026年Mac能玩游戏了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 13:45 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 13:23 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 13:37 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 13:35 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 13:44 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 13:40 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 13:36 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 13:53 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 13:42 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 13:47 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 13:49 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 13:50 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 13:47 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 13:38 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 13:41 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:24 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/200840950.shtml)
-- 2026-06-29 13:23 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/51633224517.shtml)
-- 2026-06-29 13:32 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/880474163990.shtml)
-- 2026-06-29 13:38 - [实习期把公司领导开除了](http://www.blog.kurohicncr.top/Article/details/83014.shtml)
-- 2026-06-29 13:38 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/65920.shtml)
-- 2026-06-29 13:20 - [极限挑战第一季](https://www.share.minike.top/Article/details/18252122.shtml)
-- 2026-06-29 13:45 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/8540783674.shtml)
-- 2026-06-29 13:22 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/175502604685.shtml)
-- 2026-06-29 13:43 - [东部机场集团新增釜山航线](https://www.blog.kurohicncr.top/Article/details/861214887.shtml)
-- 2026-06-29 13:24 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/7512099.shtml)
-- 2026-06-29 13:34 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/781686169.shtml)
-- 2026-06-29 13:47 - [吴海燕兰西雅漫步复兴岛](https://www.blog.minike.top/Article/details/071697066.shtml)
-- 2026-06-29 13:32 - [T1对战KC](http://www.share.minike.top/Article/details/8129910157.shtml)
-- 2026-06-29 13:40 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/0749804506.shtml)
-- 2026-06-29 13:20 - [委内瑞拉地震已致1450死3150伤](https://www.blog.kurohicncr.top/Article/details/247081.shtml)
+- 2026-06-29 13:40 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/59614224.shtml)
+- 2026-06-29 13:53 - [为什么6月以来北方频繁降雨](https://www.blog.minike.top/Article/details/241845394.shtml)
+- 2026-06-29 13:50 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/0917212.shtml)
+- 2026-06-29 13:51 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/944681.shtml)
+- 2026-06-29 13:34 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.kurohicncr.top/Article/details/8966682967.shtml)
+- 2026-06-29 13:39 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/75000716.shtml)
+- 2026-06-29 13:45 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/94013298335.shtml)
+- 2026-06-29 13:50 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.blog.kurohicncr.top/Article/details/02577418.shtml)
+- 2026-06-29 13:40 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/80415.shtml)
+- 2026-06-29 13:36 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/687798357789.shtml)
+- 2026-06-29 13:33 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/34828436.shtml)
+- 2026-06-29 13:38 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/960792405.shtml)
+- 2026-06-29 13:34 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/77648972.shtml)
+- 2026-06-29 13:29 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.share.minike.top/Article/details/54402456.shtml)
+- 2026-06-29 13:26 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/1430622285.shtml)

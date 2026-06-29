@@ -1,57 +1,56 @@
-# 中国机器人客串驻尼泊尔大使到任招待会“礼宾”
+# 300819，11亿元定增加码高端电子布
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-象牙塔内的阅读图景：高校图书馆如何接住“全民阅读”的青年期待？相约三亚：共赴一场亚洲之约从造水库建林场到“时尚弄潮儿” 福建这群渔女们太飒了中东局势导致避孕套涨价？杜蕾斯、杰士邦、冈本客服回应订单已排到7月！老外正在疯抢中国电摩今天，翻开属于你的那本书义乌请量产！这不是梗，是实力手机成新农具，物流通万家！乡村消费早已不一样网上结识“精英男友”险被骗185万元 揭婚恋诈骗陷阱美政
+抢抓高景气赛道机遇，一家纺织企业也要“押注”电子布了！ 5月8日晚，聚杰微纤（300819.SZ）抛出了一份融资计划：拟向特定对象发行股票，募集资金总金额不超过11亿元，用于高端电子布建设项目。 当日收盘，聚杰微纤股价创下历史新高，报收80.05元/股，总市值达119亿元。 总投资12.32亿元 建设周期为一年 根据预案，该项目由其全资子公司苏州市聚杰特种材料有限公司实施，建设
 
 ## 正文
 
-象牙塔内的阅读图景：高校图书馆如何接住“全民阅读”的青年期待？
+抢抓高景气赛道机遇，一家纺织企业也要“押注”电子布了！
 
-相约三亚：共赴一场亚洲之约从造水库建林场到“时尚弄潮儿” 福建这群渔女们太飒了中东局势导致避孕套涨价？
+5月8日晚，聚杰微纤（300819.SZ）抛出了一份融资计划：拟向特定对象发行股票，募集资金总金额不超过11亿元，用于高端电子布建设项目。
 
-杜蕾斯、杰士邦、冈本客服回应订单已排到7月！
+当日收盘，聚杰微纤股价创下历史新高，报收80.05元/股，总市值达119亿元。
 
-老外正在疯抢中国电摩今天，翻开属于你的那本书义乌请量产！
+总投资12.32亿元 建设周期为一年 根据预案，该项目由其全资子公司苏州市聚杰特种材料有限公司实施，建设地点位于江苏省苏州市，总投资额为12.32亿元，建设周期为12个月。
 
-这不是梗，是实力手机成新农具，物流通万家！
+发行价格和数量方面，公司本次定增采取竞价发行方式，发行价格为不低于定价基准日前二十个交易日公司股票交易均价的80%，且不得低于每股面值；发行的股票数量按照募集资金总额除以发行价格确定，且不超过本次发行前公司总股本的30%。
 
-乡村消费早已不一样网上结识“精英男友”险被骗185万元 揭婚恋诈骗陷阱美政坛重大消息前频现“精准踩点”，市场疑存内幕交易伊朗大量美制设备集体失灵，暴露数字安全新威胁英雄归家！
+目前，该方案及相关事项已获董事会审议通过，尚待股东会、深圳证券交易所审核通过并经中国证监会同意注册。
 
-祖国从未忘记，人民从未忘记！
+2026年2月，公司通过全资子公司完成了对安徽省根银科技有限公司80%股权的收购，正式切入电子级玻璃纤维布（电子布）领域。
 
-忠魂归国时：三位抗美援朝老兵的烽火记忆与未了情沙滩运动凭什么吸引人？
+公司本次定增的核心诉求，是在控股子公司现有产能基础上，完成扩产升级。
 
 ## 相关推荐
 
-- 2026-06-29 13:41 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 13:18 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 13:31 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 13:29 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 13:35 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 13:35 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 13:19 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 13:38 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 13:47 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 13:46 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 13:38 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 13:44 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 13:49 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 13:31 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 13:39 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 13:48 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 13:39 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 13:50 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 13:40 - [向佑说向佐是一生依靠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 13:44 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 13:37 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:31 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.kurohicncr.top/Article/details/4614781007.shtml)
-- 2026-06-29 13:38 - [《昨夜将至》为何是悬疑黑马](http://www.share.kurohicncr.top/Article/details/2931006.shtml)
-- 2026-06-29 13:19 - [多只A股发布股价异动公告](http://www.share.minike.top/Article/details/600026281.shtml)
-- 2026-06-29 13:39 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/248743420.shtml)
-- 2026-06-29 13:24 - [C罗关心罗德里戈伤情](http://www.share.kurohicncr.top/Article/details/35426666.shtml)
-- 2026-06-29 13:28 - [为什么欧洲人不装空调](http://www.share.kurohicncr.top/Article/details/69493054881.shtml)
-- 2026-06-29 13:45 - [DSpark论文深度解读](http://www.blog.minike.top/Article/details/110608.shtml)
-- 2026-06-29 13:36 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.kurohicncr.top/Article/details/18381037887.shtml)
-- 2026-06-29 13:34 - [逃狱兄弟](https://www.blog.minike.top/Article/details/2612072422.shtml)
-- 2026-06-29 13:21 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/81636.shtml)
-- 2026-06-29 13:32 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/36580475523.shtml)
-- 2026-06-29 13:41 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/5332743375.shtml)
-- 2026-06-29 13:20 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/65384.shtml)
-- 2026-06-29 13:20 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/950735460215.shtml)
-- 2026-06-29 13:41 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/86348357.shtml)
+- 2026-06-29 13:32 - [这位猫咪，请你自重！](http://www.blog.minike.top/Article/details/2458788569.shtml)
+- 2026-06-29 13:33 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.blog.minike.top/Article/details/2940848.shtml)
+- 2026-06-29 13:28 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.minike.top/Article/details/522072254214.shtml)
+- 2026-06-29 13:28 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/149314.shtml)
+- 2026-06-29 13:39 - [海军舰艇编队将赴香港](https://www.blog.kurohicncr.top/Article/details/734014542.shtml)
+- 2026-06-29 13:45 - [女子遭家暴两次起诉离婚均被驳回](http://www.share.kurohicncr.top/Article/details/001360747.shtml)
+- 2026-06-29 13:25 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/719464114502.shtml)
+- 2026-06-29 13:30 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/062771978.shtml)
+- 2026-06-29 13:30 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/81472391.shtml)
+- 2026-06-29 13:33 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/24996606427.shtml)
+- 2026-06-29 13:25 - [张一山说杨紫早该拿奖了](https://www.share.minike.top/Article/details/93035303326.shtml)
+- 2026-06-29 13:36 - [这位猫咪，请你自重！](http://www.blog.kurohicncr.top/Article/details/839192.shtml)
+- 2026-06-29 13:26 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/887006403.shtml)
+- 2026-06-29 13:51 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/325378.shtml)
+- 2026-06-29 13:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/54113712580.shtml)

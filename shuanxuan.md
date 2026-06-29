@@ -1,49 +1,61 @@
-# 三亚亚沙会开幕 中国体育代表团入场
+# 弱化经销商扩大自营体系？贵州茅台王莉回应
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网4月22日电(周昕)4月22日晚，在三亚亚沙会开幕式上，中国体育代表团入场，旗手为沙滩手球运动员沈萍和三人篮球运动员颜鹏。本届亚沙会中国体育代表团共派出255人，其中运动员171人，参加除沙滩卡巴迪之外的13个大项、60个小项的比赛，是我国参加亚沙会以来参赛率最高的一届。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 5月11日，贵州茅台（召开2025年度及2026年第一季度业绩说明会。会上，贵州茅台党委副书记、董事、代总经理王莉“公司开展市场化改革，是不是有弱化经销商，进一步扩大自营体系的趋势？”问题进行回答。 对此，王莉回答表示：本轮开启的市场化改革，聚焦于“以消费者为中心”，重点在供给侧能够切实形成与“C端”适配的能力。与以往单
 
 ## 正文
 
-中新网4月22日电(周昕)4月22日晚，在三亚亚沙会开幕式上，中国体育代表团入场，旗手为沙滩手球运动员沈萍和三人篮球运动员颜鹏。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 5月11日，贵州茅台（召开2025年度及2026年第一季度业绩说明会。
 
-本届亚沙会中国体育代表团共派出255人，其中运动员171人，参加除沙滩卡巴迪之外的13个大项、60个小项的比赛，是我国参加亚沙会以来参赛率最高的一届。
+会上，贵州茅台党委副书记、董事、代总经理王莉“公司开展市场化改革，是不是有弱化经销商，进一步扩大自营体系的趋势？
+
+”问题进行回答。
+
+对此，王莉回答表示：本轮开启的市场化改革，聚焦于“以消费者为中心”，重点在供给侧能够切实形成与“C端”适配的能力。
+
+与以往单纯聚焦于“渠道”的市场化改革不同的是，本轮改革是产品体系、渠道生态、商业模式、供应链组织的全面转型适配。
+
+其中，韧性、稳定、高效、协同的渠道生态体系的构建完善是改革重点。
+
+公司在改革中会统筹好发展与稳定的关系，在转型中坚定信心、保持定力，巩固共赢基础；会贯通历史、现实与未来，在尊重历史经验、应对当前挑战的同时布局长远未来；会筑牢诚信共赢的合作基石，在提升整体运营效率中兼顾公平，构建可持续的健康生态。
+
+此次改革所面临的消费侧发生的结构性变化，给厂商上下游“线性”关系、以渠道为中心的产品运营传统模式带来了极大的挑战，需要以消费者为中心进行深刻变革。
 
 ## 相关推荐
 
-- 2026-06-29 13:22 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 13:42 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 13:39 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 13:42 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 13:41 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 13:28 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 13:18 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 13:24 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 13:29 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 13:40 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 13:35 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 13:20 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 13:47 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 13:37 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 13:42 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 13:33 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 13:31 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 13:48 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 13:45 - [下飞机后，我做了个很蠢的决定......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 13:31 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 13:32 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 13:48 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 13:31 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 13:50 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 13:42 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 13:45 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 13:51 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 13:47 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 13:50 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 13:27 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:20 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/7675030.shtml)
-- 2026-06-29 13:22 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/446782673.shtml)
-- 2026-06-29 13:20 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/811858220.shtml)
-- 2026-06-29 13:47 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/255438110251.shtml)
-- 2026-06-29 13:47 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/8184839.shtml)
-- 2026-06-29 13:45 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/11602788.shtml)
-- 2026-06-29 13:26 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/508757854614.shtml)
-- 2026-06-29 13:23 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/2602403367.shtml)
-- 2026-06-29 13:33 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/990340527846.shtml)
-- 2026-06-29 13:31 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.minike.top/Article/details/7886078405.shtml)
-- 2026-06-29 13:22 - [急先锋](https://www.share.kurohicncr.top/Article/details/706696280895.shtml)
-- 2026-06-29 13:32 - [明星大侦探第四季](http://www.share.minike.top/Article/details/325477602940.shtml)
-- 2026-06-29 13:44 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/681560632532.shtml)
-- 2026-06-29 13:36 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/96688491013.shtml)
-- 2026-06-29 13:43 - [DeepSeek联合北京大学发布论文](https://www.blog.minike.top/Article/details/65542895939.shtml)
+- 2026-06-29 13:33 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/5351045.shtml)
+- 2026-06-29 13:43 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.minike.top/Article/details/314154137308.shtml)
+- 2026-06-29 13:27 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/986443062.shtml)
+- 2026-06-29 13:34 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/765291058.shtml)
+- 2026-06-29 13:35 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/020537.shtml)
+- 2026-06-29 13:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/15638.shtml)
+- 2026-06-29 13:35 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/25030001267.shtml)
+- 2026-06-29 13:34 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.minike.top/Article/details/08183161.shtml)
+- 2026-06-29 13:50 - [韩体育部长回应李在明痛批](http://www.share.kurohicncr.top/Article/details/479494819.shtml)
+- 2026-06-29 13:37 - [高考志愿今起开始填报](https://www.blog.minike.top/Article/details/20684426461.shtml)
+- 2026-06-29 13:45 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/80550.shtml)
+- 2026-06-29 13:34 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.kurohicncr.top/Article/details/217359921.shtml)
+- 2026-06-29 13:34 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/53616.shtml)
+- 2026-06-29 13:50 - [时光音乐会](https://www.share.minike.top/Article/details/70291923.shtml)
+- 2026-06-29 13:25 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/8174290447.shtml)

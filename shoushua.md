@@ -1,59 +1,57 @@
-# 江苏宁沪高速公路拟向丹金公司增资1.28亿元
+# A股融资余额创历史新高，这些行业和个股被显著加仓
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-江苏宁沪高速公路（00177）发布公告，2026年4月22日，公司与常州交控、中交第三航务工程局有限公司、江苏路翔交通工程有限公司、无锡交通建设工程集团股份有限公司、中交路桥华东工程有限公司、江苏前美交通建设集团有限公司、中交二航局第四工程有限公司、江苏金堰交通工程有限公司、徐州市交通工程总承包有限公司、中交一公局第二工程有限公司、中交隧道工程局有限公司、江苏常鑫路桥集团有限公
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！上周A股市场走强，Wind数据显示，截至5月8日，A股两融余额报28025.01亿元，其中融资余额报27823.22亿元，均创历史新高。上周A股市场融资余额增加867.43亿元。 具体来看，上周的3个交易日融资余额均出现增加，其中，5月6日A股融资余额增加411.65亿元，5月7日增加296亿元，5月8日增
 
 ## 正文
 
-江苏宁沪高速公路（00177）发布公告，2026年4月22日，公司与常州交控、中交第三航务工程局有限公司、江苏路翔交通工程有限公司、无锡交通建设工程集团股份有限公司、中交路桥华东工程有限公司、江苏前美交通建设集团有限公司、中交二航局第四工程有限公司、江苏金堰交通工程有限公司、徐州市交通工程总承包有限公司、中交一公局第二工程有限公司、中交隧道工程局有限公司、江苏常鑫路桥集团有限公司签署《江苏丹金高速公路有限公司引入社会资本出资协议》，共同向丹金公司出资。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-根据《出资协议》，公司及其他出资方向丹金公司进行现金增资，公司出资人民币1.28亿元，其他出资方总计出资人民币4.59亿元。
+上周A股市场走强，Wind数据显示，截至5月8日，A股两融余额报28025.01亿元，其中融资余额报27823.22亿元，均创历史新高。
 
-各方同意，新投资者将按照与现有股东相同的条件，按人民币每1元注册资本出资人民币1元，如同初始投资者一样。
+上周A股市场融资余额增加867.43亿元。
 
-本次增资完成后，丹金公司增加注册资本人民币5.87亿元，公司对丹金公司的持股比将由约74.5998%降低至约69.2845%，丹金公司仍为公司的控股子公司。
+具体来看，上周的3个交易日融资余额均出现增加，其中，5月6日A股融资余额增加411.65亿元，5月7日增加296亿元，5月8日增加159.78亿元。
 
-丹金项目是苏南高速路网的重要组成部分，该项目的成功实施将进一步加强公司在苏南高速路网中的领先地位。
+从行业情况来看，上周申万一级31个行业中有30个行业融资余额增加，电子、通信、机械设备行业融资净买入金额居前，分别为284.99亿元、73.48亿元、66.13亿元，科技板块融资余额大幅增加。
 
-通过引入社会资本增资，将有助于为丹金项目提供必要的资金，同时降低公司自身的资本投入要求。
+仅有纺织服饰行业出现融资净卖出，金额为0.31亿元。
 
-责任编辑：卢昱君
+上周行业融资余额变动情况 从个股情况来看，上周融资客对257只股票加仓金额超1亿元，加仓居前的10只股票分别为中国平安、东山精密、澜起科技、海光信息、寒武纪、新易盛、立讯精密、大族激光、光迅科技、蓝色光标，分别净买入27.39亿元、24.04亿元、22.63亿元、20.96亿元、20.30亿元、18.38亿元、13.84亿元、12.01亿元、9.58亿元、9.20亿元，多数为科技股。
+
+从市场表现看，上周融资客加仓居前十的股票全线上涨，科技股涨幅更大，涨幅最大的光迅科技涨逾25%。
 
 ## 相关推荐
 
-- 2026-06-29 13:34 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 13:23 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 13:25 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 13:20 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 13:24 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 13:31 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 13:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 13:37 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 13:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 13:28 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 13:43 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 13:37 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 13:25 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 13:36 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 13:37 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 13:35 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 13:44 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 13:28 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 13:30 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 13:46 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 13:36 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 13:34 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 13:52 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 13:35 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 13:41 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 13:53 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/44233565401.shtml)
-- 2026-06-29 13:35 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/3980813.shtml)
-- 2026-06-29 13:38 - [周生如故](https://www.blog.kurohicncr.top/Article/details/0152625.shtml)
-- 2026-06-29 13:35 - [医药股集体爆发](https://www.share.minike.top/Article/details/86875714214.shtml)
-- 2026-06-29 13:42 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/56300.shtml)
-- 2026-06-29 13:28 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.kurohicncr.top/Article/details/633918.shtml)
-- 2026-06-29 13:23 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.minike.top/Article/details/94128.shtml)
-- 2026-06-29 13:19 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/8239326.shtml)
-- 2026-06-29 13:28 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/68850216.shtml)
-- 2026-06-29 13:45 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/50190634.shtml)
-- 2026-06-29 13:38 - [薛之谦演唱会](http://www.share.kurohicncr.top/Article/details/64676913482.shtml)
-- 2026-06-29 13:18 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/101238432.shtml)
-- 2026-06-29 13:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/38381408717.shtml)
-- 2026-06-29 13:34 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/321144244594.shtml)
-- 2026-06-29 13:26 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.kurohicncr.top/Article/details/990854210.shtml)
+- 2026-06-29 13:46 - [森保一：日本队要亲手改写历史](http://www.share.kurohicncr.top/Article/details/63213782.shtml)
+- 2026-06-29 13:53 - [逃狱兄弟](https://www.blog.minike.top/Article/details/36226558863.shtml)
+- 2026-06-29 13:27 - [起风了](https://www.share.kurohicncr.top/Article/details/6487675398.shtml)
+- 2026-06-29 13:35 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/2229428.shtml)
+- 2026-06-29 13:27 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/74724.shtml)
+- 2026-06-29 13:35 - [行程万里不忘初心](http://www.blog.minike.top/Article/details/611939443.shtml)
+- 2026-06-29 13:27 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/01748.shtml)
+- 2026-06-29 13:49 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/82007229496.shtml)
+- 2026-06-29 13:35 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/971677.shtml)
+- 2026-06-29 13:36 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.minike.top/Article/details/387639399.shtml)
+- 2026-06-29 13:39 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/41473158382.shtml)
+- 2026-06-29 13:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/6772600020.shtml)
+- 2026-06-29 13:38 - [袁隆平院士 不容诋毁！](http://www.share.minike.top/Article/details/37747178.shtml)
+- 2026-06-29 13:28 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/95755826224.shtml)
+- 2026-06-29 13:44 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/75323.shtml)

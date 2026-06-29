@@ -1,48 +1,61 @@
-# 常熟银行：董事陈兴离任
+# “0糖”“0脂” 真的更健康吗？专家教你跳出营销陷阱
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-4月23日金融一线消息，常熟银行公告称，本行董事会收到董事陈兴先生提交的书面辞职报告，因本行第一大股东交通银行股份有限公司内部人事调整，陈兴先生申请辞去本行董事及审计与消费者权益保护委员会委员职务，自 2026 年 4 月 23 日起生效。陈兴先生辞任后，不再担任本行任何职务。 责任编辑：李琳琳
+近年来，随着大家对食品健康的关注度越来越高，一些标注“0糖”“0脂”的食品受到消费者青睐。近期，关于写着“0糖”“0脂”的食品标签究竟是不是陷阱的讨论引发广泛关注。“0糖”“0脂”是不是就等于无糖、无脂肪？我国对食品标签“0含量”或“0添加”标注有什么规定？消费者该如何跳出营销陷阱，理性选购食品？现在不少食品包装上标注“0糖”或“无糖”，是不是就等于含糖量为0呢？专家介绍，根据
 
 ## 正文
 
-4月23日金融一线消息，常熟银行公告称，本行董事会收到董事陈兴先生提交的书面辞职报告，因本行第一大股东交通银行股份有限公司内部人事调整，陈兴先生申请辞去本行董事及审计与消费者权益保护委员会委员职务，自 2026 年 4 月 23 日起生效。
+近年来，随着大家对食品健康的关注度越来越高，一些标注“0糖”“0脂”的食品受到消费者青睐。
 
-陈兴先生辞任后，不再担任本行任何职务。
+近期，关于写着“0糖”“0脂”的食品标签究竟是不是陷阱的讨论引发广泛关注。
 
-责任编辑：李琳琳
+“0糖”“0脂”是不是就等于无糖、无脂肪？
+
+我国对食品标签“0含量”或“0添加”标注有什么规定？
+
+消费者该如何跳出营销陷阱，理性选购食品？
+
+现在不少食品包装上标注“0糖”或“无糖”，是不是就等于含糖量为0呢？
+
+专家介绍，根据我国现行的食品安全国家标准《预包装食品营养标签通则》，标注“0糖”或“无糖”并非数字意义上的绝对为0，而是有一个明确的量化标准，每100克或100毫升食品中，只要含糖量不超过0.5克，就可以声称无糖。
+
+所以，在国标框架下，“0糖”允许存在微量的糖。
 
 ## 相关推荐
 
-- 2026-06-29 13:22 - [Mrbeast的30天不吃饭挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 13:42 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 13:44 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 13:31 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 13:37 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 13:28 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 13:39 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 13:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 13:24 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 13:43 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 13:33 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 13:42 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 13:50 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 13:52 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 13:53 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 13:32 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 13:47 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 13:52 - [A股限售股解禁一览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 13:31 - [腾讯回应做独立支付APP](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 13:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 13:53 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 13:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 13:25 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 13:34 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 13:31 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 13:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 13:24 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:24 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/1703513921.shtml)
-- 2026-06-29 13:39 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.minike.top/Article/details/71306759.shtml)
-- 2026-06-29 13:21 - [俄军新型无人机战力如何](https://www.share.minike.top/Article/details/13875860.shtml)
-- 2026-06-29 13:25 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/79898.shtml)
-- 2026-06-29 13:40 - [曝歌手第七期帮唱阵容](http://www.share.minike.top/Article/details/172762116.shtml)
-- 2026-06-29 13:30 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/713713156012.shtml)
-- 2026-06-29 13:43 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/0797877.shtml)
-- 2026-06-29 13:18 - [3D打印不是工业革命，它是……](http://www.blog.kurohicncr.top/Article/details/315375700136.shtml)
-- 2026-06-29 13:34 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/9096931.shtml)
-- 2026-06-29 13:43 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/62393.shtml)
-- 2026-06-29 13:29 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/36060.shtml)
-- 2026-06-29 13:37 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.share.minike.top/Article/details/13368070826.shtml)
-- 2026-06-29 13:22 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.kurohicncr.top/Article/details/7548252603.shtml)
-- 2026-06-29 13:19 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/31175485.shtml)
-- 2026-06-29 13:37 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/76431409654.shtml)
+- 2026-06-29 13:39 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/5123410635.shtml)
+- 2026-06-29 13:46 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.minike.top/Article/details/122003901586.shtml)
+- 2026-06-29 13:35 - [王佳佳江疏影13年前后同框对比](https://www.share.minike.top/Article/details/749201823327.shtml)
+- 2026-06-29 13:36 - [广州一高校通报网传禁止小米汽车入校](https://www.share.minike.top/Article/details/01714876.shtml)
+- 2026-06-29 13:46 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/8626016562.shtml)
+- 2026-06-29 13:51 - [游戏数据竟被用于军事目的](http://www.share.kurohicncr.top/Article/details/1980704.shtml)
+- 2026-06-29 13:40 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/8413552213.shtml)
+- 2026-06-29 13:31 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/0049554248.shtml)
+- 2026-06-29 13:34 - [恋与深空底线不该被娱乐化](http://www.blog.minike.top/Article/details/872422999.shtml)
+- 2026-06-29 13:44 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/45443561692.shtml)
+- 2026-06-29 13:46 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/45757991447.shtml)
+- 2026-06-29 13:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/048689959.shtml)
+- 2026-06-29 13:46 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/029644.shtml)
+- 2026-06-29 13:43 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/450370.shtml)
+- 2026-06-29 13:28 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/052812.shtml)

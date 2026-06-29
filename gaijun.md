@@ -1,59 +1,45 @@
-# 新兴领域知识产权如何保护？国家知识产权局回应将从四个层面推进
+# 伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网北京4月23日电 (记者 孙自法)人工智能(AI)、数字经济、生物育种等新兴领域技术发展迅速，应用日益广泛，相关知识产权保护备受关注。 中国国家知识产权局副局长芮文彪4月23日下午在国务院新闻办公室举行的新闻发布会上回应媒体相关提问时表示，该局准备从四个层面来推进新兴领域知识产权保护的相关工作： 一是通过现有制度加强保护。比如，在人工智能方面，已经通过修改专利审查指南，完
+新华社德黑兰5月9日电(记者陈霄 沙达提)伊朗新闻电视台9日报道，伊朗外交部长阿拉格齐表示，停止侵略、放弃“过分且无理”的要求，是推进外交进程的必要条件。
 
 ## 正文
 
-中新网北京4月23日电 (记者 孙自法)人工智能(AI)、数字经济、生物育种等新兴领域技术发展迅速，应用日益广泛，相关知识产权保护备受关注。
-
-中国国家知识产权局副局长芮文彪4月23日下午在国务院新闻办公室举行的新闻发布会上回应媒体相关提问时表示，该局准备从四个层面来推进新兴领域知识产权保护的相关工作： 一是通过现有制度加强保护。
-
-比如，在人工智能方面，已经通过修改专利审查指南，完善了人工智能专利申请的审查标准，增加了对人工智能技术的伦理考虑和判断，以适应技术发展和治理需要。
-
-同时，也在积极参与人工智能领域的全球知识产权治理，推动建立公平合理的知识产权国际规则。
-
-二是通过修改制度做好保护。
-
-比如，在集成电路方面，正在推进《集成电路布图设计保护条例》的修改，通过完善法规制度，优化审查规则和审查流程，提高登记确权的质量效率，加强专有权保护，促进布图设计实施利用，更好地推动中国集成电路产业发展。
-
-三是通过融合制度有效保护。
-
-比如，在生物育种方面，育种过程中产生了一批有价值的中间材料，这是培育新品种的基础。
+新华社德黑兰5月9日电(记者陈霄 沙达提)伊朗新闻电视台9日报道，伊朗外交部长阿拉格齐表示，停止侵略、放弃“过分且无理”的要求，是推进外交进程的必要条件。
 
 ## 相关推荐
 
-- 2026-06-29 13:23 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 13:28 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 13:29 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 13:31 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 13:35 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 13:37 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 13:38 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 13:31 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 13:34 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 13:47 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 13:33 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 13:45 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 13:25 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 13:51 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 13:52 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 13:47 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 13:52 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 13:24 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 13:39 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 13:30 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 13:28 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 13:36 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 13:25 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 13:31 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 13:33 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 13:37 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:36 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/653769223.shtml)
-- 2026-06-29 13:33 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.kurohicncr.top/Article/details/68934692227.shtml)
-- 2026-06-29 13:47 - [AG 钟意](http://www.share.kurohicncr.top/Article/details/22121.shtml)
-- 2026-06-29 13:23 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/888406147.shtml)
-- 2026-06-29 13:24 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/3670993487.shtml)
-- 2026-06-29 13:30 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/574198616327.shtml)
-- 2026-06-29 13:18 - [媒体：高考后消费应量力而行适度有度](http://www.share.minike.top/Article/details/176948863252.shtml)
-- 2026-06-29 13:26 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/031472632890.shtml)
-- 2026-06-29 13:38 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/003332561099.shtml)
-- 2026-06-29 13:47 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/090627047.shtml)
-- 2026-06-29 13:25 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/485094223031.shtml)
-- 2026-06-29 13:40 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/18299679.shtml)
-- 2026-06-29 13:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/948397832389.shtml)
-- 2026-06-29 13:45 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/239231630975.shtml)
-- 2026-06-29 13:46 - [大范围炎热天气将至](https://www.share.kurohicncr.top/Article/details/101991.shtml)
+- 2026-06-29 13:32 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/620893064.shtml)
+- 2026-06-29 13:42 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/4970425458.shtml)
+- 2026-06-29 13:36 - [俄军新型无人机战力如何](https://www.blog.minike.top/Article/details/933265427973.shtml)
+- 2026-06-29 13:38 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/925279672.shtml)
+- 2026-06-29 13:24 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.share.kurohicncr.top/Article/details/905978669138.shtml)
+- 2026-06-29 13:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/6899479.shtml)
+- 2026-06-29 13:34 - [一生一世](https://www.blog.kurohicncr.top/Article/details/64826913166.shtml)
+- 2026-06-29 13:53 - [美伊同意停止互袭](http://www.share.kurohicncr.top/Article/details/12846016.shtml)
+- 2026-06-29 13:46 - [乔家的儿女](http://www.share.minike.top/Article/details/73350.shtml)
+- 2026-06-29 13:47 - [人民日报评“AI脸看腻了”](http://www.share.minike.top/Article/details/147616.shtml)
+- 2026-06-29 13:29 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/9409871207.shtml)
+- 2026-06-29 13:31 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/07323.shtml)
+- 2026-06-29 13:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/86691764907.shtml)
+- 2026-06-29 13:52 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.minike.top/Article/details/5922419620.shtml)
+- 2026-06-29 13:40 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/659929861685.shtml)

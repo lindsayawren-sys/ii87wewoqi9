@@ -1,58 +1,61 @@
-# 华纳兄弟投资者批准以1100亿美元将公司出售给派拉蒙影业
+# 美联储高官：AI成了会加息，AI败了会滞胀！
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-这场多年来规模最大的媒体并购案正逐步接近收官。 华纳兄弟探索股东于周四投票批准派拉蒙天空之舞（Paramount Skydance）对该公司的收购。此次联姻将把好莱坞两家历史最悠久的电影制片厂归于同一集团旗下，并重塑美国娱乐行业格局。 在两家娱乐巨头董事会一致支持这笔1100亿美元重磅交易后，WBD股东投出赞成票在意料之中。 WBD首席执行官大卫·扎斯拉夫表示：“股东批准是完成
+芝加哥联储主席对AI生产率叙事提出质疑，挑战特朗普政府及美联储候任主席的降息逻辑。 周五芝加哥联储行长Austan Goolsbee警告，人工智能生产率的广泛预期本身就可能推升利率。一旦这场技术革命令人失望，结果可能更糟：滞胀。 Goolsbee在斯坦福大学胡佛研究所年度货币政策会议上发言时表示，“炒作越大，隐患越大。” 他引用芝加哥联储调查数据称，经济学家、科技从业者和普通公
 
 ## 正文
 
-这场多年来规模最大的媒体并购案正逐步接近收官。
+芝加哥联储主席对AI生产率叙事提出质疑，挑战特朗普政府及美联储候任主席的降息逻辑。
 
-华纳兄弟探索股东于周四投票批准派拉蒙天空之舞（Paramount Skydance）对该公司的收购。
+周五芝加哥联储行长Austan Goolsbee警告，人工智能生产率的广泛预期本身就可能推升利率。
 
-此次联姻将把好莱坞两家历史最悠久的电影制片厂归于同一集团旗下，并重塑美国娱乐行业格局。
+一旦这场技术革命令人失望，结果可能更糟：滞胀。
 
-在两家娱乐巨头董事会一致支持这笔1100亿美元重磅交易后，WBD股东投出赞成票在意料之中。
+Goolsbee在斯坦福大学胡佛研究所年度货币政策会议上发言时表示，“炒作越大，隐患越大。
 
-WBD首席执行官大卫·扎斯拉夫表示：“股东批准是完成这一历史性交易的又一关键里程碑，这笔交易将为股东带来卓越价值。
+” 他引用芝加哥联储调查数据称，经济学家、科技从业者和普通公众均预期未来十年每年，将额外获得约一个百分点的生产率增长。
 
-” 派拉蒙天空之舞的报价为每股31美元，对WBD的估值约770亿美元，收购标的包括华纳兄弟电影公司、HBO Max流媒体平台，以及CNN、TBS、TNT等一系列有线电视频道。
+这种普遍预期反而构成经济过热的风险。
 
-合并后，两家公司将坐拥庞大的知识产权库，从派拉蒙的《教父》《海绵宝宝》，到WBD的《卡萨布兰卡》《哈利·波特》系列应有尽有。
+而这番表态挑战了即将接任美联储主席的沃什及特朗普政府力推的“AI驱动降息”叙事。
 
-不过，该交易仍需获得美国司法部反垄断监管机构的批准。
+据报道，沃什有望于周一获参议院批准，出任第17任美联储主席。
 
 ## 相关推荐
 
-- 2026-06-29 13:24 - [腾讯回应做独立支付APP](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 13:35 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 13:41 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 13:19 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 13:30 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 13:30 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-29 13:36 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 13:34 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 13:25 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 13:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 13:33 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 13:43 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 13:44 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 13:53 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 13:48 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 13:53 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 13:41 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 13:27 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 13:35 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 13:50 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 13:52 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 13:46 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 13:35 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 13:49 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 13:35 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 13:50 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 13:39 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:28 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.kurohicncr.top/Article/details/2387787.shtml)
-- 2026-06-29 13:38 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/48665487.shtml)
-- 2026-06-29 13:36 - [逃狱兄弟](https://www.blog.minike.top/Article/details/12404.shtml)
-- 2026-06-29 13:44 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/76718033.shtml)
-- 2026-06-29 13:42 - [为什么欧洲人不装空调](https://www.blog.minike.top/Article/details/74370.shtml)
-- 2026-06-29 13:21 - [流金岁月](http://www.blog.minike.top/Article/details/1170458.shtml)
-- 2026-06-29 13:27 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/77777989110.shtml)
-- 2026-06-29 13:31 - [3D打印不是工业革命，它是……](https://www.share.minike.top/Article/details/2433549.shtml)
-- 2026-06-29 13:44 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/581054152.shtml)
-- 2026-06-29 13:30 - [AG 钟意](https://www.blog.minike.top/Article/details/95628743886.shtml)
-- 2026-06-29 13:25 - [和阿根廷球员家属一起看球](https://www.blog.minike.top/Article/details/606332945456.shtml)
-- 2026-06-29 13:21 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/849793376836.shtml)
-- 2026-06-29 13:30 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/9955975194.shtml)
-- 2026-06-29 13:32 - [TLAW vs DCG MSI](https://www.blog.minike.top/Article/details/19945786507.shtml)
-- 2026-06-29 13:44 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/843163.shtml)
+- 2026-06-29 13:28 - [扬名立万](https://www.share.minike.top/Article/details/036942163.shtml)
+- 2026-06-29 13:46 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/162489954270.shtml)
+- 2026-06-29 13:34 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/955985.shtml)
+- 2026-06-29 13:47 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/58598.shtml)
+- 2026-06-29 13:35 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/582100324837.shtml)
+- 2026-06-29 13:28 - [医药股集体爆发](http://www.share.kurohicncr.top/Article/details/4131768.shtml)
+- 2026-06-29 13:26 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/64222.shtml)
+- 2026-06-29 13:31 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.blog.minike.top/Article/details/501136370430.shtml)
+- 2026-06-29 13:26 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/50801450.shtml)
+- 2026-06-29 13:36 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.share.kurohicncr.top/Article/details/090139.shtml)
+- 2026-06-29 13:48 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/40659719002.shtml)
+- 2026-06-29 13:53 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.kurohicncr.top/Article/details/216117.shtml)
+- 2026-06-29 13:24 - [中方回应对日本相关出口管制措施](https://www.share.kurohicncr.top/Article/details/52525.shtml)
+- 2026-06-29 13:36 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/15981.shtml)
+- 2026-06-29 13:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/910090211.shtml)

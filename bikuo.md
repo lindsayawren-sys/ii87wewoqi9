@@ -1,48 +1,61 @@
-# 中国旭阳集团午前涨超3% 机构料年内公司化工业务有显著增长
+# 光大期货：5月11日矿钢煤焦日报
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中国旭阳集团（01907）盘中涨超5%，截至发稿，股价上涨3.26%，现报3.17港元，成交额1.01亿港元。 国证国际此前指出，中国旭阳集团在持续对新材料和精细化工深耕，年产5000吨氨基醇已于2025年7月投产，独立研发、自主创新己二胺工艺将于26年4月份投产，摆脱传统线路中卡脖子的己二腈环节，未来己内酰胺产能还将继续扩张。2026年3月以来，受到国际形势的影响，原油产业链
+钢材：出口分流产量下降，钢价仍将震荡偏强 （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 螺纹方面，本周全国螺纹产量环比回落10.27万吨至196.65万吨，公历同比减少10.27万吨，农历同比减少32.57万吨；社库环比回落7.15万吨至547.22万吨，公历同比增加81.84万吨，农历同比增加14.46万吨；厂库环比增加5.99万吨至179.84
 
 ## 正文
 
-中国旭阳集团（01907）盘中涨超5%，截至发稿，股价上涨3.26%，现报3.17港元，成交额1.01亿港元。
+钢材：出口分流产量下降，钢价仍将震荡偏强 （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 螺纹方面，本周全国螺纹产量环比回落10.27万吨至196.65万吨，公历同比减少10.27万吨，农历同比减少32.57万吨；社库环比回落7.15万吨至547.22万吨，公历同比增加81.84万吨，农历同比增加14.46万吨；厂库环比增加5.99万吨至179.84万吨，公历同比减少8.43万吨，农历同比减少20.56万吨；螺纹表需环比回落47.34万吨至197.81万吨，公历同比减少16.06万吨，农历同比减少76万吨。
 
-国证国际此前指出，中国旭阳集团在持续对新材料和精细化工深耕，年产5000吨氨基醇已于2025年7月投产，独立研发、自主创新己二胺工艺将于26年4月份投产，摆脱传统线路中卡脖子的己二腈环节，未来己内酰胺产能还将继续扩张。
+螺纹产量明显回落，库存降幅收窄，表需回落，数据表现偏中性。
 
-2026年3月以来，受到国际形势的影响，原油产业链相关的化工产品，包括甲醇、纯苯、合成氨、己内酰胺等产品价格均大幅上涨，对于公司化工板块的业绩提升将有明显帮助。
+近期钢厂钢坯出口接单情况较好，部分钢厂出口订单排产已到7月份，钢厂加大排产钢坯减少螺纹产量，在很大程度上缓解了市场供应压力，钢厂挺价意愿普遍较强。
 
-责任编辑：卢昱君
+同时五一节后中下游用户采购和补库的积极性有所抬升，市场成交好转，对市场信心也形成较强提振。
+
+不过近期价格上涨较快，长流程钢厂即期利润明显回升，短流程钢厂平电也基本能实现盈亏平衡，后期钢厂复产动力或将有所增强。
+
+预计短期螺纹盘面仍将震荡偏强运行。
+
+热卷方面，本周全国热卷产量环比回落4.6万吨至300.61万吨，公历同比减少19.77万吨，农历同比减少13.79万吨；社库环比回升2.33万吨至335.28万吨，公历同比增加54.96万吨，农历同比增加45.56万吨；厂库环比回升1.19万吨至82.6万吨，公历同比减少2.2万吨，农历同比减少2.23万吨；热卷表需环比回落9.33万吨至297.09万吨，公历同比减少12.44万吨，农历同比减少27.07万吨。
+
+热卷产量回落，库存小幅增加，表需回落，数据表现中性偏弱。
 
 ## 相关推荐
 
-- 2026-06-29 13:43 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 13:42 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 13:41 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 13:20 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 13:26 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 13:20 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 13:45 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 13:23 - [赵今麦客串电影版开端](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 13:32 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 13:22 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 13:49 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 13:40 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 13:29 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 13:53 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 13:46 - [加拿大92分钟绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 13:26 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 13:50 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 13:43 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 13:39 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 13:39 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 13:46 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 13:49 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 13:50 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 13:32 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 13:51 - [Mrbeast的30天不吃饭挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:38 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/28680858674.shtml)
-- 2026-06-29 13:23 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/562275.shtml)
-- 2026-06-29 13:29 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.minike.top/Article/details/50381.shtml)
-- 2026-06-29 13:40 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/16124399354.shtml)
-- 2026-06-29 13:32 - [强⁶](http://www.share.kurohicncr.top/Article/details/443233.shtml)
-- 2026-06-29 13:30 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/004244610.shtml)
-- 2026-06-29 13:41 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.minike.top/Article/details/10141219.shtml)
-- 2026-06-29 13:42 - [韩体育部长回应李在明痛批](http://www.share.kurohicncr.top/Article/details/87081003.shtml)
-- 2026-06-29 13:18 - [AG冠军五人组轮换](https://www.share.minike.top/Article/details/22161738.shtml)
-- 2026-06-29 13:47 - [周生如故](https://www.blog.minike.top/Article/details/18516.shtml)
-- 2026-06-29 13:46 - [四川宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/71817.shtml)
-- 2026-06-29 13:38 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/56752510.shtml)
-- 2026-06-29 13:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/5718212888.shtml)
-- 2026-06-29 13:41 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/3733263.shtml)
-- 2026-06-29 13:20 - [光与夜之恋](https://www.blog.kurohicncr.top/Article/details/30453361008.shtml)
+- 2026-06-29 13:50 - [人民日报评“AI脸看腻了”](https://www.blog.kurohicncr.top/Article/details/25686.shtml)
+- 2026-06-29 13:29 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/2039404570.shtml)
+- 2026-06-29 13:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/5337886.shtml)
+- 2026-06-29 13:35 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/791048.shtml)
+- 2026-06-29 13:41 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/44438.shtml)
+- 2026-06-29 13:35 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/75653728409.shtml)
+- 2026-06-29 13:39 - [张一山回应与杨紫友情](https://www.share.kurohicncr.top/Article/details/1638618083.shtml)
+- 2026-06-29 13:37 - [明星大侦探第四季](http://www.share.minike.top/Article/details/136480.shtml)
+- 2026-06-29 13:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/749137564.shtml)
+- 2026-06-29 13:41 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/438769879.shtml)
+- 2026-06-29 13:46 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/24769.shtml)
+- 2026-06-29 13:48 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/5619697329.shtml)
+- 2026-06-29 13:44 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/39233794914.shtml)
+- 2026-06-29 13:50 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.minike.top/Article/details/5682734966.shtml)
+- 2026-06-29 13:28 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/041189258481.shtml)

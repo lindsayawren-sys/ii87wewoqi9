@@ -1,57 +1,60 @@
-# 市场监管总局：全面推进互联网广告生态治理
+# 002428，十倍股，磷化铟概念龙头爆发（附名单）
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-中新网4月23日电 据“市说新语”微信公众号消息，近期，市场监管总局印发《关于深化互联网广告生态治理工作的通知》和《互联网广告市场秩序整治重点任务》，对深化互联网广告生态治理工作作出全面部署，同时决定开展为期半年的互联网广告市场秩序整治行动。当前，我国互联网广告产业快速发展，已形成数据驱动、技术赋能的复杂生态，但互联网广告轻创意、重炒作等旧问题仍然存在，滥用人工智能、过度追求流
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！近一周机构调研个股有220多只，TCL科技调研机构数最多。 据证券时报·数据宝统计，TCL科技近一周有84家机构调研，包括13家基金公司、26家证券公司、15家私募、3家保险公司等。2026年一季度，公司实现营业收入434.5亿元，同比增长8.4%；归母净利润15.6亿元，同比增长53.7%，单季度归母利润
 
 ## 正文
 
-中新网4月23日电 据“市说新语”微信公众号消息，近期，市场监管总局印发《关于深化互联网广告生态治理工作的通知》和《互联网广告市场秩序整治重点任务》，对深化互联网广告生态治理工作作出全面部署，同时决定开展为期半年的互联网广告市场秩序整治行动。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当前，我国互联网广告产业快速发展，已形成数据驱动、技术赋能的复杂生态，但互联网广告轻创意、重炒作等旧问题仍然存在，滥用人工智能、过度追求流量等新问题不断凸显，亟须从深化互联网广告生态治理的高度系统施治、全面治理。
+近一周机构调研个股有220多只，TCL科技调研机构数最多。
 
-为此，市场监管总局制定印发《关于深化互联网广告生态治理工作的通知》，首次提出“互联网广告生态治理”的概念，部署健全互联网广告监管制度体系、压实互联网平台企业主体责任、加大重点领域和新业态的广告监管力度、加强监测技术和执法能力建设、强化广告宣传导向和价值引领等五方面治理任务，为推进互联网广告生态治理工作绘制总体蓝图。
+据证券时报·数据宝统计，TCL科技近一周有84家机构调研，包括13家基金公司、26家证券公司、15家私募、3家保险公司等。
 
-互联网广告生态治理是一项系统性工程。
+2026年一季度，公司实现营业收入434.5亿元，同比增长8.4%；归母净利润15.6亿元，同比增长53.7%，单季度归母利润创下过去17个季度的新高。
 
-市场监管总局按照管长远和立当下相结合的工作思路，决定将加强互联网广告市场秩序整治作为推进互联网广告生态治理的突破口，拟通过为期半年的整治行动，依法从严打击群众反映强烈的互联网广告违法行为，切实维护互联网广告市场秩序，为推进互联网广告生态治理其他方面的工作打牢基础，营造良好氛围。
+公司在调研中表示，今年由于部分原材料涨价，预计电视面板需求量可能出现1%—2%的下滑，但由于原材料的上涨加速了市场需求从小尺寸电视往大尺寸的结构转移，预计2026年需求面积将同比实现3.5%—4%的增长，且增速好于2025年。
 
-为此，市场监管总局印发《互联网广告市场秩序整治重点任务》，围绕强化互联网广告导向监管、加强对直播电商中广告活动的监管、强化对人工智能生成式广告的监管、加大对互联网弹窗广告的规范力度、加大对“矩阵式”互联网广告投放行为的规范力度、进一步压实互联网平台的主体责任等六个方面，细化工作任务，聚焦突出问题精准发力，全力维护良好互联网广告市场秩序。
+盛弘股份、海科新源、中富电路、百济神州等个股均有50家以上机构评级。
+
+盛弘股份2026年一季度营业收入约为7.44亿元，同比增长23.13%；归母净利润约为8518.42万元，同比增长16.86%；归母扣非净利润为8546.59万元，同比增长25.01%。
+
+盛弘股份在调研中表示，公司的工业配套电源业务中电能质量产品如APF有源滤波器、SVG静止无功发生器等在AIDC行业持续为公司带来收入和利润；公司于2025年下半年成立了AIDC部门，其他AIDC相关产品的研发和市场推广活动正在按照计划有序开展，新展品的开发和上市有其自身推动的周期，专业的行业展会或论坛也会有相应的解决方案的展示。
 
 ## 相关推荐
 
-- 2026-06-29 13:40 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 13:32 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 13:39 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 13:34 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 13:29 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 13:47 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 13:22 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 13:30 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 13:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 13:35 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 13:46 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 13:44 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 13:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 13:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 13:47 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 13:53 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 13:41 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 13:28 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 13:29 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 13:47 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 13:44 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 13:33 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 13:37 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 13:25 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 13:41 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 13:37 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 13:26 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 13:53 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 13:53 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:31 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/0079569.shtml)
-- 2026-06-29 13:39 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/08831807.shtml)
-- 2026-06-29 13:36 - [一见倾心](https://www.share.kurohicncr.top/Article/details/854130235407.shtml)
-- 2026-06-29 13:37 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/735291425317.shtml)
-- 2026-06-29 13:43 - [曾沛慈夺冠后人气](https://www.share.kurohicncr.top/Article/details/060391299199.shtml)
-- 2026-06-29 13:42 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/7617803293.shtml)
-- 2026-06-29 13:29 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.kurohicncr.top/Article/details/395335.shtml)
-- 2026-06-29 13:46 - [吴海燕兰西雅漫步复兴岛](http://www.share.minike.top/Article/details/7110767920.shtml)
-- 2026-06-29 13:26 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/8725959.shtml)
-- 2026-06-29 13:27 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/0283902631.shtml)
-- 2026-06-29 13:48 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/1059606.shtml)
-- 2026-06-29 13:37 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/40651090735.shtml)
-- 2026-06-29 13:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/28642502.shtml)
-- 2026-06-29 13:24 - [腾讯回应做独立支付APP](https://www.share.minike.top/Article/details/111873.shtml)
-- 2026-06-29 13:47 - [A股](http://www.share.minike.top/Article/details/675719615.shtml)
+- 2026-06-29 13:46 - [急先锋](https://www.share.kurohicncr.top/Article/details/82301238.shtml)
+- 2026-06-29 13:42 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/228595.shtml)
+- 2026-06-29 13:39 - [航空运输旅客服务质量国标将实施](http://www.share.minike.top/Article/details/042191134.shtml)
+- 2026-06-29 13:37 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/407704.shtml)
+- 2026-06-29 13:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/4811819.shtml)
+- 2026-06-29 13:31 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/1613092.shtml)
+- 2026-06-29 13:43 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/63414131.shtml)
+- 2026-06-29 13:30 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/3811075591.shtml)
+- 2026-06-29 13:37 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.blog.kurohicncr.top/Article/details/590370.shtml)
+- 2026-06-29 13:40 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/37448375194.shtml)
+- 2026-06-29 13:26 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/49047391.shtml)
+- 2026-06-29 13:38 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/67991.shtml)
+- 2026-06-29 13:29 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/528762.shtml)
+- 2026-06-29 13:26 - [异世界一点都不好玩！](http://www.blog.minike.top/Article/details/518658923.shtml)
+- 2026-06-29 13:37 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/20926.shtml)

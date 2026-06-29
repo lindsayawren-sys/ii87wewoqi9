@@ -1,61 +1,61 @@
-# 艾伯维斥资14亿美元在北卡罗来纳州建制药园区
+# 走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-2026年4月22日，全球生物制药巨头艾伯维公司（AbbVie）宣布了一项重大投资计划，将斥资14亿美元在美国北卡罗来纳州达勒姆市建设一个全新的制药制造园区。这是该公司迄今为止在单一地点进行的最大规模投资。 根据规划，这座占地185英亩的新园区将成为艾伯维在美国主要的注射药物生产基地，旨在扩大其国内产能，以满足全球市场对关键药物的需求。该园区将专注于生产治疗免疫系统疾病、癌症以
+中新网哈尔滨5月9日电 题：走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山 作者 史轶夫 高春梅 五月的哈尔滨暖风拂面、草木葳蕤，初夏的东北林业大学(以下简称“东林”)校园绿意盎然。又一届即将出征的学子齐聚校园，怀揣着对林海原野的赤诚向往，收拾行囊奔赴全国各大林区一线，将青春理想深深扎根在绿水青山之间。 2021年，东北林业大学在全国高校率先推出推免研究生“支林计
 
 ## 正文
 
-2026年4月22日，全球生物制药巨头艾伯维公司（AbbVie）宣布了一项重大投资计划，将斥资14亿美元在美国北卡罗来纳州达勒姆市建设一个全新的制药制造园区。
+中新网哈尔滨5月9日电 题：走，到林区一线去！
 
-这是该公司迄今为止在单一地点进行的最大规模投资。
+东林“支林计划”近五百学子以青春守绿水青山 作者 史轶夫 高春梅 五月的哈尔滨暖风拂面、草木葳蕤，初夏的东北林业大学(以下简称“东林”)校园绿意盎然。
 
-根据规划，这座占地185英亩的新园区将成为艾伯维在美国主要的注射药物生产基地，旨在扩大其国内产能，以满足全球市场对关键药物的需求。
+又一届即将出征的学子齐聚校园，怀揣着对林海原野的赤诚向往，收拾行囊奔赴全国各大林区一线，将青春理想深深扎根在绿水青山之间。
 
-该园区将专注于生产治疗免疫系统疾病、癌症以及脑部和神经疾病的药物。
+2021年，东北林业大学在全国高校率先推出推免研究生“支林计划”，开辟“基层实践+学术深造”的绿色成才新路。
 
-艾伯维计划在四年内为该园区招聘734名员工，岗位涵盖工程师、科学家和制造人员。
+项目落地至今，已有499名东林学子奔赴五省区百余个林场、林业和草原局及自然保护区，服务期满考核合格即可获得推免读研资格，让青年在一线历练、在实践中成才。
 
-该项目预计将于2026年动工，并于2028年底完工，在此期间将创造超过2000个建筑工作岗位。
+“‘支林计划’聚焦林区建设、生态整治，和我的专业方向高度契合，我想用所学为林场建设出一份力。
 
-园区的第一阶段建设将包括制造工厂、实验室、仓库、办公空间及员工设施。
+”首批支林学子段佳楠坦言。
 
-此项投资是艾伯维未来十年在美国投入约1000亿美元用于研发和制造宏伟计划的重要组成部分。
+怀揣这样的初心，一批又一批东林青年告别校园繁华，奔赴偏远林区，开启从书生到林业新兵的蜕变。
 
 ## 相关推荐
 
-- 2026-06-29 13:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 13:43 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 13:23 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 13:37 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 13:22 - [张一山说杨紫早该拿奖了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 13:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 13:36 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 13:28 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 13:30 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 13:40 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 13:32 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 13:21 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 13:22 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 13:35 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 13:26 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 13:36 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 13:36 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 13:26 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 13:50 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 13:31 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 13:42 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 13:38 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 13:49 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 13:40 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 13:52 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 13:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 13:30 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 13:34 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 13:32 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 13:53 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:18 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/45275.shtml)
-- 2026-06-29 13:37 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/251321555.shtml)
-- 2026-06-29 13:27 - [腾讯回应做独立支付APP](http://www.blog.kurohicncr.top/Article/details/13296338438.shtml)
-- 2026-06-29 13:20 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/99029.shtml)
-- 2026-06-29 13:34 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/53907031953.shtml)
-- 2026-06-29 13:35 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/7872898983.shtml)
-- 2026-06-29 13:27 - [海军舰艇编队将赴香港](http://www.share.kurohicncr.top/Article/details/371337.shtml)
-- 2026-06-29 13:42 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/89812137414.shtml)
-- 2026-06-29 13:22 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/79561.shtml)
-- 2026-06-29 13:42 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/77566115771.shtml)
-- 2026-06-29 13:25 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/849378922841.shtml)
-- 2026-06-29 13:38 - [F1奥地利大奖赛正赛集锦](http://www.blog.kurohicncr.top/Article/details/1133473.shtml)
-- 2026-06-29 13:35 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/81522870491.shtml)
-- 2026-06-29 13:41 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/2725654299.shtml)
-- 2026-06-29 13:22 - [6月我国降水为何偏多](http://www.share.kurohicncr.top/Article/details/069640505152.shtml)
+- 2026-06-29 13:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/907457959019.shtml)
+- 2026-06-29 13:30 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/9145566695.shtml)
+- 2026-06-29 13:36 - [退休化学教授帮医药研发人员制毒](http://www.share.minike.top/Article/details/7919181001.shtml)
+- 2026-06-29 13:24 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/30974864869.shtml)
+- 2026-06-29 13:40 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/3333723.shtml)
+- 2026-06-29 13:44 - [双高胎](https://www.share.minike.top/Article/details/6996125.shtml)
+- 2026-06-29 13:24 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/457690991121.shtml)
+- 2026-06-29 13:52 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/108318262496.shtml)
+- 2026-06-29 13:38 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.minike.top/Article/details/8057072445.shtml)
+- 2026-06-29 13:34 - [委内瑞拉地震死亡人数升至1450人](http://www.blog.kurohicncr.top/Article/details/15130240.shtml)
+- 2026-06-29 13:51 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/691528954.shtml)
+- 2026-06-29 13:40 - [退休化学教授帮医药研发人员制毒](http://www.share.minike.top/Article/details/787199.shtml)
+- 2026-06-29 13:42 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/486404.shtml)
+- 2026-06-29 13:34 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.minike.top/Article/details/89395.shtml)
+- 2026-06-29 13:45 - [我们注定是一撮县城葱姜蒜](https://www.share.minike.top/Article/details/85158776.shtml)

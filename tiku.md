@@ -1,53 +1,60 @@
-# 伊朗中央银行：首笔霍尔木兹海峡通行费以“现金外汇”形式入账
+# 王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-总台记者23日获悉，伊朗中央银行证实，首笔对通过霍尔木兹海峡船只收取的通行费已经以“现金外汇”形式入账。此前，有消息称，伊朗以“加密货币”的形式收取霍尔木兹海峡通行费。 当天早些时候，伊朗伊斯兰议会副议长哈吉·巴巴埃表示，伊朗已收到首笔霍尔木兹海峡通行费，并已存入中央银行账户。（总台记者 李健南 王寅）责任编辑：郭建
+新华社北京5月11日电 中共中央政治局常委、全国政协主席王沪宁11日在京会见中国国民党副主席张荣恭和第三届海峡两岸中华文化峰会两岸文化界人士代表。 王沪宁表示，习近平总书记会见中国国民党主席郑丽文时发表重要讲话，为两岸关系发展指明了方向，激励全体中华儿女携手推进祖国统一大业、民族复兴伟业。习近平总书记多次强调，中华文化是两岸同胞共同的精神财富，是两岸同胞的“根”和“魂”。本届峰
 
 ## 正文
 
-总台记者23日获悉，伊朗中央银行证实，首笔对通过霍尔木兹海峡船只收取的通行费已经以“现金外汇”形式入账。
+新华社北京5月11日电 中共中央政治局常委、全国政协主席王沪宁11日在京会见中国国民党副主席张荣恭和第三届海峡两岸中华文化峰会两岸文化界人士代表。
 
-此前，有消息称，伊朗以“加密货币”的形式收取霍尔木兹海峡通行费。
+王沪宁表示，习近平总书记会见中国国民党主席郑丽文时发表重要讲话，为两岸关系发展指明了方向，激励全体中华儿女携手推进祖国统一大业、民族复兴伟业。
 
-当天早些时候，伊朗伊斯兰议会副议长哈吉·巴巴埃表示，伊朗已收到首笔霍尔木兹海峡通行费，并已存入中央银行账户。
+习近平总书记多次强调，中华文化是两岸同胞共同的精神财富，是两岸同胞的“根”和“魂”。
 
-（总台记者 李健南 王寅）责任编辑：郭建
+本届峰会以“血脉相连、文化相通”为主题，就是要彰显两岸同胞坚守国土不可分、国家不可乱、民族不可散、文明不可断的共同信念，彰显两岸同胞做中华文化守护者、传承者、弘扬者的使命担当。
+
+王沪宁表示，中华文化是中华民族的精神命脉，两岸同胞共同的中华根、中华魂，源于血脉、植根历史、铸于心中，不会忘却，不可磨灭。
+
+两岸同胞要坚定中华文化自信，担负起赓续中华文脉、繁荣中华文化的使命，铸牢中华民族共同体意识。
+
+要把中华民族精神、中华民族价值体系传承好，加强两岸文化交流，促进两岸交流合作，深化两岸融合发展，实现两岸同胞心灵契合。
+
+要推动中华文化创新发展，增强实现中华民族伟大复兴的精神力量。
 
 ## 相关推荐
 
-- 2026-06-29 13:35 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 13:37 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 13:44 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 13:44 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 13:38 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 13:28 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 13:26 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 13:37 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 13:33 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 13:25 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 13:29 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 13:22 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 13:45 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 13:27 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 13:40 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 13:24 - [T1对战KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 13:42 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 13:37 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 13:46 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 13:34 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 13:26 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 13:40 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 13:29 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 13:35 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 13:42 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 13:42 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 13:27 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 13:52 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 13:31 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:35 - [亚洲成世界杯最大失意者联盟](https://www.share.kurohicncr.top/Article/details/6900747.shtml)
-- 2026-06-29 13:41 - [在委侨团负责人：家乡的帮助很及时](http://www.share.minike.top/Article/details/3320784265.shtml)
-- 2026-06-29 13:29 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/17205.shtml)
-- 2026-06-29 13:32 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/834276.shtml)
-- 2026-06-29 13:46 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.blog.minike.top/Article/details/7286189524.shtml)
-- 2026-06-29 13:47 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/38466.shtml)
-- 2026-06-29 13:47 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/860915205891.shtml)
-- 2026-06-29 13:19 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/610403114035.shtml)
-- 2026-06-29 13:26 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/68123367.shtml)
-- 2026-06-29 13:37 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/7867181.shtml)
-- 2026-06-29 13:39 - [网友偶遇胡军和李乃文](http://www.share.kurohicncr.top/Article/details/805630835.shtml)
-- 2026-06-29 13:18 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/069751574658.shtml)
-- 2026-06-29 13:47 - [流金岁月](https://www.share.minike.top/Article/details/880381965.shtml)
-- 2026-06-29 13:27 - [为什么欧洲人不装空调](http://www.blog.kurohicncr.top/Article/details/148012470586.shtml)
-- 2026-06-29 13:35 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/90408.shtml)
+- 2026-06-29 13:51 - [恋与深空失控领地](http://www.share.minike.top/Article/details/2502385.shtml)
+- 2026-06-29 13:39 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/2784459241.shtml)
+- 2026-06-29 13:52 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/6670273.shtml)
+- 2026-06-29 13:30 - [欧委会总部只给高层开空调](http://www.share.minike.top/Article/details/079489058316.shtml)
+- 2026-06-29 13:26 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/1624004.shtml)
+- 2026-06-29 13:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/3103604.shtml)
+- 2026-06-29 13:52 - [欧洲多国激辩“装不装空调”](https://www.blog.kurohicncr.top/Article/details/122800741742.shtml)
+- 2026-06-29 13:34 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/5344850318.shtml)
+- 2026-06-29 13:37 - [张一山回应与杨紫友情](https://www.blog.kurohicncr.top/Article/details/46147716.shtml)
+- 2026-06-29 13:28 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.kurohicncr.top/Article/details/235624002.shtml)
+- 2026-06-29 13:24 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.kurohicncr.top/Article/details/421160064824.shtml)
+- 2026-06-29 13:36 - [比亚迪为什么卖得越多市值越低](http://www.share.kurohicncr.top/Article/details/0824407.shtml)
+- 2026-06-29 13:29 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/79654555464.shtml)
+- 2026-06-29 13:49 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/30962893.shtml)
+- 2026-06-29 13:31 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/759898.shtml)

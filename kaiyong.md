@@ -1,56 +1,61 @@
-# 跟风“网红”拼豆，健康隐患不容忽视
+# 涉内幕交易指控，美国银行证券印度公司与印监管机构达成和解
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-跟风“网红”拼豆，健康隐患不容忽视 执法检查发现一些产品缺乏3C认证、熨斗电压超标、加热释放有害物质 近段时间，一款名为拼豆的DIY手作在玩具市场流行。它将彩色塑料颗粒在底板上有序排布，经通电设备高温熨烫定型，便能拼出各式各样的图案。操作简单、趣味性强……拼豆迅速出圈，掀起一波消费浪潮。 然而，拼豆玩具暗含风险。根据国家强制性产品认证目录(3C认证)相关规定，塑胶类儿童玩具必须
+印度证券交易委员会（SEBI）11日通报称，美国银行证券印度公司（BofA Securities India）已同意交纳590万卢比（约合6.19万美元）和解金，就其涉嫌内幕交易及违反商业银行规范的指控与印监管部门达成和解。 针对相关违规指控，美国银行证券印度公司在和解程序中既未承认也未否认。美国银行官方拒绝就该和解令及相关指控置评。 根据印度证券交易委员会发布的和解令，监管机
 
 ## 正文
 
-跟风“网红”拼豆，健康隐患不容忽视 执法检查发现一些产品缺乏3C认证、熨斗电压超标、加热释放有害物质 近段时间，一款名为拼豆的DIY手作在玩具市场流行。
+印度证券交易委员会（SEBI）11日通报称，美国银行证券印度公司（BofA Securities India）已同意交纳590万卢比（约合6.19万美元）和解金，就其涉嫌内幕交易及违反商业银行规范的指控与印监管部门达成和解。
 
-它将彩色塑料颗粒在底板上有序排布，经通电设备高温熨烫定型，便能拼出各式各样的图案。
+针对相关违规指控，美国银行证券印度公司在和解程序中既未承认也未否认。
 
-操作简单、趣味性强……拼豆迅速出圈，掀起一波消费浪潮。
+美国银行官方拒绝就该和解令及相关指控置评。
 
-然而，拼豆玩具暗含风险。
+根据印度证券交易委员会发布的和解令，监管机构此前已向该公司下发说明理由通知，指控其未能按照反内幕交易法规要求建立并维护必需的结构化数字数据库。
 
-根据国家强制性产品认证目录(3C认证)相关规定，塑胶类儿童玩具必须依法取得3C认证，这是保障产品安全的基本前提。
+据悉，此案调查源于2024年的一起举报。
 
-今天，北京市市场监管局公布的多起违规拼豆玩具案件显示，市场上售卖的部分拼豆产品存在缺乏3C认证、内含熨斗电压超标、劣质塑料加热会释放有害物质等问题。
+印度监管机构随后针对美国银行证券印度公司在2024年3月参与管理阿迪蒂亚比拉太阳人寿资产管理公司（Aditya Birla Sun Life Asset Management）股票发售项目中的违规行为展开调查。
 
-对此，中国消费者协会提醒广大消费者，跟风“网红”拼豆，健康隐患不容忽视。
+印度监管部门指出，在上述股票发售期间，美国银行的交易团队在掌握未公开的、且对价格具有敏感影响的内幕信息的情况下，涉嫌直接或间接与潜在投资者进行接触，违反了内幕交易规则及企业内部的“信息隔离墙”规范。
 
-该协会也警示，保障儿童玩具使用安全，既需生产源头严把质量关，也离不开使用过程中的有效监护。
+此外，监管机构还指控该公司在接受调查期间存在隐瞒重大事实及提供虚假陈述的行为。
 
 ## 相关推荐
 
-- 2026-06-29 13:39 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 13:28 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 13:31 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 13:47 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 13:33 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 13:30 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 13:47 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 13:46 - [BW2026游览指南](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 13:23 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 13:31 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 13:51 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 13:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 13:46 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 13:32 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 13:39 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 13:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 13:44 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 13:28 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 13:41 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 13:53 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 13:39 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 13:52 - [F1奥地利大奖赛正赛集锦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 13:53 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 13:30 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 13:33 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:39 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/3760481119.shtml)
-- 2026-06-29 13:35 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/1298849.shtml)
-- 2026-06-29 13:39 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/363437309.shtml)
-- 2026-06-29 13:25 - [中国避暑神器在欧洲卖爆了](http://www.share.minike.top/Article/details/183183.shtml)
-- 2026-06-29 13:30 - [比亚迪为什么卖得越多市值越低](https://www.blog.kurohicncr.top/Article/details/42598.shtml)
-- 2026-06-29 13:45 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/6192268.shtml)
-- 2026-06-29 13:26 - [异世界一点都不好玩！](https://www.share.kurohicncr.top/Article/details/18920698120.shtml)
-- 2026-06-29 13:40 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/801354791236.shtml)
-- 2026-06-29 13:44 - [BW2026游览指南](https://www.blog.kurohicncr.top/Article/details/7401605964.shtml)
-- 2026-06-29 13:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/958576795975.shtml)
-- 2026-06-29 13:19 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/03657228045.shtml)
-- 2026-06-29 13:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/545125533.shtml)
-- 2026-06-29 13:47 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/299001888897.shtml)
-- 2026-06-29 13:39 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/87557455992.shtml)
-- 2026-06-29 13:43 - [T1对战KC](http://www.share.kurohicncr.top/Article/details/9576993198.shtml)
+- 2026-06-29 13:35 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/501981312.shtml)
+- 2026-06-29 13:52 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/27967131890.shtml)
+- 2026-06-29 13:36 - [詹俊：巴西能凭借两大优势战胜日本](https://www.share.minike.top/Article/details/825279656.shtml)
+- 2026-06-29 13:47 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.minike.top/Article/details/91374309864.shtml)
+- 2026-06-29 13:42 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/498128498.shtml)
+- 2026-06-29 13:27 - [加拿大92分钟绝杀南非](https://www.blog.kurohicncr.top/Article/details/98659.shtml)
+- 2026-06-29 13:30 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/51677.shtml)
+- 2026-06-29 13:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/853466.shtml)
+- 2026-06-29 13:34 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/8559766892.shtml)
+- 2026-06-29 13:48 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/700267393057.shtml)
+- 2026-06-29 13:51 - [各路“神仙”扎堆洛阳乘地铁](http://www.blog.minike.top/Article/details/567691277.shtml)
+- 2026-06-29 13:40 - [航空运输旅客服务质量国标将实施](https://www.share.kurohicncr.top/Article/details/33188902.shtml)
+- 2026-06-29 13:31 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/0818470525.shtml)
+- 2026-06-29 13:47 - [俄军新型无人机战力如何](https://www.share.kurohicncr.top/Article/details/519806886.shtml)
+- 2026-06-29 13:44 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/53001.shtml)

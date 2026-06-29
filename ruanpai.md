@@ -1,51 +1,58 @@
-# 中国首次记录高魔芋开花 西双版纳植物园上演“巨花”奇观
+# 台湾方面再次无法参加世卫大会 国台办：这一局面完全是民进党当局造成的
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月22日 21:33 来源：中国新闻网 近日，中国科学院西双版纳热带植物园一株引种栽培的高魔芋迎来首次绽放，这是中国首次记录高魔芋开花。园内一株休氏魔芋同期进入盛花期，为公众带来难得一见的观赏机会。 高魔芋原产于印度尼西亚苏门答腊岛，花序总高度可达3.5米至4米，通常需5至10年积累养分才能开花。高魔芋盛花期仅2天，伴随类似腐肉或死鱼的气味。 (制作 王
+新华社北京5月11日电(记者李寒芳、马欣然)5月11日，国务院台办发言人陈斌华答记者问。 有记者问：第79届世界卫生大会的注册已于5月10日截止，台湾方面再次无法参加世卫大会。请问对此有何评论？ 陈斌华表示，这一局面完全是民进党当局造成的，是其在台湾地区参与今年世卫大会问题上进行政治操弄、是“以卫谋独”的失败，再次证明国际社会坚持一个中国原则的格局不可撼动。我们对中国台湾地区参
 
 ## 正文
 
-发布时间：2026年04月22日 21:33 来源：中国新闻网 近日，中国科学院西双版纳热带植物园一株引种栽培的高魔芋迎来首次绽放，这是中国首次记录高魔芋开花。
+新华社北京5月11日电(记者李寒芳、马欣然)5月11日，国务院台办发言人陈斌华答记者问。
 
-园内一株休氏魔芋同期进入盛花期，为公众带来难得一见的观赏机会。
+有记者问：第79届世界卫生大会的注册已于5月10日截止，台湾方面再次无法参加世卫大会。
 
-高魔芋原产于印度尼西亚苏门答腊岛，花序总高度可达3.5米至4米，通常需5至10年积累养分才能开花。
+请问对此有何评论？
 
-高魔芋盛花期仅2天，伴随类似腐肉或死鱼的气味。
+陈斌华表示，这一局面完全是民进党当局造成的，是其在台湾地区参与今年世卫大会问题上进行政治操弄、是“以卫谋独”的失败，再次证明国际社会坚持一个中国原则的格局不可撼动。
 
-(制作 王临梓 视频来源 中国科学院西双版纳热带植物园) 责任编辑：【于晓】
+我们对中国台湾地区参与世卫组织活动问题的立场是一贯的、明确的，即必须按照一个中国原则处理。
+
+此前，在两岸均坚持体现一个中国原则的“九二共识”基础上，通过两岸协商，台湾地区以“中华台北”名义、观察员身份参加世界卫生大会。
+
+这是在坚持体现一个中国原则的“九二共识”基础上，通过两岸协商作出的特殊安排。
+
+陈斌华指出，民进党当局顽固坚持“台独”分裂立场，拒不承认体现一个中国原则的“九二共识”，导致台湾地区参与世卫大会的政治基础不复存在，民进党当局的欺骗行为、挑衅行径必将遭到两岸同胞和国际社会的坚决反对，注定以失败告终。
 
 ## 相关推荐
 
-- 2026-06-29 13:22 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 13:47 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 13:21 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 13:37 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 13:42 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 13:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 13:27 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 13:26 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 13:22 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 13:35 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 13:27 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 13:36 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 13:39 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 13:27 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 13:24 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 13:39 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 13:42 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 13:53 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 13:28 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 13:30 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 13:25 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 13:44 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 13:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:45 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/73564.shtml)
-- 2026-06-29 13:36 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/83944.shtml)
-- 2026-06-29 13:31 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/186038785497.shtml)
-- 2026-06-29 13:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/38812608.shtml)
-- 2026-06-29 13:23 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/0853298292.shtml)
-- 2026-06-29 13:24 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/626435.shtml)
-- 2026-06-29 13:29 - [吴建豪老婆](https://www.blog.minike.top/Article/details/81625.shtml)
-- 2026-06-29 13:29 - [比亚迪市值为何蒸发8000亿](http://www.share.kurohicncr.top/Article/details/21698951355.shtml)
-- 2026-06-29 13:38 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/23651.shtml)
-- 2026-06-29 13:39 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/313869.shtml)
-- 2026-06-29 13:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/076578544.shtml)
-- 2026-06-29 13:42 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/5162910594.shtml)
-- 2026-06-29 13:29 - [双高胎](http://www.share.kurohicncr.top/Article/details/7585515245.shtml)
-- 2026-06-29 13:42 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/88405.shtml)
-- 2026-06-29 13:40 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/58255097853.shtml)
+- 2026-06-29 13:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/99564.shtml)
+- 2026-06-29 13:53 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/86909024.shtml)
+- 2026-06-29 13:35 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/522020.shtml)
+- 2026-06-29 13:34 - [我国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/63050.shtml)
+- 2026-06-29 13:38 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/61091139473.shtml)
+- 2026-06-29 13:26 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/602100527.shtml)
+- 2026-06-29 13:34 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/5186885.shtml)
+- 2026-06-29 13:36 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.kurohicncr.top/Article/details/507616365936.shtml)
+- 2026-06-29 13:35 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/48820232538.shtml)
+- 2026-06-29 13:26 - [我和我的家乡](http://www.share.minike.top/Article/details/874156.shtml)
+- 2026-06-29 13:32 - [极限挑战第一季](https://www.share.minike.top/Article/details/36432706.shtml)
+- 2026-06-29 13:52 - [市民骑哈啰单车79分钟被收费30元](https://www.share.kurohicncr.top/Article/details/949236572010.shtml)
+- 2026-06-29 13:33 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/02946911.shtml)
+- 2026-06-29 13:26 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.share.minike.top/Article/details/031532.shtml)
+- 2026-06-29 13:37 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/63715867.shtml)

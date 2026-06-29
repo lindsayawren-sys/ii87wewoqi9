@@ -1,46 +1,58 @@
-# 美联航因燃油价格飙升下调展望
+# 中国算力平台算力超市中小企业专区上线 提供普惠算力服务
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-由于燃油价格上涨，美国联合航空公司（UAL）将2026年每股收益预期从此前的12-14美元下调至7-11美元，尽管第一季度调整后每股收益1.19美元和营收146.1亿美元均超出预期。责任编辑：张俊 SF065
+中国算力平台算力超市中小企业专区上线 提供普惠算力服务 《人民日报》（2026年05月10日 第 02 版） 本报石家庄5月9日电 （记者邵玉姿）中国算力平台算力超市·中小企业专区9日上线，推行按“卡时”、“核时”及词元计费等多元化付费模式，支持中小企业通过跨区域、跨周期调度实现算力资源灵活取用。 专区围绕算力供需对接、行业场景赋能、政策补贴落地3个方向构建功能板块，为中小企业
 
 ## 正文
 
-由于燃油价格上涨，美国联合航空公司（UAL）将2026年每股收益预期从此前的12-14美元下调至7-11美元，尽管第一季度调整后每股收益1.19美元和营收146.1亿美元均超出预期。
+中国算力平台算力超市中小企业专区上线 提供普惠算力服务 《人民日报》（2026年05月10日 第 02 版） 本报石家庄5月9日电 （记者邵玉姿）中国算力平台算力超市·中小企业专区9日上线，推行按“卡时”、“核时”及词元计费等多元化付费模式，支持中小企业通过跨区域、跨周期调度实现算力资源灵活取用。
 
-责任编辑：张俊 SF065
+专区围绕算力供需对接、行业场景赋能、政策补贴落地3个方向构建功能板块，为中小企业提供普惠算力服务。
+
+其中，供需匹配板块，专区汇聚多元算力资源、先进模型能力与专业服务力量，通过“模创空间”“算力底座”等路径，实现算力资源一站式采购、模型开箱即用、训推环境快速部署。
+
+同时，专区建立大中小企业“1+N”结对帮扶机制，推动大型企业将闲置算力与专业技术经验精准赋能中小企业，形成以大带小、协同发展的良性生态。
+
+当日，2026普惠算力赋能中小企业发展大会在河北雄安新区举办。
+
+本次大会以“算力惠企 智启中小”为主题，由中国通信标准化协会主办、中国信息通信研究院承办。
+
+来自产业链上下游的企业代表围绕高性能存储、存算协同、算网融合、大模型算力等前沿议题展开交流，探索普惠算力赋能中小企业发展的创新路径与实践方案。
+
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 13:34 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 13:22 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 13:42 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 13:24 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 13:25 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 13:18 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 13:37 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 13:29 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 13:47 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 13:44 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 13:24 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 13:26 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 13:33 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 13:48 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 13:28 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 13:46 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 13:45 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 13:44 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 13:53 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 13:41 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 13:36 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 13:33 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 13:37 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 13:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:44 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.share.minike.top/Article/details/2323601.shtml)
-- 2026-06-29 13:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/349088.shtml)
-- 2026-06-29 13:43 - [我和我的家乡](https://www.blog.minike.top/Article/details/682936.shtml)
-- 2026-06-29 13:21 - [韩媒破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/298145247.shtml)
-- 2026-06-29 13:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/55087.shtml)
-- 2026-06-29 13:36 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/45156181.shtml)
-- 2026-06-29 13:45 - [网友偶遇胡军和李乃文](http://www.share.minike.top/Article/details/58315640.shtml)
-- 2026-06-29 13:47 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/51904263083.shtml)
-- 2026-06-29 13:23 - [辽宁葫芦岛一居民楼突发爆炸](http://www.blog.minike.top/Article/details/35610.shtml)
-- 2026-06-29 13:40 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/0963295575.shtml)
-- 2026-06-29 13:36 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.minike.top/Article/details/76085982.shtml)
-- 2026-06-29 13:43 - [委内瑞拉地震死亡人数升至1450人](http://www.blog.minike.top/Article/details/40127729863.shtml)
-- 2026-06-29 13:44 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/55787742.shtml)
-- 2026-06-29 13:33 - [逃狱兄弟](http://www.blog.minike.top/Article/details/0851450.shtml)
-- 2026-06-29 13:29 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/1863177.shtml)
+- 2026-06-29 13:52 - [6月我国降水为何偏多](https://www.blog.kurohicncr.top/Article/details/162166001.shtml)
+- 2026-06-29 13:28 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/29893641358.shtml)
+- 2026-06-29 13:37 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/58916.shtml)
+- 2026-06-29 13:25 - [民进党为什么拼命抹黑统战](https://www.blog.kurohicncr.top/Article/details/64044.shtml)
+- 2026-06-29 13:42 - [扫黑风暴](https://www.blog.minike.top/Article/details/9330475186.shtml)
+- 2026-06-29 13:38 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/403351403247.shtml)
+- 2026-06-29 13:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/490894420520.shtml)
+- 2026-06-29 13:42 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/66869878.shtml)
+- 2026-06-29 13:24 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/80803.shtml)
+- 2026-06-29 13:37 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/556659784820.shtml)
+- 2026-06-29 13:44 - [papi酱回应毕业4年零收入](http://www.share.minike.top/Article/details/354813.shtml)
+- 2026-06-29 13:53 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/95585.shtml)
+- 2026-06-29 13:46 - [航空运输旅客服务质量国标将实施](http://www.share.kurohicncr.top/Article/details/8801895843.shtml)
+- 2026-06-29 13:45 - [王楚钦美国大满贯晋级32强](https://www.blog.kurohicncr.top/Article/details/905754981.shtml)
+- 2026-06-29 13:53 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.minike.top/Article/details/9476750.shtml)

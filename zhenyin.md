@@ -1,59 +1,61 @@
-# 多家公司警告伊朗战争推高成本，企业前景蒙阴
+# 郑州银行再一次不分红
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-从消费品到航空业，多家公司在周三警告称，美以与伊朗的战争正推高成本、扰乱供应链并打击消费者信心，令财务前景变得暗淡。迄今的财报季中，企业高管们纷纷指出运输和原材料成本不断攀升，尤其是与霍尔木兹海峡中断相关的成本，并称市场能见度急剧下降。 多行业成本全面攀升 阿克苏诺贝尔首席执行官透露，由于霍尔木兹海峡中断，公司的原材料成本将上涨约15%至20%，全面影响将在未来两个季度显现。该
+来源：看懂经济 银行分红，看起来是利润分配，背后其实是一家银行在经营压力、资本补充和股东回报之间做出的选择。 最近两个区域银行的案例，放在一起看，很有对照意义。 前不久，甘肃银行2025年分红方案引发关注：全年归母净利润不足6亿元，却拟派发现金股息约17.78亿元，分红金额约为当年归母净利润的3倍多。 另一边，郑州银行给出了完全不同的答案。 根据郑州银行2025年年报，该行不进
 
 ## 正文
 
-从消费品到航空业，多家公司在周三警告称，美以与伊朗的战争正推高成本、扰乱供应链并打击消费者信心，令财务前景变得暗淡。
+来源：看懂经济 银行分红，看起来是利润分配，背后其实是一家银行在经营压力、资本补充和股东回报之间做出的选择。
 
-迄今的财报季中，企业高管们纷纷指出运输和原材料成本不断攀升，尤其是与霍尔木兹海峡中断相关的成本，并称市场能见度急剧下降。
+最近两个区域银行的案例，放在一起看，很有对照意义。
 
-多行业成本全面攀升 阿克苏诺贝尔首席执行官透露，由于霍尔木兹海峡中断，公司的原材料成本将上涨约15%至20%，全面影响将在未来两个季度显现。
+前不久，甘肃银行2025年分红方案引发关注：全年归母净利润不足6亿元，却拟派发现金股息约17.78亿元，分红金额约为当年归母净利润的3倍多。
 
-该公司的产品从装饰涂料到用于货船和F1赛车的特种涂料，覆盖面广，使其比同行更有能力转嫁价格上涨。
+另一边，郑州银行给出了完全不同的答案。
 
-法国食品集团达能周三强调，压力正通过供应链传导，其第一季度销售额增长超出预期，但较去年末明显放缓，公司将原因归咎于战争相关中断以及欧洲的婴儿配方奶粉召回事件。
+根据郑州银行2025年年报，该行不进行现金分红，不送红股，不进行资本公积转增股份。
 
-通过中东转运的欧洲进口婴儿配方奶粉 shipments 受到了影响。
+这也意味着，在2024年恢复一笔象征性分红之后，郑州银行的现金分红再次停摆。
 
-消费品巨头利洁时核心业务未达营收预期，并警告上半年利润率将下降，原因是油价高企以及感冒和流感产品需求减弱，其股价跌至2024年10月以来最低。
+两家银行的案例放在一起看，很有意思。
 
-旅游业与航空业首当其冲 旅游业是受冲击最严重的行业之一。
+甘肃银行和郑州银行都不是处在高增长、高盈利的舒适区。
 
 ## 相关推荐
 
-- 2026-06-29 13:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 13:25 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 13:47 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 13:38 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 13:46 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 13:39 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 13:38 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 13:41 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 13:44 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 13:39 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 13:42 - [委内瑞拉地震已致1450死3150伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 13:27 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 13:42 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-29 13:35 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 13:41 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 13:26 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 13:43 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 13:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 13:39 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 13:32 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 13:38 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 13:24 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 13:48 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 13:28 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 13:27 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 13:49 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 13:33 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 13:34 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:37 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/596492242.shtml)
-- 2026-06-29 13:25 - [俄称继续推进 乌称打击俄军设施](http://www.blog.kurohicncr.top/Article/details/16272004.shtml)
-- 2026-06-29 13:23 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.kurohicncr.top/Article/details/788565673.shtml)
-- 2026-06-29 13:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/48935338.shtml)
-- 2026-06-29 13:44 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/9241463225.shtml)
-- 2026-06-29 13:29 - [普京称考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/280205578179.shtml)
-- 2026-06-29 13:27 - [俄军新型无人机战力如何](https://www.share.kurohicncr.top/Article/details/56052.shtml)
-- 2026-06-29 13:20 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.minike.top/Article/details/0523859.shtml)
-- 2026-06-29 13:24 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/41218.shtml)
-- 2026-06-29 13:28 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.minike.top/Article/details/38937299434.shtml)
-- 2026-06-29 13:34 - [5万块的威力](http://www.share.minike.top/Article/details/1578206.shtml)
-- 2026-06-29 13:42 - [德国队前往比赛场地遭遇囧途](http://www.blog.minike.top/Article/details/73742654.shtml)
-- 2026-06-29 13:25 - [多家银行收紧个人贵金属业务](http://www.share.kurohicncr.top/Article/details/4756939693.shtml)
-- 2026-06-29 13:47 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/04460.shtml)
-- 2026-06-29 13:20 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/650739.shtml)
+- 2026-06-29 13:33 - [韩体育部长回应李在明痛批](http://www.share.minike.top/Article/details/23382729.shtml)
+- 2026-06-29 13:41 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/9400967.shtml)
+- 2026-06-29 13:35 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/33722210370.shtml)
+- 2026-06-29 13:44 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/772967679.shtml)
+- 2026-06-29 13:28 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/399464.shtml)
+- 2026-06-29 13:52 - [詹俊预测德国大胜巴拉圭](https://www.blog.minike.top/Article/details/93342.shtml)
+- 2026-06-29 13:46 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/7512874802.shtml)
+- 2026-06-29 13:31 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/87166936521.shtml)
+- 2026-06-29 13:26 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/6968147.shtml)
+- 2026-06-29 13:46 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/896159.shtml)
+- 2026-06-29 13:50 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/697470780.shtml)
+- 2026-06-29 13:31 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.minike.top/Article/details/65684.shtml)
+- 2026-06-29 13:29 - [本周做什么都顺的星座](http://www.blog.minike.top/Article/details/815189.shtml)
+- 2026-06-29 13:49 - [美媒：空警-3000服役即成全球最强](http://www.blog.minike.top/Article/details/014565375.shtml)
+- 2026-06-29 13:46 - [内马尔能上场15分钟](https://www.blog.minike.top/Article/details/947457406095.shtml)

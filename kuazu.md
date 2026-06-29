@@ -1,58 +1,54 @@
-# 美国参议院军事委员会主席呼吁重启对伊朗打击行动
+# 澳元/美元下跌，此前特朗普拒绝伊朗对和谈提议的回应
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-美国参议院军事委员会主席今日要求终止与伊朗的谈判，并恢复军事打击。密西西比州共和党参议员罗杰・威克在社交平台 X 发文称：“与伊朗谈判的时代已经结束。” 威克表示：“哈梅内伊的继任者不会信守任何承诺与协议。我方三军统帅应指令资深军方将领，彻底摧毁伊朗常规军事力量，铲除其核计划全部残余设施。” 他称：“这是保障该地区长久稳定的唯一途径。”特朗普当日表示，伊朗正准备提交谈判方案。由
+周一早盘澳元兑美元下跌0.4%，因美伊和平前景急剧恶化。特朗普称伊朗对和谈提议的回应“完全无法接受”；伊朗表示无所谓。美国4月非农就业数据好于预期，增加11.5万个。澳元脱离波林格区间下轨，但下行压力犹存。澳洲第一季度薪资价格指数将于周三公布，将为顽固的服务业通胀提供指引。责任编辑：王永生
 
 ## 正文
 
-美国参议院军事委员会主席今日要求终止与伊朗的谈判，并恢复军事打击。
+周一早盘澳元兑美元下跌0.4%，因美伊和平前景急剧恶化。
 
-密西西比州共和党参议员罗杰・威克在社交平台 X 发文称：“与伊朗谈判的时代已经结束。
+特朗普称伊朗对和谈提议的回应“完全无法接受”；伊朗表示无所谓。
 
-” 威克表示：“哈梅内伊的继任者不会信守任何承诺与协议。
+美国4月非农就业数据好于预期，增加11.5万个。
 
-我方三军统帅应指令资深军方将领，彻底摧毁伊朗常规军事力量，铲除其核计划全部残余设施。
+澳元脱离波林格区间下轨，但下行压力犹存。
 
-” 他称：“这是保障该地区长久稳定的唯一途径。
+澳洲第一季度薪资价格指数将于周三公布，将为顽固的服务业通胀提供指引。
 
-”特朗普当日表示，伊朗正准备提交谈判方案。
-
-由威特科夫与库什纳率领的美国代表团，预计明日抵达巴基斯坦伊斯兰堡。
-
-责任编辑：刘明亮
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 13:27 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 13:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 13:40 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 13:40 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 13:32 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 13:44 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 13:28 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 13:47 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 13:21 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 13:47 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 13:38 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 13:35 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 13:47 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 13:35 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 13:41 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 13:32 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 13:47 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 13:40 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 13:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 13:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 13:35 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 13:27 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 13:34 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 13:25 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:25 - [千与千寻](https://www.share.minike.top/Article/details/46967120644.shtml)
-- 2026-06-29 13:40 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/849521233933.shtml)
-- 2026-06-29 13:18 - [王楚钦美国大满贯晋级32强](http://www.share.kurohicncr.top/Article/details/245692881452.shtml)
-- 2026-06-29 13:43 - [水利部部署南方地区暴雨洪水防御工作](http://www.share.kurohicncr.top/Article/details/8588101.shtml)
-- 2026-06-29 13:25 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/9806705.shtml)
-- 2026-06-29 13:23 - [李连杰回应网传不管前妻俩女儿](https://www.share.minike.top/Article/details/87287052384.shtml)
-- 2026-06-29 13:47 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/1460559.shtml)
-- 2026-06-29 13:22 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/945155.shtml)
-- 2026-06-29 13:19 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/282177123278.shtml)
-- 2026-06-29 13:29 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/007802732458.shtml)
-- 2026-06-29 13:28 - [森保一：日本队要亲手改写历史](https://www.share.minike.top/Article/details/66048.shtml)
-- 2026-06-29 13:28 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/08022353.shtml)
-- 2026-06-29 13:37 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/3564483891.shtml)
-- 2026-06-29 13:36 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/318179508288.shtml)
-- 2026-06-29 13:18 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/9248935527.shtml)
+- 2026-06-29 13:26 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/358950658589.shtml)
+- 2026-06-29 13:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/436250151.shtml)
+- 2026-06-29 13:33 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/9175464681.shtml)
+- 2026-06-29 13:48 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/8653555913.shtml)
+- 2026-06-29 13:31 - [手游300亿数据或被军事化运用](https://www.share.kurohicncr.top/Article/details/039591267841.shtml)
+- 2026-06-29 13:44 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.share.minike.top/Article/details/162479.shtml)
+- 2026-06-29 13:36 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.minike.top/Article/details/4301011.shtml)
+- 2026-06-29 13:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/21709.shtml)
+- 2026-06-29 13:36 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/027108.shtml)
+- 2026-06-29 13:51 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/547783645.shtml)
+- 2026-06-29 13:43 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/07075266949.shtml)
+- 2026-06-29 13:47 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/737121742.shtml)
+- 2026-06-29 13:38 - [5万块的威力](https://www.blog.minike.top/Article/details/58236596.shtml)
+- 2026-06-29 13:50 - [3D打印不是工业革命，它是……](http://www.share.kurohicncr.top/Article/details/309072.shtml)
+- 2026-06-29 13:47 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/19373722.shtml)

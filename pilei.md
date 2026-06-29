@@ -1,61 +1,47 @@
-# 中东冲突冲击海上钻井市场
+# 越秀地产前4个月累计合同销售金额约257.11亿元
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-伊朗与美国、以色列及海湾地区盟国之间的冲突已对油气行业上下游产生了立竿见影的影响。无人机和导弹袭击已造成炼油厂受损，截至2026年4月中旬，霍尔木兹海峡的封锁已严重限制了全球市场的石油流通。 战争还影响了该地区的钻井作业。全球495座自升式钻井平台中有177座位于中东，沙特阿美、阿联酋及其他国家石油公司的钻井活动使其成为这类钻井平台的最大市场。 自升式平台暂停作业压制近期活动
+越秀地产（00123）发布公告，2026年4月，本公司实现合同销售（连同合营企业及联营公司项目的合同销售）金额约为人民币85.04亿元，同比下降约17.4%，实现合同销售面积约为26.13万平方米，同比上升约 14.0%。 2026年1月至4月，本公司累计合同销售（连同合营企业及联营公司项目的合同销售）（累计合同销售）金额约为人民币257.11亿元，同比下降约37.5%，累计合
 
 ## 正文
 
-伊朗与美国、以色列及海湾地区盟国之间的冲突已对油气行业上下游产生了立竿见影的影响。
+越秀地产（00123）发布公告，2026年4月，本公司实现合同销售（连同合营企业及联营公司项目的合同销售）金额约为人民币85.04亿元，同比下降约17.4%，实现合同销售面积约为26.13万平方米，同比上升约 14.0%。
 
-无人机和导弹袭击已造成炼油厂受损，截至2026年4月中旬，霍尔木兹海峡的封锁已严重限制了全球市场的石油流通。
+2026年1月至4月，本公司累计合同销售（连同合营企业及联营公司项目的合同销售）（累计合同销售）金额约为人民币257.11亿元，同比下降约37.5%，累计合同销售面积约为 88.43万平方米，同比下降约4.3%。
 
-战争还影响了该地区的钻井作业。
-
-全球495座自升式钻井平台中有177座位于中东，沙特阿美、阿联酋及其他国家石油公司的钻井活动使其成为这类钻井平台的最大市场。
-
-自升式平台暂停作业压制近期活动 自2月底伊朗遭导弹袭击以及伊朗开始对阿联酋、卡塔尔和沙特发动报复性打击后，出于安全考虑，部分自升式平台已减少人员配置，一些钻井活动暂停，尤其是在卡塔尔。
-
-截至4月中旬，相当数量的钻井平台已恢复作业。
-
-然而，作为自升式平台合同规模最大的运营商，沙特阿美已发出临时暂停通知，影响了ADES、Arabian Drilling及其他承包商管理的自升式平台。
-
-市场消息人士估计，约20座自升式平台可能受到影响。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:24 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 13:20 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 13:20 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 13:28 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 13:39 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 13:20 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 13:25 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 13:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 13:25 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 13:31 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 13:27 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 13:36 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 13:39 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 13:32 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 13:35 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 13:25 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 13:28 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 13:30 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 13:26 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 13:37 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 13:24 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 13:41 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 13:25 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 13:28 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 13:49 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 13:50 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:43 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.kurohicncr.top/Article/details/8793603927.shtml)
-- 2026-06-29 13:29 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/243079.shtml)
-- 2026-06-29 13:27 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/2382278943.shtml)
-- 2026-06-29 13:32 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/801686.shtml)
-- 2026-06-29 13:41 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/255721120763.shtml)
-- 2026-06-29 13:34 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.share.kurohicncr.top/Article/details/07865377853.shtml)
-- 2026-06-29 13:23 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/0831313.shtml)
-- 2026-06-29 13:30 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.kurohicncr.top/Article/details/675195410.shtml)
-- 2026-06-29 13:45 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/037980211.shtml)
-- 2026-06-29 13:45 - [民进党为什么拼命抹黑统战](http://www.share.minike.top/Article/details/80020415.shtml)
-- 2026-06-29 13:47 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/5908172431.shtml)
-- 2026-06-29 13:27 - [王楚钦美国大满贯晋级32强](https://www.share.minike.top/Article/details/48002973.shtml)
-- 2026-06-29 13:33 - [欧洲超1300例超额死亡与高温有关](http://www.share.minike.top/Article/details/015924335139.shtml)
-- 2026-06-29 13:34 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/51680578293.shtml)
-- 2026-06-29 13:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/92089.shtml)
+- 2026-06-29 13:29 - [四川宜宾地震](https://www.share.minike.top/Article/details/927991.shtml)
+- 2026-06-29 13:46 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/84104734053.shtml)
+- 2026-06-29 13:32 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.minike.top/Article/details/61278747941.shtml)
+- 2026-06-29 13:48 - [克洛普：加拿大主帅还能继续创造历史](http://www.blog.kurohicncr.top/Article/details/44404668.shtml)
+- 2026-06-29 13:24 - [急先锋](http://www.share.kurohicncr.top/Article/details/5841428.shtml)
+- 2026-06-29 13:31 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.kurohicncr.top/Article/details/009892.shtml)
+- 2026-06-29 13:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/290806225598.shtml)
+- 2026-06-29 13:36 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.blog.minike.top/Article/details/6849387.shtml)
+- 2026-06-29 13:45 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/552223.shtml)
+- 2026-06-29 13:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/9040296007.shtml)
+- 2026-06-29 13:30 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/4972758.shtml)
+- 2026-06-29 13:53 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/98590.shtml)
+- 2026-06-29 13:49 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/21564.shtml)
+- 2026-06-29 13:51 - [韩媒破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/8561166.shtml)
+- 2026-06-29 13:53 - [加拿大92分钟绝杀](https://www.share.kurohicncr.top/Article/details/84380956139.shtml)

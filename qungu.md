@@ -1,59 +1,53 @@
-# 个贷不良五年增至五倍！广州农商行甩卖超15亿元不良个贷，要求“不暴力催收”
+# 多地出现商场大屏投放、粉丝聚集应援等方式为国家队运动员庆生，体育总局发声
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-来源：华夏时报 记者李明会 北京报道 首次挂牌转让未果，4月21日，广州农商行在银登中心重新挂牌两期个人贷款（个人经营性贷款）转让项目。今年以来，该行已挂牌六期个人不良贷款转让项目，合计转让笔数高达2.5万笔，累计未偿本息超过15亿元。 《华夏时报》记者注意到，2023年至2025年，广州农商行已连续三年每年均落地一笔百亿元规模的不良资产转让项目。相较此前大规模不良资产处置重点
+转自：长安街知事 据央视新闻消息，国家体育总局有关部门负责人近日表示，近期，我们关注到全国多地出现通过商场大屏照片投放、线下粉丝聚集应援等方式为国家队运动员庆生相关活动。 此类活动不仅占用大量公共资源，而且容易对运动员备战参赛产生干扰。同时，活动组织方、商场等有关方面未经授权使用运动员肖像也涉嫌侵犯运动员合法权益。 希望大家关注运动员的赛场表现，为他们加油鼓劲。也请大家保持理性
 
 ## 正文
 
-来源：华夏时报 记者李明会 北京报道 首次挂牌转让未果，4月21日，广州农商行在银登中心重新挂牌两期个人贷款（个人经营性贷款）转让项目。
+转自：长安街知事 据央视新闻消息，国家体育总局有关部门负责人近日表示，近期，我们关注到全国多地出现通过商场大屏照片投放、线下粉丝聚集应援等方式为国家队运动员庆生相关活动。
 
-今年以来，该行已挂牌六期个人不良贷款转让项目，合计转让笔数高达2.5万笔，累计未偿本息超过15亿元。
+此类活动不仅占用大量公共资源，而且容易对运动员备战参赛产生干扰。
 
-《华夏时报》记者注意到，2023年至2025年，广州农商行已连续三年每年均落地一笔百亿元规模的不良资产转让项目。
+同时，活动组织方、商场等有关方面未经授权使用运动员肖像也涉嫌侵犯运动员合法权益。
 
-相较此前大规模不良资产处置重点出清房地产、批发零售等对公领域的信贷风险，今年这轮转让的不良资产主要以信用卡透支、个人经营性贷款为主。
+希望大家关注运动员的赛场表现，为他们加油鼓劲。
 
-这背后也折射出广州农商行个贷不良规模持续攀升的现状。
+也请大家保持理性，遵守相关法律法规，不组织、不参与运动员庆生等活动。
 
-财报数据显示，2020年至2025年五年间，该行个贷不良规模扩大到原来的五倍，从15.33亿元激增至80.21亿元。
-
-围绕该行个贷不良攀升成因、后续风险压降及资产处置安排，4月22日，《华夏时报》记者通过该行公开披露的联系电话与官方邮箱进行采访问询，截至发稿，未收到相关回复。
-
-加快不良资产处置 4月21日，广州农商行2026年第1、2期个人不良贷款（个人经营性贷款）在银登中心重新上架。
+责任编辑：张恒星
 
 ## 相关推荐
 
-- 2026-06-29 13:19 - [BW2026游览指南](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 13:38 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 13:41 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 13:25 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 13:33 - [伊朗球员致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 13:26 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 13:26 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 13:22 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 13:19 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 13:31 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 13:26 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 13:47 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 13:39 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 13:34 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 13:28 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 13:50 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 13:26 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 13:27 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 13:43 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 13:48 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 13:34 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 13:43 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 13:26 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 13:31 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:36 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/0190504309.shtml)
-- 2026-06-29 13:47 - [王楚钦周启豪爆分](https://www.blog.minike.top/Article/details/25601029039.shtml)
-- 2026-06-29 13:27 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/91784.shtml)
-- 2026-06-29 13:22 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/8956504698.shtml)
-- 2026-06-29 13:26 - [三都主：淘汰赛我会支持日本](http://www.share.kurohicncr.top/Article/details/417171173.shtml)
-- 2026-06-29 13:42 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/1223531512.shtml)
-- 2026-06-29 13:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/264077375.shtml)
-- 2026-06-29 13:33 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/18149.shtml)
-- 2026-06-29 13:18 - [各路“神仙”扎堆洛阳乘地铁](http://www.share.minike.top/Article/details/321848717377.shtml)
-- 2026-06-29 13:25 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/389875753.shtml)
-- 2026-06-29 13:28 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/206304.shtml)
-- 2026-06-29 13:23 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/759686.shtml)
-- 2026-06-29 13:44 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/3640067.shtml)
-- 2026-06-29 13:25 - [金刚川](http://www.blog.minike.top/Article/details/093883106.shtml)
-- 2026-06-29 13:38 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/90010.shtml)
+- 2026-06-29 13:32 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/232856623048.shtml)
+- 2026-06-29 13:30 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/10106350978.shtml)
+- 2026-06-29 13:43 - [向佑说向佐是一生依靠](http://www.share.kurohicncr.top/Article/details/5068037853.shtml)
+- 2026-06-29 13:42 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.minike.top/Article/details/8852353981.shtml)
+- 2026-06-29 13:41 - [农发行总行专家委员会委员杜晓力被查](http://www.blog.minike.top/Article/details/052661085608.shtml)
+- 2026-06-29 13:26 - [美媒：空警-3000服役即成全球最强](https://www.share.kurohicncr.top/Article/details/6318466.shtml)
+- 2026-06-29 13:31 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/306278.shtml)
+- 2026-06-29 13:30 - [王楚钦3-0周启豪 晋级32强](http://www.share.kurohicncr.top/Article/details/80819049860.shtml)
+- 2026-06-29 13:28 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/58816.shtml)
+- 2026-06-29 13:28 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/44052300800.shtml)
+- 2026-06-29 13:48 - [T1对战KC](http://www.blog.kurohicncr.top/Article/details/69029839836.shtml)
+- 2026-06-29 13:34 - [巴基斯坦军方打死29名武装分子](http://www.blog.kurohicncr.top/Article/details/523106874545.shtml)
+- 2026-06-29 13:27 - [世界杯用球成部分门将噩梦](https://www.blog.kurohicncr.top/Article/details/8182969904.shtml)
+- 2026-06-29 13:51 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/72352959052.shtml)
+- 2026-06-29 13:40 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/36896180395.shtml)

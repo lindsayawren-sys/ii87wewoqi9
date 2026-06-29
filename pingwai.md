@@ -1,57 +1,60 @@
-# 苏黎世保险获股东批准，109亿美元收购Beazley
+# 中国4月原油进口量降至三年低位，大豆进口量同比大涨近40%，铝出口量创17个月高位
 
-> 更新时间：2026-06-29 13:48:02 UTC+8
+> 更新时间：2026-06-29 13:54:02 UTC+8
 
 ## 摘要
 
-2026年4月22日，苏黎世保险集团（Zurich Insurance Group）宣布，其股东已在特别股东大会上正式批准了以全现金方式收购英国专业保险公司Beazley的交易。这一关键步骤为该笔估值约109亿美元的保险行业重大并购案扫清了内部障碍。 根据协议条款，Beazley股东将获得每股1，335便士的现金对价（包括1，310便士的收购价和25便士的特别股息）。为筹集这笔
+来源：华尔街见闻 受霍尔木兹海峡货运近乎中断影响，中国4月原油进口量同比下降约20%至3847万吨；天然气进口量同比降约13%；成品油出口量跌约38%至近十年最低。与此形成对比，大豆进口量同比大涨近40%至848万吨，受美国及巴西季节性供应双重提振。 霍尔木兹海峡货运近乎中断，中国4月原油和天然气进口双双大幅下滑。美国大豆和巴西的季节性供应，4月大豆进口大幅上涨。铝等部分金属进
 
 ## 正文
 
-2026年4月22日，苏黎世保险集团（Zurich Insurance Group）宣布，其股东已在特别股东大会上正式批准了以全现金方式收购英国专业保险公司Beazley的交易。
+来源：华尔街见闻 受霍尔木兹海峡货运近乎中断影响，中国4月原油进口量同比下降约20%至3847万吨；天然气进口量同比降约13%；成品油出口量跌约38%至近十年最低。
 
-这一关键步骤为该笔估值约109亿美元的保险行业重大并购案扫清了内部障碍。
+与此形成对比，大豆进口量同比大涨近40%至848万吨，受美国及巴西季节性供应双重提振。
 
-根据协议条款，Beazley股东将获得每股1，335便士的现金对价（包括1，310便士的收购价和25便士的特别股息）。
+霍尔木兹海峡货运近乎中断，中国4月原油和天然气进口双双大幅下滑。
 
-为筹集这笔巨额资金，苏黎世保险已启动了一项综合融资计划，包括动用约30亿美元现有现金、新增约29亿美元债务融资，以及通过加速簿记配售方式募集约50亿美元股本。
+美国大豆和巴西的季节性供应，4月大豆进口大幅上涨。
 
-此次合并旨在整合两家高度互补的专业保险业务，打造一个总部位于英国的全球专业保险领军企业。
+铝等部分金属进口亦逆势走强。
 
-合并后的新实体，其特种险业务总保费收入预计将达到约150亿美元。
+5月9日，海关总署公布的数据显示，4月原油进口量同比下降约20%至3847万吨，为2022年7月以来最低水平；天然气进口量同比下降约13%至842万吨。
 
-苏黎世保险预计，该交易将在2026年下半年完成，尚待相关监管机构及反垄断部门的最终批准。
+霍尔木兹海峡货运近乎中断，是此轮能源进口骤降的直接导火索，冲击由上游原油供应延伸至下游炼化产品出口——4月成品油出口量同比暴跌约38%至312万吨，为近十年最低。
 
-苏黎世保险方面表示，此次收购将显著增强其在专业保险领域的承保能力和市场地位，并充分利用Beazley在劳合社（Lloyd‘s）市场的独特优势。
+与能源进口的全面萎缩形成对比，4月大豆进口量同比大涨近40%至848万吨，美国货物与巴西季节性供应共同提振了这一数字。
 
 ## 相关推荐
 
-- 2026-06-29 13:39 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 13:31 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 13:47 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 13:20 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 13:31 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 13:26 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 13:27 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 13:23 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 13:31 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 13:42 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 13:46 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 13:48 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 13:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 13:28 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 13:48 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 13:32 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 13:44 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 13:25 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 13:33 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 13:24 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 13:25 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 13:37 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 13:34 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 13:26 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 13:40 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:30 - [普京称俄处于命运攸关之际](https://www.share.minike.top/Article/details/644918638967.shtml)
-- 2026-06-29 13:43 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/741502.shtml)
-- 2026-06-29 13:23 - [佛得角到底在哪个“角”](https://www.share.kurohicncr.top/Article/details/8258817.shtml)
-- 2026-06-29 13:31 - [事关个税 明日截止请抓紧办理](http://www.blog.kurohicncr.top/Article/details/0923816.shtml)
-- 2026-06-29 13:39 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/6274832805.shtml)
-- 2026-06-29 13:22 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/8292520.shtml)
-- 2026-06-29 13:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/28621.shtml)
-- 2026-06-29 13:43 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/8977002274.shtml)
-- 2026-06-29 13:21 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/64579.shtml)
-- 2026-06-29 13:41 - [游戏数据竟被用于军事目的](http://www.blog.minike.top/Article/details/033173230316.shtml)
-- 2026-06-29 13:45 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/87858340628.shtml)
-- 2026-06-29 13:24 - [光与夜之恋](http://www.blog.kurohicncr.top/Article/details/37884594431.shtml)
-- 2026-06-29 13:18 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/283667471383.shtml)
-- 2026-06-29 13:21 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/659710313409.shtml)
-- 2026-06-29 13:29 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.minike.top/Article/details/301651000.shtml)
+- 2026-06-29 13:38 - [下飞机后，我做了个很蠢的决定......](http://www.share.kurohicncr.top/Article/details/89473134894.shtml)
+- 2026-06-29 13:34 - [德国队前往比赛场地遭遇囧途](https://www.share.minike.top/Article/details/302837.shtml)
+- 2026-06-29 13:52 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/47075.shtml)
+- 2026-06-29 13:30 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.blog.kurohicncr.top/Article/details/797719.shtml)
+- 2026-06-29 13:33 - [亚洲成世界杯最大失意者联盟](https://www.share.minike.top/Article/details/0923914021.shtml)
+- 2026-06-29 13:44 - [吴海燕兰西雅漫步复兴岛](https://www.blog.kurohicncr.top/Article/details/55685777915.shtml)
+- 2026-06-29 13:25 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/90301.shtml)
+- 2026-06-29 13:42 - [韩国拟将部分刑责年龄降至13岁](http://www.blog.minike.top/Article/details/244738286881.shtml)
+- 2026-06-29 13:26 - [急先锋](https://www.blog.kurohicncr.top/Article/details/971893330.shtml)
+- 2026-06-29 13:32 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/933747820.shtml)
+- 2026-06-29 13:32 - [我和我的家乡](https://www.share.minike.top/Article/details/353512121186.shtml)
+- 2026-06-29 13:49 - [克洛普：加拿大主帅还能继续创造历史](http://www.blog.minike.top/Article/details/385978972.shtml)
+- 2026-06-29 13:27 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/58673148461.shtml)
+- 2026-06-29 13:24 - [A股限售股解禁一览](http://www.share.minike.top/Article/details/68254637.shtml)
+- 2026-06-29 13:45 - [东部机场集团新增釜山航线](https://www.blog.minike.top/Article/details/87746316200.shtml)
