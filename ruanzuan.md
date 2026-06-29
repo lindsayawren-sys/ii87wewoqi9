@@ -1,59 +1,56 @@
-# 储能电芯扩产潮汹涌，业内：存在阶段性结构缺口，警惕低水平重复建设
+# 3分钟，垂直涨停！封单超6万手
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-全球新型储能需求高增，带动储能电芯订单持续饱满、电芯供需趋于偏紧。在近乎满负荷生产的高涨势头下，头部电池企业及二线厂商纷纷加大投资力度，行业从前期谨慎观望转向主动加码扩产。 本轮储能电芯扩产并非单纯规模扩张，背后显现出技术升级的趋势：587Ah、684Ah等大容量电芯相继推出，同时长时化也是重要转型方向。值得注意的是，需求爆发、部分企业产能利用率拉满的同时，行业内低价竞争、低端
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今天，A股市场震荡调整，三大指数集体下挫。个股跌多涨少，1344只个股上涨，4121只个股下跌。市场全天成交额为27791亿元，较上一交易日减少3740亿元。 算力硬件股逆势走强，临近尾盘，乳业股局部表现活跃。电子化学品、超级电容、光刻机、存储芯片等板块涨幅居前，油气、有色金属、白酒等板块调整。 电子化学品
 
 ## 正文
 
-全球新型储能需求高增，带动储能电芯订单持续饱满、电芯供需趋于偏紧。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在近乎满负荷生产的高涨势头下，头部电池企业及二线厂商纷纷加大投资力度，行业从前期谨慎观望转向主动加码扩产。
+今天，A股市场震荡调整，三大指数集体下挫。
 
-本轮储能电芯扩产并非单纯规模扩张，背后显现出技术升级的趋势：587Ah、684Ah等大容量电芯相继推出，同时长时化也是重要转型方向。
+个股跌多涨少，1344只个股上涨，4121只个股下跌。
 
-值得注意的是，需求爆发、部分企业产能利用率拉满的同时，行业内低价竞争、低端产能过剩也是客观事实。
+市场全天成交额为27791亿元，较上一交易日减少3740亿元。
 
-储能电芯全球出货量排名第二的海辰储能联合创始人、总裁王鹏程近日对澎湃新闻记者表示，该公司订单已排到2027年，更确切地说，“截至2027年年底，公司订单均被提前锁定。
+算力硬件股逆势走强，临近尾盘，乳业股局部表现活跃。
 
-”其同时直言行业内的一个现象，即尽管头部企业产能利用率已在95%以上，但目前的真相是落后产能过剩、先进产能严重不足。
+电子化学品、超级电容、光刻机、存储芯片等板块涨幅居前，油气、有色金属、白酒等板块调整。
 
-其强调，现阶段行业内需警惕低水平重复建设。
+电子化学品板块中，中船特气“20CM”涨停；液冷服务器概念股奕东电子、鼎通科技“20CM”涨停；乳业龙头股贝因美（维权）涨停；玻璃基板概念股红星发展8天6板；光通信概念股金时科技9天5板、天洋新材4连板；煤炭股大有能源4连板；有色股表现弱势，中国铝业跌超9%，天山铝业跌超8%。
 
-谈及海辰储能自身的扩产考量，王鹏程则喊出，“现在所有的产能只有先进产能，不上重复性的产能，不领先不扩产。
+贝因美尾盘直线涨停 午后，乳业板块部分个股活跃。
 
 ## 相关推荐
 
-- 2026-06-29 23:39 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 23:36 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 23:30 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 23:30 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 23:32 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 23:55 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 23:55 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 23:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 23:45 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 23:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 23:55 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 23:59 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 23:55 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 23:55 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 23:37 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 23:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 23:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 23:51 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 23:58 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 23:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 00:02 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 23:46 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 23:41 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:36 - [月亮](http://www.share.minike.top/Article/details/60609046.shtml)
-- 2026-06-29 23:30 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/761927066259.shtml)
-- 2026-06-29 23:48 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/672220621.shtml)
-- 2026-06-29 23:34 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/29801500.shtml)
-- 2026-06-29 23:56 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/265446.shtml)
-- 2026-06-29 23:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/398233.shtml)
-- 2026-06-29 23:37 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/63138.shtml)
-- 2026-06-29 23:44 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/020240805.shtml)
-- 2026-06-29 23:41 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/55966907.shtml)
-- 2026-06-29 23:59 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/779367.shtml)
-- 2026-06-29 23:33 - [绘画区你赢了](http://www.blog.minike.top/Article/details/203060917.shtml)
-- 2026-06-29 23:58 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/77915847929.shtml)
-- 2026-06-29 23:31 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/773472199665.shtml)
-- 2026-06-29 23:59 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/257670.shtml)
-- 2026-06-29 23:38 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/6748411914.shtml)
+- 2026-06-29 23:43 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/798925365.shtml)
+- 2026-06-29 23:41 - [送你一朵小红花](https://www.blog.minike.top/Article/details/48339161212.shtml)
+- 2026-06-29 23:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/8101082.shtml)
+- 2026-06-29 23:38 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/53963.shtml)
+- 2026-06-29 23:49 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/59536617152.shtml)
+- 2026-06-29 23:55 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/9102823.shtml)
+- 2026-06-29 23:39 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/0109509105.shtml)
+- 2026-06-29 23:57 - [85花告别古偶](http://www.blog.minike.top/Article/details/225762.shtml)
+- 2026-06-30 00:02 - [东方风云榜](http://www.blog.minike.top/Article/details/205919.shtml)
+- 2026-06-29 23:38 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/862354346.shtml)
+- 2026-06-29 23:42 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/7446835641.shtml)
+- 2026-06-29 23:46 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/510943389.shtml)
+- 2026-06-29 23:36 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/648475089817.shtml)
+- 2026-06-30 00:06 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/9939348487.shtml)
+- 2026-06-29 23:53 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/31336.shtml)

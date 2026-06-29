@@ -1,59 +1,49 @@
-# 近期频发！收到这种贷款逾期催收短信 千万别信
+# 特朗普签署行政令阻止“威胁性”商品进口
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-原标题：视频丨近期频发！收到这种贷款逾期催收短信 千万别信 “您的消费分期网贷借款至今未还，诉讼前最后通知，请您主动到平台归还借款。”如果您收到这样的贷款逾期催收短信，一定要提高警惕，因为这很有可能是诈骗。 发送虚假律师函 诱骗进入假冒还款网站 记者从北京市反诈中心获悉，近期有一些手机用户收到了“贷款逾期催收律师函”之类的图片，扫描二维码后，进入仿冒的还款网站，遭遇诈骗。北京的
+美国海关与边境保护局局长Rodney Scott称，美国总统特朗普签署了一项关于海关执法的行政令，旨在阻止具有威胁性的产品进入美国。 Scott在白宫的签署仪式上发表讲话。 Scott说：“我们将开始追究贸易方面把威胁性物品和威胁性产品带入我国的责任，就像我们在边境其他方面所做的那样”。责任编辑：丁文武
 
 ## 正文
 
-原标题：视频丨近期频发！
+美国海关与边境保护局局长Rodney Scott称，美国总统特朗普签署了一项关于海关执法的行政令，旨在阻止具有威胁性的产品进入美国。
 
-收到这种贷款逾期催收短信 千万别信 “您的消费分期网贷借款至今未还，诉讼前最后通知，请您主动到平台归还借款。
+Scott在白宫的签署仪式上发表讲话。
 
-”如果您收到这样的贷款逾期催收短信，一定要提高警惕，因为这很有可能是诈骗。
+Scott说：“我们将开始追究贸易方面把威胁性物品和威胁性产品带入我国的责任，就像我们在边境其他方面所做的那样”。
 
-发送虚假律师函 诱骗进入假冒还款网站 记者从北京市反诈中心获悉，近期有一些手机用户收到了“贷款逾期催收律师函”之类的图片，扫描二维码后，进入仿冒的还款网站，遭遇诈骗。
-
-北京的林女士不久前就被骗走了8000多元。
-
-被害人 林女士：当时接到一个短信说有信用卡没还、严重逾期，说借了一笔6500元，两年逾期利息2000多元。
-
-我当时就认为我没还，因为我做生意，可能有时借信用卡周转什么的。
-
-林女士说，催收信息是通过苹果手机上的iMessage功能发来的一张律师函，上面有律所的名称和公章，对方表示已对林女士提起了电子诉讼，这是最后一次通知。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 23:59 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 23:59 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 23:41 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 23:39 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 23:40 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 23:37 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 23:35 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 23:53 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 23:37 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 23:56 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 23:50 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 23:58 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 23:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 23:41 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 23:59 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 23:43 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 23:58 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 23:42 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 23:40 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 23:54 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 23:44 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 23:56 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 23:57 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 23:46 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/581990.shtml)
-- 2026-06-29 23:39 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/61161106.shtml)
-- 2026-06-29 23:31 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/48106389467.shtml)
-- 2026-06-29 23:41 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/33285425126.shtml)
-- 2026-06-29 23:55 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/306837187532.shtml)
-- 2026-06-29 23:55 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/8021305588.shtml)
-- 2026-06-29 23:52 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/180884.shtml)
-- 2026-06-29 23:58 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/364062096120.shtml)
-- 2026-06-29 23:34 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/375245.shtml)
-- 2026-06-29 23:50 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/881763.shtml)
-- 2026-06-29 23:35 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/13664.shtml)
-- 2026-06-29 23:36 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/00711012.shtml)
-- 2026-06-29 23:55 - [明星大侦探第四季](https://www.share.minike.top/Article/details/5493355.shtml)
-- 2026-06-29 23:41 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/48318029576.shtml)
-- 2026-06-29 23:46 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/726178.shtml)
+- 2026-06-29 23:45 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/4104367.shtml)
+- 2026-06-29 23:55 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/9226188413.shtml)
+- 2026-06-29 23:40 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/79858457729.shtml)
+- 2026-06-29 23:45 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/72476.shtml)
+- 2026-06-29 23:49 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/50056286.shtml)
+- 2026-06-29 23:53 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/120989.shtml)
+- 2026-06-30 00:03 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/26259121.shtml)
+- 2026-06-29 23:48 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/80858381.shtml)
+- 2026-06-29 23:41 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/45617694.shtml)
+- 2026-06-30 00:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/51226816552.shtml)
+- 2026-06-30 00:00 - [毒液2](http://www.share.minike.top/Article/details/747911.shtml)
+- 2026-06-29 23:38 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/841394233044.shtml)
+- 2026-06-30 00:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/536822082.shtml)
+- 2026-06-30 00:00 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/55664391.shtml)
+- 2026-06-29 23:47 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/632474191.shtml)

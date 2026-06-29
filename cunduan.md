@@ -1,61 +1,56 @@
-# 季卡用户天天上课被踢出群 “不限次数”岂能成失信坑人套路
+# 【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-契约精神不是可有可无的道德选择，而是市场经济的基石 因为天天去上课，就被踢出了群？近日，一起瑜伽课消费纠纷引发热议。 据报道，消费者孙女士花1880元办了一张瑜伽季卡，当时瑜伽馆称，3个月内不限上课次数。但连上了20多天后，竟被教练当众质问“天天来，你不累吗”，随后被踢出群、取消约课资格。 这是一起违背契约精神的典型消费案例。商家以“不限次数、高性价比”吸引预付费用，双方达成协
+国投期货研究院 行情简述： 碳酸锂期货近期连续杀跌，连破多个整数关口，6月4日最低杀穿16万元整数关口，从5月12日高点接近21万元每吨累计跌幅接近30%。市场情绪表现恐慌，持仓快速从81万手的高位下降至61.5万手，资金流出幅度恰与价格跌幅相当，成交量低位扩张，市场短线较为活跃。 下跌原因： 6月4日当日发布的库存数据显示，上海有色发布的最新库存单周基本持平，结束了5月全月去
 
 ## 正文
 
-契约精神不是可有可无的道德选择，而是市场经济的基石 因为天天去上课，就被踢出了群？
+国投期货研究院 行情简述： 碳酸锂期货近期连续杀跌，连破多个整数关口，6月4日最低杀穿16万元整数关口，从5月12日高点接近21万元每吨累计跌幅接近30%。
 
-近日，一起瑜伽课消费纠纷引发热议。
+市场情绪表现恐慌，持仓快速从81万手的高位下降至61.5万手，资金流出幅度恰与价格跌幅相当，成交量低位扩张，市场短线较为活跃。
 
-据报道，消费者孙女士花1880元办了一张瑜伽季卡，当时瑜伽馆称，3个月内不限上课次数。
+下跌原因： 6月4日当日发布的库存数据显示，上海有色发布的最新库存单周基本持平，结束了5月全月去库存的状况，考虑到产量环比降的状态，表观消费出现了减弱迹象。
 
-但连上了20多天后，竟被教练当众质问“天天来，你不累吗”，随后被踢出群、取消约课资格。
+此外，本周甚嚣尘上炒作的仓单问题开始浮出水面。
 
-这是一起违背契约精神的典型消费案例。
+5月是碳酸锂市场的逆转之月，我们之前反复强调，空头之前无法大举参与的核心原因是smm口径下市场能够提供的可流通库存不足。
 
-商家以“不限次数、高性价比”吸引预付费用，双方达成协议。
+主力资金对此心知肚明，短短一个月悄然将广期所仓单从3.8万张快速抬升到历史最高的5.6万张，成为打穿多头心理防线的关键手牌。
 
-无论消费者的使用频率如何，商家都必须履约，这是基本的诚信底线。
+仓单增加幅度恰又是超过30%。
 
-办卡时承诺不限次，消费者正常上课却遭限制，明显已不是公平交易。
+与此同时，碳酸锂市场的持仓下降近30%支撑釜底抽薪是价格崩跌的另一个因素。
 
 ## 相关推荐
 
-- 2026-06-29 23:52 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 23:41 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 23:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 23:42 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 23:54 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-29 23:39 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 23:36 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 23:40 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 23:44 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 23:41 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 23:58 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 23:44 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 23:37 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 23:44 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 23:42 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 23:55 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 23:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 23:41 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 23:37 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 23:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 23:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 23:50 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 23:55 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-30 00:02 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 00:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:55 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/366867511.shtml)
-- 2026-06-29 23:30 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/54477836.shtml)
-- 2026-06-29 23:59 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/00530.shtml)
-- 2026-06-29 23:57 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/4608714703.shtml)
-- 2026-06-29 23:32 - [请回答王牌2019](http://www.share.minike.top/Article/details/11710.shtml)
-- 2026-06-29 23:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/086998818.shtml)
-- 2026-06-29 23:56 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/3284242.shtml)
-- 2026-06-29 23:49 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/0396440.shtml)
-- 2026-06-29 23:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/20413825577.shtml)
-- 2026-06-29 23:32 - [扬名立万](http://www.blog.minike.top/Article/details/07689514.shtml)
-- 2026-06-29 23:57 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/582334.shtml)
-- 2026-06-29 23:34 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/53594376.shtml)
-- 2026-06-29 23:34 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/073129619.shtml)
-- 2026-06-29 23:57 - [一见倾心](https://www.share.minike.top/Article/details/39465837.shtml)
-- 2026-06-29 23:49 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/866209780.shtml)
+- 2026-06-29 23:41 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/7464890.shtml)
+- 2026-06-30 00:05 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/00429177115.shtml)
+- 2026-06-29 23:37 - [千与千寻](https://www.share.minike.top/Article/details/05022.shtml)
+- 2026-06-29 23:50 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/70406.shtml)
+- 2026-06-29 23:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/34005219069.shtml)
+- 2026-06-29 23:46 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/1052610814.shtml)
+- 2026-06-30 00:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/175210047199.shtml)
+- 2026-06-30 00:04 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/01361133356.shtml)
+- 2026-06-29 23:39 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/2598112138.shtml)
+- 2026-06-29 23:40 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/674941.shtml)
+- 2026-06-29 23:49 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/69484721.shtml)
+- 2026-06-29 23:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/27167.shtml)
+- 2026-06-30 00:03 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/64790419974.shtml)
+- 2026-06-29 23:57 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/3804965662.shtml)
+- 2026-06-29 23:36 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/14620.shtml)

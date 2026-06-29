@@ -1,59 +1,59 @@
-# 公募基金减持超2000亿元银行股，险资、社保基金逆势加仓
+# 德邦基金雷涛离场，稳盈产品一季度亏21亿，曾陷“违规营销”风波
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-2026年一季度的A股市场，机构资金正在上演一场鲜明的“攻防转换”。 一边是公募基金中的股票型基金正撤离银行板块：一季度，超2000亿元市值的银行股被减持，资金大举转向制造业与科技赛道。 业内人士认为，4月中旬后银行股普跌，很可能与公募等大资金的“搬家”离场直接相关。事实上，银行板块年初至今市值已缩水超过6000亿元，这也在一定程度上印证了上述判断。 另一边，险资与社保基金却在
+来源：尺度商业 文 | 刘振涛 百亿级基金经理离职引发市场关注！ 近日，德邦基金一连发布8条基金经理变更公告，基金经理雷涛一口气卸任了在管的所有产品，已于5月29日离任，不再转任其他岗位，相关产品将由陆阳、袁之渿、江杨磊三位基金经理接续管理。 雷涛是德邦基金的明星基金经理，在其卸任之前，管理着德邦基金旗下4只权益类产品（多种份额合并计算），管理规模达181.30亿元。 雷涛的投
 
 ## 正文
 
-2026年一季度的A股市场，机构资金正在上演一场鲜明的“攻防转换”。
+来源：尺度商业 文 | 刘振涛 百亿级基金经理离职引发市场关注！
 
-一边是公募基金中的股票型基金正撤离银行板块：一季度，超2000亿元市值的银行股被减持，资金大举转向制造业与科技赛道。
+近日，德邦基金一连发布8条基金经理变更公告，基金经理雷涛一口气卸任了在管的所有产品，已于5月29日离任，不再转任其他岗位，相关产品将由陆阳、袁之渿、江杨磊三位基金经理接续管理。
 
-业内人士认为，4月中旬后银行股普跌，很可能与公募等大资金的“搬家”离场直接相关。
+雷涛是德邦基金的明星基金经理，在其卸任之前，管理着德邦基金旗下4只权益类产品（多种份额合并计算），管理规模达181.30亿元。
 
-事实上，银行板块年初至今市值已缩水超过6000亿元，这也在一定程度上印证了上述判断。
+雷涛的投资风格较为极致，作为“科技男”出身，雷涛管理的产品曾豪赌AI算力赛道，2025年取得超过120%的年度收益，在其离职前他的最高任职回报超过500%。
 
-另一边，险资与社保基金却在逆势加仓银行股。
+较好的管理业绩，让雷涛迅速走红，成为市场上“网红基金经理”。
 
-一季度，险资增持中国银行、工商银行、兴业银行等上市银行股份，单家增持规模均达上亿股；社保基金则在一季度继续重仓持有银行股。
+然而，他和他管理的产品也曾陷入违规营销的风波。
 
-多位业内专家认为，银行板块的资金流出，直接原因是被动型基金（如指数ETF）赎回。
+2026年1月，市场媒体报道，某基金公司与不具备基金销售业务资格和基金从业资格的互联网“大V”开展营销合作，基金产品单日吸金百亿。
 
-而险资、社保基金等长期资金更加重视绝对收益，银行股低估值、高股息、利润增长稳定，契合负债久期匹配需求。
+这家基金公司指向德邦基金，基金产品正是雷涛管理德邦稳盈增长灵活配置混合（下称“德邦稳盈增长”）。
 
 ## 相关推荐
 
-- 2026-06-29 23:37 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 23:36 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 23:39 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 23:32 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 23:33 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 23:43 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 23:45 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 23:51 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 23:46 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 23:31 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 23:41 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 23:40 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 23:40 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 23:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 23:45 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 00:05 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 23:58 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 23:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 23:36 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 00:01 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 23:49 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 23:39 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 00:01 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 23:43 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 23:46 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 23:39 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:30 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/9998391633.shtml)
-- 2026-06-29 23:40 - [田曦薇没招了](https://www.share.minike.top/Article/details/3108625.shtml)
-- 2026-06-29 23:52 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/087033.shtml)
-- 2026-06-29 23:50 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/2242770222.shtml)
-- 2026-06-29 23:37 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/9149245.shtml)
-- 2026-06-29 23:50 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/0798460.shtml)
-- 2026-06-29 23:46 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/730973426.shtml)
-- 2026-06-29 23:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/1087623.shtml)
-- 2026-06-29 23:44 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/435402.shtml)
-- 2026-06-29 23:55 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.minike.top/Article/details/049312314.shtml)
-- 2026-06-29 23:39 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/388482910266.shtml)
-- 2026-06-29 23:38 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/69936.shtml)
-- 2026-06-29 23:33 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/36667118.shtml)
-- 2026-06-29 23:41 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/93951067821.shtml)
-- 2026-06-29 23:31 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/34186.shtml)
+- 2026-06-29 23:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/374990888.shtml)
+- 2026-06-29 23:57 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/6152875.shtml)
+- 2026-06-29 23:56 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/27931721443.shtml)
+- 2026-06-30 00:01 - [一见倾心](http://www.share.kurohicncr.top/Article/details/100180540100.shtml)
+- 2026-06-30 00:01 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/2883011.shtml)
+- 2026-06-30 00:00 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/3786073.shtml)
+- 2026-06-29 23:56 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/5553577.shtml)
+- 2026-06-30 00:05 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/52416383.shtml)
+- 2026-06-29 23:58 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/62048.shtml)
+- 2026-06-29 23:39 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/441321705545.shtml)
+- 2026-06-29 23:47 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/387592990.shtml)
+- 2026-06-29 23:36 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/1513544675.shtml)
+- 2026-06-30 00:01 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/06050650.shtml)
+- 2026-06-30 00:00 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/6128425865.shtml)
+- 2026-06-29 23:50 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/675039157.shtml)

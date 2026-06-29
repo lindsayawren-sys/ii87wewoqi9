@@ -1,56 +1,56 @@
-# 京东健康绩后涨逾5% 一季度实现收入194.7亿元同比增长17.0%
+# MLCC、燃机概念联袂爆发，多股涨停！华宝基金军工ETF（512810）逆市连阳，机构：关注“军转民”投资机会
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-京东健康（06618）盘中涨超6%，截至发稿，股价上涨4.97%，现报47.70港元，成交额3.63亿港元。 5月12日，京东健康发布2026年第一季度业绩。2026年第一季度，京东健康实现收入194.7亿元，同比增长17.0%；非国际财务报告准则指标下（Non-IFRS）经营盈利达19.4亿元，同比增长48.0%；非国际财务报告准则指标下（Non-IFRS）净利润达18.7亿
+6月4日，大市回调之际，军工逆市飘红。军工核心资产——军工ETF华宝（512810）收涨0.41%成功连阳，守住年线的同时向上收复5日线。 成份股整体跌多涨少，不过MLCC、燃机概念多股暴涨为指数提供强力支撑，宏达电子20CM涨停，振华科技、中国动力、旭光电子集体10%涨停封板。光启技术、航天电子、中国卫星、中航沈飞等权重股齐跌为主要拖累。 消息面，受益AI需求景气，MLCC行
 
 ## 正文
 
-京东健康（06618）盘中涨超6%，截至发稿，股价上涨4.97%，现报47.70港元，成交额3.63亿港元。
+6月4日，大市回调之际，军工逆市飘红。
 
-5月12日，京东健康发布2026年第一季度业绩。
+军工核心资产——军工ETF华宝（512810）收涨0.41%成功连阳，守住年线的同时向上收复5日线。
 
-2026年第一季度，京东健康实现收入194.7亿元，同比增长17.0%；非国际财务报告准则指标下（Non-IFRS）经营盈利达19.4亿元，同比增长48.0%；非国际财务报告准则指标下（Non-IFRS）净利润达18.7亿元，同比增长6.0%。
+成份股整体跌多涨少，不过MLCC、燃机概念多股暴涨为指数提供强力支撑，宏达电子20CM涨停，振华科技、中国动力、旭光电子集体10%涨停封板。
 
-第一季度，公司持续强化医药供应链核心优势，持续以“AI+供应链”全场景赋能“医、检、诊、药”闭环，各项核心经营指标保持稳健增长，高质量发展势头良好。
+光启技术、航天电子、中国卫星、中航沈飞等权重股齐跌为主要拖累。
 
-在“AI+医疗器械”领域，京东健康全面升级战略布局，推动AI技术与医疗器械深度融合。
+消息面，受益AI需求景气，MLCC行业正进入新一轮涨价、景气上行周期。
 
-第一季度，公司与鱼跃医疗、可孚医疗、讯飞医疗等头部品牌签署战略合作协议，以“AI+医疗器械”为核心引擎，围绕产品智能化升级、慢病管理服务融合创新等方向深化合作。
+据行业数据披露，日系龙头已对AI服务器用MLCC提价15%至35%，部分厂商提价6%至13%，高端产品交期大幅延长至20周以上，消费级现货跟涨约20%。
 
-同时，京东健康加速推进JoyInside智能互联系统在适老场景的落地，计划推动百万台医疗器械接入该系统，覆盖轮椅、护理床、健康监测等适老核心品类，携手10家头部品牌共建服务生态。
+分析指出，部分军工电子企业除军工被动元器件外，也包括AI服务器电源、电力储能市场等民用被动元器件业务，有望迎来新成长逻辑。
 
-责任编辑：卢昱君
+燃机方面，AIDC爆发带来电力缺口，燃机成为刚需。
 
 ## 相关推荐
 
-- 2026-06-29 23:38 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 23:30 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 23:50 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 23:50 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 23:31 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 23:46 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 23:54 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 23:39 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 23:49 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 23:58 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 23:56 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 23:50 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 23:41 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 23:58 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 23:45 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 23:39 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 23:57 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 23:48 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 00:01 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 23:57 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/933071.shtml)
-- 2026-06-29 23:52 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/45165.shtml)
-- 2026-06-29 23:44 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/63328.shtml)
-- 2026-06-29 23:42 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/366905090742.shtml)
-- 2026-06-29 23:49 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/10793550718.shtml)
-- 2026-06-29 23:34 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/04790.shtml)
-- 2026-06-29 23:57 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/464069488855.shtml)
-- 2026-06-29 23:33 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/299037.shtml)
-- 2026-06-29 23:34 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/5247058.shtml)
-- 2026-06-29 23:39 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/871560.shtml)
-- 2026-06-29 23:44 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/78681058772.shtml)
-- 2026-06-29 23:58 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/982426.shtml)
-- 2026-06-29 23:43 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/73416.shtml)
-- 2026-06-29 23:40 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/48370910.shtml)
-- 2026-06-29 23:44 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/89236603.shtml)
+- 2026-06-29 23:47 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/6016281516.shtml)
+- 2026-06-29 23:38 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/04986.shtml)
+- 2026-06-29 23:58 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/341833.shtml)
+- 2026-06-29 23:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/4568521307.shtml)
+- 2026-06-29 23:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/569271600.shtml)
+- 2026-06-29 23:42 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/307263018995.shtml)
+- 2026-06-29 23:53 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/462971.shtml)
+- 2026-06-29 23:40 - [肝不好身体这几处会“说话”](http://www.share.minike.top/Article/details/0499224.shtml)
+- 2026-06-29 23:41 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/084995022355.shtml)
+- 2026-06-29 23:47 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/717831065854.shtml)
+- 2026-06-29 23:45 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/295005994052.shtml)
+- 2026-06-29 23:56 - [逃狱兄弟](http://www.share.minike.top/Article/details/96641017.shtml)
+- 2026-06-29 23:57 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/73689886249.shtml)
+- 2026-06-30 00:03 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/32925365204.shtml)
+- 2026-06-29 23:48 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/56810267.shtml)

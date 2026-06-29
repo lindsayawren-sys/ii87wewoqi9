@@ -1,57 +1,61 @@
-# 中央网信办全面部署推进规范短视频内容标注工作
+# 达利欧警告AI泡沫终将破裂：投资者兑现之时即为泡沫破灭之日
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-中新网5月12日电 据“网信中国”微信公众号12日消息，针对部分短视频内容来源不清、真假难辨、混淆视听等突出问题，今年以来，中央网信办全面部署推进规范短视频内容标注工作。 1月以来，指导网站平台深入清理虚假摆拍等违规短视频52万余个，严惩违规账号6.8万余个，发布治理公告54期，并集中曝光典型案例。3月，指导抖音、快手、腾讯、小红书、哔哩哔哩、微博、淘宝、京东、拼多多、支付宝、
+桥水基金创始人、亿万富翁投资者瑞·达利欧周三发出警告，当前火热的人工智能市场已呈现出典型的泡沫特征，而当投资者试图将账面财富转化为现金时，这一泡沫终将破裂。 达利欧在接受电视采访时将当前AI热潮与历史上的科技泡沫相提并论。“所有重大的技术变革都会催生泡沫，”达利欧表示，“没有人能完全把握准确。你要么投入大量资金去抢占市场份额，而不担心是否投入过多；要么投入不足，从而失去市场份额
 
 ## 正文
 
-中新网5月12日电 据“网信中国”微信公众号12日消息，针对部分短视频内容来源不清、真假难辨、混淆视听等突出问题，今年以来，中央网信办全面部署推进规范短视频内容标注工作。
+桥水基金创始人、亿万富翁投资者瑞·达利欧周三发出警告，当前火热的人工智能市场已呈现出典型的泡沫特征，而当投资者试图将账面财富转化为现金时，这一泡沫终将破裂。
 
-1月以来，指导网站平台深入清理虚假摆拍等违规短视频52万余个，严惩违规账号6.8万余个，发布治理公告54期，并集中曝光典型案例。
+达利欧在接受电视采访时将当前AI热潮与历史上的科技泡沫相提并论。
 
-3月，指导抖音、快手、腾讯、小红书、哔哩哔哩、微博、淘宝、京东、拼多多、支付宝、美团、百度等12家平台先行先试，完善内容标注标签，对内容标注功能进行优化和测试。
+“所有重大的技术变革都会催生泡沫，”达利欧表示，“没有人能完全把握准确。
 
-近日，中央网信办总结12家平台试行经验，指导各地各网站平台全面推进落实三项工作： 一是规范短视频内容标注标签，明确网站平台必须为用户提供6类“必选标签”，并可根据自身实际提供其他“可选标签”。
+你要么投入大量资金去抢占市场份额，而不担心是否投入过多；要么投入不足，从而失去市场份额。
 
-其中，“必选标签”包括“含有虚构演绎内容”“含有AI生成内容”“含有营销信息”“内容为转载”“内容为个人观点”和“无需标注”。
+” 关于泡沫破裂的机制，达利欧给出了清晰的描述：“刺破泡沫的过程，就是把财富转化为现金的过程。
 
-真实生活记录类短视频可选择“无需标注”标签，该标签不在短视频页面呈现。
+”他指出，当投资者开始兑现投资收益时，泡沫往往会破裂，而当前由AI驱动的市场“正沿着这样的路径演进，尽管这是一项了不起的技术”。
 
-二是将内容标注设为短视频发布必经环节，发布者必须从“必选标签”中选择一项，才能发布短视频。
+达利欧的警告并非空穴来风。
 
-三是对新增短视频标注情况加强审核，对存量短视频进行分批回溯，对未规范标注的，进行补标或纠正，并对相关发布者进行教育警示，推动实现短视频内容应标尽标。
+桥水基金的研究数据显示，根据美国人口普查局的统计，不到20%的美国公司报告在任何业务功能中使用AI，且应用主要集中在信息、技术和专业服务领域。
 
 ## 相关推荐
 
-- 2026-06-29 23:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 23:57 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 23:47 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 23:56 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 23:43 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 23:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 23:41 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 23:38 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 23:52 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 23:39 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 23:41 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 23:46 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-30 00:01 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 00:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 23:41 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 23:41 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 23:45 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 23:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 23:48 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 00:03 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 23:37 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 00:02 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 00:05 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 23:54 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 23:48 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 23:46 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:55 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/16523458865.shtml)
-- 2026-06-29 23:50 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/01770.shtml)
-- 2026-06-29 23:40 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/4350961322.shtml)
-- 2026-06-29 23:44 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/61329.shtml)
-- 2026-06-29 23:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/7535490536.shtml)
-- 2026-06-29 23:47 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/8739671684.shtml)
-- 2026-06-29 23:55 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/17492.shtml)
-- 2026-06-29 23:37 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/82982.shtml)
-- 2026-06-29 23:43 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/3363331.shtml)
-- 2026-06-29 23:42 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/210392.shtml)
-- 2026-06-29 23:58 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/0369472553.shtml)
-- 2026-06-29 23:59 - [逃狱兄弟](https://www.share.minike.top/Article/details/091582698.shtml)
-- 2026-06-29 23:50 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/78587524.shtml)
-- 2026-06-29 23:40 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/43778.shtml)
-- 2026-06-29 23:38 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/84869330452.shtml)
+- 2026-06-29 23:47 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/07248.shtml)
+- 2026-06-29 23:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/1422895664.shtml)
+- 2026-06-29 23:58 - [时光音乐会](https://www.blog.minike.top/Article/details/533388236661.shtml)
+- 2026-06-30 00:05 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/689923290886.shtml)
+- 2026-06-29 23:52 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/563360891729.shtml)
+- 2026-06-29 23:40 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/450009.shtml)
+- 2026-06-29 23:53 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/44035158.shtml)
+- 2026-06-29 23:45 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.kurohicncr.top/Article/details/2745862.shtml)
+- 2026-06-29 23:41 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/4391197.shtml)
+- 2026-06-30 00:02 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/683002.shtml)
+- 2026-06-29 23:48 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/063281.shtml)
+- 2026-06-29 23:49 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/1933120074.shtml)
+- 2026-06-30 00:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/79096.shtml)
+- 2026-06-29 23:46 - [TOP Prada](http://www.share.minike.top/Article/details/4183255.shtml)
+- 2026-06-29 23:41 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/316441086.shtml)

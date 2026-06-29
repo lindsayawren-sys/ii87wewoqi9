@@ -1,57 +1,59 @@
-# 美银证券：敏实集团目标价升至57港元 重申“买入”评级
+# 金店凌晨被盗百万黄金 半瓶可乐成警方破案关键
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-美银证券发布研报称，敏实集团（00425）在2026年将实现可持续盈利增长，其新业务包括机器人、固体氧化物燃料电池（SOFC）及液冷系统进展良好。该行将敏实目标价由52港元上调至57港元，重申“买入”评级。 管理层表示，机器人业务预计在2026年为公司贡献5亿元人民币（下同）销售额，包括零部件销售及机器人组装。此外，公司已开始SOFC解决方案的零部件业务，并已向潜在客户发送互连
+法治在线丨金店凌晨被盗百万黄金 半瓶可乐成警方破案关键 凌晨时分，宁静的上海街头，突然响起刺耳的铃声，打破了深夜的平静，原来是一家沿街金店的防盗警报被触发，铃声响起的瞬间，金店负责人也收到防盗提示，当即对店内视频进行查看，发现一个黑影在仓促之下砸碎了店内的柜台，盗走了大量黄金饰品，之后仓皇逃窜。发现金店被盗后，负责人立即报警求助。 从接警到抵达现场，民警仅用时5分钟。此时金店外
 
 ## 正文
 
-美银证券发布研报称，敏实集团（00425）在2026年将实现可持续盈利增长，其新业务包括机器人、固体氧化物燃料电池（SOFC）及液冷系统进展良好。
+法治在线丨金店凌晨被盗百万黄金 半瓶可乐成警方破案关键 凌晨时分，宁静的上海街头，突然响起刺耳的铃声，打破了深夜的平静，原来是一家沿街金店的防盗警报被触发，铃声响起的瞬间，金店负责人也收到防盗提示，当即对店内视频进行查看，发现一个黑影在仓促之下砸碎了店内的柜台，盗走了大量黄金饰品，之后仓皇逃窜。
 
-该行将敏实目标价由52港元上调至57港元，重申“买入”评级。
+发现金店被盗后，负责人立即报警求助。
 
-管理层表示，机器人业务预计在2026年为公司贡献5亿元人民币（下同）销售额，包括零部件销售及机器人组装。
+从接警到抵达现场，民警仅用时5分钟。
 
-此外，公司已开始SOFC解决方案的零部件业务，并已向潜在客户发送互连件、支撑结构及双极板的样品，同时已从中国SOFC客户获得支撑结构、双极板及框架的新订单。
+此时金店外围一片狼藉，窃贼将刀具、防滑手套、大力钳等全套作案工具随意丢弃在防盗窗外。
 
-液冷业务方面，分流管及液冷箱已于2025年底开始付运，液冷板及冷却液分配装置（CDU）等更多新产品将于2026年下半年开始付运。
+防盗窗为进出通道 破损痕迹清晰经现场细致勘查，警方迅速锁定犯罪嫌疑人唯一进出通道——金店的防盗窗。
 
-考虑到最新的增长及利润率假设，美银将敏实2026年及2027年每股盈利预测分别下调1%及上调1%，至2.7元及3.13元人民币（下同），并引入2028年每股盈利预测为3.52元。
+窗口铁皮底座脱落，一截铁栏杆被暴力剪断，破损痕迹清晰完整。
 
-该行认为，敏实估值具吸引力（相当于2026年预测市盈率12倍），并对其新业务持正面看法。
+与此同时，现场遗留的大量物证中，半瓶没喝完的可乐也为案件的侦破埋下关键伏笔。
 
-责任编辑：卢昱君
+上海市公安局奉贤区分局刑侦支队刑科所技术员 钟愉：铁栅栏下方有管钳，还有手套，还有一个蛇皮袋。
 
 ## 相关推荐
 
-- 2026-06-29 23:33 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 23:40 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 23:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 23:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 23:52 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 23:36 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 23:30 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 23:37 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 23:54 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 23:30 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 23:35 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 23:54 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 23:40 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 23:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 00:00 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 00:02 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 00:00 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 00:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 23:47 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 00:01 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 23:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 23:47 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 23:36 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 23:46 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:47 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/658710877409.shtml)
-- 2026-06-29 23:36 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/34184657834.shtml)
-- 2026-06-29 23:51 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/5071927031.shtml)
-- 2026-06-29 23:31 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/884207251728.shtml)
-- 2026-06-29 23:46 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/4415018.shtml)
-- 2026-06-29 23:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/564620.shtml)
-- 2026-06-29 23:42 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/01679755.shtml)
-- 2026-06-29 23:32 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/82227392.shtml)
-- 2026-06-29 23:33 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/63290.shtml)
-- 2026-06-29 23:55 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/23986817527.shtml)
-- 2026-06-29 23:43 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/52134953.shtml)
-- 2026-06-29 23:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/930804698.shtml)
-- 2026-06-29 23:42 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/3785684584.shtml)
-- 2026-06-29 23:37 - [炽夏](https://www.blog.kurohicncr.top/Article/details/84965473.shtml)
-- 2026-06-29 23:37 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/73398259.shtml)
+- 2026-06-29 23:56 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/17325.shtml)
+- 2026-06-29 23:41 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/28153442.shtml)
+- 2026-06-29 23:40 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/408443960936.shtml)
+- 2026-06-29 23:57 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/936130391617.shtml)
+- 2026-06-29 23:39 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/4578021740.shtml)
+- 2026-06-29 23:37 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/302656657.shtml)
+- 2026-06-29 23:40 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/411192409037.shtml)
+- 2026-06-29 23:52 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/540246.shtml)
+- 2026-06-29 23:37 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/22328918.shtml)
+- 2026-06-29 23:46 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/79444988.shtml)
+- 2026-06-29 23:47 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/1615851.shtml)
+- 2026-06-30 00:01 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/15383.shtml)
+- 2026-06-29 23:57 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/540322624.shtml)
+- 2026-06-29 23:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/245498.shtml)
+- 2026-06-29 23:36 - [扫黑风暴](https://www.share.minike.top/Article/details/599336.shtml)

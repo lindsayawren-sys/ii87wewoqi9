@@ -1,56 +1,57 @@
-# 保温杯等商品在多国热销 “中式生活”带动中国产品出海
+# 开课通知| 6月12日-14日，6位投资大咖为您带来一场投资盛宴
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-保温杯等极具中国日常生活特色的商品，在多国热销—— “中式生活”带动中国产品出海 “网上流传着一种说法：如果你喝热水、在家穿拖鞋、常去亚洲超市购物，那你身上就有‘中国人特质’了。”——《纽约时报》最近刊发的一篇文章这样写道。 今年以来，不少外国网友将自己喝热水、打太极等中式生活视频上传到网络，掀起“成为中国人”的热潮。而这股热潮，也延伸到了消费端。海关总署有关负责人最近表示，今
+（来源：VCA创投社）2024年9月，国务院总理李强主持召开国务院常务会议，研究促进创业投资发展的有关举措。会议指出，创业投资事关科技创新、产业升级和高质量发展。要尽快疏通“募投管退”各环节存在的堵点卡点，支持符合条件的科技型企业境内外上市，大力发展股权转让、并购市场，推广实物分配股票试点，鼓励社会资本设立市场化并购母基金或创业投资二级市场基金，促进创投行业良性循环。此外，会议
 
 ## 正文
 
-保温杯等极具中国日常生活特色的商品，在多国热销—— “中式生活”带动中国产品出海 “网上流传着一种说法：如果你喝热水、在家穿拖鞋、常去亚洲超市购物，那你身上就有‘中国人特质’了。
+（来源：VCA创投社）2024年9月，国务院总理李强主持召开国务院常务会议，研究促进创业投资发展的有关举措。
 
-”——《纽约时报》最近刊发的一篇文章这样写道。
+会议指出，创业投资事关科技创新、产业升级和高质量发展。
 
-今年以来，不少外国网友将自己喝热水、打太极等中式生活视频上传到网络，掀起“成为中国人”的热潮。
+要尽快疏通“募投管退”各环节存在的堵点卡点，支持符合条件的科技型企业境内外上市，大力发展股权转让、并购市场，推广实物分配股票试点，鼓励社会资本设立市场化并购母基金或创业投资二级市场基金，促进创投行业良性循环。
 
-而这股热潮，也延伸到了消费端。
+此外，会议表示，要推动国资出资成为更有担当的长期资本、耐心资本，完善国有资金出资、考核、容错、退出相关政策措施。
 
-海关总署有关负责人最近表示，今年一季度，中国的保温杯、茶叶、电热水壶、枸杞等热门单品，出口实现同比增长。
+会议还指出，要夯实创业投资健康发展的制度基础，落实资本市场改革重点举措，健全资本市场功能，进一步激发创业投资市场活力。
 
-一场源于社交媒体的文化共鸣，带来实实在在的贸易增量，更成为“中国品牌出海输出生活方式”的生动注脚。
+在当下这个充满挑战、充满变革机遇的时代，对投资人以及想加入创投圈层的人而言，无疑是令人激动的一件事。
 
-社交热点催生新的消费偏好，拉动相关消费增长 “以前我一直觉得喝热水是一件奇怪的事，但现在，我每天早上起来都会喝一杯温水，舒缓身体。
+创投行业正经历新旧动能转换，以政府引导基金为抓手，母基金为媒介的增量资金成为市场不可忽视的重要参与力量，投资逻辑与投资策略都在发生重大转变。
 
-”来自美国的丹尼尔·佩雷斯今年25岁。
+投资分析师VCA认证中心致力于培养并认证新时期股权投资精英人才，联合深圳市创业投资同业公会发起投资分析师VCA证书实战班，依托创投公会丰富的创投资源和人脉圈层，汇聚最具实力的创投机构大咖，通过充分的学习和讨论，共筑股权投资新时代！
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 23:57 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 23:43 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 23:47 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 23:45 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 23:38 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 23:51 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 23:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 23:30 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 23:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 00:05 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 23:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 23:56 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 23:36 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 00:03 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 23:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 23:40 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 23:39 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 23:51 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 00:04 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 23:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:54 - [天道](https://www.share.minike.top/Article/details/301227.shtml)
-- 2026-06-29 23:55 - [爱很美味](https://www.share.minike.top/Article/details/017185945.shtml)
-- 2026-06-29 23:58 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/788398424.shtml)
-- 2026-06-29 23:51 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/62001.shtml)
-- 2026-06-29 23:49 - [时光音乐会](https://www.share.minike.top/Article/details/75556.shtml)
-- 2026-06-29 23:47 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/0522862947.shtml)
-- 2026-06-29 23:31 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/170824846184.shtml)
-- 2026-06-29 23:39 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/7576537.shtml)
-- 2026-06-29 23:33 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/345621425.shtml)
-- 2026-06-29 23:52 - [沙丘](http://www.share.minike.top/Article/details/4591157.shtml)
-- 2026-06-29 23:37 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/814534.shtml)
-- 2026-06-29 23:52 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/0968557.shtml)
-- 2026-06-29 23:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/5751391.shtml)
-- 2026-06-29 23:51 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/416836061.shtml)
-- 2026-06-29 23:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/5850843646.shtml)
+- 2026-06-29 23:49 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/35631.shtml)
+- 2026-06-29 23:58 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/767782259727.shtml)
+- 2026-06-29 23:44 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/8354767.shtml)
+- 2026-06-29 23:39 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/9831684.shtml)
+- 2026-06-29 23:48 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/4543071.shtml)
+- 2026-06-29 23:56 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/08023.shtml)
+- 2026-06-30 00:03 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/2746886721.shtml)
+- 2026-06-29 23:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/795657940765.shtml)
+- 2026-06-29 23:39 - [男子称在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/4984577352.shtml)
+- 2026-06-29 23:55 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/31637.shtml)
+- 2026-06-29 23:41 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/98402584.shtml)
+- 2026-06-30 00:01 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/58601970.shtml)
+- 2026-06-29 23:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/6398621.shtml)
+- 2026-06-29 23:51 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/23967.shtml)
+- 2026-06-29 23:54 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/7883269.shtml)

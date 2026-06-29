@@ -1,57 +1,59 @@
-# 港股收评：恒指涨0.15% 科指涨0.46% 半导体板块拉升 “大模型双雄”走强 智谱涨超36%
+# “十五五”时期农业农村现代化这样推进
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-5月13日消息，港股三大指数涨跌不一。截至收盘，恒生指数涨0.15%，报26388.44，恒生科技指数涨0.46%，国企指数跌0.07%。盘面上，科网股涨跌不一，京东涨超8%，美团涨超4%，百度、快手跌超1%；半导体板块涨幅居前，澜起科技涨超21%；人工智能板块走强，智谱涨超36%；猪肉股继续走弱，牧原股份跌超2%。 半导体板块涨幅居前，澜起科技涨超21%。大摩最新研报指出，随
+新华解码丨“十五五”时期农业农村现代化这样推进 新华社北京6月2日电 新华社记者王悦阳、胡璐 农业农村现代化关系中国式现代化全局和成色。日前，国务院印发《加快农业农村现代化“十五五”规划》，明确了“十五五”时期加快农业农村现代化的思路目标、重点任务和政策措施，为以加快农业农村现代化更好推进中国式现代化建设提供行动指南。务农重本，国之大纲。规划提出“十五五”时期加快农业农村现代化
 
 ## 正文
 
-5月13日消息，港股三大指数涨跌不一。
+新华解码丨“十五五”时期农业农村现代化这样推进 新华社北京6月2日电 新华社记者王悦阳、胡璐 农业农村现代化关系中国式现代化全局和成色。
 
-截至收盘，恒生指数涨0.15%，报26388.44，恒生科技指数涨0.46%，国企指数跌0.07%。
+日前，国务院印发《加快农业农村现代化“十五五”规划》，明确了“十五五”时期加快农业农村现代化的思路目标、重点任务和政策措施，为以加快农业农村现代化更好推进中国式现代化建设提供行动指南。
 
-盘面上，科网股涨跌不一，京东涨超8%，美团涨超4%，百度、快手跌超1%；半导体板块涨幅居前，澜起科技涨超21%；人工智能板块走强，智谱涨超36%；猪肉股继续走弱，牧原股份跌超2%。
+务农重本，国之大纲。
 
-半导体板块涨幅居前，澜起科技涨超21%。
+规划提出“十五五”时期加快农业农村现代化的总体要求，明确到2030年，粮食安全根基持续夯实，农业质量效益和竞争力不断提高，脱贫攻坚成果持续巩固拓展，农业科技自立自强水平大幅提高，把农业建成现代化大产业取得重要进展，农民收入持续较快增长，宜居宜业和美乡村加快建设，城乡融合发展实现新突破，农业农村高质量发展取得显著成效。
 
-大摩最新研报指出，随着Agentic AI（AI智能体）的爆发，AI基础设施正从以GPU（图形处理器）为主，转向“CPU（中央处理器）+内存+系统协同”架构。
+聚焦主要目标指标，规划分领域部署七方面重点任务，即提升农业综合生产能力和质量效益，持续巩固拓展脱贫攻坚成果，强化农业科技和装备支撑，拓宽农民增收致富渠道，加快农业发展全面绿色转型，推进宜居宜业和美乡村建设，提高强农惠农富农政策效能。
 
-该行预计，在基准情景下，到2030年，全球服务器CPU市场规模将达到1250亿美元，新增DRAM（动态随机存取存储器）需求则将达到74EB。
+粮食安全是“国之大者”，“十五五”时期推进农业农村现代化，如何实现稳产保供？
 
-而在乐观情景下，到2030年，全球服务器CPU市场规模最高可能达到2830亿美元，新增DRAM需求甚至可能达到221EB，约为当前全球市场规模的近5倍。
+规划提出，到2030年粮食等重要农产品供给保障能力稳步提升，粮食综合生产能力达到1.45万亿斤左右。
 
-人工智能板块走强，智谱涨超36%。
+农产品既要保数量，也要保质量、保多样。
 
 ## 相关推荐
 
-- 2026-06-29 23:53 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 23:33 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 23:48 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 23:40 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 23:38 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 23:58 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 23:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 23:48 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 23:39 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 23:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 23:32 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 23:45 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 23:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 23:46 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 00:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 23:53 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 23:53 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 23:58 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-30 00:03 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 23:45 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 23:47 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 23:42 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 00:05 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-30 00:04 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:42 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/161670924.shtml)
-- 2026-06-29 23:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/8515436971.shtml)
-- 2026-06-29 23:49 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/770235118642.shtml)
-- 2026-06-29 23:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/8739699.shtml)
-- 2026-06-29 23:46 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/96851088.shtml)
-- 2026-06-29 23:54 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/55667.shtml)
-- 2026-06-29 23:58 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/34216.shtml)
-- 2026-06-29 23:42 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/89759730334.shtml)
-- 2026-06-29 23:39 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/6284379072.shtml)
-- 2026-06-29 23:36 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/0001084.shtml)
-- 2026-06-29 23:38 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/69654276611.shtml)
-- 2026-06-29 23:56 - [流金岁月](https://www.blog.minike.top/Article/details/1521715108.shtml)
-- 2026-06-29 23:35 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/847807224.shtml)
-- 2026-06-29 23:58 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/296009.shtml)
-- 2026-06-29 23:59 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/5187486.shtml)
+- 2026-06-30 00:03 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/670206609.shtml)
+- 2026-06-29 23:57 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/866316001.shtml)
+- 2026-06-29 23:37 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/5156818842.shtml)
+- 2026-06-29 23:38 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/3521372682.shtml)
+- 2026-06-30 00:06 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/9353547.shtml)
+- 2026-06-30 00:02 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/72695.shtml)
+- 2026-06-30 00:05 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/648251723.shtml)
+- 2026-06-29 23:47 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/8076399.shtml)
+- 2026-06-29 23:49 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/927884235.shtml)
+- 2026-06-30 00:05 - [世界杯](https://www.blog.kurohicncr.top/Article/details/92904.shtml)
+- 2026-06-29 23:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/3856483251.shtml)
+- 2026-06-30 00:04 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/3076747.shtml)
+- 2026-06-29 23:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/71486559597.shtml)
+- 2026-06-29 23:52 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/57569.shtml)
+- 2026-06-29 23:56 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/0343025351.shtml)

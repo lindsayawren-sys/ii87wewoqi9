@@ -1,60 +1,48 @@
-# 美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%
+# 光大证券：滨江服务首予“买入”评级 目标价为32.78港元
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-中新经纬5月13日电 美东时间周二，美股三大指数涨跌不一。截至收盘，道指涨0.11%，报49760.56点；纳指跌0.71%，报26088.20点；标普500指数跌0.16%，报7400.96点。 来源：Wind 盘面上，大型科技股涨跌不一，特斯拉跌超2%，微软、亚马逊跌逾1%，谷歌跌0.33%，苹果涨0.72%，脸书涨0.69%，英伟达涨0.61%。 银行股集体上涨，富国银行
+光大证券发布研报称，预测滨江服务（03316）2026-2028年的营业收入分别为45.5亿元、49.8亿元、54.2亿元，营收增速分别为11.1%、9.4%、8.8%；归母净利润分别为6.6亿元、7.1亿元、7.7亿元；三年EPS分别为2.38元、2.58元、2.77元。根据相对估值法，认为公司2026年的合理PE估值为12倍，对应目标价约为32.78港元；根据绝对估值法，认
 
 ## 正文
 
-中新经纬5月13日电 美东时间周二，美股三大指数涨跌不一。
+光大证券发布研报称，预测滨江服务（03316）2026-2028年的营业收入分别为45.5亿元、49.8亿元、54.2亿元，营收增速分别为11.1%、9.4%、8.8%；归母净利润分别为6.6亿元、7.1亿元、7.7亿元；三年EPS分别为2.38元、2.58元、2.77元。
 
-截至收盘，道指涨0.11%，报49760.56点；纳指跌0.71%，报26088.20点；标普500指数跌0.16%，报7400.96点。
+根据相对估值法，认为公司2026年的合理PE估值为12倍，对应目标价约为32.78港元；根据绝对估值法，认为公司合理价格约为40.44港元/股；综合绝对估值法与相对估值法，给予公司目标价32.78港元。
 
-来源：Wind 盘面上，大型科技股涨跌不一，特斯拉跌超2%，微软、亚马逊跌逾1%，谷歌跌0.33%，苹果涨0.72%，脸书涨0.69%，英伟达涨0.61%。
+鉴于公司关联方滨江集团销售表现优于行业；公司自身在区域具备较强的品牌口碑，分红比例高，具备较高的投资价值，首次覆盖给予“买入”评级。
 
-银行股集体上涨，富国银行涨超2%，摩根大通涨超1%，花旗涨0.5%，美国银行涨0.49%，摩根士丹利涨0.42%，高盛涨0.15%。
-
-能源股全线上扬，康菲石油、西方石油涨超2%，斯伦贝谢涨逾1%，埃克森美孚涨0.66%，雪佛龙涨0.67%。
-
-芯片股集体回调，费城半导体指数跌3.01%。
-
-高通跌超11%，英特尔跌近7%，恩智浦半导体跌近4%，美光科技、格芯跌逾3%，阿斯麦、超威半导体跌超2%，台积电跌超1%。
-
-航空股普跌，西南航空跌超1%，美联航跌0.81%，美国航空跌0.78%，达美航空跌0.65%，波音跌0.56%。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:54 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 23:45 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 23:38 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 23:35 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 23:51 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 23:47 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 23:52 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 23:30 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 23:49 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 23:38 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 23:50 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 23:51 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 23:39 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 23:59 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 23:36 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 23:52 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 23:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 00:05 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 23:49 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 23:43 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 23:47 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 23:47 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 23:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 23:44 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/28991933216.shtml)
-- 2026-06-29 23:40 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/95887778.shtml)
-- 2026-06-29 23:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/64550.shtml)
-- 2026-06-29 23:36 - [85花告别古偶](https://www.share.minike.top/Article/details/395357789114.shtml)
-- 2026-06-29 23:49 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/092082792.shtml)
-- 2026-06-29 23:45 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/5843758165.shtml)
-- 2026-06-29 23:50 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/35592660683.shtml)
-- 2026-06-29 23:45 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/152418.shtml)
-- 2026-06-29 23:55 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/57490588787.shtml)
-- 2026-06-29 23:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/068375850.shtml)
-- 2026-06-29 23:47 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/606336503091.shtml)
-- 2026-06-29 23:59 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/809500.shtml)
-- 2026-06-29 23:48 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/872449547318.shtml)
-- 2026-06-29 23:31 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/1550185531.shtml)
-- 2026-06-29 23:54 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/7484963.shtml)
+- 2026-06-29 23:44 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/341201.shtml)
+- 2026-06-30 00:04 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/14132.shtml)
+- 2026-06-29 23:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/99216776738.shtml)
+- 2026-06-29 23:51 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/46067.shtml)
+- 2026-06-30 00:01 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/3783502.shtml)
+- 2026-06-29 23:53 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/298667379603.shtml)
+- 2026-06-29 23:55 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/6074917661.shtml)
+- 2026-06-29 23:40 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/51614851715.shtml)
+- 2026-06-29 23:36 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/73963.shtml)
+- 2026-06-29 23:40 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/61523.shtml)
+- 2026-06-29 23:37 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/4510281068.shtml)
+- 2026-06-29 23:58 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/237092.shtml)
+- 2026-06-30 00:04 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/185898.shtml)
+- 2026-06-29 23:37 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/061230462677.shtml)
+- 2026-06-29 23:45 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/93753.shtml)

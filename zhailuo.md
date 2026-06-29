@@ -1,60 +1,56 @@
-# 螺纹钢成本上行动能减弱 铁矿石供需边际走弱
+# 市场监管总局公布八起传统工艺市场“打假清源”典型案例
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-（来源：兴业期货） 研报正文 【螺纹钢】 昨日期现价格双双走弱，期货跌幅大于现货。需求端，内需弱现实，地方政府专项债发行进度、重点项目投资额数据明显弱于同期，强劲的外需对内需形成补充。供给端，钢厂盈利已显著改善，钢厂生产意愿增强，需关注淡季的供给压力。 成本端，焦煤供应充裕，价格再度下探支撑位，短期削弱成本上移动能。市场风险偏好出现回落迹象，主力资金连续两天流出。螺纹、热卷观点
+中新网6月4日电 据“市说新语”微信公众号消息，为切实整治珠宝玉石、贵金属饰品、红木制品等传统工艺市场“假证书、假机构、假产品、假网站”等突出问题，严厉打击违法违规行为，规范市场秩序，维护消费者权益，2026年以来，市场监管部门以珠宝首饰等传统工艺品为重点，深入开展“打假清源”专项行动，依法查办了一批违法违规案件。现选取部分典型案例予以公布。1.江苏省东海县冰瑶珠宝商行销售以假
 
 ## 正文
 
-（来源：兴业期货） 研报正文 【螺纹钢】 昨日期现价格双双走弱，期货跌幅大于现货。
+中新网6月4日电 据“市说新语”微信公众号消息，为切实整治珠宝玉石、贵金属饰品、红木制品等传统工艺市场“假证书、假机构、假产品、假网站”等突出问题，严厉打击违法违规行为，规范市场秩序，维护消费者权益，2026年以来，市场监管部门以珠宝首饰等传统工艺品为重点，深入开展“打假清源”专项行动，依法查办了一批违法违规案件。
 
-需求端，内需弱现实，地方政府专项债发行进度、重点项目投资额数据明显弱于同期，强劲的外需对内需形成补充。
+现选取部分典型案例予以公布。
 
-供给端，钢厂盈利已显著改善，钢厂生产意愿增强，需关注淡季的供给压力。
+1.江苏省东海县冰瑶珠宝商行销售以假充真的产品和虚假宣传案 东海县市场监管局根据举报，对东海县冰瑶珠宝商行直播经营场所进行现场检查。
 
-成本端，焦煤供应充裕，价格再度下探支撑位，短期削弱成本上移动能。
+经查，当事人在某平台直播时，宣称其销售的珠宝饰品类产品为天然翡翠、蜜蜡、水晶等材质，是“天然的、无酸洗、无优化、缅甸的A货”等，并称其产品配有“国检证书”。
 
-市场风险偏好出现回落迹象，主力资金连续两天流出。
+经对销售产品检测，结果均为石英岩玉(染色)、翡翠(处理)、玻璃、塑料材质，与直播宣传的产品材质不符，随货配备的证书亦非正规检测机构出具的检测报告，而是当事人联系制作的假证书。
 
-螺纹、热卷观点暂时调整为震荡，关注资金流出的持续性。
+当事人的行为违反《中华人民共和国产品质量法》第三十九条、《中华人民共和国反不正当竞争法》第九条第一款的规定。
 
-策略上继续持有卖出看跌期权。
+2026年4月，东海县市场监管局依据《中华人民共和国产品质量法》第五十条、《中华人民共和国反不正当竞争法》第二十五条第一款、《中华人民共和国行政处罚法》第二十九条的规定，对当事人销售以假充真的产品和虚假商业宣传的违法行为作出处罚，依法责令其停止违法行为，没收以假充真产品共3673件，并处以罚款150000元。
 
-风险提示：外需走弱、地缘导致全球经济衰退。
+2.广东省四会市浪臻珠宝店虚假商业宣传案 四会市市场监管局根据举报，对四会市浪臻珠宝店进行检查。
 
 ## 相关推荐
 
-- 2026-06-29 23:58 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 23:48 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 23:49 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 23:50 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 23:39 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 23:50 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 23:36 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 23:51 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 23:37 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 23:48 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 23:53 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 23:33 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 23:42 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 23:33 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 00:03 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 23:47 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 23:57 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 23:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 23:58 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 23:52 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 23:39 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 23:57 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 00:00 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 23:50 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:44 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/634492876.shtml)
-- 2026-06-29 23:44 - [肝不好身体这几处会“说话”](http://www.share.kurohicncr.top/Article/details/523762011779.shtml)
-- 2026-06-29 23:44 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/57178.shtml)
-- 2026-06-29 23:32 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/45539364.shtml)
-- 2026-06-29 23:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/65765354.shtml)
-- 2026-06-29 23:48 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/982992063829.shtml)
-- 2026-06-29 23:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/60760735.shtml)
-- 2026-06-29 23:56 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/3878659280.shtml)
-- 2026-06-29 23:54 - [张凌赫 客串](http://www.blog.minike.top/Article/details/3179539.shtml)
-- 2026-06-29 23:45 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/104385078.shtml)
-- 2026-06-29 23:48 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/1452743553.shtml)
-- 2026-06-29 23:38 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/7443231.shtml)
-- 2026-06-29 23:46 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/7642444014.shtml)
-- 2026-06-29 23:58 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/73660543.shtml)
-- 2026-06-29 23:36 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/114795.shtml)
+- 2026-06-29 23:59 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/72591748536.shtml)
+- 2026-06-29 23:45 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/8878359951.shtml)
+- 2026-06-29 23:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/5402353125.shtml)
+- 2026-06-29 23:46 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/30160.shtml)
+- 2026-06-29 23:44 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/4182992167.shtml)
+- 2026-06-29 23:51 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/91477561695.shtml)
+- 2026-06-29 23:53 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/964629732532.shtml)
+- 2026-06-29 23:50 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/32192.shtml)
+- 2026-06-29 23:49 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/262970174020.shtml)
+- 2026-06-29 23:58 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/229075220.shtml)
+- 2026-06-30 00:02 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/22641459.shtml)
+- 2026-06-29 23:54 - [金刚川](https://www.blog.minike.top/Article/details/839681399466.shtml)
+- 2026-06-29 23:36 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/149338.shtml)
+- 2026-06-30 00:03 - [逃狱兄弟](http://www.blog.minike.top/Article/details/1381417.shtml)
+- 2026-06-30 00:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/48476.shtml)

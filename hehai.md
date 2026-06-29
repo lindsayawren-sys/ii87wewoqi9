@@ -1,59 +1,56 @@
-# 500亿市值巨头突然直线拉升
+# 国家广播电视总局部署开展微短剧有害低俗内容和侵权盗版专项治理
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-午后，福晶科技股价直线拉升，现涨超4%，报113.58元/股，总市值超530亿元。 据福晶科技2025年年报，公司产品主要分为晶体元器件、精密光学元件、激光器件三大类别。其中，公司围绕光通信，尤其是WSS模块及其配套测试设备、光器件、光模块，提供涵盖各类衍射光栅、双折射晶片、球面镜、柱面镜、波片、反射镜、法拉第旋光片等一系列关键精密光学元件。 据公司最新披露的投资者关系活动记录
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月1日，国家广播电视总局部署开展微短剧有害低俗内容和侵权盗版专项治理。本次专项治理为期2个月，将依法依规集中治理部分微短剧存在的涉儿童有害、软色情擦边、拜金炫富、畸形婚恋观、封建糟粕、暴力复仇、低俗片名、侵权盗版等8个重点问题，规范微短剧创作传播行为，进一步营造清朗健康的行业发展生态。 广电总局有关负责人
 
 ## 正文
 
-午后，福晶科技股价直线拉升，现涨超4%，报113.58元/股，总市值超530亿元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据福晶科技2025年年报，公司产品主要分为晶体元器件、精密光学元件、激光器件三大类别。
+6月1日，国家广播电视总局部署开展微短剧有害低俗内容和侵权盗版专项治理。
 
-其中，公司围绕光通信，尤其是WSS模块及其配套测试设备、光器件、光模块，提供涵盖各类衍射光栅、双折射晶片、球面镜、柱面镜、波片、反射镜、法拉第旋光片等一系列关键精密光学元件。
+本次专项治理为期2个月，将依法依规集中治理部分微短剧存在的涉儿童有害、软色情擦边、拜金炫富、畸形婚恋观、封建糟粕、暴力复仇、低俗片名、侵权盗版等8个重点问题，规范微短剧创作传播行为，进一步营造清朗健康的行业发展生态。
 
-据公司最新披露的投资者关系活动记录表，2026年公司业务在总体规划上，继续采取晶体+光学+器件协同的“一站式”激光解决方案。
+广电总局有关负责人表示，本次专项治理对于营造微短剧行业良好内容生态具有重要意义。
 
-在稳定工业纳秒紫外和光纤激光器业务基本面的基础上，重点关注和发展超快激光应用（包括碟片激光）、半导体制造相关的266nm深紫外等应用。
+各省级广电行政主管部门要切实履行属地管理责任，建立巡查与抽查机制，对辖区内平台和制作机构实行全周期、动态化监管；相关平台和制作机构要认真落实主体责任，积极主动开展全面排查，对发现的问题内容即查即改、处置到位。
 
-开展下一代WSS所需的衍射光栅的研发和量产工作，持续拓展高附加值的光通讯用复杂光胶光学组件和晶体业务。
+在扎实开展专项治理的同时，深入实施“微短剧精品创作传播‘五个一批工程’”，着力提升微短剧创作质量。
 
-据东北证券研报，法拉第旋光片成为光模块上游的重要瓶颈环节。
+专项治理结束后，广电总局将及时总结经验，开展常态化监测监管，制定完善法规制度，进一步营造良好网络视听环境。
 
-上游SGGG衬底涉及稀土元素，海外供应链受产能分配和出口管制影响，全球高端旋光片供需出现明确缺口，带来国产替代窗口。
+（国家广播电视总局） 责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 23:30 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 23:31 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 23:31 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 23:53 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 23:34 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 23:55 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 23:51 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 23:46 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 23:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 23:56 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 23:56 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 23:50 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 23:53 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 23:58 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 00:00 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 23:56 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 23:36 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 23:51 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 23:50 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 00:03 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 23:46 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 23:48 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 00:02 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:47 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/04060355.shtml)
-- 2026-06-29 23:31 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/132376784326.shtml)
-- 2026-06-29 23:44 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/23087159.shtml)
-- 2026-06-29 23:57 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/5950635.shtml)
-- 2026-06-29 23:53 - [巴西队主帅称日本队是世界最佳之一](https://www.share.minike.top/Article/details/6724759881.shtml)
-- 2026-06-29 23:48 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/51098.shtml)
-- 2026-06-29 23:39 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/512415.shtml)
-- 2026-06-29 23:56 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/858849672364.shtml)
-- 2026-06-29 23:39 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/490290.shtml)
-- 2026-06-29 23:48 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/91647758412.shtml)
-- 2026-06-29 23:52 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/8058885463.shtml)
-- 2026-06-29 23:49 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/37004842662.shtml)
-- 2026-06-29 23:47 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/4213621.shtml)
-- 2026-06-29 23:40 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/256980100.shtml)
-- 2026-06-29 23:55 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/3710362258.shtml)
+- 2026-06-29 23:53 - [世界杯](http://www.blog.minike.top/Article/details/11877588.shtml)
+- 2026-06-29 23:39 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/64308.shtml)
+- 2026-06-29 23:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/46135.shtml)
+- 2026-06-29 23:51 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/9984511.shtml)
+- 2026-06-29 23:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/115796.shtml)
+- 2026-06-29 23:54 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/116030371450.shtml)
+- 2026-06-29 23:49 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/63842189617.shtml)
+- 2026-06-29 23:44 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/637121399.shtml)
+- 2026-06-29 23:55 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/28398804.shtml)
+- 2026-06-29 23:41 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/95257977052.shtml)
+- 2026-06-29 23:52 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/390797520.shtml)
+- 2026-06-30 00:04 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/8473643.shtml)
+- 2026-06-29 23:42 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/905809.shtml)
+- 2026-06-29 23:51 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/71149.shtml)
+- 2026-06-29 23:42 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/869382895973.shtml)

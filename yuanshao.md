@@ -1,56 +1,56 @@
-# A股存储芯片全线爆发，2700亿牛股飙涨超19%，创业板指重回4000点
+# 从“手摇袜机”到“智造出海”：一根纱线织出一条产业链
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨金珊 林健民 编辑丨江佩霞 5月13日，A股创业板指持续走强，午后盘中突破4000点。此前仅有2015年6月3日至5日三个交易日在盘中突破4000点，但是收盘均在4000点下方。此外，深成指站上16000点，刷新自2021年2月19日以来新高，
+中新网辽宁辽阳6月3日电 (姜月恒 解东达)“即将开哨的2026年美加墨世界杯，我们接了一百万双球迷袜的订单。”在辽宁省辽阳市辽阳县小北河镇，辽宁保利袜业进出口有限公司董事长王中新不无自豪地说道。 除了美洲地区，现如今小北河生产的袜子还远销南非、澳大利亚、德国、俄罗斯等全球三十多个国家和地区。这里的2.5万台织机昼夜不息地运转，年产袜子超过25亿双，直接出口额突破3000万元，
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网辽宁辽阳6月3日电 (姜月恒 解东达)“即将开哨的2026年美加墨世界杯，我们接了一百万双球迷袜的订单。
 
-记者丨金珊 林健民 编辑丨江佩霞 5月13日，A股创业板指持续走强，午后盘中突破4000点。
+”在辽宁省辽阳市辽阳县小北河镇，辽宁保利袜业进出口有限公司董事长王中新不无自豪地说道。
 
-此前仅有2015年6月3日至5日三个交易日在盘中突破4000点，但是收盘均在4000点下方。
+除了美洲地区，现如今小北河生产的袜子还远销南非、澳大利亚、德国、俄罗斯等全球三十多个国家和地区。
 
-此外，深成指站上16000点，刷新自2021年2月19日以来新高，年内累计上涨超18%。
+这里的2.5万台织机昼夜不息地运转，年产袜子超过25亿双，直接出口额突破3000万元，已成为继浙江诸暨、广东里水等之后的全国第五大袜业产业集群，被誉为“中国袜业名镇”。
 
-算力硬件股持续走高，工业富联封涨，成交额位居A股第一，此前鹏鼎控股、生益科技涨停，天孚通信、罗博特科、新易盛等涨幅靠前。
+从40年前家庭作坊里的手摇半自动织机，到如今拥有第五代“织缝翻一体机”的黑灯工厂雏形，小北河袜业的蜕变，是一条从“一根纱线”开始的产业链攻坚之路。
 
-存储芯片概念继续强势拉升，大普微涨超19%，市值突破2700亿元，雅克科技、万润科技、德明利涨停，深科技、江波龙、佰维存储、长电科技等跟涨。
+“以前我们是典型的‘两头在外’，原料靠外地采购，销售靠外部渠道。
 
-白酒股集体下跌，其中，迎驾贡酒、古井贡酒跌超3%，今世缘、山西汾酒、泸州老窖跌超2%，五粮液（维权）、洋河股份、舍得酒业、水井坊、酒鬼酒、贵州茅台跌超3%，唯皇台酒业微涨，且皇台酒业为年内白酒板块中唯一上涨的白酒股。
+”辽阳金棉花袜业有限公司负责人王海峰回忆，早期的小北河袜业主要依托辽阳石化化纤优势生产纯涤棉袜，产品生硬闷汗，且受限于外地原料供应，利润微薄。
 
-光大证券最新研报表示，创业板指主要指标仍在各指数中名列前茅，具有高增长，高盈利，低估值的特点。
+为打破瓶颈，当地企业自建生产线，攻克了原料配比与纺丝稳定性的“卡脖子”难题。
 
 ## 相关推荐
 
-- 2026-06-29 23:50 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 23:57 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 23:45 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 23:54 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-29 23:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 23:36 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 23:37 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 23:48 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 23:48 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 23:32 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 23:44 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 23:47 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 00:02 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 00:01 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 00:03 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 23:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 23:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 23:41 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 23:52 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 23:36 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:50 - [TOP Prada](https://www.blog.minike.top/Article/details/6693857750.shtml)
-- 2026-06-29 23:31 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/03687923034.shtml)
-- 2026-06-29 23:59 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/42116148.shtml)
-- 2026-06-29 23:42 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/59919.shtml)
-- 2026-06-29 23:52 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/8742398.shtml)
-- 2026-06-29 23:39 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/52719.shtml)
-- 2026-06-29 23:48 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/9414259390.shtml)
-- 2026-06-29 23:37 - [天道](https://www.share.kurohicncr.top/Article/details/274044600.shtml)
-- 2026-06-29 23:33 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/1875356.shtml)
-- 2026-06-29 23:42 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/20173.shtml)
-- 2026-06-29 23:51 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/1622049.shtml)
-- 2026-06-29 23:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/777450012358.shtml)
-- 2026-06-29 23:57 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/917640893496.shtml)
-- 2026-06-29 23:46 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/89535256.shtml)
-- 2026-06-29 23:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/7032147763.shtml)
+- 2026-06-29 23:48 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/076574623712.shtml)
+- 2026-06-29 23:50 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/485146305.shtml)
+- 2026-06-29 23:53 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/1350862.shtml)
+- 2026-06-30 00:05 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/08733.shtml)
+- 2026-06-29 23:59 - [这一刀 会很帅](http://www.share.minike.top/Article/details/37627300842.shtml)
+- 2026-06-29 23:51 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/26933473.shtml)
+- 2026-06-29 23:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/931430.shtml)
+- 2026-06-29 23:55 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/581147.shtml)
+- 2026-06-29 23:49 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/55283120649.shtml)
+- 2026-06-29 23:39 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/950349442724.shtml)
+- 2026-06-29 23:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/5124919979.shtml)
+- 2026-06-29 23:40 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/170350071.shtml)
+- 2026-06-29 23:38 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/814401421.shtml)
+- 2026-06-29 23:45 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/02050.shtml)
+- 2026-06-29 23:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/9521108.shtml)

@@ -1,56 +1,57 @@
-# 瑛泰医疗拟斥资约1.08亿美元收购德晋医疗23.18%股权
+# 高盛上调Plains All American评级，看好温和改善的增长前景
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-瑛泰医疗（01501）公布，于2026年5月11日及2026年5月12日，公司就以总对价约1.08亿美元收购Valgen Holding Corporation23.18%股权，分别与卖方订立股份转让协议。 据悉，目标公司持有德晋医疗100%股权。目标公司为无实质业务活动的控股公司。德晋医疗主要从事房室瓣疾病方面（尤其是二尖瓣及三尖瓣介入治疗）介入治疗技术及产品的研发、生产及销
+高盛周四将Plains All American Pipeline的股票评级从“卖出”上调至“中性”，并将目标价从18美元大幅上调至24美元，理由是该公司的增长前景正在温和改善，同时原油市场环境趋于有利。此次上调评级后，Plains All American及其关联实体Plains GP Holdings的股价均录得上涨。 高盛分析师指出，尽管该公司在2026至2030年间的E
 
 ## 正文
 
-瑛泰医疗（01501）公布，于2026年5月11日及2026年5月12日，公司就以总对价约1.08亿美元收购Valgen Holding Corporation23.18%股权，分别与卖方订立股份转让协议。
+高盛周四将Plains All American Pipeline的股票评级从“卖出”上调至“中性”，并将目标价从18美元大幅上调至24美元，理由是该公司的增长前景正在温和改善，同时原油市场环境趋于有利。
 
-据悉，目标公司持有德晋医疗100%股权。
+此次上调评级后，Plains All American及其关联实体Plains GP Holdings的股价均录得上涨。
 
-目标公司为无实质业务活动的控股公司。
+高盛分析师指出，尽管该公司在2026至2030年间的EBITDA复合年增长率预计仅为3%左右，在同行中仍处于相对落后的位置，但其强劲的自由现金流以及行业整合背景下的并购潜力值得关注。
 
-德晋医疗主要从事房室瓣疾病方面（尤其是二尖瓣及三尖瓣介入治疗）介入治疗技术及产品的研发、生产及销售。
+此次评级上调反映了该行认为公司的基本面正在企稳，有望从一段表现欠佳的时期中逐步恢复。
 
-德晋医疗为目标集团在中国的主要经营实体。
+在运营层面，Plains All American近期展现了稳健的财务表现。
 
-目标集团自主研发的四款产品已获国家药监局纳入创新医疗器械特别审查程序，分别为MitralStitch®经心尖二尖瓣修复系统、DragonFly™经导管二尖瓣夹系统、DragonFly-T®经导管三尖瓣夹系统及DragonFire®经导管心肌射频消融系统。
+根据公司5月发布的第一季度财报，其调整后EBITDA达到7.3亿美元，并已将2026年全年的调整后EBITDA指引上修至28.8亿美元，较此前预期提高了约1.3亿美元。
 
-其中，DragonFly™经导管二尖瓣夹系统为国家药监局批准的首款国产经导管二尖瓣产品。
+公司还预计2026年将产生约18.5亿美元的自由现金流，这笔资金将主要用于偿还债务和支持资本回报计划。
 
-董事会认为，收购事项为公司提供补充其结构性心脏病领域产品管线的机会，以实现该领域更全面的产品覆盖，并提升集团于心血管介入领域的整体竞争力及长远发展潜力。
+此外，公司正积极推进其战略转型。
 
 ## 相关推荐
 
-- 2026-06-29 23:47 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 23:48 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 23:50 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 23:31 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 23:41 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 23:52 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 23:54 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 23:34 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 23:51 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 23:33 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 00:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 23:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 23:44 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 23:57 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 23:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 23:46 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 23:58 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 23:36 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 23:51 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 00:00 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 23:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:32 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/2262489779.shtml)
-- 2026-06-29 23:30 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/9919940.shtml)
-- 2026-06-29 23:57 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/20651.shtml)
-- 2026-06-29 23:41 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/74533347.shtml)
-- 2026-06-29 23:35 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/22842571584.shtml)
-- 2026-06-29 23:50 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/223727.shtml)
-- 2026-06-29 23:59 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/480260456.shtml)
-- 2026-06-29 23:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/428362900.shtml)
-- 2026-06-29 23:58 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/11502267.shtml)
-- 2026-06-29 23:40 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/986778884.shtml)
-- 2026-06-29 23:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/378566543818.shtml)
-- 2026-06-29 23:41 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/30923.shtml)
-- 2026-06-29 23:31 - [青春环游记第三季](http://www.blog.minike.top/Article/details/5401199101.shtml)
-- 2026-06-29 23:49 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/99703750.shtml)
-- 2026-06-29 23:55 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/53508.shtml)
+- 2026-06-29 23:39 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/274811541708.shtml)
+- 2026-06-29 23:43 - [沙丘](http://www.share.minike.top/Article/details/12685.shtml)
+- 2026-06-29 23:48 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/15775609865.shtml)
+- 2026-06-30 00:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/08488116831.shtml)
+- 2026-06-29 23:41 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/28197972455.shtml)
+- 2026-06-29 23:48 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/969298231.shtml)
+- 2026-06-29 23:56 - [毒液2](http://www.blog.kurohicncr.top/Article/details/70776045886.shtml)
+- 2026-06-29 23:48 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/04346139.shtml)
+- 2026-06-29 23:44 - [起风了](https://www.blog.minike.top/Article/details/96950.shtml)
+- 2026-06-30 00:05 - [东方风云榜直播](http://www.share.minike.top/Article/details/1302651616.shtml)
+- 2026-06-29 23:47 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/50516.shtml)
+- 2026-06-30 00:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/720632799234.shtml)
+- 2026-06-29 23:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/80908291.shtml)
+- 2026-06-29 23:44 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/30983046.shtml)
+- 2026-06-29 23:36 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/118060651115.shtml)

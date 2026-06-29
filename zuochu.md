@@ -1,45 +1,60 @@
-# 一线调研：让沙县小吃留住“家的味道”
+# 云南向海图强 加速富宁港建设将与平陆运河同步投入使用
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 11:14 来源：央视新闻 责任编辑：【王祎】
+中新网昆明6月4日电 (罗婕)云南省文山壮族苗族自治州人民政府州长马忠俊3日在云南省“开局起步‘十五五’”主题系列新闻发布会·文山专场上向媒体透露，该州的富宁港将于年内建成，并与平陆运河同步投入使用，使之成为云南出海最近的“黄金港口”。与此同时，与文山州毗邻的广西壮族自治区传来消息：平陆运河今日全线通水。 作为新中国成立以来第一条通江达海的大运河，平陆运河全长134.2公里，预
 
 ## 正文
 
-发布时间：2026年05月12日 11:14 来源：央视新闻 责任编辑：【王祎】
+中新网昆明6月4日电 (罗婕)云南省文山壮族苗族自治州人民政府州长马忠俊3日在云南省“开局起步‘十五五’”主题系列新闻发布会·文山专场上向媒体透露，该州的富宁港将于年内建成，并与平陆运河同步投入使用，使之成为云南出海最近的“黄金港口”。
+
+与此同时，与文山州毗邻的广西壮族自治区传来消息：平陆运河今日全线通水。
+
+作为新中国成立以来第一条通江达海的大运河，平陆运河全长134.2公里，预计于今年9月通航。
+
+届时，平陆运河将联通珠江水系与北部湾，为中国西南地区货物提供一条运距最短、最经济、最便捷的出海通道，比经由广州港出海，缩短内河航程在560公里以上。
+
+沿珠江水系溯流而上，位于云南“东大门”的文山州富宁县剥隘镇的“珠江第一港”——富宁港的建设进入冲刺阶段。
+
+富宁港是云南规划建设的最大内陆港口，其建成后与平陆运河“牵手联动”，将为云南新增一条更为便捷的水运通道，加快“通江达海”的脚步。
+
+富宁港建设不仅是文山州主动融入西部陆海新通道建设的重要举措，还将为当地产业发展注入新动能。
+
+近年来，文山州全力打造云南“绿色铝谷”核心区，大宗货物“公铁水”联运需求旺盛，富宁港建成后，与各港口通道联动潜力巨大。
 
 ## 相关推荐
 
-- 2026-06-29 23:45 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 23:40 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 23:47 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 23:32 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 23:39 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 23:41 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 23:57 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 23:51 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 23:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 23:34 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 23:58 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 23:47 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 23:52 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 00:04 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 00:00 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 23:39 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 23:48 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 23:48 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 23:37 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 23:38 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 23:47 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 23:37 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 23:48 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 23:49 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 23:46 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 23:37 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 23:46 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/559775083212.shtml)
-- 2026-06-29 23:54 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/32073.shtml)
-- 2026-06-29 23:38 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/4658464.shtml)
-- 2026-06-29 23:35 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/510008791.shtml)
-- 2026-06-29 23:32 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/00438737.shtml)
-- 2026-06-29 23:56 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/8633569.shtml)
-- 2026-06-29 23:53 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/6480538.shtml)
-- 2026-06-29 23:35 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/337890197469.shtml)
-- 2026-06-29 23:46 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/09746163.shtml)
-- 2026-06-29 23:34 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/3970404.shtml)
-- 2026-06-29 23:45 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/312531738.shtml)
-- 2026-06-29 23:39 - [美人鱼](https://www.blog.minike.top/Article/details/49481.shtml)
-- 2026-06-29 23:59 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/6460338.shtml)
-- 2026-06-29 23:36 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/51167699.shtml)
-- 2026-06-29 23:36 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/7338889.shtml)
+- 2026-06-30 00:00 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/150402.shtml)
+- 2026-06-29 23:44 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/3392381390.shtml)
+- 2026-06-29 23:52 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/41169590.shtml)
+- 2026-06-29 23:47 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/394182047580.shtml)
+- 2026-06-29 23:39 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/52055415824.shtml)
+- 2026-06-30 00:03 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/794894001718.shtml)
+- 2026-06-29 23:52 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/3030130.shtml)
+- 2026-06-30 00:00 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/7234865264.shtml)
+- 2026-06-29 23:54 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/273785274824.shtml)
+- 2026-06-29 23:45 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/134212.shtml)
+- 2026-06-30 00:00 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/67954.shtml)
+- 2026-06-29 23:59 - [田曦薇没招了](http://www.share.minike.top/Article/details/2294822210.shtml)
+- 2026-06-29 23:52 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/18659.shtml)
+- 2026-06-29 23:43 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/68359333.shtml)
+- 2026-06-29 23:37 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/30382.shtml)

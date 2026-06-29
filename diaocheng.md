@@ -1,60 +1,60 @@
-# 一字跌停！ST文峰控制权变更告吹!
+# 欧洲央行执委Elderson：越来越难以对伊朗战争引发的价格冲击视而不见
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-一字跌停！这家公司控制权变更告吹！ 本报记者 曹卫新 停牌两个交易日后，文峰大世界连锁发展股份有限公司（以下简称“ST文峰”）发布控制权变更事项进展公告。 5月12日，ST文峰对外宣布，停牌期间，公司控股股东江苏文峰集团有限公司（以下简称“文峰集团”）与意向受让方就控制权转让事宜进行了充分沟通。但因所涉事项较多，相关交易方经慎重考虑、磋商，认真听取各方意见，终止筹划本次控制权变
+欧洲央行执委Frank Elderson表示，伊朗战争引发的价格压力正变得越来越难以忽视。 他周三表示：“通胀上行的风险在增加，经济增长下行的风险也在上升，形势显然在恶化。我们越来越不可能对这场冲击视而不见。” 欧洲央行决策者将于一周后在法兰克福举行利率会议。市场普遍预计，这次会议将决定加息25个基点。 “我们还没有看到第二轮效应，”他表示。“但确实，这场战争持续时间越长，冲击
 
 ## 正文
 
-一字跌停！
+欧洲央行执委Frank Elderson表示，伊朗战争引发的价格压力正变得越来越难以忽视。
 
-这家公司控制权变更告吹！
+他周三表示：“通胀上行的风险在增加，经济增长下行的风险也在上升，形势显然在恶化。
 
-本报记者 曹卫新 停牌两个交易日后，文峰大世界连锁发展股份有限公司（以下简称“ST文峰”）发布控制权变更事项进展公告。
+我们越来越不可能对这场冲击视而不见。
 
-5月12日，ST文峰对外宣布，停牌期间，公司控股股东江苏文峰集团有限公司（以下简称“文峰集团”）与意向受让方就控制权转让事宜进行了充分沟通。
+” 欧洲央行决策者将于一周后在法兰克福举行利率会议。
 
-但因所涉事项较多，相关交易方经慎重考虑、磋商，认真听取各方意见，终止筹划本次控制权变更事项。
+市场普遍预计，这次会议将决定加息25个基点。
 
-此前，公司于2026年5月7日收到控股股东文峰集团通知，正在筹划公司股份转让事宜，该事项可能导致公司的控制权变更。
+“我们还没有看到第二轮效应，”他表示。
 
-根据《上海证券交易所股票上市规则》《上海证券交易所上市公司自律监管指引第 4 号——停复牌》等有关规定，经申请，公司股票自2026年5月8日开市起停牌。
+“但确实，这场战争持续时间越长，冲击持续得越久、强度越大，出现这种情况的可能性就越高。
 
-因控股股东终止控制权变更事项，ST文峰股票于2026年5月12日开市起复牌。
+”责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 23:48 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 23:54 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 23:47 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 23:46 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 23:31 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 23:38 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 23:56 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 23:55 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 23:48 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 23:42 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 23:47 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 23:43 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 23:42 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 23:35 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 23:37 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 23:56 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 23:51 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 23:49 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 23:46 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 23:50 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 23:53 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 23:46 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 23:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 00:00 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 00:05 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 23:45 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 00:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 23:45 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:34 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/1914819.shtml)
-- 2026-06-29 23:40 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/36774.shtml)
-- 2026-06-29 23:50 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/7606300956.shtml)
-- 2026-06-29 23:35 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/91822035766.shtml)
-- 2026-06-29 23:53 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/43727317403.shtml)
-- 2026-06-29 23:47 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/5615765.shtml)
-- 2026-06-29 23:30 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/18337.shtml)
-- 2026-06-29 23:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/0709505240.shtml)
-- 2026-06-29 23:48 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/6958120.shtml)
-- 2026-06-29 23:40 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/252134623671.shtml)
-- 2026-06-29 23:33 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/6673028547.shtml)
-- 2026-06-29 23:58 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/630991768304.shtml)
-- 2026-06-29 23:36 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/29189910721.shtml)
-- 2026-06-29 23:53 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/96028.shtml)
-- 2026-06-29 23:55 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/91084032.shtml)
+- 2026-06-29 23:56 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/776643503.shtml)
+- 2026-06-29 23:52 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/521219653.shtml)
+- 2026-06-29 23:57 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/3426886.shtml)
+- 2026-06-29 23:49 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/962899892350.shtml)
+- 2026-06-30 00:00 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/1598128032.shtml)
+- 2026-06-29 23:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/715157517233.shtml)
+- 2026-06-30 00:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/51934405.shtml)
+- 2026-06-29 23:59 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/5964845.shtml)
+- 2026-06-30 00:02 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/2722070.shtml)
+- 2026-06-29 23:47 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/629255116.shtml)
+- 2026-06-29 23:53 - [炽夏](http://www.blog.minike.top/Article/details/20080832.shtml)
+- 2026-06-29 23:44 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/99714.shtml)
+- 2026-06-29 23:40 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/807605338.shtml)
+- 2026-06-29 23:52 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/6857596.shtml)
+- 2026-06-29 23:55 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/71416542881.shtml)

@@ -1,57 +1,47 @@
-# DNV预测：到2060年清洁氢能将增长100倍
+# 中埃（及）两国央行续签双边本币互换协议
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-根据船级社DNV的最新预测，受能源安全关切及中国大规模扩张的推动，到2060年清洁氢能产量预计将增长100倍。 在其最新报告《能源转型展望2026：氢能展望至2060年》中，DNV表示，在3.2万亿美元的累计投资支持下，到2060年全球氢能总量预计将增长170%。 报告称，得益于其占主导地位的电解槽制造基地和不断扩大的可再生能源装机容量，预计在此期间中国将占全球新增氢能产量和需
+发布时间：2026年06月04日 14:06 来源：央视新闻 责任编辑：【李骏】
 
 ## 正文
 
-根据船级社DNV的最新预测，受能源安全关切及中国大规模扩张的推动，到2060年清洁氢能产量预计将增长100倍。
-
-在其最新报告《能源转型展望2026：氢能展望至2060年》中，DNV表示，在3.2万亿美元的累计投资支持下，到2060年全球氢能总量预计将增长170%。
-
-报告称，得益于其占主导地位的电解槽制造基地和不断扩大的可再生能源装机容量，预计在此期间中国将占全球新增氢能产量和需求增长的35%。
-
-报告指出，清洁氢能的需求预计将主要由钢铁制造、航空和航运行业引领，到2060年，这三个行业合计预计将占清洁氢能总使用量的一半以上。
-
-DNV表示，由于政策支持放缓以及电气化技术取得更大进展，与2022年的展望相比，其对本世纪中叶的氢能预测已下调了35%。
-
-DNV能源系统首席执行官迪特列夫·恩格尔表示：“氢能行业有望实现增长，但这种态势仍很脆弱。
-
-氢能可以完成许多国家已承诺的脱碳努力中最困难的方面。
-
-通过推动关键领域摆脱对化石燃料的依赖，氢能也为能源安全做出了有意义的贡献。
+发布时间：2026年06月04日 14:06 来源：央视新闻 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-29 23:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 23:48 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 23:41 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 23:30 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 23:47 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 23:39 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-29 23:54 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 23:48 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 23:38 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 23:33 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 23:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 23:48 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 23:54 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 23:45 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 23:41 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 23:39 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 23:40 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 23:44 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 00:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 23:42 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 00:01 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 00:02 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 00:05 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 23:47 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 23:47 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 23:41 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/7524493.shtml)
-- 2026-06-29 23:47 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/0666351881.shtml)
-- 2026-06-29 23:48 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/0783926.shtml)
-- 2026-06-29 23:52 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/42264.shtml)
-- 2026-06-29 23:35 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/4323215222.shtml)
-- 2026-06-29 23:57 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/59916609.shtml)
-- 2026-06-29 23:58 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/080267390.shtml)
-- 2026-06-29 23:33 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/3825453927.shtml)
-- 2026-06-29 23:46 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/287393284450.shtml)
-- 2026-06-29 23:50 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/712721325858.shtml)
-- 2026-06-29 23:59 - [扬名立万](https://www.share.minike.top/Article/details/378233.shtml)
-- 2026-06-29 23:38 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/9912501396.shtml)
-- 2026-06-29 23:41 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/75162462.shtml)
-- 2026-06-29 23:32 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/619488709.shtml)
-- 2026-06-29 23:52 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/96321981.shtml)
+- 2026-06-29 23:58 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/0694971.shtml)
+- 2026-06-29 23:42 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/58259.shtml)
+- 2026-06-29 23:37 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/036148383.shtml)
+- 2026-06-29 23:43 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/205574.shtml)
+- 2026-06-29 23:43 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/48998930.shtml)
+- 2026-06-29 23:44 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/93861.shtml)
+- 2026-06-29 23:57 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/09777963.shtml)
+- 2026-06-29 23:48 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/327927.shtml)
+- 2026-06-29 23:38 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/2535463.shtml)
+- 2026-06-29 23:47 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/34031.shtml)
+- 2026-06-29 23:44 - [斛珠夫人](https://www.blog.minike.top/Article/details/39410224.shtml)
+- 2026-06-29 23:49 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/8235305401.shtml)
+- 2026-06-29 23:57 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/826213732.shtml)
+- 2026-06-29 23:55 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/830128969004.shtml)
+- 2026-06-29 23:54 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/417644119.shtml)

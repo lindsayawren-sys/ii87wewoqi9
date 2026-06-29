@@ -1,59 +1,61 @@
-# 特朗普第二任期已发帖超8800次 44次深夜密集发文
+# SK海力士五年产能翻倍，存储主线爆发！华宝基金科创芯片ETF（589190）摸高6.6%，源杰科技历史新高
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-周一对美国总统特朗普来说是平常的一天。他在椭圆形办公室接受记者提问；会见了印第安纳大学橄榄球队成员；还在白宫玫瑰园与执法人员共进晚餐。 太阳落山后，另一项熟悉的例行活动开始了：深夜社交媒体发帖。总统的Truth Social账户在晚上10点14分到凌晨1点12分之间发布了55条消息。 自第二任期开始以来，特朗普的Truth Social账户粉丝数已从约860万增长至1260万。
+6月3日，芯片半导体全“链”走强，盘面亮点纷呈，光通信爆发，光芯片概念股源杰科技盘中涨超19%刷新历史新高，收涨16.41%；仕佳光子涨超9%。SK海力士要将产能翻番，存储芯片走势活跃，澜起科技盘中涨超11%，收涨逾7%；算力芯片方面，寒武纪涨超6%。 全“芯”布局芯片产业的科创芯片ETF华宝（589190）早盘奋力攀升，场内价格涨幅一度上探6.63%，午后回落后尾盘再度拉升，
 
 ## 正文
 
-周一对美国总统特朗普来说是平常的一天。
+6月3日，芯片半导体全“链”走强，盘面亮点纷呈，光通信爆发，光芯片概念股源杰科技盘中涨超19%刷新历史新高，收涨16.41%；仕佳光子涨超9%。
 
-他在椭圆形办公室接受记者提问；会见了印第安纳大学橄榄球队成员；还在白宫玫瑰园与执法人员共进晚餐。
+SK海力士要将产能翻番，存储芯片走势活跃，澜起科技盘中涨超11%，收涨逾7%；算力芯片方面，寒武纪涨超6%。
 
-太阳落山后，另一项熟悉的例行活动开始了：深夜社交媒体发帖。
+全“芯”布局芯片产业的科创芯片ETF华宝（589190）早盘奋力攀升，场内价格涨幅一度上探6.63%，午后回落后尾盘再度拉升，收涨3.52%，全天成交额超1亿元，环比放量。
 
-总统的Truth Social账户在晚上10点14分到凌晨1点12分之间发布了55条消息。
+消息面上，SK集团会长崔泰源6月2日在Computex展会上称，SK海力士计划五年内将晶圆产能翻番。
 
-自第二任期开始以来，特朗普的Truth Social账户粉丝数已从约860万增长至1260万。
+他表示，存储芯片产能瓶颈问题可能会持续到2030年。
 
-根据分析，特朗普——在工作人员协助下——至少已经发帖8800次。
+此外，存储厂商铠侠表示，超大存储数据中心正寻求签订涵盖2029年乃至更远期阶段的NAND合约。
 
-周一只是其中一次类似的深夜发帖潮。
+美银日前发布的最新半导体行业展望报告显示，AI基础设施建设仍处于早期阶段，到2030年，全球AI数据中心系统市场规模将达到1.7万亿美元以上，较2025年的2640亿美元增长超过六倍；全球半导体销售额有望达到2万亿美元，对应晶圆厂设备市场规模可达到2500亿美元。
 
-自特朗普重返白宫以来，Truth Social已经出现44次类似情况：从晚上8点到早上6点之间发布至少12条以上帖子。
+在这一背景下，AI数据中心、存储器、半导体设备以及模拟芯片行业都将迎来新的增长机遇。
 
 ## 相关推荐
 
-- 2026-06-29 23:56 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 23:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 23:57 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 23:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 23:55 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 23:37 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 23:39 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 23:57 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 23:50 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 23:48 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 23:46 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 23:41 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 23:32 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 23:58 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 23:56 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 23:38 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 23:38 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 00:02 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 23:58 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 23:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-29 23:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 00:01 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 23:52 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 23:57 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 23:38 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 23:39 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 23:59 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 23:54 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/254861006.shtml)
-- 2026-06-29 23:52 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/67150009216.shtml)
-- 2026-06-29 23:49 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/482363511.shtml)
-- 2026-06-29 23:42 - [MG总经理直播被冲](http://www.share.kurohicncr.top/Article/details/580463.shtml)
-- 2026-06-29 23:46 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/945352.shtml)
-- 2026-06-29 23:55 - [恋与深空 巧合](http://www.share.minike.top/Article/details/41772286.shtml)
-- 2026-06-29 23:54 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/62005711994.shtml)
-- 2026-06-29 23:49 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/8089709613.shtml)
-- 2026-06-29 23:41 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/4683856.shtml)
-- 2026-06-29 23:32 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/9687877366.shtml)
-- 2026-06-29 23:30 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/04968416437.shtml)
-- 2026-06-29 23:42 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/15259.shtml)
-- 2026-06-29 23:43 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/139501.shtml)
-- 2026-06-29 23:49 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/0647412013.shtml)
-- 2026-06-29 23:52 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/355658.shtml)
+- 2026-06-29 23:39 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/068648095.shtml)
+- 2026-06-30 00:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/303245927.shtml)
+- 2026-06-29 23:51 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/6072348.shtml)
+- 2026-06-30 00:01 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/791949355.shtml)
+- 2026-06-29 23:49 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/89472.shtml)
+- 2026-06-29 23:58 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/0528025022.shtml)
+- 2026-06-29 23:51 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/42666957398.shtml)
+- 2026-06-30 00:01 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/459808945158.shtml)
+- 2026-06-29 23:46 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/04665.shtml)
+- 2026-06-29 23:55 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/6684350760.shtml)
+- 2026-06-29 23:47 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/818942496.shtml)
+- 2026-06-29 23:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/21689.shtml)
+- 2026-06-29 23:56 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/53181.shtml)
+- 2026-06-29 23:52 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/24306083430.shtml)
+- 2026-06-30 00:02 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/0657475.shtml)

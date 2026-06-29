@@ -1,56 +1,57 @@
-# 地热能源开发商Fervo Energy在美国首次公开募股中筹集18.9亿美元
+# MLCC+商业航天双线发力，华宝基金军工ETF（512810）反弹摸高2.18%，资金博弈年线支撑！
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-专题：海外扰动渐趋钝化 A股上行趋势未变 地热能源开发商Fervo Energy周二表示，其在美国的首次公开募股（IPO）规模已扩大至18.9亿美元，这凸显了投资者对此次上市的强烈兴趣。这家总部位于休斯顿的公司以每股27美元的价格售出7，000万股，公司估值约为76.6亿美元。本周早些时候，该公司将发行价区间从每股21至24美元上调至25至26美元。 支持人工智能任务的数据中心
+6月3日，A股冲高回落，沪指微涨0.22%。军工板块红盘震荡，军工核心资产——军工ETF华宝（512810）盘中上探2.18%后走弱，尾盘探底回升，收涨0.82%成功收复年线，日线终结三连阴。此前3连跌区间累获超4900万资金增仓。 成份股涨跌参半，MLCC概念、商业航天概念涨幅靠前，火炬电子盘中触及涨停，收涨9.08%续创3年新高，联创光电、航天电器涨超7%，中国卫星涨6.7
 
 ## 正文
 
-专题：海外扰动渐趋钝化 A股上行趋势未变 地热能源开发商Fervo Energy周二表示，其在美国的首次公开募股（IPO）规模已扩大至18.9亿美元，这凸显了投资者对此次上市的强烈兴趣。
+6月3日，A股冲高回落，沪指微涨0.22%。
 
-这家总部位于休斯顿的公司以每股27美元的价格售出7，000万股，公司估值约为76.6亿美元。
+军工板块红盘震荡，军工核心资产——军工ETF华宝（512810）盘中上探2.18%后走弱，尾盘探底回升，收涨0.82%成功收复年线，日线终结三连阴。
 
-本周早些时候，该公司将发行价区间从每股21至24美元上调至25至26美元。
+此前3连跌区间累获超4900万资金增仓。
 
-支持人工智能任务的数据中心需求激增，加之交通、住房及其他行业的电气化进程加速，正导致美国电力供应趋紧，推高电价并增加了对可靠能源的需求。
+成份股涨跌参半，MLCC概念、商业航天概念涨幅靠前，火炬电子盘中触及涨停，收涨9.08%续创3年新高，联创光电、航天电器涨超7%，中国卫星涨6.78%。
 
-Fervo开发了先进的地热系统，可全天候产生零碳电力，为受天气影响的太阳能和风能提供了可靠的替代方案。
+下跌方面，海格通信领跌4.3%，鸿远电子跌2.38%。
 
-该公司是本周寻求进行数十亿美元首次公开募股（IPO）的三家企业之一，另外两家分别是人工智能芯片制造商Cerebras Systems和黑石数字基础设施信托。
+MLCC概念股近期持续活跃，或由AI算力需求爆发、上游金属材料通胀及地缘博弈下的国产替代加速三大因子共振驱动。
 
-摩根大通、美银证券、加拿大皇家银行资本市场和巴克莱银行担任Fervo Energy此次发行的联合主承销商。
+部分军工电子企业除军工被动元器件外，也包括AI服务器电源、电力储能市场等民用被动元器件业务，有望迎来新成长逻辑。
 
-该公司计划于周三在纳斯达克上市，股票代码为“FRVO”。
+商业航天领域，6月1日，长征十二号乙运载火箭首飞任务取得圆满成功，成功将千帆星座第十批组网卫星送入预定轨道。
 
 ## 相关推荐
 
-- 2026-06-29 23:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 23:49 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 23:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 23:39 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 23:38 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 23:58 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 23:58 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 23:36 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 23:49 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 23:32 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 23:58 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 23:50 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 23:53 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 23:54 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 23:37 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 23:40 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 23:40 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 23:37 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 23:36 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 23:38 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 00:01 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:38 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/2180076892.shtml)
-- 2026-06-29 23:48 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/292250139.shtml)
-- 2026-06-29 23:45 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/523401782.shtml)
-- 2026-06-29 23:47 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/0563509207.shtml)
-- 2026-06-29 23:50 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/8391922.shtml)
-- 2026-06-29 23:30 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/477271246059.shtml)
-- 2026-06-29 23:42 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/171062.shtml)
-- 2026-06-29 23:37 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/41973.shtml)
-- 2026-06-29 23:52 - [一生一世](https://www.blog.kurohicncr.top/Article/details/905681700.shtml)
-- 2026-06-29 23:41 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/12651.shtml)
-- 2026-06-29 23:30 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/220971767.shtml)
-- 2026-06-29 23:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/659632.shtml)
-- 2026-06-29 23:37 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/399692119.shtml)
-- 2026-06-29 23:59 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/2491842759.shtml)
-- 2026-06-29 23:48 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/2631748.shtml)
+- 2026-06-29 23:51 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/45386736411.shtml)
+- 2026-06-30 00:05 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/7530354.shtml)
+- 2026-06-29 23:38 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/03235174.shtml)
+- 2026-06-29 23:54 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/10003417.shtml)
+- 2026-06-30 00:00 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/066850092544.shtml)
+- 2026-06-29 23:50 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/07712272.shtml)
+- 2026-06-30 00:00 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/597841052702.shtml)
+- 2026-06-29 23:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/023962254.shtml)
+- 2026-06-29 23:43 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/7508369303.shtml)
+- 2026-06-29 23:41 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/219788284.shtml)
+- 2026-06-30 00:04 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/00063549.shtml)
+- 2026-06-29 23:39 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/25558189532.shtml)
+- 2026-06-29 23:48 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/937500860862.shtml)
+- 2026-06-29 23:48 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/14810234.shtml)
+- 2026-06-29 23:56 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/330126044306.shtml)

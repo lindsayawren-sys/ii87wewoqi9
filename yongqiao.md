@@ -1,58 +1,47 @@
-# 一键布局高纯度医疗器械赛道，医疗器械ETF富国5月13日起发行
+# 陕西集中发现4座东汉纪年墓 随葬器物组合较丰富
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-今年以来，医疗器械行业正迎来顶层设计与产业层面的双重催化。以细分领域脑机接口为例，一方面，年初发布的“十五五”规划纲要首次将其列入重点发展的六大未来产业，标志着这一赛道正式被纳入国家战略布局；另一方面，《2026年Q1中国医疗器械投融资全景》报告显示，一季度医疗器械融资事件约146起，总金额约110.13亿元，其中脑机接口领域融资规模突破30亿元。在此背景下，富国基金推出聚焦医
+发布时间：2026年06月04日 21:02 来源：中国新闻网 近日，陕西省考古研究院对外披露，考古人员在瓦刘墓地集中发现4座东汉纪年墓。其出土带有纪年的朱书陶罐(瓶)，纪年明确，随葬器物组合较为丰富，为瓦刘墓地及关中地区东汉时期墓葬的分期断代提供了可靠标尺，并填补了该地区汉代墓葬序列的重要缺环，也为探讨汉代民间信仰、道教起源、丧葬制度及家族社会形态等问题提供了新的资料。(记者
 
 ## 正文
 
-今年以来，医疗器械行业正迎来顶层设计与产业层面的双重催化。
+发布时间：2026年06月04日 21:02 来源：中国新闻网 近日，陕西省考古研究院对外披露，考古人员在瓦刘墓地集中发现4座东汉纪年墓。
 
-以细分领域脑机接口为例，一方面，年初发布的“十五五”规划纲要首次将其列入重点发展的六大未来产业，标志着这一赛道正式被纳入国家战略布局；另一方面，《2026年Q1中国医疗器械投融资全景》报告显示，一季度医疗器械融资事件约146起，总金额约110.13亿元，其中脑机接口领域融资规模突破30亿元。
+其出土带有纪年的朱书陶罐(瓶)，纪年明确，随葬器物组合较为丰富，为瓦刘墓地及关中地区东汉时期墓葬的分期断代提供了可靠标尺，并填补了该地区汉代墓葬序列的重要缺环，也为探讨汉代民间信仰、道教起源、丧葬制度及家族社会形态等问题提供了新的资料。
 
-在此背景下，富国基金推出聚焦医疗器械主题的基金——医疗器械ETF富国（基金代码：159056），该ETF于5月13日起正式发行，旨在为投资者提供一键布局医疗器械板块的高纯度投资工具。
-
-中证全指医疗器械指数优势凸显，三大亮点构筑高纯度投资工具 首先从指数层面来看，医疗器械ETF富国紧密跟踪的中证全指医疗器械指数优势十分突出，三大亮点构筑起一只高纯度投资工具。
-
-具体来看，Wind数据显示，截至2026年4月29日，其成分股100%为医疗器械企业，覆盖医疗设备、高值耗材、体外诊断、医美耗材等核心赛道，不含任何医药标的，定位纯粹；该指数既涵盖千亿市值龙头，亦涵盖百亿以下的小市值，更具备高成长潜力；同时，其前十大权重股合计占比约44%，分布均匀，既包含迈瑞医疗、联影医疗等综合平台型龙头，也囊括各细分赛道的高弹性冠军。
-
-从估值水平看，Wind数据显示，截至2026年4月21日，医疗器械板块PE约32倍，处于近五年估值区间的40%分位；机构持仓A股医疗器械占A股总市值比例约1.03%，已低于1．07%的历史标配数值，回到2018年上一轮医械行情启动前夕的水平，行业修复空间可观。
-
-在集采预期缓和、设备招标改善的背景下，耗材、设备等细分领域有望迎来业绩与估值的双重修复。
-
-多重利好叠加，医疗器械行业或迎配置窗口 从行业驱动力来看，当前医疗器械行业正迎来多重利好叠加共振。
+(记者 梅镱泷 阿琳娜) 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 23:36 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 23:55 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 23:31 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 23:38 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 23:57 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 23:56 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 23:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 23:35 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 23:59 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 23:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 23:47 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 23:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 23:48 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 23:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 23:37 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 00:00 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 23:42 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 23:50 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 00:05 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 23:50 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 00:00 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 00:05 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 00:05 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:36 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/4989037.shtml)
-- 2026-06-29 23:51 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/154289221.shtml)
-- 2026-06-29 23:57 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/870647348789.shtml)
-- 2026-06-29 23:42 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/756047530.shtml)
-- 2026-06-29 23:33 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/137758.shtml)
-- 2026-06-29 23:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/83317010819.shtml)
-- 2026-06-29 23:31 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/4551933.shtml)
-- 2026-06-29 23:48 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/34132406028.shtml)
-- 2026-06-29 23:34 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/941453.shtml)
-- 2026-06-29 23:57 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/996939192.shtml)
-- 2026-06-29 23:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/079280796674.shtml)
-- 2026-06-29 23:51 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/52737143.shtml)
-- 2026-06-29 23:44 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/008424977.shtml)
-- 2026-06-29 23:32 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/894470.shtml)
-- 2026-06-29 23:39 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/318514414.shtml)
+- 2026-06-30 00:04 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/8414025.shtml)
+- 2026-06-29 23:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/05659.shtml)
+- 2026-06-29 23:59 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/087036885.shtml)
+- 2026-06-29 23:55 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/271964.shtml)
+- 2026-06-29 23:41 - [法拉利车主已自行承担修理费近3万](http://www.share.minike.top/Article/details/6814810.shtml)
+- 2026-06-30 00:04 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/17752689481.shtml)
+- 2026-06-29 23:46 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/361986681.shtml)
+- 2026-06-29 23:44 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/05607862534.shtml)
+- 2026-06-29 23:57 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/32296322.shtml)
+- 2026-06-29 23:54 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/387275929.shtml)
+- 2026-06-29 23:48 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/602041721607.shtml)
+- 2026-06-29 23:36 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/2946563.shtml)
+- 2026-06-29 23:47 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/8063352.shtml)
+- 2026-06-30 00:00 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/159964.shtml)
+- 2026-06-29 23:37 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/521932513.shtml)

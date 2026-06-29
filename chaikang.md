@@ -1,58 +1,59 @@
-# 广东将有大暴雨 局部或有龙卷
+# 台湾导演陈坤厚：“把中华文化善良传统拍给世界看”
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-中新网广州5月13日电 (记者 王坚)12日白天到13日早晨，粤北和粤东市县出现了(雷)阵雨局部大雨。广东省气象局预计，13日午后至14日，全省有大雨到暴雨局部大暴雨，珠三角中南部地区局部可能有特大暴雨；雷雨时部分市县伴有8至10级短时大风、局部有小冰雹和龙卷。据广东气象部门统计，截至13日16时30分，广宁、四会、高要雷雨大风橙色预警信号处于生效中，信宜、罗定、郁南、德庆、封
+中新社北京6月4日电 题：台湾导演陈坤厚：“把中华文化善良传统拍给世界看” 作者 徐雪莹 李百加 年近87岁的台湾导演陈坤厚最近很忙。这位金马奖终身成就奖获得者携新作《青铜葵花》，辗转于大陆不同城市映后交流现场。 “善良是中国几千年来的文化传统，我想把它拍给世界看。这也是我们电影创作者该做的事。”接受中新社采访时，陈坤厚如是说。 电影《青铜葵花》改编自国际安徒生奖得主、大陆儿童
 
 ## 正文
 
-中新网广州5月13日电 (记者 王坚)12日白天到13日早晨，粤北和粤东市县出现了(雷)阵雨局部大雨。
+中新社北京6月4日电 题：台湾导演陈坤厚：“把中华文化善良传统拍给世界看” 作者 徐雪莹 李百加 年近87岁的台湾导演陈坤厚最近很忙。
 
-广东省气象局预计，13日午后至14日，全省有大雨到暴雨局部大暴雨，珠三角中南部地区局部可能有特大暴雨；雷雨时部分市县伴有8至10级短时大风、局部有小冰雹和龙卷。
+这位金马奖终身成就奖获得者携新作《青铜葵花》，辗转于大陆不同城市映后交流现场。
 
-据广东气象部门统计，截至13日16时30分，广宁、四会、高要雷雨大风橙色预警信号处于生效中，信宜、罗定、郁南、德庆、封开、怀集、清新、肇庆、三水雷雨大风黄色预警信号处于生效中。
+“善良是中国几千年来的文化传统，我想把它拍给世界看。
 
-广东省气象局预计，13日午后至14日，全省有大雨到暴雨局部大暴雨，珠三角中南部地区局部可能有特大暴雨；雷雨时部分市县伴有8至10级短时大风、局部有小冰雹和龙卷；15日，中北部市县降水减弱，南部市县有大雨局部暴雨或大暴雨；16至18日，中南部市县仍有明显降水，局部雨势强烈。
+这也是我们电影创作者该做的事。
 
-其中，13日夜间到14日，珠三角、粤北、阳江、粤东、茂名北部有大到暴雨局部大暴雨；其中珠三角可能局部有特大暴雨，其余市县多云到阴天，有中到大雨。
+”接受中新社采访时，陈坤厚如是说。
 
-15日，南部市县阴天，有大雨局部暴雨或大暴雨，其余市县多云间阴天，有(雷)阵雨局部大雨。
+电影《青铜葵花》改编自国际安徒生奖得主、大陆儿童文学作家曹文轩同名小说，讲述20世纪60年代苏北农村男孩青铜与城市女孩葵花的情谊。
 
-气象专家提醒，近期，雨时能见度下降、路面湿滑，注意交通安全。
+陈坤厚说，他被小说中无为而善的情感与充盈的细节所打动，希望透过影像将这份心灵滋养传递给更多人。
 
-同时，要注意防御强降水及其引发的局地山洪、泥石流、滑坡、崩塌等地质灾害、城乡积涝、农田渍涝等次生灾害；警惕强降水导致的中小河流洪水风险。
+陈坤厚与曹文轩并非首次合作。
 
 ## 相关推荐
 
-- 2026-06-29 23:37 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 23:53 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 23:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 23:34 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 23:57 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 23:39 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 23:56 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 23:52 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 23:57 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 23:53 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 23:57 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 23:36 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 23:48 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 23:41 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 23:48 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 23:59 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 23:51 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 23:43 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 00:03 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 23:45 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 23:50 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 00:04 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 23:43 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 23:54 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 23:41 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:50 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/512007804079.shtml)
-- 2026-06-29 23:49 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/21178.shtml)
-- 2026-06-29 23:50 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/78562741672.shtml)
-- 2026-06-29 23:43 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/442140238.shtml)
-- 2026-06-29 23:56 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/96598.shtml)
-- 2026-06-29 23:53 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/57584182.shtml)
-- 2026-06-29 23:59 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/128388513.shtml)
-- 2026-06-29 23:47 - [送你一朵小红花](https://www.share.minike.top/Article/details/6153945070.shtml)
-- 2026-06-29 23:51 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/37897248.shtml)
-- 2026-06-29 23:36 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/203816605.shtml)
-- 2026-06-29 23:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/397421271.shtml)
-- 2026-06-29 23:37 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/229103.shtml)
-- 2026-06-29 23:39 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/5484038387.shtml)
-- 2026-06-29 23:57 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/045297.shtml)
-- 2026-06-29 23:43 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/6367233.shtml)
+- 2026-06-29 23:39 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/910918413.shtml)
+- 2026-06-29 23:37 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/95758804300.shtml)
+- 2026-06-30 00:04 - [新官上任三把火](http://www.blog.minike.top/Article/details/3068630569.shtml)
+- 2026-06-29 23:38 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/07813747106.shtml)
+- 2026-06-29 23:57 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/92745.shtml)
+- 2026-06-29 23:54 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/09714.shtml)
+- 2026-06-29 23:36 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/3555081661.shtml)
+- 2026-06-29 23:55 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/5442856.shtml)
+- 2026-06-29 23:42 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/703577942.shtml)
+- 2026-06-29 23:56 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/13709830076.shtml)
+- 2026-06-29 23:44 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/126141297393.shtml)
+- 2026-06-29 23:59 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/4165315.shtml)
+- 2026-06-29 23:47 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/5453462368.shtml)
+- 2026-06-29 23:54 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/76525534.shtml)
+- 2026-06-29 23:53 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/243324009965.shtml)

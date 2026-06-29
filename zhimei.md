@@ -1,61 +1,59 @@
-# 提升公众避险能力 第三届全国防震减灾科普主场活动在吉林举办
+# 斩获“10%+”收益！21只固收+理财今年大赚，冠军借道港股IPO策略
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-中新网吉林5月12日电 (记者 孙自法)2026年5月12日是第18个全国防灾减灾日。当天，聚焦“提升公众避险能力，夯实防震减灾基础”主题，中国地震局、吉林省人民政府在吉林市共同举办第三届全国防震减灾科普主场活动。 中国地震局副局长倪岳伟出席主场活动并致辞指出，地震安全已成为公众对于美好生活向往的重要内容。加强防震减灾科普工作，是提高全民科学素质的迫切需要，也是筑牢地震安全防线
+财联社6月4日讯（编辑 王蔚） 今年以来，曾被视为“存款替代”的银行理财，在规模增长和产品线布局上开始呈现新叙事。 财联社据第三方机构数据进行不完全统计，今年以来，有超99%的固收+公募理财产品实现正收益，21只理财产品今年以来年化收益率超10%；不过在分化行情下，有73只理财产品今年亏损。 从策略上看，今年收益靠前的产品主要采用港股IPO策略、投资境内外的光通信板块股票以及通
 
 ## 正文
 
-中新网吉林5月12日电 (记者 孙自法)2026年5月12日是第18个全国防灾减灾日。
+财联社6月4日讯（编辑 王蔚） 今年以来，曾被视为“存款替代”的银行理财，在规模增长和产品线布局上开始呈现新叙事。
 
-当天，聚焦“提升公众避险能力，夯实防震减灾基础”主题，中国地震局、吉林省人民政府在吉林市共同举办第三届全国防震减灾科普主场活动。
+财联社据第三方机构数据进行不完全统计，今年以来，有超99%的固收+公募理财产品实现正收益，21只理财产品今年以来年化收益率超10%；不过在分化行情下，有73只理财产品今年亏损。
 
-中国地震局副局长倪岳伟出席主场活动并致辞指出，地震安全已成为公众对于美好生活向往的重要内容。
+从策略上看，今年收益靠前的产品主要采用港股IPO策略、投资境内外的光通信板块股票以及通过风险平价和动量策略优选配置全球资产。
 
-加强防震减灾科普工作，是提高全民科学素质的迫切需要，也是筑牢地震安全防线、减轻地震灾害风险的有效途径。
+研究机构表示，进入2026年，“固收+”产品增量贡献已开始占据 C 位。
 
-举办这次主场活动，是探索“防震减灾+文旅”的一次重要实践，旨在借助文旅传播防震避险知识和技能，进一步唤起社会各界对防震减灾工作的关注，为减轻地震灾害风险筑牢坚实的社会基础。
+1-4 月，14家理财公司“固收+”产品较年初增长 1.12 万亿，成为规模贡献主力。
 
-本次活动在辽宁和黑龙江设分会场，通过线下主场和线上直播联动的形式，集中举办重要发布、科普展演、防震减灾倡议宣讲、应急演练、广场展览、科普讲座和经验交流等一系列丰富多彩活动，向公众讲解防震减灾科学知识和自救互救技能。
+21只固收+理财产品今年以来年化收益率超10% 财联社据联合智评的数据统计，今年以来，有超99%的固收+公募理财产品实现正收益（注：成立时间为2026年以前，由理财公司管理），21只理财产品今年以来年化收益率超10%；极致分化行情下，还有73只理财产品今年亏损。
 
-中国地震局发布了公众避险能力评估结果、防震减灾科普资源库。
+今年以来年化收益率超10%的21只固收+理财产品如下： 注： 1．榜单所展示收益率均为今年以来年化收益率，收益率计算采用四舍五入保留两位小数，可能存在尾差；为对比，年化收益率是联信智评根据线性插值后的净值计算的年化收益率，结果与管理人披露收益率可能存在差异，具体收益情况以管理人公告为准。
 
-公众避险能力评估结果显示，4.7%的公众具备较好防震避险能力，14.5%的公众具备防震避险能力，42.1%的公众具有一定的防震避险能力，38.7%的公众能力不足。
+2．榜单所展示产品为理财公司发行的存续/在售、固收+、公募理财产品，成立时间均在2025年及之前。
 
 ## 相关推荐
 
-- 2026-06-29 23:52 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 23:57 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 23:57 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 23:36 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 23:49 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 23:49 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 23:45 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 23:53 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 23:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 23:45 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 23:45 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 23:53 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 23:30 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 23:41 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 23:55 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 00:00 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 23:43 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 23:46 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 23:40 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 23:46 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 23:36 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 00:04 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 23:46 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 23:55 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 23:41 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 23:55 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 23:37 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 23:58 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/134598.shtml)
-- 2026-06-29 23:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/26041.shtml)
-- 2026-06-29 23:36 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/69135730323.shtml)
-- 2026-06-29 23:59 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/7224700242.shtml)
-- 2026-06-29 23:39 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/8632521.shtml)
-- 2026-06-29 23:34 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/03104525.shtml)
-- 2026-06-29 23:50 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/01728.shtml)
-- 2026-06-29 23:53 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/8878415.shtml)
-- 2026-06-29 23:56 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/7881907040.shtml)
-- 2026-06-29 23:53 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/89122403.shtml)
-- 2026-06-29 23:52 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/5915028340.shtml)
-- 2026-06-29 23:37 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/423296.shtml)
-- 2026-06-29 23:45 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/85984864.shtml)
-- 2026-06-29 23:36 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/8124618533.shtml)
-- 2026-06-29 23:48 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/87829723441.shtml)
+- 2026-06-29 23:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/23599221211.shtml)
+- 2026-06-29 23:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/3631403169.shtml)
+- 2026-06-29 23:39 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/33965879.shtml)
+- 2026-06-29 23:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/46391.shtml)
+- 2026-06-29 23:47 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/8061308.shtml)
+- 2026-06-30 00:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/974747502750.shtml)
+- 2026-06-29 23:57 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/61715.shtml)
+- 2026-06-30 00:01 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/078199636.shtml)
+- 2026-06-29 23:39 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/638401568.shtml)
+- 2026-06-30 00:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/185991.shtml)
+- 2026-06-29 23:52 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/2934651.shtml)
+- 2026-06-29 23:36 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/3714772.shtml)
+- 2026-06-29 23:49 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/4982946607.shtml)
+- 2026-06-29 23:59 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/526502049279.shtml)
+- 2026-06-29 23:58 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/90692.shtml)

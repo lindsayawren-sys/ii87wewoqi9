@@ -1,57 +1,54 @@
-# 保险资管年报出炉：国寿、泰康、平安资管贡献过半利润
+# 教育部：推动高校录取通知书回归“一页纸” 纠治奢华录取通知书
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 孙诗卉 实习生 涂盛青 截至5月9日，除中英益利资管及新开业的友邦保险资管、荷全保险资管外，35家保险资产管理机构已披露2025年年报。整体来看，行业营收与净利润实现双位数增长，但内部分化加剧——头部机构强者恒强，万亿级“管理人家族”扩容至11家，部分中小机构则面临营收净利双降的压力。 营收利润双增，头部“马太效应”持续强化 2025年，35家机构合计实现
+2026年全国统一高考将于6月7日开考，教育部会同国家教育统一考试工作部际联席会议成员单位，全力为高考营造良好氛围。 严肃招生宣传纪律 指导各地各校严格落实高校招生宣传工作纪律要求，严禁虚假宣传、违规承诺，严禁以任何形式炒作“高考状元”“高分考生”“升学率”。推动高校录取通知书回归“一页纸”，坚决纠治奢华录取通知书、新生礼盒等不良风气。 治理违规招生行为要求各地认真履行属地监管
 
 ## 正文
 
-21世纪经济报道记者 孙诗卉 实习生 涂盛青 截至5月9日，除中英益利资管及新开业的友邦保险资管、荷全保险资管外，35家保险资产管理机构已披露2025年年报。
+2026年全国统一高考将于6月7日开考，教育部会同国家教育统一考试工作部际联席会议成员单位，全力为高考营造良好氛围。
 
-整体来看，行业营收与净利润实现双位数增长，但内部分化加剧——头部机构强者恒强，万亿级“管理人家族”扩容至11家，部分中小机构则面临营收净利双降的压力。
+严肃招生宣传纪律 指导各地各校严格落实高校招生宣传工作纪律要求，严禁虚假宣传、违规承诺，严禁以任何形式炒作“高考状元”“高分考生”“升学率”。
 
-营收利润双增，头部“马太效应”持续强化 2025年，35家机构合计实现营业收入484.45亿元，同比增长14.9%；合计净利润218.64亿元，同比增长18.3%。
+推动高校录取通知书回归“一页纸”，坚决纠治奢华录取通知书、新生礼盒等不良风气。
 
-国寿资产、泰康资产、平安资管稳居前三，三家公司合计营收211.83亿元，占全行业43.7%；合计净利润近120亿元，占比约55%。
+治理违规招生行为要求各地认真履行属地监管责任，指导高校持续优化专业(组)设置，进一步加强和改进特殊类型考试招生工作。
 
-营收前十名机构合计收入373.39亿元，占全行业77.1%；净利润前十名合计182.83亿元，占比高达83.6%。
+指导各地会同有关部门加大涉考涉招培训机构治理，坚决打击虚假宣传、高价收费、组织诈骗或作弊、扰乱考试招生秩序等违法违规行为，切实维护考生和家长合法权益。
 
-这意味着，约八成利润集中在不到三分之一的机构手中。
-
-东方证券研报指出，头部险企旗下资管平台在管理规模和管理费收入上的优势，有助于增厚集团利润并提升长期资金配置能力。
-
-在业内人士看来，保险资管行业正在从依赖牌照红利、母公司委托资金，转向比拼投资能力、市场化募资和资产创设能力的新阶段。
+监制/李浙 主编/王兴栋 总台央视记者/高晨源 编辑/谭瑶 来源：新闻联播微信公众号
 
 ## 相关推荐
 
-- 2026-06-29 23:35 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 23:40 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 23:52 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 23:32 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 23:50 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 23:34 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 23:44 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 23:42 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 23:31 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 23:35 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 23:57 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 23:58 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 00:00 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 23:45 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 23:41 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 23:45 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 23:48 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 23:55 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 23:45 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 00:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 23:39 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 00:02 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 23:58 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:55 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/526119066719.shtml)
-- 2026-06-29 23:37 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/602779.shtml)
-- 2026-06-29 23:30 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/98786.shtml)
-- 2026-06-29 23:57 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/985591505924.shtml)
-- 2026-06-29 23:58 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/05911105134.shtml)
-- 2026-06-29 23:53 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/082876386.shtml)
-- 2026-06-29 23:50 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/23167.shtml)
-- 2026-06-29 23:57 - [急先锋](https://www.blog.minike.top/Article/details/397643991247.shtml)
-- 2026-06-29 23:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/13647820.shtml)
-- 2026-06-29 23:48 - [送你一朵小红花](https://www.blog.minike.top/Article/details/077513197.shtml)
-- 2026-06-29 23:45 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/68754565858.shtml)
-- 2026-06-29 23:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/55030.shtml)
-- 2026-06-29 23:58 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/1760752.shtml)
-- 2026-06-29 23:42 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/580962.shtml)
-- 2026-06-29 23:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/605234427.shtml)
+- 2026-06-29 23:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/6012220.shtml)
+- 2026-06-30 00:03 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/394389.shtml)
+- 2026-06-30 00:02 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/113966909639.shtml)
+- 2026-06-29 23:50 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/0881504324.shtml)
+- 2026-06-29 23:55 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/86529685.shtml)
+- 2026-06-29 23:48 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/56168554482.shtml)
+- 2026-06-30 00:02 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/012323803.shtml)
+- 2026-06-29 23:55 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/826712758995.shtml)
+- 2026-06-29 23:46 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/1951279976.shtml)
+- 2026-06-29 23:42 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/842389293596.shtml)
+- 2026-06-29 23:55 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/7556828.shtml)
+- 2026-06-29 23:43 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/83279.shtml)
+- 2026-06-29 23:43 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/241894.shtml)
+- 2026-06-30 00:01 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/5803798.shtml)
+- 2026-06-29 23:51 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/1949825135.shtml)

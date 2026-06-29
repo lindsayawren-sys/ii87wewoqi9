@@ -1,58 +1,59 @@
-# 吉林全力打造全国重要绿色能源高地
+# 财经早报：特朗普称美伊协议可能在本周末达成，A股再次登上新闻联播丨2026年6月4日
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-中新网长春5月12日电 (高龙安 李彦国)吉林省能源局局长赵彦峰12日在长春表示，“十五五”时期，该省将新能源产业作为培育壮大新质生产力、布局未来产业的“突破口”，推出多项举措推动新能源产业提质跃升。 当天，吉林省政府新闻办召开“开局起步‘十五五’推动吉林全面振兴和高质量发展”系列主题新闻发布会第二场，赵彦峰详细介绍了新能源产业跃升发展的相关举措。 截至“十四五”末，吉林省新增
+【重磅】全球迎来“芯片牛”！别再错过，立即开户跟进>> 【头条要闻】 特朗普称美伊协议可能在本周末达成 当地时间3日，美国总统特朗普在白宫说，美国同伊朗的谈判进展顺利，协议可能在本周末达成。 特朗普说：“我听说谈判本身进行得非常顺利，实际上是相当顺利……如果真能达成协议，那可能会在这个周末揭晓。” 在被问及伊朗对科威特的最新袭击发生后，美国与伊朗停火协议是否仍然生效时，特朗普说
 
 ## 正文
 
-中新网长春5月12日电 (高龙安 李彦国)吉林省能源局局长赵彦峰12日在长春表示，“十五五”时期，该省将新能源产业作为培育壮大新质生产力、布局未来产业的“突破口”，推出多项举措推动新能源产业提质跃升。
+【重磅】全球迎来“芯片牛”！
 
-当天，吉林省政府新闻办召开“开局起步‘十五五’推动吉林全面振兴和高质量发展”系列主题新闻发布会第二场，赵彦峰详细介绍了新能源产业跃升发展的相关举措。
+别再错过，立即开户跟进>> 【头条要闻】 特朗普称美伊协议可能在本周末达成 当地时间3日，美国总统特朗普在白宫说，美国同伊朗的谈判进展顺利，协议可能在本周末达成。
 
-截至“十四五”末，吉林省新增风光新能源装机是“十三五”期间的3.6倍，风光新能源装机占比、发电量占比及非水可再生能源消纳责任权重均走在全国前列；能源领域投资连续两年超千亿元，氢基绿能产业领跑全国，新能源产业已强势崛起为全省发展新的增长极。
+特朗普说：“我听说谈判本身进行得非常顺利，实际上是相当顺利……如果真能达成协议，那可能会在这个周末揭晓。
 
-当前，吉林省正加快“两集四高”建设，全力打造全国重要的绿色能源产业高地。
+” 在被问及伊朗对科威特的最新袭击发生后，美国与伊朗停火协议是否仍然生效时，特朗普说，“凡事皆有因”，美军在前两天夜里对伊朗进行了相当猛烈的打击，“所以有些事情发生是有原因的，而且这种原因通常多少说得通”。
 
-赵彦峰介绍，“两集”即推进新能源产业集成式发展、集群化布局，“四高”指实现新能源高质量开发、高水平消纳、高价值转化。
+他还说，伊朗此次举动“算不上什么大事”，并称“我们已经掌控了局势，并迅速将其扼杀在了萌芽状态”。
 
-在此基础上，吉林省将科学编制新型能源体系建设“十五五”规划，推动规划落地见效。
+伊朗称在阿曼湾打击一艘美驱逐舰 美军否认 当地时间3日，美军中央司令部在社交媒体发文，否认伊朗有关“在阿曼湾对一艘美军驱逐舰发动打击”的说法，称“美国海上军事力量目前仍在安全、畅通无阻地进行飞行、航行及各项行动。
 
-为优化产业发展环境，吉林省将进一步完善省级能源政策体系，深化电力市场机制改革创新，保障企业“用得上绿电、用得起绿电、用得好绿电”，推动源网荷储协同发展，为新能源产业项目落地保驾护航。
+” 当天早些时候，伊朗军方发表声明称，伊朗海军刚刚在阿曼湾对一艘美军驱逐舰发动打击，针对设于该舰、对伊朗实施敌对行动的指挥控制中心。
 
-在产业融合发展方面，吉林将制定出台新能源集成融合发展方案，推出三种融合模式、17个典型场景，推动新能源产业多维度一体开发、多产业深度融合、多链条系统集成、多场景培育应用，打造产业发展“第二曲线”。
+伊朗最高领袖批准：成立霍尔木兹海峡问题工作组 据伊朗方面3日消息，伊朗伊斯兰议会副议长阿里·尼克扎德表示，伊朗外交部已获伊朗最高领袖穆杰塔巴·哈梅内伊批准，成立霍尔木兹海峡问题工作组。
 
 ## 相关推荐
 
-- 2026-06-29 23:34 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 23:55 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 23:59 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 23:57 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 23:59 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 23:31 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 23:38 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 23:46 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 23:41 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 23:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 23:32 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 23:40 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 23:40 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 23:55 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 23:43 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 23:57 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 23:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 23:44 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 23:38 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 23:43 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 23:39 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 00:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 23:42 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 23:47 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 23:53 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:32 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/347098.shtml)
-- 2026-06-29 23:48 - [《贺子珍》](http://www.blog.minike.top/Article/details/31391940.shtml)
-- 2026-06-29 23:34 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/6055138815.shtml)
-- 2026-06-29 23:33 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/10383093.shtml)
-- 2026-06-29 23:57 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/8029669.shtml)
-- 2026-06-29 23:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/307304970.shtml)
-- 2026-06-29 23:53 - [扬名立万](http://www.share.kurohicncr.top/Article/details/5368728.shtml)
-- 2026-06-29 23:30 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/93292001511.shtml)
-- 2026-06-29 23:49 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/80001.shtml)
-- 2026-06-29 23:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/76831326603.shtml)
-- 2026-06-29 23:38 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/76892096076.shtml)
-- 2026-06-29 23:33 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/797146773.shtml)
-- 2026-06-29 23:49 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/749705309.shtml)
-- 2026-06-29 23:34 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/9671105.shtml)
-- 2026-06-29 23:47 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/69856324670.shtml)
+- 2026-06-29 23:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/527648481.shtml)
+- 2026-06-29 23:57 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/59353330000.shtml)
+- 2026-06-29 23:43 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/7297007.shtml)
+- 2026-06-29 23:58 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/953205494293.shtml)
+- 2026-06-29 23:40 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/13827168798.shtml)
+- 2026-06-29 23:55 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/3672344.shtml)
+- 2026-06-29 23:39 - [月亮](http://www.blog.kurohicncr.top/Article/details/500245172886.shtml)
+- 2026-06-29 23:47 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/29076566456.shtml)
+- 2026-06-29 23:54 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/470609.shtml)
+- 2026-06-29 23:54 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/689204.shtml)
+- 2026-06-29 23:55 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/13174010.shtml)
+- 2026-06-30 00:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/98098030.shtml)
+- 2026-06-29 23:44 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/50644.shtml)
+- 2026-06-29 23:55 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/442302.shtml)
+- 2026-06-29 23:54 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/83087370966.shtml)

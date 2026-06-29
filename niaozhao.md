@@ -1,61 +1,61 @@
-# 002081，15天11板！
+# 侧记：欧美同学会，百年不变的报国赤子心
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-15天11板。 金螳螂（002081）12日盘中强势上扬，午后再度涨停，近15个交易日收获11个涨停板，累计涨幅达136.8%。 金螳螂近期被市场赋予“AI算力”“商业航天”、“数据中心”等热点概念，在多重概念加持下，公司股价一路飙升。 对此，公司也进行了澄清。公司日前在公告中指出，公司目前未从事商业航天核心产业（含火箭研制、卫星制造、发射服务等），亦未开展数据中心算力运营业务
+中新网北京6月3日电 题：侧记：欧美同学会，百年不变的报国赤子心 中新网记者 朱延静 百年沧海桑田，从北京到全国，从中国到世界，有一个名字仍然响亮。 1913年，詹天佑、蔡元培等知名海归留学生在北京发起成立欧美同学会。113年后，这家“百年老店”正站在新的历史节点上。 6月2日，欧美同学会(中国留学人员联谊会)第二次全国会员代表大会刚刚在北京落幕，来自五湖四海的留学人员代表齐聚
 
 ## 正文
 
-15天11板。
+中新网北京6月3日电 题：侧记：欧美同学会，百年不变的报国赤子心 中新网记者 朱延静 百年沧海桑田，从北京到全国，从中国到世界，有一个名字仍然响亮。
 
-金螳螂（002081）12日盘中强势上扬，午后再度涨停，近15个交易日收获11个涨停板，累计涨幅达136.8%。
+1913年，詹天佑、蔡元培等知名海归留学生在北京发起成立欧美同学会。
 
-金螳螂近期被市场赋予“AI算力”“商业航天”、“数据中心”等热点概念，在多重概念加持下，公司股价一路飙升。
+113年后，这家“百年老店”正站在新的历史节点上。
 
-对此，公司也进行了澄清。
+6月2日，欧美同学会(中国留学人员联谊会)第二次全国会员代表大会刚刚在北京落幕，来自五湖四海的留学人员代表齐聚一堂，共同探讨传承与创新。
 
-公司日前在公告中指出，公司目前未从事商业航天核心产业（含火箭研制、卫星制造、发射服务等），亦未开展数据中心算力运营业务。
+“不变”的是根植于心的报国初心 从詹天佑、蔡元培到钱学森、郭永怀，一代代留学人员把个人理想融入国家民族的事业中…… “无论身在何处，欧美同学会最重要的底色就是爱国。
 
-公司仅以装饰及机电主业为上述领域提供基础设施配套服务，目前仅承接少量商业航天发射场配套工程及数据中心施工项目，施工范围含办公楼、餐厅、公寓楼、机电工程等，合计占营收比例不足1%，对业绩无重大影响。
+”在大会分组讨论上，中国科学院大学特聘教授、欧美同学会留加分会会长吴德胜的发言引发共鸣。
 
-据了解，公司股价持续受追捧，除了受到热点概念的加持，主要还是受公司近期签订的一系列订单提振。
+他说，当今地缘政治风云诡谲、科技革命加速演进，留学人员的思潮在变，“但只要坚守爱国底色，我们的工作就有迹可循”。
 
-金螳螂4月22日晚间公告，孙公司金螳螂（越南）与富国民用建设有限责任公司于近日签署了《框架协议》。
+这份传承，在西北工业大学得到了生动体现。
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 23:56 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 23:58 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 23:43 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 23:37 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 23:49 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 23:57 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 23:37 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 23:33 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 23:44 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 23:42 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 23:34 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 23:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 23:57 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 23:49 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 23:56 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 23:47 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 23:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 00:01 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 00:05 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 23:39 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 23:44 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 23:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 23:53 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 23:58 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 23:58 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 23:52 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 23:39 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 23:46 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 23:52 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:35 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/972014387738.shtml)
-- 2026-06-29 23:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/52961356.shtml)
-- 2026-06-29 23:51 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/3063928180.shtml)
-- 2026-06-29 23:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/2849742.shtml)
-- 2026-06-29 23:35 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/920154.shtml)
-- 2026-06-29 23:30 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/83682242.shtml)
-- 2026-06-29 23:58 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/08863259667.shtml)
-- 2026-06-29 23:43 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/28524.shtml)
-- 2026-06-29 23:32 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/832860.shtml)
-- 2026-06-29 23:41 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/467481609940.shtml)
-- 2026-06-29 23:43 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/0667321.shtml)
-- 2026-06-29 23:53 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/849137.shtml)
-- 2026-06-29 23:51 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/0709070.shtml)
-- 2026-06-29 23:42 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/8154216224.shtml)
-- 2026-06-29 23:41 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/39303.shtml)
+- 2026-06-29 23:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/502573062.shtml)
+- 2026-06-29 23:43 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/1614189000.shtml)
+- 2026-06-29 23:44 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/772207.shtml)
+- 2026-06-29 23:36 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/53578782.shtml)
+- 2026-06-29 23:36 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/1461109381.shtml)
+- 2026-06-30 00:03 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/07561721.shtml)
+- 2026-06-29 23:45 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/3094254470.shtml)
+- 2026-06-29 23:44 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/782293980379.shtml)
+- 2026-06-29 23:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/662234603.shtml)
+- 2026-06-30 00:04 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/1892806.shtml)
+- 2026-06-30 00:05 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/58471.shtml)
+- 2026-06-29 23:36 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/2047999.shtml)
+- 2026-06-29 23:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/248611.shtml)
+- 2026-06-30 00:05 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/5605975840.shtml)
+- 2026-06-30 00:01 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/0417065.shtml)

@@ -1,60 +1,58 @@
-# 从手工编织到拼豆定制 消费者为何开始偏爱自己“造”？
+# 黄金ETF近一个月资金净流出超百亿元
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-露西先是宠物主人，想给自己的小狗做点合身的衣服，继而拿起棒针，用上3D打印纺线机，成了织物主理人；紫悠本是古风爱好者，因找不到喜欢的拼豆图样，转而拿起平板，成了拼豆设计师…… 从手工编织到拼豆定制，从自动锁边机到自动烫画机，这场“自己造”的变迁，正在重新定义制造与消费的边界——当消费者开始亲手创造，全新的需求、工具与消费空间，也都随之生长。 “造物”的需求，从何而来 杭州开往上
+本报记者 方凌晨 近期，黄金价格持续震荡。受行情不确定性扰动，黄金ETF规模整体出现缩水，部分产品资金净流出明显。截至6月3日记者发稿时，14只黄金ETF近一个月资金净流出超100亿元。 此前广受投资者认可的“金价回落、逢低加仓”观点，在震荡行情下开始出现分歧。当前黄金是否还有配置价值？在受访人士看来，短期金价震荡格局或将延续，但从中长期维度来看，支撑黄金配置价值的核心逻辑并未
 
 ## 正文
 
-露西先是宠物主人，想给自己的小狗做点合身的衣服，继而拿起棒针，用上3D打印纺线机，成了织物主理人；紫悠本是古风爱好者，因找不到喜欢的拼豆图样，转而拿起平板，成了拼豆设计师…… 从手工编织到拼豆定制，从自动锁边机到自动烫画机，这场“自己造”的变迁，正在重新定义制造与消费的边界——当消费者开始亲手创造，全新的需求、工具与消费空间，也都随之生长。
+本报记者 方凌晨 近期，黄金价格持续震荡。
 
-“造物”的需求，从何而来 杭州开往上海的高铁上，五个并排的年轻女孩，都保持着相似的姿势——低头，双手翻飞，织针在指间穿梭，五彩的毛线在小桌板和膝头间跳跃。
+受行情不确定性扰动，黄金ETF规模整体出现缩水，部分产品资金净流出明显。
 
-车厢仿佛被划出了一个专属“手作区”，安静、专注，富有魔力。
+截至6月3日记者发稿时，14只黄金ETF近一个月资金净流出超100亿元。
 
-露西正是其中之一。
+此前广受投资者认可的“金价回落、逢低加仓”观点，在震荡行情下开始出现分歧。
 
-这是近一年来她第三次去上海。
+当前黄金是否还有配置价值？
 
-不同的是，这次是和伙伴们一起，奔赴一个共同的目的地——在HAI550举办的“织女的聚会”。
+在受访人士看来，短期金价震荡格局或将延续，但从中长期维度来看，支撑黄金配置价值的核心逻辑并未发生改变。
 
-到了现场，聚会的“热闹”程度远超她的想象。
+金价震荡 资金流出 黄金ETF是指将绝大部分基金财产投资于上海黄金交易所挂盘交易的黄金品种，紧密跟踪黄金价格，使用黄金品种组合或基金合同约定的方式进行申购赎回，并在证券交易所上市交易的开放式基金。
 
-有人用毛线复刻了东方明珠，形态逼真，诙谐好玩；有人织出了一整个“花店”，铃兰、松果、水仙等栩栩如生；还有人为自己的玩偶织了一顶朱迪警官的帽子。
+目前，我国主要有两类黄金ETF产品：一类是跟踪上海黄金交易所Au99.99现货实盘合约价格，共计7只产品，总规模为2563.38亿元；另一类是跟踪上海黄金交易所上海金集中定价合约价格，同样为7只产品，规模合计319.03亿元。
 
 ## 相关推荐
 
-- 2026-06-29 23:53 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 23:57 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 23:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 23:36 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 23:40 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 23:41 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 23:48 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 23:54 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 23:39 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 23:37 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 23:36 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 23:31 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 23:41 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 23:43 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 00:04 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 23:53 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 00:01 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 00:02 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 23:49 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 23:44 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 00:01 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 23:44 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 23:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 23:36 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-30 00:01 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 23:47 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [请回答王牌2019](https://www.blog.minike.top/Article/details/1707819.shtml)
-- 2026-06-29 23:34 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/930385587801.shtml)
-- 2026-06-29 23:51 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/7330545318.shtml)
-- 2026-06-29 23:30 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/144511.shtml)
-- 2026-06-29 23:47 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/53720290450.shtml)
-- 2026-06-29 23:59 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/414698155015.shtml)
-- 2026-06-29 23:30 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/03930339366.shtml)
-- 2026-06-29 23:41 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/12399280.shtml)
-- 2026-06-29 23:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/70071089313.shtml)
-- 2026-06-29 23:59 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/094399142.shtml)
-- 2026-06-29 23:57 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/3340309.shtml)
-- 2026-06-29 23:50 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/209299.shtml)
-- 2026-06-29 23:39 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/712680404233.shtml)
-- 2026-06-29 23:41 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/672631843.shtml)
-- 2026-06-29 23:43 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/33324101113.shtml)
+- 2026-06-29 23:48 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/8811514418.shtml)
+- 2026-06-29 23:42 - [起风了](https://www.blog.minike.top/Article/details/118506782261.shtml)
+- 2026-06-29 23:53 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/78424.shtml)
+- 2026-06-29 23:45 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/57916030.shtml)
+- 2026-06-30 00:04 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/13394.shtml)
+- 2026-06-29 23:36 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/69320821850.shtml)
+- 2026-06-29 23:41 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/71494.shtml)
+- 2026-06-29 23:52 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/53522.shtml)
+- 2026-06-30 00:04 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/9954062020.shtml)
+- 2026-06-29 23:40 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/87376.shtml)
+- 2026-06-29 23:49 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/581543.shtml)
+- 2026-06-29 23:55 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/0066661.shtml)
+- 2026-06-29 23:43 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/627905981.shtml)
+- 2026-06-30 00:01 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/129499980.shtml)
+- 2026-06-29 23:42 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/640524473.shtml)

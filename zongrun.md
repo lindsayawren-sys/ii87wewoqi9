@@ -1,60 +1,60 @@
-# 东北证券：中国宏桥首予“买入”评级 目标价42港元
+# 世界经济论坛：地缘经济碎片化或致全球年损超3000亿美元，美国工资降幅最大
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-5月8日，东北证券发布研报称，首次覆盖中国宏桥（01378），给予“买入”评级，对标26年股息率修复至6%，目标价42港元。预计公司2026~2028年归母净利342、376、386亿元，对应PE分别为8.5、7.7、7.5倍，若按64%分红比例，对应股息率为7.6%、8.3%、8.5%。。 东北证券主要观点如下： 一体化布局的电解铝龙头企业 中国宏桥是一家集热电、采矿、氧化铝
+中新网6月4日电 世界经济论坛当地时间4日发布报告称，受地缘政治紧张、经济安全担忧及主要经济体贸易关系变化影响，地缘经济碎片化在2025年和2026年加速发展，预计每年将给全球经济造成2130亿至3070亿美元损失。报告称，关税上调、投资限制和报复措施正日益影响包括美国、欧盟、加拿大、日本和韩国在内的传统经济体，推高企业成本并增加跨境投资不确定性。若碎片化进一步恶化，全球经济损
 
 ## 正文
 
-5月8日，东北证券发布研报称，首次覆盖中国宏桥（01378），给予“买入”评级，对标26年股息率修复至6%，目标价42港元。
+中新网6月4日电 世界经济论坛当地时间4日发布报告称，受地缘政治紧张、经济安全担忧及主要经济体贸易关系变化影响，地缘经济碎片化在2025年和2026年加速发展，预计每年将给全球经济造成2130亿至3070亿美元损失。
 
-预计公司2026~2028年归母净利342、376、386亿元，对应PE分别为8.5、7.7、7.5倍，若按64%分红比例，对应股息率为7.6%、8.3%、8.5%。
+报告称，关税上调、投资限制和报复措施正日益影响包括美国、欧盟、加拿大、日本和韩国在内的传统经济体，推高企业成本并增加跨境投资不确定性。
 
-。
+若碎片化进一步恶化，全球经济损失可能达到6.9万亿美元，占全球GDP的6.4%。
 
-东北证券主要观点如下： 一体化布局的电解铝龙头企业 中国宏桥是一家集热电、采矿、氧化铝、液态铝合金、铝合金锭、铝合金铸轧产品、铝母线、高精铝板带箔、新材料于一体的铝全产业链特大型企业。
+报告预计，现有产业碎片化政策将推动全球通胀率上升0.2至0.3个百分点，并削弱居民购买力。
 
-1）电解铝产能 646 万吨：主要位于山东和云南，占全国 2024 年总产能 4462 万吨的 14.5%。
+报道还称，新兴市场和发展中经济体受冲击尤为严重，在极端情景下产出损失最高可达10.7%。
 
-2）氧化铝产能 2100 万吨：山东 1900 万吨产能+印尼 200 万吨产能，是国内唯二氧化铝产能超过 1000 万吨/年的企业之一。
+报道指出，实际工资下降幅度最明显的是美国。
 
-2020 年至 2025 年，公司营业收入从 861 亿增长至 1624 亿，年复合增长率为 13.5%，归母净利润从 105.0 亿元增长至 226 亿元，年复合增长率为 16.6%。
+预计美国低技能劳动者的实际工资将下降0.33%，中等技能劳动者下降0.49%，高技能劳动者下降0.66%。
 
-全产业链一体化布局，成本端优势凸显 中国宏桥通过构建并完善“采矿 —氧化铝—原铝—铝深加工、新材料—再生铝”的完整闭环产业链，实现了全产业链的一体化布局，尤其在上游铝土矿、氧化铝、能源等板块的布局强化了公司成本、利润的稳定性。
+与此同时，其他主要经济体也面临类似的购买力下滑压力。
 
 ## 相关推荐
 
-- 2026-06-29 23:30 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 23:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 23:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 23:50 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 23:55 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 23:44 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 23:54 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 23:53 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 23:47 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 23:30 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 23:58 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 23:45 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 23:53 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 23:36 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 23:37 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 23:39 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 23:50 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 23:48 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 23:51 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 23:59 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 23:49 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 23:51 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 23:56 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 00:01 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 23:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 23:47 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 23:51 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 23:46 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:40 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/41582.shtml)
-- 2026-06-29 23:33 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/5905746548.shtml)
-- 2026-06-29 23:44 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/9620953.shtml)
-- 2026-06-29 23:47 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/56908.shtml)
-- 2026-06-29 23:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/239603280946.shtml)
-- 2026-06-29 23:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/6219663657.shtml)
-- 2026-06-29 23:55 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/978213701040.shtml)
-- 2026-06-29 23:53 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/409786438.shtml)
-- 2026-06-29 23:36 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/823489213389.shtml)
-- 2026-06-29 23:45 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/3689696790.shtml)
-- 2026-06-29 23:36 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/94179.shtml)
-- 2026-06-29 23:31 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/03348510.shtml)
-- 2026-06-29 23:49 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/264853843.shtml)
-- 2026-06-29 23:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/92889.shtml)
-- 2026-06-29 23:52 - [炽夏](https://www.share.minike.top/Article/details/640714744.shtml)
+- 2026-06-29 23:51 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/03304458.shtml)
+- 2026-06-29 23:46 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/790473746.shtml)
+- 2026-06-29 23:54 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/5082347382.shtml)
+- 2026-06-30 00:04 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/32841376747.shtml)
+- 2026-06-29 23:52 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/622629.shtml)
+- 2026-06-29 23:52 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/1610167826.shtml)
+- 2026-06-29 23:54 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/9011981.shtml)
+- 2026-06-29 23:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/7027435440.shtml)
+- 2026-06-29 23:55 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/0866803.shtml)
+- 2026-06-29 23:46 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/84463103857.shtml)
+- 2026-06-30 00:05 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/7738109.shtml)
+- 2026-06-29 23:54 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/0091592375.shtml)
+- 2026-06-29 23:38 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/86540887.shtml)
+- 2026-06-30 00:02 - [一见倾心](https://www.share.minike.top/Article/details/78790944.shtml)
+- 2026-06-30 00:05 - [起风了](http://www.blog.minike.top/Article/details/478872.shtml)

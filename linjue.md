@@ -1,42 +1,45 @@
-# 美防长表示：尽管发生交火 美伊停火协议依然有效
+# 洞察印尼商机 助力鄂企出海 ——开拓印尼市场交流会
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 13:30 来源：央视新闻 责任编辑：【王祎】
+活动简介 为贯彻落实我省“十五五”规划纲要，扩大外贸进出口、服务企业出海，发挥海外综合服务体系的作用进一步促进我省高水平对外开放，鼓励湖北企业拓展、深耕东盟市场，湖北省国际商会拟于6月11日下午在武汉举办“商会沙龙第13期：洞察印尼商机 助力鄂企出海——开拓印尼市场交流会”。 活动日程 (一)省贸促会领导致辞(二)主题分享：印尼营商环境介绍 (三)主题分享：湖北企业在印尼经验分
 
 ## 正文
 
-发布时间：2026年05月13日 13:30 来源：央视新闻 责任编辑：【王祎】
+活动简介 为贯彻落实我省“十五五”规划纲要，扩大外贸进出口、服务企业出海，发挥海外综合服务体系的作用进一步促进我省高水平对外开放，鼓励湖北企业拓展、深耕东盟市场，湖北省国际商会拟于6月11日下午在武汉举办“商会沙龙第13期：洞察印尼商机 助力鄂企出海——开拓印尼市场交流会”。
+
+活动日程 (一)省贸促会领导致辞(二)主题分享：印尼营商环境介绍 (三)主题分享：湖北企业在印尼经验分享 (四)参会代表互动交流 来源：中国国际贸易促进委员会网站
 
 ## 相关推荐
 
-- 2026-06-29 23:31 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 23:30 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 23:57 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 23:37 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 23:39 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 23:37 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 23:34 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 23:39 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 23:56 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 23:45 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 23:45 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 23:54 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 00:00 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 00:05 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 23:41 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 23:53 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 23:48 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 23:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 23:38 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 23:36 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 00:04 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/7842003.shtml)
-- 2026-06-29 23:56 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/7969513421.shtml)
-- 2026-06-29 23:56 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/743448820253.shtml)
-- 2026-06-29 23:38 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/28706633.shtml)
-- 2026-06-29 23:30 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/58564.shtml)
-- 2026-06-29 23:31 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/582396870252.shtml)
-- 2026-06-29 23:49 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/182853165.shtml)
-- 2026-06-29 23:33 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/5053337.shtml)
-- 2026-06-29 23:49 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/30784455.shtml)
-- 2026-06-29 23:43 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/696100.shtml)
-- 2026-06-29 23:35 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/0593402355.shtml)
-- 2026-06-29 23:54 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/698954.shtml)
-- 2026-06-29 23:35 - [刘念回应](https://www.share.minike.top/Article/details/07586735336.shtml)
-- 2026-06-29 23:57 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/627424.shtml)
-- 2026-06-29 23:33 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/68578.shtml)
+- 2026-06-29 23:41 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/405884.shtml)
+- 2026-06-29 23:52 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/271857004256.shtml)
+- 2026-06-29 23:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/40421395951.shtml)
+- 2026-06-29 23:52 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/014553.shtml)
+- 2026-06-29 23:42 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/591597779.shtml)
+- 2026-06-29 23:56 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/57220490407.shtml)
+- 2026-06-29 23:54 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/603524980214.shtml)
+- 2026-06-29 23:43 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/09228448374.shtml)
+- 2026-06-29 23:54 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/9189584.shtml)
+- 2026-06-29 23:45 - [电影后室值得看吗](https://www.share.minike.top/Article/details/044331.shtml)
+- 2026-06-29 23:59 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/2574839290.shtml)
+- 2026-06-29 23:43 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/155513808.shtml)
+- 2026-06-29 23:50 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/672116852267.shtml)
+- 2026-06-30 00:05 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/295600456.shtml)
+- 2026-06-29 23:55 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/01911.shtml)

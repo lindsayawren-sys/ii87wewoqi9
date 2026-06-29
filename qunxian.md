@@ -1,58 +1,44 @@
-# ATFX:美国CPI数据发布 美元何去何从
+# 金斯瑞生物科技授出合共1473.67万个限制性股份单位
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 5月12，ATFX：北京时间今日20：30，美国将公布4月未季调CPI年率，前值为3.3%，预期值3.7%，预期增幅明显。4月季调后CPI月率，同时公布，前值为0.9%，预期值0.6%，预期降幅同样明显。通胀数据同比下降而环比上升，意味着美国的短期物价水平下降但长期仍存在高通胀风险。 ▲ATFX图 美原油WTI在三月份涨幅明显，四月份虽然维持高位区间
+金斯瑞生物科技（01548）发布公告，于2026年6月4日，本公司向4名董事、本公司轮值首席执行官、若干雇员及一名服务提供者授出合共1473.67万个限制性股份单位，惟待接纳及须遵守2021年限制性股份单位计划的条款及条件。责任编辑：卢昱君
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 5月12，ATFX：北京时间今日20：30，美国将公布4月未季调CPI年率，前值为3.3%，预期值3.7%，预期增幅明显。
+金斯瑞生物科技（01548）发布公告，于2026年6月4日，本公司向4名董事、本公司轮值首席执行官、若干雇员及一名服务提供者授出合共1473.67万个限制性股份单位，惟待接纳及须遵守2021年限制性股份单位计划的条款及条件。
 
-4月季调后CPI月率，同时公布，前值为0.9%，预期值0.6%，预期降幅同样明显。
-
-通胀数据同比下降而环比上升，意味着美国的短期物价水平下降但长期仍存在高通胀风险。
-
-▲ATFX图 美原油WTI在三月份涨幅明显，四月份虽然维持高位区间，但整体涨幅有限。
-
-CPI数据衡量的是价格增量，在国际油价温和波动的前提下，四月份环比数据极可能出现下降。
-
-短期CPI数据影响短期美元走势，如果市场主流观点认为下降的环比数据会降低美联储加息的紧迫性，美元可能遭受冲击。
-
-▲ATFX图 核心CPI年率，前值为2.6%，预期值为2.7%，预期增幅不明显。
-
-核心CPI月率，前值为0.2%，预期值为0.4%，预期增幅中等。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:52 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 23:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 23:38 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 23:31 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 23:42 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 23:55 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 23:53 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 23:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 23:46 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 23:51 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 23:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 23:43 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 23:46 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 23:56 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 23:52 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 23:47 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 00:02 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 23:51 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 23:56 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 00:03 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 23:38 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 23:45 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/585743066.shtml)
-- 2026-06-29 23:59 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/33952543927.shtml)
-- 2026-06-29 23:46 - [日防卫省正考虑引进美企人工智能系统](http://www.share.kurohicncr.top/Article/details/99988.shtml)
-- 2026-06-29 23:46 - [沙丘](http://www.blog.minike.top/Article/details/80690664.shtml)
-- 2026-06-29 23:31 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/2210794.shtml)
-- 2026-06-29 23:37 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/46261887.shtml)
-- 2026-06-29 23:39 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/11987.shtml)
-- 2026-06-29 23:44 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/570520237877.shtml)
-- 2026-06-29 23:36 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/657468910.shtml)
-- 2026-06-29 23:46 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/316065.shtml)
-- 2026-06-29 23:46 - [天道](http://www.blog.minike.top/Article/details/28992268.shtml)
-- 2026-06-29 23:51 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/000438479.shtml)
-- 2026-06-29 23:33 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/96646401430.shtml)
-- 2026-06-29 23:52 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/17041.shtml)
-- 2026-06-29 23:56 - [扬名立万](http://www.blog.minike.top/Article/details/82839476.shtml)
+- 2026-06-29 23:58 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/24103841.shtml)
+- 2026-06-29 23:52 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/572742.shtml)
+- 2026-06-29 23:57 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/6714354.shtml)
+- 2026-06-29 23:53 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/15098012.shtml)
+- 2026-06-29 23:52 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/263320.shtml)
+- 2026-06-29 23:37 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/29413059398.shtml)
+- 2026-06-29 23:44 - [金刚川](https://www.share.minike.top/Article/details/097591.shtml)
+- 2026-06-29 23:53 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/46151698.shtml)
+- 2026-06-29 23:43 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/215277.shtml)
+- 2026-06-30 00:01 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/49967854.shtml)
+- 2026-06-29 23:55 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/9119480.shtml)
+- 2026-06-29 23:45 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/8553670.shtml)
+- 2026-06-30 00:02 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/564665.shtml)
+- 2026-06-29 23:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/9149645.shtml)
+- 2026-06-29 23:39 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/96420112525.shtml)

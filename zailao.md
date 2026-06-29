@@ -1,56 +1,57 @@
-# 易趣网正式拒绝游戏驿站550亿美元并购提案
+# 华润万象生活早盘涨逾4% 大摩给予目标价55.47港元
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-美国电商平台易趣网（eBay）周二正式驳回了美国视频游戏零售商游戏驿（GameStop）价值约550亿美元的现金加股票并购提案。易趣网方面对此明确表态，称该项收购提议“既不可信也缺乏吸引力”。 游戏驿站于上周单方面提出上述并购意向。鉴于易趣网的企业体量约为游戏驿站的四倍，此项“蛇吞象”式的并购案引发了华尔街的广泛质疑。市场普遍对游戏驿站的资金筹措能力及其可行性持高度怀疑态度。
+华润万象生活（01209）盘中涨超4%，截至发稿，股价上涨3.87%，现报42.98港元，成交额7279.20万港元。 大摩发布研报称，相信华润万象生活（01209）未来30天股价上升，发生机率料80%以上。主要是因为股票近期已明显回落，令短期估值大幅更具吸引力。评级增持，目标价55.47港元。 该行认为市场对华润万象同店销售增长可能放缓过度担忧，原因是近月奢侈品及黄金销售较弱
 
 ## 正文
 
-美国电商平台易趣网（eBay）周二正式驳回了美国视频游戏零售商游戏驿（GameStop）价值约550亿美元的现金加股票并购提案。
+华润万象生活（01209）盘中涨超4%，截至发稿，股价上涨3.87%，现报42.98港元，成交额7279.20万港元。
 
-易趣网方面对此明确表态，称该项收购提议“既不可信也缺乏吸引力”。
+大摩发布研报称，相信华润万象生活（01209）未来30天股价上升，发生机率料80%以上。
 
-游戏驿站于上周单方面提出上述并购意向。
+主要是因为股票近期已明显回落，令短期估值大幅更具吸引力。
 
-鉴于易趣网的企业体量约为游戏驿站的四倍，此项“蛇吞象”式的并购案引发了华尔街的广泛质疑。
+评级增持，目标价55.47港元。
 
-市场普遍对游戏驿站的资金筹措能力及其可行性持高度怀疑态度。
+该行认为市场对华润万象同店销售增长可能放缓过度担忧，原因是近月奢侈品及黄金销售较弱。
 
-易趣网在声明中表示，公司已会同法律与财务顾问团队对该提案进行了全面且审慎的评估。
+该行认为公司相对具免疫力，因过去几年已大幅提升在中低端消费以及二线及顶级三线城市的曝光度，预计仍能达到指引的高单位数同店销售增长，估计5月为中单位数，相比首四个月的约10%同比增长，并实现今年介乎约11%至14%的每股盈利增长，主要受惠于持续的市场份额提升、新商场开业，以及营运杠杆带来的利润率扩张。
 
-易趣网董事长保罗·普雷斯勒（Paul Pressler）在当日公开的致游戏驿站函件中，详细列明了否决该提案的核心考量。
-
-他强调，管理层对该并购案的融资安排及确定性存在严重关切，并担忧此项交易将导致易趣网的债务负担被动大幅增加。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:37 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 23:53 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 23:34 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 23:33 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 23:58 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 23:43 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 23:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 23:32 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 23:33 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 23:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 23:47 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 23:53 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 23:43 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 00:03 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 23:50 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 23:41 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 23:54 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 23:56 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 23:36 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 23:42 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 23:55 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 23:59 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 23:52 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:54 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/11053.shtml)
-- 2026-06-29 23:55 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/404268525.shtml)
-- 2026-06-29 23:52 - [周生如故](http://www.share.kurohicncr.top/Article/details/85207.shtml)
-- 2026-06-29 23:34 - [明星大侦探第四季](http://www.share.minike.top/Article/details/7617190137.shtml)
-- 2026-06-29 23:55 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/221497.shtml)
-- 2026-06-29 23:40 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/557377.shtml)
-- 2026-06-29 23:33 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/06313338553.shtml)
-- 2026-06-29 23:38 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/993403466846.shtml)
-- 2026-06-29 23:38 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/4713244349.shtml)
-- 2026-06-29 23:50 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/81402493251.shtml)
-- 2026-06-29 23:34 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/6845504.shtml)
-- 2026-06-29 23:52 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/2415726.shtml)
-- 2026-06-29 23:57 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/4256913947.shtml)
-- 2026-06-29 23:38 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/72538.shtml)
-- 2026-06-29 23:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/8924647801.shtml)
+- 2026-06-29 23:37 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/30048390047.shtml)
+- 2026-06-29 23:58 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/4684288611.shtml)
+- 2026-06-29 23:55 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/493862810.shtml)
+- 2026-06-29 23:40 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/7075842826.shtml)
+- 2026-06-29 23:37 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/4762183254.shtml)
+- 2026-06-29 23:47 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/644436778214.shtml)
+- 2026-06-29 23:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/44864.shtml)
+- 2026-06-29 23:54 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/204525328510.shtml)
+- 2026-06-30 00:00 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/10127434.shtml)
+- 2026-06-29 23:39 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/898749869.shtml)
+- 2026-06-29 23:39 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/1583089005.shtml)
+- 2026-06-29 23:46 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/97260220656.shtml)
+- 2026-06-30 00:05 - [炽夏](http://www.blog.kurohicncr.top/Article/details/92131016048.shtml)
+- 2026-06-29 23:56 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/31697747129.shtml)
+- 2026-06-29 23:47 - [美以这对亲密盟友要掰了吗](http://www.blog.kurohicncr.top/Article/details/0204712578.shtml)

@@ -1,57 +1,51 @@
-# 最高被罚3843万元！年内15家支付机构被罚近亿元
+# Benchmark资本募资12.5亿美元新基金，投向成熟期初创企业
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-华夏时报记者 付乐 北京报道 2026年第三方支付行业监管力度依旧保持从严基调。 5月9日，两家支付机构一同被罚。乐刷支付因8项违法行为，被警告、通报批评并罚没合计843.950367万元；新生支付则因3项违规行为，被给予警告、通报批评，并处以罚款66万元。 这两张罚单并非行业个例。记者梳理今年以来第三方支付机构收到的罚单，约有15家机构被罚，合计罚没金额近亿元。从处罚力度来看
+Benchmark资本（Benchmark）新完成两支基金募资，其中一支将投资中后期初创项目，打破该机构常年只投早期创业公司的传统。知情募资人士透露：12.5 亿美元基金专注布局成熟期企业，另一支 7.5 亿美元基金继续深耕早期项目。 近几个月多家同行机构陆续落地史上规模最大的募资，Benchmark资本也顺势跟进。Benchmark过往一贯募资体量在 4 亿~5 亿美元、每隔
 
 ## 正文
 
-华夏时报记者 付乐 北京报道 2026年第三方支付行业监管力度依旧保持从严基调。
+Benchmark资本（Benchmark）新完成两支基金募资，其中一支将投资中后期初创项目，打破该机构常年只投早期创业公司的传统。
 
-5月9日，两家支付机构一同被罚。
+知情募资人士透露：12.5 亿美元基金专注布局成熟期企业，另一支 7.5 亿美元基金继续深耕早期项目。
 
-乐刷支付因8项违法行为，被警告、通报批评并罚没合计843.950367万元；新生支付则因3项违规行为，被给予警告、通报批评，并处以罚款66万元。
+近几个月多家同行机构陆续落地史上规模最大的募资，Benchmark资本也顺势跟进。
 
-这两张罚单并非行业个例。
+Benchmark过往一贯募资体量在 4 亿~5 亿美元、每隔数年新设一期基金；此前已有多位合伙人提出质疑：固守小额基金 + 纯早期投资的旧模式，能否持续跑出顶尖投资回报。
 
-记者梳理今年以来第三方支付机构收到的罚单，约有15家机构被罚，合计罚没金额近亿元。
-
-从处罚力度来看，开联通支付以3843.49万元的罚没金额居首。
-
-5月12日，博通分析金融行业资深分析师王蓬博对《华夏时报》记者表示，行业内多类违规问题存在共性，部分支付机构收单业务扩张节奏较快，容易出现合规建设滞后于业务发展的情况。
-
-年内多机构被罚 公示表显示，乐刷支付被警告、通报批评，罚没合计843.950367万元。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 23:34 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 23:50 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 23:49 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 23:38 - [张凌赫 客串](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 23:51 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 23:32 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 23:32 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 23:46 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 23:38 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 23:31 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 23:46 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 23:37 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 23:50 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 23:36 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 23:56 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 23:53 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 00:03 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 23:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 23:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 23:36 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 23:37 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 23:52 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:45 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/513717620073.shtml)
-- 2026-06-29 23:32 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/561911.shtml)
-- 2026-06-29 23:40 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/96466173.shtml)
-- 2026-06-29 23:53 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/459392252838.shtml)
-- 2026-06-29 23:52 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/112705815.shtml)
-- 2026-06-29 23:41 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/58423108958.shtml)
-- 2026-06-29 23:45 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/84130396013.shtml)
-- 2026-06-29 23:52 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/87666873997.shtml)
-- 2026-06-29 23:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/34600346.shtml)
-- 2026-06-29 23:54 - [把邻居裸体发群算维权还是侵权](http://www.share.minike.top/Article/details/342128988658.shtml)
-- 2026-06-29 23:41 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/6963825723.shtml)
-- 2026-06-29 23:45 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/398891836593.shtml)
-- 2026-06-29 23:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/921160.shtml)
-- 2026-06-29 23:52 - [扬名立万](https://www.blog.minike.top/Article/details/140392421.shtml)
-- 2026-06-29 23:49 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/787896977754.shtml)
+- 2026-06-29 23:51 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/403227925188.shtml)
+- 2026-06-29 23:44 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/73022.shtml)
+- 2026-06-29 23:46 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/295273636106.shtml)
+- 2026-06-29 23:40 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/871911.shtml)
+- 2026-06-30 00:04 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/54021.shtml)
+- 2026-06-29 23:51 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/213483324.shtml)
+- 2026-06-30 00:04 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/442018906.shtml)
+- 2026-06-29 23:47 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/12089166.shtml)
+- 2026-06-29 23:39 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/999525130.shtml)
+- 2026-06-30 00:04 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/2645843.shtml)
+- 2026-06-29 23:52 - [一生一世](http://www.blog.minike.top/Article/details/37011523.shtml)
+- 2026-06-29 23:44 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/351982040437.shtml)
+- 2026-06-29 23:37 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/76937.shtml)
+- 2026-06-29 23:44 - [爱很美味](https://www.blog.minike.top/Article/details/48203876.shtml)
+- 2026-06-29 23:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/15411991.shtml)

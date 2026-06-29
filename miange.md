@@ -1,60 +1,56 @@
-# 能源成本走高，4月日本投资者抛售海外股票
+# 多国汉学家相聚敦煌：体验古人日常 感受丝路文明魅力
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-受伊朗局势推高能源成本、通胀进一步蔓延风险升温影响，市场对海外股市趋于谨慎，日本投资者4月时隔四个月再度转为净抛售海外股票。 日本财务省周三公布的数据显示，日本投资者上月净卖出6364亿日元（折合40.4亿美元）海外股票，创2025年10月以来最大单月净抛售规模。 不过，日本投资者4月境外债券抛售规模有所放缓，净抛售额降至2192亿日元，为三个月来最低水平。 美国劳工部周二公布
+发布时间：2026年06月04日 22:58 来源：中国新闻网 临摹壁画、汉简书写、汉服换装……6月2日至4日，第三届世界汉学家大会在甘肃省敦煌市举办，来自近70个国家的300余名中外代表参加。中外代表通过主题论坛、沉浸式体验，深度了解中华优秀传统文化，感受敦煌丝路文明魅力。 会议期间，与会人员围绕“和合共生：中华文明的和平基因”“文明互鉴：汉学历史中的对话交流”等多个议题进行
 
 ## 正文
 
-受伊朗局势推高能源成本、通胀进一步蔓延风险升温影响，市场对海外股市趋于谨慎，日本投资者4月时隔四个月再度转为净抛售海外股票。
+发布时间：2026年06月04日 22:58 来源：中国新闻网 临摹壁画、汉简书写、汉服换装……6月2日至4日，第三届世界汉学家大会在甘肃省敦煌市举办，来自近70个国家的300余名中外代表参加。
 
-日本财务省周三公布的数据显示，日本投资者上月净卖出6364亿日元（折合40.4亿美元）海外股票，创2025年10月以来最大单月净抛售规模。
+中外代表通过主题论坛、沉浸式体验，深度了解中华优秀传统文化，感受敦煌丝路文明魅力。
 
-不过，日本投资者4月境外债券抛售规模有所放缓，净抛售额降至2192亿日元，为三个月来最低水平。
+会议期间，与会人员围绕“和合共生：中华文明的和平基因”“文明互鉴：汉学历史中的对话交流”等多个议题进行了深入研讨。
 
-美国劳工部周二公布的数据显示，受食品、服务业、房租及航空出行成本全面上涨推动，美国4月居民消费者通胀创下三年来最大涨幅。
+汉学家们表示，当今世界需要对话而不是对抗，需要理解而不是偏见，文明交流互鉴是治愈世界创伤的一剂良药。
 
-日本信托账户当月从境外股票净撤出1.85万亿日元，创2025年6月以来最大单月净流出规模；同时斥资8973亿日元增持境外长期债券。
+愿积极传播中华文化，向世界展现真实、立体、全面的中国。
 
-但投资信托管理公司与人寿保险商则逆势净买入境外股票，买入规模分别达1.25万亿日元、3331亿日元。
-
-日本央行另一份报告显示，今年一季度日本投资者净抛售美债4.95万亿日元、欧债1.02万亿日元。
-
-其中分别抛售法国债券7976.66亿日元、德国债券3076.5亿日元。
+田鹏鹤 甘肃敦煌报道 责任编辑：【胡寒笑】
 
 ## 相关推荐
 
-- 2026-06-29 23:52 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 23:59 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 23:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 23:45 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 23:45 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 23:30 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 23:43 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 23:43 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-29 23:33 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 23:36 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 23:40 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 23:48 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 23:32 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 23:33 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 23:57 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-30 00:02 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 00:03 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 23:48 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 23:58 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 23:36 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 00:01 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 00:04 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 23:54 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 23:48 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 23:50 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 23:47 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 00:02 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 23:40 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:43 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/32234.shtml)
-- 2026-06-29 23:31 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/2828674.shtml)
-- 2026-06-29 23:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/18959.shtml)
-- 2026-06-29 23:34 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/66551054.shtml)
-- 2026-06-29 23:34 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/6802522585.shtml)
-- 2026-06-29 23:36 - [蔚来车主罚站](http://www.share.minike.top/Article/details/96639603926.shtml)
-- 2026-06-29 23:56 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/600042.shtml)
-- 2026-06-29 23:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/5443421070.shtml)
-- 2026-06-29 23:50 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/894649.shtml)
-- 2026-06-29 23:55 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/756055.shtml)
-- 2026-06-29 23:37 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/2635218.shtml)
-- 2026-06-29 23:31 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/4143710.shtml)
-- 2026-06-29 23:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/1388245.shtml)
-- 2026-06-29 23:37 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/94569166.shtml)
-- 2026-06-29 23:40 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/93522011412.shtml)
+- 2026-06-29 23:58 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/025155.shtml)
+- 2026-06-29 23:57 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/008553182452.shtml)
+- 2026-06-29 23:38 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/552469229671.shtml)
+- 2026-06-29 23:53 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/9590470546.shtml)
+- 2026-06-29 23:37 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/1981677.shtml)
+- 2026-06-29 23:37 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/38634.shtml)
+- 2026-06-29 23:44 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/409346111023.shtml)
+- 2026-06-29 23:51 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/293926.shtml)
+- 2026-06-30 00:00 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/936516.shtml)
+- 2026-06-29 23:42 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/2981485.shtml)
+- 2026-06-29 23:55 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/66493.shtml)
+- 2026-06-29 23:51 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/6981779483.shtml)
+- 2026-06-29 23:44 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/72412848098.shtml)
+- 2026-06-29 23:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/73712.shtml)
+- 2026-06-29 23:56 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/35868611.shtml)

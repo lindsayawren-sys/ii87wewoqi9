@@ -1,58 +1,60 @@
-# 印度将黄金和白银关税上调至15% 以遏制进口并支撑卢比汇率
+# 澳大利亚一季度GDP环比增长0.3%
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-印度政府周三发布命令称，已将黄金和白银的进口关税从6%上调至15%，以遏制贵金属的海外采购，并缓解外汇储备面临的压力。尽管提高关税可能有助于缩小印度的贸易逆差并支撑卢比（亚洲表现最差的货币之一），但也可能抑制这个全球第二大贵金属消费国的需求。不过行业人士警告称，进口税的提高可能会重新刺激走私活动--自印度在2024年中期下调关税以来，走私情况已有所缓解。“正如预期，政府提高了关
+中新社悉尼6月3日电 (记者 薄雯雯)澳大利亚统计局3日发布数据显示，经季节性因素调整，该国2026年第一季度国内生产总值(GDP)环比增长0.3%，同比增长2.5%。 这一环比增幅低于上一季度的0.9%，也低于市场预期的0.5%。澳统计局国民账户主管格蕾丝·金表示，今年第一季度经济增速有所放缓，家庭消费和公共部门支出增长较为温和，同时极端天气对采矿业生产和出口活动造成干扰。
 
 ## 正文
 
-印度政府周三发布命令称，已将黄金和白银的进口关税从6%上调至15%，以遏制贵金属的海外采购，并缓解外汇储备面临的压力。
+中新社悉尼6月3日电 (记者 薄雯雯)澳大利亚统计局3日发布数据显示，经季节性因素调整，该国2026年第一季度国内生产总值(GDP)环比增长0.3%，同比增长2.5%。
 
-尽管提高关税可能有助于缩小印度的贸易逆差并支撑卢比（亚洲表现最差的货币之一），但也可能抑制这个全球第二大贵金属消费国的需求。
+这一环比增幅低于上一季度的0.9%，也低于市场预期的0.5%。
 
-不过行业人士警告称，进口税的提高可能会重新刺激走私活动--自印度在2024年中期下调关税以来，走私情况已有所缓解。
+澳统计局国民账户主管格蕾丝·金表示，今年第一季度经济增速有所放缓，家庭消费和公共部门支出增长较为温和，同时极端天气对采矿业生产和出口活动造成干扰。
 
-“正如预期，政府提高了关税以遏制经常账赤字。
+数据显示，今年第一季度澳经济增长主要受到国内最终需求推动，其中私营企业投资环比增长6.0%，家庭消费环比增长0.5%。
 
-但此举可能会影响需求，因为金银价格本已处于高位，”印度金银珠宝协会全国秘书Surendra Mehta表示。
+格蕾丝·金表示，受利率上升和燃油成本显著增加影响，消费者支出趋于谨慎，家庭消费增长受到一定抑制。
 
-近几周，印度一直试图遏制黄金进口，并开始对黄金和白银进口征收3%的综合商品和服务税（IGST），导致银行暂停进口超过一个月。
+恶劣天气对依赖出口的行业造成明显影响。
 
-受此影响，4月黄金进口量跌至近30年来的最低水平。
+第一季度采矿业产量环比下降1.5%，运输、邮政和仓储业活动环比下降1.3%。
 
-交易商表示，银行在缴纳了3%的IGST后已恢复进口，但在关税上调后，进口量可能再次下降。
+同时，出口环比下降1.1%，主要受煤炭和矿石出口减少拖累。
 
 ## 相关推荐
 
-- 2026-06-29 23:45 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 23:48 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 23:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 23:33 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 23:50 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 23:52 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 23:46 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 23:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 23:39 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 23:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 23:32 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 23:57 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 23:51 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 23:58 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 23:40 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 00:00 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 23:41 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 23:38 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 00:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 23:39 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 00:01 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 23:45 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 23:59 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 23:43 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 23:44 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 23:54 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/2953380.shtml)
-- 2026-06-29 23:42 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/505364823.shtml)
-- 2026-06-29 23:45 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/2342333987.shtml)
-- 2026-06-29 23:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/75660.shtml)
-- 2026-06-29 23:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/54345991.shtml)
-- 2026-06-29 23:40 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/31578704.shtml)
-- 2026-06-29 23:46 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/796290766.shtml)
-- 2026-06-29 23:48 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/4795135.shtml)
-- 2026-06-29 23:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/64810336.shtml)
-- 2026-06-29 23:35 - [起风了](http://www.blog.kurohicncr.top/Article/details/947392.shtml)
-- 2026-06-29 23:54 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/13951917.shtml)
-- 2026-06-29 23:35 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/669629.shtml)
-- 2026-06-29 23:33 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/124049.shtml)
-- 2026-06-29 23:44 - [小娘惹](https://www.share.minike.top/Article/details/579625.shtml)
-- 2026-06-29 23:43 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/5478903118.shtml)
+- 2026-06-29 23:45 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/5760181.shtml)
+- 2026-06-29 23:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/97756.shtml)
+- 2026-06-29 23:43 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/18508.shtml)
+- 2026-06-29 23:46 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/966410.shtml)
+- 2026-06-29 23:46 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/100982687.shtml)
+- 2026-06-29 23:39 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/2490282987.shtml)
+- 2026-06-29 23:36 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/26661129.shtml)
+- 2026-06-29 23:47 - [肝不好身体这几处会“说话”](https://www.share.minike.top/Article/details/33080587.shtml)
+- 2026-06-30 00:01 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/5498161.shtml)
+- 2026-06-29 23:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/03720468544.shtml)
+- 2026-06-29 23:41 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/406294010.shtml)
+- 2026-06-29 23:51 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/69784752069.shtml)
+- 2026-06-29 23:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/9289996.shtml)
+- 2026-06-29 23:45 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/50526.shtml)
+- 2026-06-30 00:05 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/2299439.shtml)

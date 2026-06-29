@@ -1,60 +1,58 @@
-# 探访福建福清百年侨厝群：文脉流芳 承载记忆
+# 旅比华侨华人举行慰侨活动迎端午佳节
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 22:19 来源：中国新闻网 福州是全国著名侨乡，侨厝众多，特色鲜明。福清市江镜镇南宵村下和洋自然村保留了一整片连着的侨厝和老民居，传承着一段“尊师重教、耕读传家”的百年佳话。 20世纪初，村里的许多男儿下南洋打拼。一封封侨批不断寄回。家书里包裹着的血汗钱，让他们在家乡起了大厝。斗转星移，这些大厝形成了现在的南宵村下和洋古民居群。 下和洋世代重
+中新网布鲁塞尔6月4日电 2026“浙里有爱·万水千山粽是情”端午慰侨活动3日在比利时举行，1300余份粽子将陆续送到侨胞手上，庆祝即将到来的端午佳节。 当日活动由比利时浙江籍侨团联盟举办，到场侨胞领取了粽子礼包，其后比利时浙江籍侨团联盟的17家侨团将分头行动，向其他旅比侨胞发放粽子礼包。 比利时浙江籍侨团联盟主席傅旭海表示，旅比侨胞虽身在海外，但每逢端午佳节，总会想起亲人的牵
 
 ## 正文
 
-发布时间：2026年05月12日 22:19 来源：中国新闻网 福州是全国著名侨乡，侨厝众多，特色鲜明。
+中新网布鲁塞尔6月4日电 2026“浙里有爱·万水千山粽是情”端午慰侨活动3日在比利时举行，1300余份粽子将陆续送到侨胞手上，庆祝即将到来的端午佳节。
 
-福清市江镜镇南宵村下和洋自然村保留了一整片连着的侨厝和老民居，传承着一段“尊师重教、耕读传家”的百年佳话。
+当日活动由比利时浙江籍侨团联盟举办，到场侨胞领取了粽子礼包，其后比利时浙江籍侨团联盟的17家侨团将分头行动，向其他旅比侨胞发放粽子礼包。
 
-20世纪初，村里的许多男儿下南洋打拼。
+比利时浙江籍侨团联盟主席傅旭海表示，旅比侨胞虽身在海外，但每逢端午佳节，总会想起亲人的牵挂与故乡的温暖。
 
-一封封侨批不断寄回。
+粽子虽小，却饱含浓浓的乡情和同胞之情，更有炽热的家国情怀。
 
-家书里包裹着的血汗钱，让他们在家乡起了大厝。
+中国驻比利时使馆公使李艳、布鲁塞尔首都大区议员陈安琪等嘉宾应邀出席活动。
 
-斗转星移，这些大厝形成了现在的南宵村下和洋古民居群。
+李艳称赞旅比侨胞在实现自身发展的同时，积极为中比友好架桥，为中华文化代言，希望广大侨胞“身在天涯，心有归处；行遍四海，根在中华”。
 
-下和洋世代重视教育，村里第一代学堂至今保留完好，里头还设置了人物雕像，还原了当时的学习场景。
+陈安琪表示，端午节不只是中国传统节日，更是凝聚人心的盛会。
 
-在这座仅有10多平方米的小学堂里，走出了福清第一位中国科学院院士、著名气象学家高由禧。
+通过分享这一传统，可以加强相互理解，倡导文化之间的尊重与友谊，相信华人社区将继续为构建开放多元的比利时社会贡献力量。
 
 ## 相关推荐
 
-- 2026-06-29 23:36 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 23:48 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 23:41 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 23:35 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 23:38 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 23:58 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 23:58 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 23:46 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 23:55 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 23:41 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 23:55 - [蔚来车主罚站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 23:38 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 23:32 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 23:51 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 23:45 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 23:38 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 23:43 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 23:55 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 23:51 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 23:54 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 00:02 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 23:48 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 23:51 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 23:40 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 00:03 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-30 00:00 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:39 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/194198609181.shtml)
-- 2026-06-29 23:47 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/2194790.shtml)
-- 2026-06-29 23:45 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/610874525.shtml)
-- 2026-06-29 23:47 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/7619052.shtml)
-- 2026-06-29 23:31 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/416174.shtml)
-- 2026-06-29 23:57 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/41219575.shtml)
-- 2026-06-29 23:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/8707340025.shtml)
-- 2026-06-29 23:40 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/147809675.shtml)
-- 2026-06-29 23:36 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/094603028287.shtml)
-- 2026-06-29 23:45 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/0669177740.shtml)
-- 2026-06-29 23:59 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/454649905440.shtml)
-- 2026-06-29 23:43 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/7082496.shtml)
-- 2026-06-29 23:37 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/43656341.shtml)
-- 2026-06-29 23:53 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/280980.shtml)
-- 2026-06-29 23:46 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/8917016.shtml)
+- 2026-06-29 23:40 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/95185.shtml)
+- 2026-06-29 23:55 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/857661346444.shtml)
+- 2026-06-30 00:05 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/229390.shtml)
+- 2026-06-30 00:04 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/5557767.shtml)
+- 2026-06-29 23:36 - [一见倾心](https://www.blog.minike.top/Article/details/25929.shtml)
+- 2026-06-29 23:37 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/766534.shtml)
+- 2026-06-29 23:36 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/0511890062.shtml)
+- 2026-06-29 23:46 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/528588.shtml)
+- 2026-06-29 23:37 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/913609357.shtml)
+- 2026-06-29 23:50 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/4672382242.shtml)
+- 2026-06-29 23:36 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/01659242.shtml)
+- 2026-06-29 23:59 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/903793.shtml)
+- 2026-06-29 23:54 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.kurohicncr.top/Article/details/73819045.shtml)
+- 2026-06-29 23:45 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/348974384717.shtml)
+- 2026-06-30 00:05 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/85637796104.shtml)

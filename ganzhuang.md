@@ -1,60 +1,56 @@
-# 香港科技园与中国药促会签约 共建平台助力内地创新药出海
+# 量子计算：泡沫炒作还是硬核实业？
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-中新网香港5月12日电 香港科技园公司与中国医药创新促进会(简称“中国药促会”)12日在香港签署合作备忘录。双方将共建合作平台，协助内地医药及生物科技企业对接临床转化、全球注册、国际合作、投融资及商业化拓展等关键环节，加速中国创新药迈向国际市场。 香港特区政府创新科技及工业局工业专员(创新及科技)葛明出席并见证签约。他表示，香港正全力推动生命健康企业落地发展创新药、创新诊断、创
+“量子” 一词本义为 “一份、定量”，源自拉丁语词根，含义是 “多少”。在物理学中，量子是各类物理属性最小的不可分割基本单位。用作形容词时，例如短语 “quantum leap（跨越式巨变）”，指代突发性、根本性的重大变革；而这个词用来定义下一代颠覆性科技 —— 量子计算，也再贴切不过。 继人工智能之后，量子计算被业界奉为即将颠覆整个算力行业的下一代技术。各类行业头条虽然对非专
 
 ## 正文
 
-中新网香港5月12日电 香港科技园公司与中国医药创新促进会(简称“中国药促会”)12日在香港签署合作备忘录。
+“量子” 一词本义为 “一份、定量”，源自拉丁语词根，含义是 “多少”。
 
-双方将共建合作平台，协助内地医药及生物科技企业对接临床转化、全球注册、国际合作、投融资及商业化拓展等关键环节，加速中国创新药迈向国际市场。
+在物理学中，量子是各类物理属性最小的不可分割基本单位。
 
-香港特区政府创新科技及工业局工业专员(创新及科技)葛明出席并见证签约。
+用作形容词时，例如短语 “quantum leap（跨越式巨变）”，指代突发性、根本性的重大变革；而这个词用来定义下一代颠覆性科技 —— 量子计算，也再贴切不过。
 
-他表示，香港正全力推动生命健康企业落地发展创新药、创新诊断、创新疗法等新兴和未来产业。
+继人工智能之后，量子计算被业界奉为即将颠覆整个算力行业的下一代技术。
 
-香港科技园公司与中国药促会签署合作备忘录，将汇集两地优势资源，推动医疗科技创新链与产业链深度融合，进一步巩固香港作为国际创新科技中心地位。
+各类行业头条虽然对非专业读者晦涩难懂，却极具冲击力： 然而，满是行业术语的亮眼科技头条，历来常常超前于产业落地现实。
 
-香港科技园公司行政总裁黄秉修表示，香港是国家创新药走向世界的重要桥头堡。
+下文将厘清量子计算的本质、行业价值，判断行业热潮究竟名实相符，还是盲目炒作、不值得资本入局。
 
-凭借“背靠祖国、联通世界”的独特优势，香港能有效对接内地医药创新动能与国际资源。
+经典计算机与摩尔定律 想要读懂量子计算，先要弄懂比特。
 
-目前，香港科学园已汇聚超过330家生命健康科技企业。
+从智能手机、桌面笔记本，到全球算力顶尖的 “埃尔卡皮坦” 超级计算机，所有经典计算机的运算基础都是比特。
 
 ## 相关推荐
 
-- 2026-06-29 23:30 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 23:33 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 23:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 23:40 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 23:32 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 23:38 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 23:51 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 23:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 23:33 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 23:30 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 23:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 23:35 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 23:59 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 23:40 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 23:50 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 23:51 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 23:52 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 23:39 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 00:02 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 23:38 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 23:37 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 00:01 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 00:04 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 23:44 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/574595.shtml)
-- 2026-06-29 23:44 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/7482840251.shtml)
-- 2026-06-29 23:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/4801491087.shtml)
-- 2026-06-29 23:41 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/713302561085.shtml)
-- 2026-06-29 23:37 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/57602.shtml)
-- 2026-06-29 23:33 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/824637837.shtml)
-- 2026-06-29 23:38 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/1815341.shtml)
-- 2026-06-29 23:40 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/978951625170.shtml)
-- 2026-06-29 23:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/33400375.shtml)
-- 2026-06-29 23:34 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/58621741.shtml)
-- 2026-06-29 23:56 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/957965.shtml)
-- 2026-06-29 23:43 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/53756712.shtml)
-- 2026-06-29 23:35 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/21073951.shtml)
-- 2026-06-29 23:47 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/0274608313.shtml)
-- 2026-06-29 23:49 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/75560161.shtml)
+- 2026-06-29 23:58 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/461754513.shtml)
+- 2026-06-29 23:59 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/569578.shtml)
+- 2026-06-30 00:04 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/4082590.shtml)
+- 2026-06-29 23:48 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/170720756.shtml)
+- 2026-06-29 23:56 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/47801420280.shtml)
+- 2026-06-29 23:52 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/103918.shtml)
+- 2026-06-29 23:54 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/26714862329.shtml)
+- 2026-06-29 23:56 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/79369565972.shtml)
+- 2026-06-29 23:38 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/87326.shtml)
+- 2026-06-29 23:56 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/51194631927.shtml)
+- 2026-06-29 23:46 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/9289835.shtml)
+- 2026-06-29 23:39 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/80498697.shtml)
+- 2026-06-29 23:46 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/43305131368.shtml)
+- 2026-06-29 23:39 - [东方风云榜](http://www.share.minike.top/Article/details/45603850.shtml)
+- 2026-06-29 23:54 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/036022885.shtml)

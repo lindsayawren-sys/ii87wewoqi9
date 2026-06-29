@@ -1,60 +1,61 @@
-# 长江有色：12日碳酸锂价上涨 结构性牛市由预期转向现实短缺
+# 以色列北部选民要求对黎巴嫩采取强硬立场，总理内塔尼亚胡支持率大幅下滑
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-长江有色金属网 期货方面： 根据广州期货交易所2026年5月12日收盘数据，碳酸锂主力合约（LC2609）全天呈现高位震荡格局。合约开盘于208，000元/吨，盘中一度冲高至208，800元/吨，创下该合约上市以来新高，随后回落至203，300元/吨的日内低点，最终收于205，260元/吨，较前一交易日结算价202，140元/吨上涨3，120元，日涨幅约1.54%。当日成交活跃
+最新民调显示，黎巴嫩真主党火箭弹袭击最密集的以色列北部，总理内塔尼亚胡选民支持率断崖式下跌；大选临近，北部民意倒逼他在对黎问题上转向强硬立场。 以黎两国于周三晚间达成停火协议，无论这份协议能否落地，都与以色列北部民众的诉求背道而驰。 希伯来大学阿加姆研究所发布的民调数据显示：相较以色列其他地区选民，北部民众正加速背离内塔尼亚胡所属集团，并就黎巴嫩战事严厉问责总理。 伊朗提出，若
 
 ## 正文
 
-长江有色金属网 期货方面： 根据广州期货交易所2026年5月12日收盘数据，碳酸锂主力合约（LC2609）全天呈现高位震荡格局。
+最新民调显示，黎巴嫩真主党火箭弹袭击最密集的以色列北部，总理内塔尼亚胡选民支持率断崖式下跌；大选临近，北部民意倒逼他在对黎问题上转向强硬立场。
 
-合约开盘于208，000元/吨，盘中一度冲高至208，800元/吨，创下该合约上市以来新高，随后回落至203，300元/吨的日内低点，最终收于205，260元/吨，较前一交易日结算价202，140元/吨上涨3，120元，日涨幅约1.54%。
+以黎两国于周三晚间达成停火协议，无论这份协议能否落地，都与以色列北部民众的诉求背道而驰。
 
-当日成交活跃，成交量达194，979手，持仓量537，447手，结算价报205，800元/吨。
+希伯来大学阿加姆研究所发布的民调数据显示：相较以色列其他地区选民，北部民众正加速背离内塔尼亚胡所属集团，并就黎巴嫩战事严厉问责总理。
 
-现货方面： 根据长江有色金属网2026年5月12日发布的最新现货行情数据，国内碳酸锂市场延续强势上涨格局。
+伊朗提出，若要同美国达成和平协议，先决条件是以色列终止在黎军事行动；这份民调直观反映出，内塔尼亚胡愈发陷入两难：一边要考量国内大选，一边需要配合美国盟友的外交布局。
 
-当日，电池级碳酸锂（99.5%）现货均价报200，000元/吨，价格区间为196，500-203，500元/吨，较前一交易日上涨2，500元/吨，日涨幅约1.26%；工业级碳酸锂（99.2%）均价报197，000元/吨，同样上涨2，500元/吨，日涨幅约1.28%。
+以色列全国大选最晚将于10月举行，一旦落败，内塔尼亚胡执政联盟或将下台，终结他数十年来屹立以色列政坛的传奇履历。
 
-从供给端审视，全球锂资源正面临“海外扰动加剧”与“国内增量受限”的双重挤压，有效供给的收缩远超市场预期。
+尽管本届政府被视作以色列史上最右翼内阁，但大量北部民众希望政府摆脱美国施压束缚，在中东冲突问题上祭出更强硬的军事对策。
 
-海外方面，非洲某重要锂资源国的锂精矿出口禁令虽有所松动，但受限于漫长的海运周期，新增配额的实际到港时间最早也要推迟至下个季度，这意味着未来一段时间国内将面临确定的海外矿石断档期。
+受访选民表示，以色列必须持续作战，直至彻底瓦解真主党组织。
 
-与此同时，澳洲主流矿山下调了年度产量指引，降幅显著，进一步收紧了全球供给预期。
+众多北部选民，主张以色列继续加码作战（4月短暂休战后战事仍零星持续），并指责内塔尼亚胡屈从美国总统特朗普的压力、仓促敲定停火。
 
 ## 相关推荐
 
-- 2026-06-29 23:34 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 23:31 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 23:31 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 23:48 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 23:35 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 23:46 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 23:45 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 23:49 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 23:33 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-29 23:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 23:54 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 23:42 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 23:30 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 23:31 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 23:53 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 00:06 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 23:39 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 00:05 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 23:53 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 23:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 23:41 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 23:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 23:55 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 23:54 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 23:42 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 23:51 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 23:53 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 00:03 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 23:37 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:59 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/14549.shtml)
-- 2026-06-29 23:34 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/760801.shtml)
-- 2026-06-29 23:41 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/5972747.shtml)
-- 2026-06-29 23:36 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/146089.shtml)
-- 2026-06-29 23:33 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/260431039552.shtml)
-- 2026-06-29 23:47 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/49427518.shtml)
-- 2026-06-29 23:58 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/932978068.shtml)
-- 2026-06-29 23:46 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/915752572.shtml)
-- 2026-06-29 23:57 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/87156693066.shtml)
-- 2026-06-29 23:38 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/40578248737.shtml)
-- 2026-06-29 23:42 - [急先锋](https://www.blog.kurohicncr.top/Article/details/142434454057.shtml)
-- 2026-06-29 23:42 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/33112.shtml)
-- 2026-06-29 23:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/77450.shtml)
-- 2026-06-29 23:48 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/3080382329.shtml)
-- 2026-06-29 23:53 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/048760321.shtml)
+- 2026-06-29 23:54 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/0035704002.shtml)
+- 2026-06-29 23:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/345863.shtml)
+- 2026-06-30 00:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/58089555.shtml)
+- 2026-06-29 23:54 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/5272752699.shtml)
+- 2026-06-29 23:45 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/28193725014.shtml)
+- 2026-06-30 00:00 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/06087430.shtml)
+- 2026-06-29 23:53 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/267018.shtml)
+- 2026-06-29 23:41 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/0474620639.shtml)
+- 2026-06-30 00:05 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/61257800899.shtml)
+- 2026-06-29 23:58 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/45502812874.shtml)
+- 2026-06-29 23:37 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/672046055344.shtml)
+- 2026-06-29 23:39 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/745309422286.shtml)
+- 2026-06-30 00:04 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/1517163.shtml)
+- 2026-06-29 23:44 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/38875.shtml)
+- 2026-06-29 23:44 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/340577.shtml)

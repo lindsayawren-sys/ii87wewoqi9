@@ -1,61 +1,60 @@
-# 5月13日财经早餐：美联储年内加息概率攀升，金价承压，油价飙升近4%
+# 易方达登顶中国ETF一哥
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 周三（北京时间5月13日）亚市早盘，现货黄金交投于4718.40美元/盎司附近，金价周二承压，市场对通胀及全球利率可能上升的担忧加剧，美联储年内加息概率升至34.7%；美原油交投于102美元/桶附近，油价周二上涨近4%，美伊博弈持续，伊朗称如果再次遭到袭击，或将铀浓缩丰度提升至90%。 日内重点关注 股市 美股标普500指数和纳斯达克指数周二收跌，分别下跌0
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：胖狼说财 今天被一则新闻刷屏了，易方达基金旗下ETF以不到20亿规模的微弱优势，超过华夏基金，成为新晋ETF一哥。 胖狼看了下数据，ETF领域确实已经早早形成了双寡头之势，易方达和华夏全面领跑，把后面的公司甩得车尾灯都看不到了。 这是华夏基金自2004年发行境内首只ETF（上证50ETF）以来，首次在
 
 ## 正文
 
-文章来源：汇通财经 周三（北京时间5月13日）亚市早盘，现货黄金交投于4718.40美元/盎司附近，金价周二承压，市场对通胀及全球利率可能上升的担忧加剧，美联储年内加息概率升至34.7%；美原油交投于102美元/桶附近，油价周二上涨近4%，美伊博弈持续，伊朗称如果再次遭到袭击，或将铀浓缩丰度提升至90%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-日内重点关注 股市 美股标普500指数和纳斯达克指数周二收跌，分别下跌0.16%和0.71%，从历史高位回落，道琼斯指数则微涨0.11%。
+来源：胖狼说财 今天被一则新闻刷屏了，易方达基金旗下ETF以不到20亿规模的微弱优势，超过华夏基金，成为新晋ETF一哥。
 
-4月消费者价格指数涨幅超出预期，加之伊朗局势导致美伊停火协议日益脆弱，投资者在财报季接近尾声时获利了结。
+胖狼看了下数据，ETF领域确实已经早早形成了双寡头之势，易方达和华夏全面领跑，把后面的公司甩得车尾灯都看不到了。
 
-科技股疲软拖累纳指，而医疗保健股带动道指上涨。
+这是华夏基金自2004年发行境内首只ETF（上证50ETF）以来，首次在ETF规模榜首位置被实质性超越。
 
-通胀数据受伊朗战争封锁霍尔木兹海峡影响，市场对美联储今年降息的期望几乎破灭，加息概率上升，CME FedWatch工具显示12月加息25个基点的概率为30.5%。
+但这个差距意味着，这只是一场毫厘之间的胜利，一哥之争已进入日度级胶着状态，未来随时可能再度互换。
 
-个股方面，Zebra Technologies上调年度销售增长预期后大涨11.4%；Humana因目标价上调36%上涨7.7%；GameStop遭eBay拒绝收购要约后下跌3.5%；Hims & Hers Health因营收不及预期且意外亏损暴跌14.1%；Venture Global上调核心利润预期大涨14.2%。
+易方达为什么能反超？
 
-金市 金价周二承压下跌，现货黄金下跌0.41%至每盎司4715.07美元，主要因伊朗和平协议希望破灭推高油价，加剧市场对通胀及全球利率可能上升的担忧。
+胖狼认为，这并非易方达突然爆发，而是在2026年年初以来全市场ETF大幅缩水中，易方达展现出了更强的规模韧性。
 
-道明证券策略师表示，油价上涨增加了美联储等央行可能不得不加息应对滞胀的风险，从而对黄金构成压力。
+年初华夏基金ETF规模突破万亿，还有不少媒体报道，转眼间，几个月的时间，从万亿到6000亿，而易方达也从9200亿到了6000亿，被国家队多赎回的那些钱，也许就是差距缩小的核心原因。
 
 ## 相关推荐
 
-- 2026-06-29 23:30 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 23:35 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 23:43 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 23:37 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 23:37 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 23:53 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 23:32 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 23:41 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 23:55 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 23:54 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 23:57 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 23:32 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 23:42 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 23:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 23:48 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 00:03 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 23:48 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 23:41 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 23:55 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 23:47 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 23:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 23:56 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 23:57 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 23:43 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 23:39 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 00:04 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 23:43 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 23:40 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 23:45 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:49 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/98220352.shtml)
-- 2026-06-29 23:38 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/97089.shtml)
-- 2026-06-29 23:39 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/06385125.shtml)
-- 2026-06-29 23:40 - [美人鱼](http://www.blog.minike.top/Article/details/68360703.shtml)
-- 2026-06-29 23:58 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/328938045130.shtml)
-- 2026-06-29 23:55 - [时光音乐会](http://www.blog.minike.top/Article/details/107947927244.shtml)
-- 2026-06-29 23:34 - [速度与激情9](https://www.share.minike.top/Article/details/517692118.shtml)
-- 2026-06-29 23:30 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/02788694162.shtml)
-- 2026-06-29 23:35 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/814281088587.shtml)
-- 2026-06-29 23:40 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/97421.shtml)
-- 2026-06-29 23:44 - [扬名立万](https://www.share.kurohicncr.top/Article/details/5821086.shtml)
-- 2026-06-29 23:33 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/489083474489.shtml)
-- 2026-06-29 23:45 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/77121285.shtml)
-- 2026-06-29 23:53 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/7507834.shtml)
-- 2026-06-29 23:31 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/005734760.shtml)
+- 2026-06-29 23:55 - [毒液2](https://www.blog.minike.top/Article/details/3953762.shtml)
+- 2026-06-29 23:47 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/145866782526.shtml)
+- 2026-06-30 00:05 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/21527393.shtml)
+- 2026-06-29 23:50 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/97317343431.shtml)
+- 2026-06-29 23:53 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/17257630.shtml)
+- 2026-06-30 00:01 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/365406440062.shtml)
+- 2026-06-29 23:41 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/80447977978.shtml)
+- 2026-06-29 23:53 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/5575861.shtml)
+- 2026-06-29 23:48 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/685768307.shtml)
+- 2026-06-29 23:51 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/36292.shtml)
+- 2026-06-29 23:52 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/8940383614.shtml)
+- 2026-06-29 23:47 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/81107303.shtml)
+- 2026-06-29 23:43 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/750272158.shtml)
+- 2026-06-29 23:47 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/46775365823.shtml)
+- 2026-06-29 23:42 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/555156.shtml)

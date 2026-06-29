@@ -1,58 +1,51 @@
-# 长江有色：12日铜价暴涨 现货成交仍表现谨慎
+# 累计超130头次！长江江豚监测数量创历史新高
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-长江有色金属网 5月12日铜期货市场动态：今日沪期铜独领风骚，盘面涨势凌厉，价格重心强势破10.7万元/吨；主力月2606合约开盘价报105500元/吨，最高108400元/吨，最低105390元/吨，昨结104320元/吨，今日收盘价报106510元/吨，涨2190元，涨幅2.10%。沪铜主力2606合约全天成交量166852手增加48690手，持仓量206430手减少266
+记者从江苏省生态环境厅了解到，近日，江苏省环境监测中心组织沿江各驻市环境监测中心、监测站等单位，顺利完成二季度长江江苏段全线长江江豚种群调查。 本次调查历时12天，受天气条件影响，有效观测为7天，累计观测记录江豚37群次超130头次，最大单群规模数量为12头，超过去年同期监测数量，创历史新高；江豚活动踪迹覆盖绝大部分江段，整体栖息分布范围持续拓展；各江段中南京江段观测到江豚超7
 
 ## 正文
 
-长江有色金属网 5月12日铜期货市场动态：今日沪期铜独领风骚，盘面涨势凌厉，价格重心强势破10.7万元/吨；主力月2606合约开盘价报105500元/吨，最高108400元/吨，最低105390元/吨，昨结104320元/吨，今日收盘价报106510元/吨，涨2190元，涨幅2.10%。
+记者从江苏省生态环境厅了解到，近日，江苏省环境监测中心组织沿江各驻市环境监测中心、监测站等单位，顺利完成二季度长江江苏段全线长江江豚种群调查。
 
-沪铜主力2606合约全天成交量166852手增加48690手，持仓量206430手减少2665手。
+本次调查历时12天，受天气条件影响，有效观测为7天，累计观测记录江豚37群次超130头次，最大单群规模数量为12头，超过去年同期监测数量，创历史新高；江豚活动踪迹覆盖绝大部分江段，整体栖息分布范围持续拓展；各江段中南京江段观测到江豚超70头次，遇见率最高。
 
-亚盘时段，伦铜盘面震荡剧烈，北京时间15：05最新报价13860.5美元/吨，跌59.5美元/吨，跌幅0.43%。
+江豚被誉为长江生态的“晴雨表”，此番大范围现身，充分证明长江江苏段水质持续改善，水生生物栖息环境不断优化。
 
-长江铜业网铜价格统计：今日国内现货铜价格暴涨，长江现货1#铜价报106790元/吨，涨2240元，升水190-升水230，跌40元；长江综合1#铜价报106745元/吨，涨2250元，升水110-升水220，跌30元；广东现货1#铜价报106790元/吨，涨2270元，升水110-升水310，跌10元；上海地区1#铜价报106660元/吨，涨2250元，升水40-升水120，跌30元。
-
-长江铜市分析：今日上海期铜主力创下一个月来的最大单日涨幅。
-
-在供应端担忧加剧以及中国需求预期回暖的支撑下，铜价强势上攻，不仅抵消了油价上涨的宏观扰动，也消化了自由港对其印尼矿山项目延期传闻的澄清影响。
-
-宏观层面，地缘政治风险持续扰动市场。
-
-中东局势胶着，美伊外交关系恶化，特朗普公开表示停火协议“岌岌可危”，导致全球市场风险偏好下降，资金重新流向美元等传统避险资产。
+(总台记者 唐高林)
 
 ## 相关推荐
 
-- 2026-06-29 23:30 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 23:38 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 23:42 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 23:47 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 23:36 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 23:57 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 23:56 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 23:34 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 23:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 23:37 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 23:48 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 23:43 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 23:48 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 23:55 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 00:03 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 23:49 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 23:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 23:41 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 23:46 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 23:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 23:54 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 23:40 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 23:42 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 23:48 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 23:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:44 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/34326791.shtml)
-- 2026-06-29 23:54 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/5307323976.shtml)
-- 2026-06-29 23:50 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/4121952934.shtml)
-- 2026-06-29 23:57 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/8140966419.shtml)
-- 2026-06-29 23:47 - [速度与激情9](http://www.share.minike.top/Article/details/23161.shtml)
-- 2026-06-29 23:55 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/933140.shtml)
-- 2026-06-29 23:45 - [一生一世](http://www.share.minike.top/Article/details/02551070.shtml)
-- 2026-06-29 23:44 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/3985276.shtml)
-- 2026-06-29 23:53 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/635223.shtml)
-- 2026-06-29 23:32 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.minike.top/Article/details/067554.shtml)
-- 2026-06-29 23:45 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/41521185044.shtml)
-- 2026-06-29 23:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/896584.shtml)
-- 2026-06-29 23:57 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/03017863.shtml)
-- 2026-06-29 23:36 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/8704803257.shtml)
-- 2026-06-29 23:55 - [急先锋](https://www.share.minike.top/Article/details/5258290743.shtml)
+- 2026-06-29 23:50 - [沙丘](https://www.share.kurohicncr.top/Article/details/698327587211.shtml)
+- 2026-06-29 23:53 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/8527583131.shtml)
+- 2026-06-29 23:57 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/256205.shtml)
+- 2026-06-29 23:47 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/26167.shtml)
+- 2026-06-29 23:41 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/299765518850.shtml)
+- 2026-06-29 23:49 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/69879.shtml)
+- 2026-06-29 23:48 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/0763793054.shtml)
+- 2026-06-29 23:48 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/15940.shtml)
+- 2026-06-29 23:42 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/863976.shtml)
+- 2026-06-29 23:51 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/25093495786.shtml)
+- 2026-06-29 23:59 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/458038799715.shtml)
+- 2026-06-29 23:48 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/45500493.shtml)
+- 2026-06-29 23:41 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/6360771.shtml)
+- 2026-06-30 00:02 - [恋与深空回应争议](https://www.share.minike.top/Article/details/06279.shtml)
+- 2026-06-29 23:43 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/77620036.shtml)

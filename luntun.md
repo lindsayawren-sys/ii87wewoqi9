@@ -1,61 +1,60 @@
-# 一银行认购房企6000万美元债，违约后为何起诉难？
+# 北京警方开展“2026春夏平安行动”以来刑事治安警情显著下降
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 最终撤诉。 自2021年以来，伴随行业深度调整，房地产企业债务违约事件接连发生，过去房企较为依赖的海外债尤其美元债市场是重点领域。近日，上海金融法院审结一起某中资地产企业（下称D企业）发行的离岸美元债违约纠纷，揭开了此类跨境债务违约事件背后的复杂法律问题。 该案的核心主线是，一家境内银行买了中资地产商在境外发行的美元债，违约后想
+中新网北京6月3日电 (记者 吕少威)记者3日从北京市公安局获悉，自4月北京市公安局部署开展“2026春夏平安行动”(以下简称“春夏平安行动”)以来，全局各警种、各部门按照“市局主责、分局主战、派出所主防”的思路，聚焦防风险、保安全、护稳定、促发展各项工作，依法严打群众反映强烈的突出违法犯罪，强化治安乱象整治和安全隐患排查，统筹推进巡逻防控和宣传防范，切实净化首都社会治安环境。
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 最终撤诉。
+中新网北京6月3日电 (记者 吕少威)记者3日从北京市公安局获悉，自4月北京市公安局部署开展“2026春夏平安行动”(以下简称“春夏平安行动”)以来，全局各警种、各部门按照“市局主责、分局主战、派出所主防”的思路，聚焦防风险、保安全、护稳定、促发展各项工作，依法严打群众反映强烈的突出违法犯罪，强化治安乱象整治和安全隐患排查，统筹推进巡逻防控和宣传防范，切实净化首都社会治安环境。
 
-自2021年以来，伴随行业深度调整，房地产企业债务违约事件接连发生，过去房企较为依赖的海外债尤其美元债市场是重点领域。
+截至目前，北京刑事治安警情同比下降29.9%。
 
-近日，上海金融法院审结一起某中资地产企业（下称D企业）发行的离岸美元债违约纠纷，揭开了此类跨境债务违约事件背后的复杂法律问题。
+合成打击 突出震慑 北京警方在“专业+机制+大数据”新型警务运行模式引领下，充分发挥专业优势，紧盯群众关心的“身边案”，加强多手段融合应用、多部门协同联动，强化案件合成打击，有力提升工作效能。
 
-该案的核心主线是，一家境内银行买了中资地产商在境外发行的美元债，违约后想在上海起诉，却遇到了多重法律障碍，包括债券文件约定纽约管辖、投资者因“多级托管”结构不算“债券持有人”、已签署重组支持协议不能再单独起诉等。
+刑侦系统强化“接警即侦办”理念，抢抓破案72小时“黄金期”，做实做专传统侵财警情侦查前置措施，依托“情指行”一体化运行机制，牵动组织属地分局对案件开展全力攻坚。
 
-最终，作为债主的银行选择撤诉。
+行动以来，全市“两抢”、入户盗窃及盗窃地下室案件保持100%侦破；组织对电信网络诈骗黑灰产违法犯罪开展集群收网打击，打掉取现运金“车队”14个，抓获犯罪嫌疑人100余名，拦截现金2300余万元、黄金6.2公斤。
 
-中信建投援引彭博数据统计称，截至今年3月，地产中资美元债的累计违约金额在1500亿美元左右。
+北京公安经侦系统统筹推进“歼击”、打击非法集资、打击金融“黑灰产”等12个重点专项，严厉打击合同诈骗、挪用资金等危害企业权益的违法犯罪，联合行政管理部门开展房屋租赁“黑中介”“刷单炒信”“培训贷”等违法犯罪集中打击整治，相关领域警情发案显著下降。
 
-目前，房企债务风险化解仍在加速推进，债务重组是主流模式，此案也为境内的海外债投资者带来重要法律启示。
+环食药系统聚焦各领域重点，严厉打击违法犯罪，共破获环食药领域各类刑事案件120余起。
 
-6000万美元债背后：银行债主的诉讼困境 所谓中资企业离岸美元债，通常由境外公司离岸发行、以美元计价，但与境内经营性资产密切相关，债券持有人往往遍布世界各地，包括境内金融机构。
+其间，会同海淀分局破获制销假酒案件，民警分赴外省多地实施收网，共抓获犯罪嫌疑人16名，查扣涉案“特供酒”等假酒1900余箱。
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 23:32 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 23:32 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 23:31 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 23:35 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 23:43 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 23:32 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 23:34 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 23:41 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 23:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 23:52 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 23:39 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 23:41 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 23:35 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 23:49 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 23:55 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 23:51 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 00:02 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 23:41 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 23:43 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 23:57 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 23:55 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 23:42 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 23:50 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 23:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 23:46 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 00:03 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 23:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 23:58 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:33 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/5715493411.shtml)
-- 2026-06-29 23:46 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/6431223762.shtml)
-- 2026-06-29 23:56 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/465882490.shtml)
-- 2026-06-29 23:45 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/1254745.shtml)
-- 2026-06-29 23:58 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/9421292431.shtml)
-- 2026-06-29 23:59 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/52188484800.shtml)
-- 2026-06-29 23:55 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/155244.shtml)
-- 2026-06-29 23:41 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/841866432318.shtml)
-- 2026-06-29 23:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/208943.shtml)
-- 2026-06-29 23:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/146897.shtml)
-- 2026-06-29 23:35 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/60136359.shtml)
-- 2026-06-29 23:37 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/191357813.shtml)
-- 2026-06-29 23:57 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/8695037831.shtml)
-- 2026-06-29 23:57 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/357013.shtml)
-- 2026-06-29 23:56 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/12086995.shtml)
+- 2026-06-29 23:58 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/702291931259.shtml)
+- 2026-06-29 23:49 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/2667397313.shtml)
+- 2026-06-29 23:44 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/795887684.shtml)
+- 2026-06-29 23:52 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/413887.shtml)
+- 2026-06-30 00:01 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/3378813123.shtml)
+- 2026-06-29 23:53 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/50043122.shtml)
+- 2026-06-29 23:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/990896.shtml)
+- 2026-06-29 23:47 - [《恋与深空》回应争议](https://www.share.kurohicncr.top/Article/details/774672.shtml)
+- 2026-06-29 23:42 - [天道](https://www.blog.kurohicncr.top/Article/details/483236015.shtml)
+- 2026-06-29 23:53 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/713753.shtml)
+- 2026-06-29 23:58 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/35142.shtml)
+- 2026-06-29 23:37 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/1089993.shtml)
+- 2026-06-29 23:41 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/711588.shtml)
+- 2026-06-29 23:55 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/92638777.shtml)
+- 2026-06-30 00:04 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/68327.shtml)

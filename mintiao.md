@@ -1,60 +1,50 @@
-# Hims & Hers亏损扩大且展望不佳，盘前重挫15%
+# 茂盛控股拟“50合1”实行股份合并及更改每手买卖单位
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-远程医疗公司Hims & Hers Health股价在周二早盘交易中暴跌，此前该公司公布了第一季度的亏损以及疲弱的全年盈利指引。 这家数字健康公司周一公布的第一季度净亏损为9200万美元，而去年同期的亏损约为5000万美元。其调整后的EBITDA为4400万美元，低于去年的9100万美元。与此同时，营收增长4%至6.08亿美元。每用户平均月收入为80美元，低于去年的85美元。
+茂盛控股（00022）发布公告，公司建议实行股份合并，基准为每50股每股面值0.02港元的已发行及未发行现有股份合并为1股每股面值1.00港元的合并股份。股份合并须待（其中包括）股东于股东特别大会上批准后，方可作实。 于本公布日期，现有股份以每手买卖单位4万股现有股份于联交所买卖。董事会建议，待股份合并生效后，将于联交所买卖的每手买卖单位由4万股现有股份更改为2000股合并股份
 
 ## 正文
 
-远程医疗公司Hims & Hers Health股价在周二早盘交易中暴跌，此前该公司公布了第一季度的亏损以及疲弱的全年盈利指引。
+茂盛控股（00022）发布公告，公司建议实行股份合并，基准为每50股每股面值0.02港元的已发行及未发行现有股份合并为1股每股面值1.00港元的合并股份。
 
-这家数字健康公司周一公布的第一季度净亏损为9200万美元，而去年同期的亏损约为5000万美元。
+股份合并须待（其中包括）股东于股东特别大会上批准后，方可作实。
 
-其调整后的EBITDA为4400万美元，低于去年的9100万美元。
+于本公布日期，现有股份以每手买卖单位4万股现有股份于联交所买卖。
 
-与此同时，营收增长4%至6.08亿美元。
+董事会建议，待股份合并生效后，将于联交所买卖的每手买卖单位由4万股现有股份更改为2000股合并股份。
 
-每用户平均月收入为80美元，低于去年的85美元。
-
-Hims预计第二季度营收在6.8亿至7亿美元之间，并预测全年营收最高可达30亿美元。
-
-该公司预计第二季度调整后的EBITDA最高可达5500万美元，全年最高可达3.5亿美元。
-
-受此影响，该公司股价在盘前交易中下跌约15.5%。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:37 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 23:50 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 23:41 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 23:53 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-29 23:54 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 23:37 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 23:56 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 23:36 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 23:41 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 23:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 23:35 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 23:53 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 23:34 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 23:46 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 23:43 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 23:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 23:43 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 23:59 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 23:48 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 23:36 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 00:00 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 23:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 23:36 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 23:56 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:32 - [美人鱼](https://www.share.minike.top/Article/details/43011.shtml)
-- 2026-06-29 23:57 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/015907.shtml)
-- 2026-06-29 23:36 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/49057037.shtml)
-- 2026-06-29 23:59 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/4039720900.shtml)
-- 2026-06-29 23:41 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/2870144.shtml)
-- 2026-06-29 23:41 - [爱很美味](http://www.share.minike.top/Article/details/6327338274.shtml)
-- 2026-06-29 23:43 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/828315.shtml)
-- 2026-06-29 23:34 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/73310658171.shtml)
-- 2026-06-29 23:33 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/750326560.shtml)
-- 2026-06-29 23:57 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/23323188.shtml)
-- 2026-06-29 23:56 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/4202591179.shtml)
-- 2026-06-29 23:46 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/541523166362.shtml)
-- 2026-06-29 23:38 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/118236.shtml)
-- 2026-06-29 23:58 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/197649824.shtml)
-- 2026-06-29 23:51 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/385956985674.shtml)
+- 2026-06-29 23:37 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/3264629390.shtml)
+- 2026-06-29 23:43 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/0441096.shtml)
+- 2026-06-30 00:00 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/45427.shtml)
+- 2026-06-29 23:58 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/092451.shtml)
+- 2026-06-29 23:40 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/308191.shtml)
+- 2026-06-29 23:42 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/47673343573.shtml)
+- 2026-06-29 23:47 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/61794715587.shtml)
+- 2026-06-29 23:41 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/1634038684.shtml)
+- 2026-06-29 23:47 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/5548771.shtml)
+- 2026-06-29 23:45 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/38417525.shtml)
+- 2026-06-29 23:58 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/348165317415.shtml)
+- 2026-06-29 23:36 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/26838033.shtml)
+- 2026-06-29 23:49 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/4508118.shtml)
+- 2026-06-29 23:36 - [恋与深空致歉](http://www.share.minike.top/Article/details/2357133.shtml)
+- 2026-06-29 23:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/89088.shtml)

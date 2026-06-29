@@ -1,56 +1,51 @@
-# 为全球教育发展注入新动能！2026世界数字教育大会，来了
+# 邮储银行：金融市场总监杨西琳的任职资格已获核准
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-2023年，中国教育部和中国联合国教科文组织全国委员会共同主办首届世界数字教育大会。此后每年，大会如一场盛大约会，吸引百国赴约，发布务实成果，成为国际数字教育多边交流的重要合作平台。2026世界数字教育大会召开之际，跟教育小微一起来看——从三尺讲台言传身教，到活字印刷赓续文脉，再到互联网跨越教育时空界限……每一次重大科技革命和产业变革都影响着人类文明和教育形态。数字技术引发的新
+6月4日金融一线消息，邮储银行发布公告，国家金融监督管理总局已核准金融市场总监杨西琳的任职资格。 简历显示，杨西琳，女，1971年出生，获中央财政金融学院（现中央财经大学）经济学学士学位，高级经济师。历任深圳市邮政储汇局副局长，邮储银行深圳分行行长助理、副行长等职务。现任邮储银行金融同业部总经理。责任编辑：秦艺
 
 ## 正文
 
-2023年，中国教育部和中国联合国教科文组织全国委员会共同主办首届世界数字教育大会。
+6月4日金融一线消息，邮储银行发布公告，国家金融监督管理总局已核准金融市场总监杨西琳的任职资格。
 
-此后每年，大会如一场盛大约会，吸引百国赴约，发布务实成果，成为国际数字教育多边交流的重要合作平台。
+简历显示，杨西琳，女，1971年出生，获中央财政金融学院（现中央财经大学）经济学学士学位，高级经济师。
 
-2026世界数字教育大会召开之际，跟教育小微一起来看——从三尺讲台言传身教，到活字印刷赓续文脉，再到互联网跨越教育时空界限……每一次重大科技革命和产业变革都影响着人类文明和教育形态。
+历任深圳市邮政储汇局副局长，邮储银行深圳分行行长助理、副行长等职务。
 
-数字技术引发的新浪潮中，14亿人口大国的教育事业经历着怎样的新跨越？
+现任邮储银行金融同业部总经理。
 
-又怎样为全球教育发展注入新的动能？
-
-2023年，中国教育部和中国联合国教科文组织全国委员会共同主办首届世界数字教育大会。
-
-大会宣告：中国愿意与各国一道，以举办世界数字教育大会为崭新起点，把数字转型时代的世界合作，推向一个新的高度。
-
-这是邀约，亦是承诺。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 23:46 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 23:30 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 23:33 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 23:43 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 23:53 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 23:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 23:32 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 23:47 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 23:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 23:54 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 00:00 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 23:55 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 23:54 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 23:39 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 23:59 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 23:40 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 00:03 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 23:38 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 00:00 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 23:36 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 23:57 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:55 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/873441.shtml)
-- 2026-06-29 23:42 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/0237473486.shtml)
-- 2026-06-29 23:56 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/240401.shtml)
-- 2026-06-29 23:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/47188235988.shtml)
-- 2026-06-29 23:36 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/25948708.shtml)
-- 2026-06-29 23:47 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/05425716735.shtml)
-- 2026-06-29 23:33 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/46369403240.shtml)
-- 2026-06-29 23:44 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/361407.shtml)
-- 2026-06-29 23:35 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/719046926.shtml)
-- 2026-06-29 23:46 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/96568129.shtml)
-- 2026-06-29 23:31 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/72245.shtml)
-- 2026-06-29 23:52 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/28160987716.shtml)
-- 2026-06-29 23:46 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/773548347841.shtml)
-- 2026-06-29 23:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/15093356288.shtml)
-- 2026-06-29 23:42 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/394807959.shtml)
+- 2026-06-29 23:42 - [刘念回应](http://www.share.minike.top/Article/details/054939350281.shtml)
+- 2026-06-29 23:38 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/14923.shtml)
+- 2026-06-29 23:43 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/178351575751.shtml)
+- 2026-06-29 23:42 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/74087.shtml)
+- 2026-06-29 23:57 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/231377829.shtml)
+- 2026-06-29 23:36 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/24547.shtml)
+- 2026-06-29 23:58 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/47807267571.shtml)
+- 2026-06-29 23:59 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/057858302.shtml)
+- 2026-06-29 23:46 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/02841472595.shtml)
+- 2026-06-29 23:36 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/06166217809.shtml)
+- 2026-06-29 23:39 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/8223428171.shtml)
+- 2026-06-30 00:02 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/15198.shtml)
+- 2026-06-29 23:52 - [千与千寻](http://www.blog.minike.top/Article/details/03887447947.shtml)
+- 2026-06-29 23:37 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/3268196291.shtml)
+- 2026-06-29 23:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/77149.shtml)

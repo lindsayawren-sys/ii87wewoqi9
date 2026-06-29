@@ -1,57 +1,60 @@
-# 获刑十三年！荐股“杀猪盘”被查
+# 玻璃基板概念升温，美迪凯两日异动后提示相关收入占比仅约2% | 长三角资本局
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新三板市场现荐股“杀猪盘”！ 上海金山法院近日公布的一则判例显示，无“投顾”资质的赵某某冒用他人身份、骗取投资者账户控制权，并勾结上游拉抬股价、诱骗高位接盘。其个人违法获得佣金380余万元，并导致投资者亏损600余万元。 对此，法院以诈骗罪判处赵某某有期徒刑十三年，二审维持原判。 受访律师人士认为，司法机关
+文|新浪财经上海站 十里 玻璃基板概念继续搅动二级市场，杭州科创板公司美迪凯被资金推到台前。 6月2日晚间，美迪凯发布股票交易异常波动公告称，公司股票于6月1日、6月2日连续两个交易日内收盘价格涨幅偏离值累计达到30%，属于股票交易异常波动情形。 6月3日，公司股价继续走强，截至收盘报30.20元，涨12.86%，成交额进一步放大。 这份公告的重点不是确认利好，而是降温。美迪凯
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+文|新浪财经上海站 十里 玻璃基板概念继续搅动二级市场，杭州科创板公司美迪凯被资金推到台前。
 
-新三板市场现荐股“杀猪盘”！
+6月2日晚间，美迪凯发布股票交易异常波动公告称，公司股票于6月1日、6月2日连续两个交易日内收盘价格涨幅偏离值累计达到30%，属于股票交易异常波动情形。
 
-上海金山法院近日公布的一则判例显示，无“投顾”资质的赵某某冒用他人身份、骗取投资者账户控制权，并勾结上游拉抬股价、诱骗高位接盘。
+6月3日，公司股价继续走强，截至收盘报30.20元，涨12.86%，成交额进一步放大。
 
-其个人违法获得佣金380余万元，并导致投资者亏损600余万元。
+这份公告的重点不是确认利好，而是降温。
 
-对此，法院以诈骗罪判处赵某某有期徒刑十三年，二审维持原判。
+美迪凯在公告中提示，2025年公司半导体用玻璃基板相关产品销售收入占总营收比重约2%，占比较低，未对公司业绩构成重大影响。
 
-受访律师人士认为，司法机关并未将此案简单定性为非法经营或操纵市场，而是采取“穿透式审判思维”，刺破“市场风险”的伪装，直指其“诈骗”本质，释放了极为明确的司法信号。
+换句话说，市场正在追逐的玻璃基板概念，目前在美迪凯收入结构里仍只是一个较小分支。
 
-一场有预谋的精准收割 回溯案情来看，2023年2月，赵某某入职某投资公司，在尚未取得证券投资咨询资格的情况下，冒用已离职投资顾问孙某某的身份，自称“师弟”向客户发送信息、自我推介。
+股价表现则明显跑在业绩前面。
 
-此后，赵某某从公司离职，却隐瞒这一事实，继续以投资分析师身份与被害人杨某商谈合作。
+6月2日，美迪凯盘中快速拉升并收获20%涨停。
 
 ## 相关推荐
 
-- 2026-06-29 23:33 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 23:36 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 23:31 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 23:42 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 23:35 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 23:36 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 23:39 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 23:38 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 23:34 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 23:36 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 23:55 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 23:51 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 23:47 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 23:41 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 00:04 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 23:44 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 23:50 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 23:57 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 23:49 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 23:53 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 23:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 23:46 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 23:38 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 23:41 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 23:55 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:37 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/4481631927.shtml)
-- 2026-06-29 23:47 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/082185828593.shtml)
-- 2026-06-29 23:41 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/372091384.shtml)
-- 2026-06-29 23:58 - [《贺子珍》](http://www.share.minike.top/Article/details/04194206451.shtml)
-- 2026-06-29 23:34 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/98377.shtml)
-- 2026-06-29 23:44 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/0820238226.shtml)
-- 2026-06-29 23:54 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/077575.shtml)
-- 2026-06-29 23:38 - [扫黑风暴](https://www.blog.minike.top/Article/details/2995531154.shtml)
-- 2026-06-29 23:42 - [流金岁月](https://www.blog.minike.top/Article/details/847137868.shtml)
-- 2026-06-29 23:55 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/821896195.shtml)
-- 2026-06-29 23:50 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/454522049008.shtml)
-- 2026-06-29 23:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/1425020.shtml)
-- 2026-06-29 23:59 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/292449.shtml)
-- 2026-06-29 23:52 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/2990480134.shtml)
-- 2026-06-29 23:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/150886067236.shtml)
+- 2026-06-30 00:00 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.kurohicncr.top/Article/details/64998623.shtml)
+- 2026-06-30 00:03 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/729961.shtml)
+- 2026-06-29 23:53 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/13328.shtml)
+- 2026-06-29 23:45 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/224617805349.shtml)
+- 2026-06-29 23:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/5714298.shtml)
+- 2026-06-30 00:00 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/00071450881.shtml)
+- 2026-06-29 23:40 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/722889292.shtml)
+- 2026-06-29 23:55 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/0310711576.shtml)
+- 2026-06-29 23:54 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/103313227.shtml)
+- 2026-06-29 23:42 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/575684565541.shtml)
+- 2026-06-30 00:02 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/133701684.shtml)
+- 2026-06-29 23:52 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/24359.shtml)
+- 2026-06-30 00:01 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/81032.shtml)
+- 2026-06-29 23:47 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/4188380.shtml)
+- 2026-06-29 23:49 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/82542663.shtml)

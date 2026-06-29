@@ -1,61 +1,61 @@
-# 西王食品（000639）投资者索赔分析
+# “这是一个令人兴奋的时代”：华尔街双雄为SpaceX IPO争抢头号光环
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月28日，西王食品股份有限公司收到中国证券监督管理委员会分别对公司、实际控制人下发的《立案告知书》。因涉嫌信息披露违法违规，根据《中华人民共和国证券法》、《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司、实际控制人进行立案调查。部分股民或许存在索赔机会。 徐劲律师（北京市盈科（深圳）律师事务所）认为，根据
+高盛集团刚刚锁定SpaceX首次公开募股主承销商的头衔，摩根士丹利随即向客户发出一份说明，称自己实际上也是这宗交易的联席主承销商，并指出文件中的排序只是按字母顺序排列。 没过多久，在高盛的大堂里，黑色的底座上就架起了酷似Starship的银色火箭模型。有文字写道，高盛很高兴担任这家“公司IPO的头号主承销行”。 摩根士丹利则在时代广场总部的电梯和闸机处铺满了SpaceX的品牌标
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月28日，西王食品股份有限公司收到中国证券监督管理委员会分别对公司、实际控制人下发的《立案告知书》。
+高盛集团刚刚锁定SpaceX首次公开募股主承销商的头衔，摩根士丹利随即向客户发出一份说明，称自己实际上也是这宗交易的联席主承销商，并指出文件中的排序只是按字母顺序排列。
 
-因涉嫌信息披露违法违规，根据《中华人民共和国证券法》、《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司、实际控制人进行立案调查。
+没过多久，在高盛的大堂里，黑色的底座上就架起了酷似Starship的银色火箭模型。
 
-部分股民或许存在索赔机会。
+有文字写道，高盛很高兴担任这家“公司IPO的头号主承销行”。
 
-徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市公司虚假陈述导致损失，可以向有管辖权的法院提起民事赔偿诉讼以维护自己的合法权益，可索赔损失范围包括投资差额损失、印花税及佣金损失。
+摩根士丹利则在时代广场总部的电梯和闸机处铺满了SpaceX的品牌标识。
 
-（徐劲律师专栏） 暂定索赔条件： 在2026年4月28日之前买入，且在2026年4月29日后卖出或仍持有而亏损的投资者（最终索赔结果以法院判决为准）。
+在华尔街，钱固然重要，但炫耀的资本同样重要。
 
-（西王食品维权入口） 投资者应准备下列材料：身份证复印件，证券账户开户信息确认单（原件加盖证券公司营业部印章），证券交易记录流水（从首次买入该股票至今并加盖证券公司营业部印章，有库存股的还要打印出库存股数）。
+这两家宿敌如今看起来越来越像一对明星搭档，并行出现在几乎每一宗大型交易的最前排。
 
-（本文由北京市盈科（深圳）律师事务所徐劲律师（执业证号14403200610948623）供稿，不代表新浪财经的立场。
+在Space Exploration Technologies Corp．提交上市文件后，市场又传出消息称，两家银行将协助Alphabet Inc．进行股本融资逾800亿美元，以支持其人工智能雄心。
 
-徐劲律师擅长在上市公司虚假陈述案件中为股民维权索赔，执业十余年来，曾代理投资者起诉多家上市公司成功索赔。
+此前还报道，它们也将协助推动OpenAI和Anthropic PBC上市。
 
 ## 相关推荐
 
-- 2026-06-29 23:41 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 23:30 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 23:43 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 23:43 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 23:51 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 23:49 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 23:40 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 23:59 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 23:58 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 23:43 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 23:39 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 23:35 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 23:41 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 23:45 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 23:35 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 23:48 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 23:41 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 23:40 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 23:55 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 23:59 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 23:52 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 23:49 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 23:57 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 23:46 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 00:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 23:59 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 23:51 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 23:50 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 23:51 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 23:45 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:47 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/9886479.shtml)
-- 2026-06-29 23:56 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/8589419515.shtml)
-- 2026-06-29 23:44 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/1594214.shtml)
-- 2026-06-29 23:40 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/06423115233.shtml)
-- 2026-06-29 23:49 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/705959240868.shtml)
-- 2026-06-29 23:30 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/757739468.shtml)
-- 2026-06-29 23:52 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/00678270534.shtml)
-- 2026-06-29 23:52 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/88095759010.shtml)
-- 2026-06-29 23:53 - [天道](http://www.blog.kurohicncr.top/Article/details/9020785.shtml)
-- 2026-06-29 23:38 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/273936.shtml)
-- 2026-06-29 23:42 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/968891019.shtml)
-- 2026-06-29 23:30 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/24454.shtml)
-- 2026-06-29 23:36 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/4213080953.shtml)
-- 2026-06-29 23:46 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/664703356.shtml)
-- 2026-06-29 23:31 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/965645228.shtml)
+- 2026-06-29 23:40 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/8446857850.shtml)
+- 2026-06-29 23:49 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/1293196879.shtml)
+- 2026-06-29 23:49 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/5613255201.shtml)
+- 2026-06-29 23:58 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/188901.shtml)
+- 2026-06-30 00:03 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/251461.shtml)
+- 2026-06-29 23:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/7248009098.shtml)
+- 2026-06-29 23:57 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/23351681.shtml)
+- 2026-06-29 23:49 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/6088310.shtml)
+- 2026-06-29 23:49 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/4917207060.shtml)
+- 2026-06-29 23:49 - [逃狱兄弟](https://www.blog.minike.top/Article/details/2585346.shtml)
+- 2026-06-29 23:39 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/24629922.shtml)
+- 2026-06-29 23:37 - [一生一世](http://www.share.kurohicncr.top/Article/details/73450.shtml)
+- 2026-06-29 23:51 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/372647939575.shtml)
+- 2026-06-29 23:44 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/416354.shtml)
+- 2026-06-29 23:41 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/11707.shtml)

@@ -1,57 +1,56 @@
-# 邦达亚洲:美联储降息预期降温 美元指数微幅收涨
+# 粉笔CEO去年薪酬为272万 因人大演讲时辱骂学生，粉笔股价单日市值蒸发1.32亿港元
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-5月12，高盛集团和美国银行是最新加入“推迟利率下调预测”阵营的华尔街大行。他们认为，就业和通胀数据都支撑了美联储至少在今年年底前维持利率不变的理由。随着伊朗战争震动石油市场并推高通胀，交易员们正加大押注，认为美联储将在整个2026年保持政策不变，甚至可能在2027年初加息。这一转变也得到了越来越多美联储官员的回应，其中包括在上一次央行会议上持异议的两名成员，他们表示下一步举措
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：新黄河 6月4日上午，粉笔科技（02469.HK）CEO张小龙通过个人微博账号就人大讲座风波发布致歉信。 因受张小龙不当言论一事影响，粉笔股价全天单边下挫，截至6月4日收盘，该股股价报0.61港元，总市值约13.5亿港元。受当日8.96%的跌幅影响，单日市值蒸发约1.32亿港元。 在官方致歉的同时，网络流传出多张讲座现场的
 
 ## 正文
 
-5月12，高盛集团和美国银行是最新加入“推迟利率下调预测”阵营的华尔街大行。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：新黄河 6月4日上午，粉笔科技（02469.HK）CEO张小龙通过个人微博账号就人大讲座风波发布致歉信。
 
-他们认为，就业和通胀数据都支撑了美联储至少在今年年底前维持利率不变的理由。
+因受张小龙不当言论一事影响，粉笔股价全天单边下挫，截至6月4日收盘，该股股价报0.61港元，总市值约13.5亿港元。
 
-随着伊朗战争震动石油市场并推高通胀，交易员们正加大押注，认为美联储将在整个2026年保持政策不变，甚至可能在2027年初加息。
+受当日8.96%的跌幅影响，单日市值蒸发约1.32亿港元。
 
-这一转变也得到了越来越多美联储官员的回应，其中包括在上一次央行会议上持异议的两名成员，他们表示下一步举措可能是加息。
+在官方致歉的同时，网络流传出多张讲座现场的文字实录截图。
 
-美国银行美国经济研究主管阿迪亚·巴韦在5月8日写道：“数据根本不支持今年降息。
+其中，一段关于其个人资金规模及炒股收益的表述在社交平台引发讨论。
 
-核心通胀率过高，且呈上升趋势。
+根据流传的讲座现场记录，张小龙在演讲中称，整个5月份都在使用多种AI模型学习和分析AI产业链相关股票。
 
-表现强劲的4月就业报告是压死骆驼的最后一根稻草，尤其是考虑到美联储官员的鹰派言论。
+他对比称，过去投资一只股票需要研究行业基本面、查阅年报、咨询券商和分析师，现在沟通方式已发生改变。
 
-”巴韦及其同事现在预计，美联储直到2027年7月才会再次降息，这较此前预测的今年9月有了重大转变。
+在该段记录中，张小龙提及了自己的资金状况：“我自己没有很多钱，我总共手里的这个现金，那肯定比你们很大部分同学是多一点的。
 
 ## 相关推荐
 
-- 2026-06-29 23:37 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 23:45 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 23:52 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 23:57 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 23:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 23:58 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 23:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 23:52 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 23:30 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 23:55 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 23:40 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 23:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 00:04 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 00:03 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 23:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 23:49 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 00:02 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 23:54 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 23:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 23:51 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 23:50 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:58 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/586083.shtml)
-- 2026-06-29 23:55 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/849194.shtml)
-- 2026-06-29 23:52 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/9619845147.shtml)
-- 2026-06-29 23:36 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/194908568.shtml)
-- 2026-06-29 23:42 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/788872.shtml)
-- 2026-06-29 23:54 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/874000242364.shtml)
-- 2026-06-29 23:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/435367.shtml)
-- 2026-06-29 23:43 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/9792048.shtml)
-- 2026-06-29 23:37 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/71490064106.shtml)
-- 2026-06-29 23:55 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/01294.shtml)
-- 2026-06-29 23:46 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/60836.shtml)
-- 2026-06-29 23:54 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/721447670.shtml)
-- 2026-06-29 23:55 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/00037556.shtml)
-- 2026-06-29 23:31 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/231109522.shtml)
-- 2026-06-29 23:47 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/99015086857.shtml)
+- 2026-06-29 23:50 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/663833323320.shtml)
+- 2026-06-29 23:57 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/815610.shtml)
+- 2026-06-29 23:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/35771990.shtml)
+- 2026-06-29 23:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/87036413545.shtml)
+- 2026-06-29 23:43 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/363134567.shtml)
+- 2026-06-29 23:40 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/07290.shtml)
+- 2026-06-29 23:46 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/85900.shtml)
+- 2026-06-30 00:03 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/1219927656.shtml)
+- 2026-06-29 23:41 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/80690297399.shtml)
+- 2026-06-29 23:50 - [扬名立万](http://www.share.kurohicncr.top/Article/details/042239828394.shtml)
+- 2026-06-30 00:02 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/94960998.shtml)
+- 2026-06-29 23:56 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/3838083.shtml)
+- 2026-06-29 23:55 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/66710236.shtml)
+- 2026-06-29 23:54 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/881614240005.shtml)
+- 2026-06-29 23:39 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/09134.shtml)

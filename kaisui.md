@@ -1,52 +1,59 @@
-# 【小新的Vlog】带一宠物，免一人5A级景区门票？快来河南洛阳“薅羊毛”
+# 阅文附属公司自查补税3亿元，不涉及行政处罚
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 13:07 来源：中国新闻网 哈喽！大家好，小新又来啦！你们见过牵着猫和狗逛景区，但你见过带小乌龟和金鱼爬山的吗？别笑，这事在河南洛阳白云山5A级景区真的实现了。 记者 李超庆 河南洛阳报道 责任编辑：【李季】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月3日晚间消息，阅文集团发布附属公司涉税事项公告。公告显示，阅文集团旗下一家附属公司根据税务局的通知就其与新疆霍尔果斯附属公司相关的涉税风险开展了自查。经自查并与主管税务机关沟通确认，该附属公司需补缴2020年至2022年企业所得税税款及滞纳金合计约人民币3亿元，该事项不涉及行政处罚。 公告内容称，阅文对
 
 ## 正文
 
-发布时间：2026年05月12日 13:07 来源：中国新闻网 哈喽！
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-大家好，小新又来啦！
+6月3日晚间消息，阅文集团发布附属公司涉税事项公告。
 
-你们见过牵着猫和狗逛景区，但你见过带小乌龟和金鱼爬山的吗？
+公告显示，阅文集团旗下一家附属公司根据税务局的通知就其与新疆霍尔果斯附属公司相关的涉税风险开展了自查。
 
-别笑，这事在河南洛阳白云山5A级景区真的实现了。
+经自查并与主管税务机关沟通确认，该附属公司需补缴2020年至2022年企业所得税税款及滞纳金合计约人民币3亿元，该事项不涉及行政处罚。
 
-记者 李超庆 河南洛阳报道 责任编辑：【李季】
+公告内容称，阅文对上述事项高度重视，截至本公告日期，该附属公司已完成该等税款缴纳。
+
+该等税款将计入阅文2026年当期损益，预计将减少本公司权益持有人应占盈利约人民币3亿元。
+
+阅文将根据有关会计准则的要求及实际情况对上述事项进行相应的会计处理，最终会计处理及影响金额以本公司独立核数师确认后的结果为准。
+
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 23:49 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 23:59 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 23:50 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 23:59 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 23:37 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 23:46 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 23:46 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 23:42 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 23:33 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 23:54 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-29 23:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 23:43 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 23:52 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 23:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 00:05 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 23:46 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 23:38 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 00:04 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 23:38 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 23:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 00:00 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 23:47 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 23:48 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 23:50 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 23:43 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:33 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/4935540340.shtml)
-- 2026-06-29 23:55 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/7998161434.shtml)
-- 2026-06-29 23:37 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/17287150629.shtml)
-- 2026-06-29 23:46 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/403072.shtml)
-- 2026-06-29 23:53 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/439475844.shtml)
-- 2026-06-29 23:53 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/55525.shtml)
-- 2026-06-29 23:57 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/7724811.shtml)
-- 2026-06-29 23:48 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/05043913.shtml)
-- 2026-06-29 23:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/9793249.shtml)
-- 2026-06-29 23:54 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/918576.shtml)
-- 2026-06-29 23:32 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/55551445184.shtml)
-- 2026-06-29 23:31 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/0478383151.shtml)
-- 2026-06-30 00:00 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/420433168059.shtml)
-- 2026-06-29 23:58 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/9227638.shtml)
-- 2026-06-29 23:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/1791433169.shtml)
+- 2026-06-29 23:38 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/491940445400.shtml)
+- 2026-06-30 00:03 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/80428924.shtml)
+- 2026-06-29 23:57 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/209461620.shtml)
+- 2026-06-29 23:36 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/220901390322.shtml)
+- 2026-06-29 23:46 - [小娘惹](http://www.share.kurohicncr.top/Article/details/671126301.shtml)
+- 2026-06-29 23:38 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/0409584.shtml)
+- 2026-06-29 23:51 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/2181863.shtml)
+- 2026-06-29 23:55 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/6447240.shtml)
+- 2026-06-29 23:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/45532020356.shtml)
+- 2026-06-30 00:04 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/11580920.shtml)
+- 2026-06-30 00:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/4883868.shtml)
+- 2026-06-29 23:51 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/93160325.shtml)
+- 2026-06-29 23:49 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/3921176538.shtml)
+- 2026-06-29 23:57 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/6295757.shtml)
+- 2026-06-29 23:47 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/2276648497.shtml)

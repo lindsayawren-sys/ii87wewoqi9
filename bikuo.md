@@ -1,59 +1,61 @@
-# 上海启动滚动式灭蚊 严防蚊媒传染病
+# 科技赋能守护银发晚年
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-中新网上海5月13日电 (记者 陈静)上海市爱卫办方面13日披露，上海夏秋季爱国卫生运动正式全面启动，从今年5月中旬起至11月结束。 上海将每隔10天-14天滚动开展一轮全市范围蚊虫集中控制行动，每轮行动不少于3天，通过“环境整治常态化、防制能力进阶版、主体责任再加强、市民热线可监督”四大举措，有效降低因登革热、基孔肯雅热等蚊媒传染病输入导致上海传播流行风险。全上海第一轮集中控
+中新网沈阳6月4日电(姜月恒 禹瑞斋 李雪飞)随着老龄人口数量增长，各类智能化养老科创产品落地应用。从陪护配送机器人、居家安全监测雷达，到医用健康采集终端、专业康复护理机器人等适老化装备陆续推向市场。智能设备既在起居照料、健康监护等方面为老年人提供实用助力，也切实提升老年群体晚年生活质量。 清晨，沈阳市和平区的街巷，不少老人悠闲漫步。84岁的康志和老人出行时，一台智能轮椅始终紧
 
 ## 正文
 
-中新网上海5月13日电 (记者 陈静)上海市爱卫办方面13日披露，上海夏秋季爱国卫生运动正式全面启动，从今年5月中旬起至11月结束。
+中新网沈阳6月4日电(姜月恒 禹瑞斋 李雪飞)随着老龄人口数量增长，各类智能化养老科创产品落地应用。
 
-上海将每隔10天-14天滚动开展一轮全市范围蚊虫集中控制行动，每轮行动不少于3天，通过“环境整治常态化、防制能力进阶版、主体责任再加强、市民热线可监督”四大举措，有效降低因登革热、基孔肯雅热等蚊媒传染病输入导致上海传播流行风险。
+从陪护配送机器人、居家安全监测雷达，到医用健康采集终端、专业康复护理机器人等适老化装备陆续推向市场。
 
-全上海第一轮集中控制时间定于今年5月18日开始。
+智能设备既在起居照料、健康监护等方面为老年人提供实用助力，也切实提升老年群体晚年生活质量。
 
-近年来，全球范围内蚊媒传染病传播和流行强度显著上升。
+清晨，沈阳市和平区的街巷，不少老人悠闲漫步。
 
-去年基孔肯雅热全球多点爆发，今年登革热、基孔肯雅热境外输入引发本地传播扩散风险较往年上升。
+84岁的康志和老人出行时，一台智能轮椅始终紧随其后。
 
-据气象部门报告，今年上海入春提前，4月以来平均气温较常年同期偏高，预计5月平均气温高于常年、降水量接近常年至偏多，为蚊虫特别是白纹伊蚊繁殖创造有利条件。
+老人缓步闲逛，体力不支时便让轮椅停下座在上面，智能轮椅成了老人日常出行的贴心帮手。
 
-在当日举行的沟通会上，记者了解到，上海将结合《上海市媒介白纹伊蚊预防控制指南(2026年版)》推广应用，常态化开展环境整治与蚊虫集中控制。
+“我岁数大了，身体还算康健，就是长途行走吃力。
 
-同时，将进一步增强社会防制能力与防灭蚊意识，组织动员全社会综合采取环境治理、物理防制、药物消杀、健康科普等多种措施开展蚊虫防制。
+有了智能轮椅，走累了就能坐下代步；步行时开启跟随模式，设备自动跟在身后，遇上障碍还能自动刹车，出门省心又安全。
 
 ## 相关推荐
 
-- 2026-06-29 23:59 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 23:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 23:53 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 23:36 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 23:32 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 23:37 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 23:36 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 23:45 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 23:42 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 23:59 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 23:48 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 23:53 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 23:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 23:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 23:50 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 00:01 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 00:01 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 23:46 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 00:02 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 23:50 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 00:00 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 23:43 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-30 00:01 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 00:03 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 23:59 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 23:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 23:42 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 23:41 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:51 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/0983151547.shtml)
-- 2026-06-29 23:30 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/522135529.shtml)
-- 2026-06-29 23:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/1073764869.shtml)
-- 2026-06-29 23:59 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/49956.shtml)
-- 2026-06-29 23:36 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/895300602.shtml)
-- 2026-06-29 23:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/8424334704.shtml)
-- 2026-06-29 23:38 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/018672.shtml)
-- 2026-06-29 23:43 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/930506953223.shtml)
-- 2026-06-29 23:43 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/00703493461.shtml)
-- 2026-06-29 23:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/086283462109.shtml)
-- 2026-06-29 23:41 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/48447619.shtml)
-- 2026-06-29 23:31 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/9578516670.shtml)
-- 2026-06-29 23:56 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/5137353.shtml)
-- 2026-06-29 23:35 - [绿营污蔑大陆“海上袭扰”被批](https://www.share.kurohicncr.top/Article/details/973877.shtml)
-- 2026-06-29 23:47 - [MG总经理直播被冲](https://www.blog.minike.top/Article/details/106942429117.shtml)
+- 2026-06-30 00:05 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/1394134747.shtml)
+- 2026-06-30 00:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/78732946742.shtml)
+- 2026-06-29 23:45 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/377020311.shtml)
+- 2026-06-29 23:46 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/643030.shtml)
+- 2026-06-29 23:51 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/5988304453.shtml)
+- 2026-06-30 00:00 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/012311181.shtml)
+- 2026-06-29 23:56 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/972661502.shtml)
+- 2026-06-29 23:40 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/5541363141.shtml)
+- 2026-06-30 00:03 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/2365968607.shtml)
+- 2026-06-29 23:42 - [东方风云榜](http://www.share.minike.top/Article/details/420689.shtml)
+- 2026-06-29 23:37 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/07313.shtml)
+- 2026-06-30 00:02 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/779354.shtml)
+- 2026-06-29 23:40 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/577689117668.shtml)
+- 2026-06-30 00:04 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/04332.shtml)
+- 2026-06-29 23:57 - [爱很美味](http://www.blog.minike.top/Article/details/44778757.shtml)

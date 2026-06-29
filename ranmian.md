@@ -1,46 +1,59 @@
-# 英国首相斯塔默的潜在对手斯特里廷准备辞职并展开竞争
+# 交通银行FT账户体系实现全国试点区域全覆盖
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-北京时间5月13日晚间消息，据报道，英国卫生大臣韦斯·斯特里廷告诉盟友，他正准备最早明天辞职，并启动领导权争夺。 据泰晤士报援引一位知情人士称，已举行会谈，为议员们签署斯特里廷的提名文件做准备。责任编辑：刘明亮
+来源：交通银行 近日，交通银行广东省分行成功上线自由贸易账户（下称“FT账户”）体系，标志着交行FT账户服务已全面覆盖上海、海南、广东、天津、深圳等全国试点区域。这一突破进一步拓展了交行自贸金融服务的辐射范围，形成差异化核心优势。交行将依托账户一体化服务，有效拓展区内新设外资项目、产业链跨境主体及异地落地集团客户，增强客户粘性，夯实客群根基。 FT账户体系是我国高水平开放的核心
 
 ## 正文
 
-北京时间5月13日晚间消息，据报道，英国卫生大臣韦斯·斯特里廷告诉盟友，他正准备最早明天辞职，并启动领导权争夺。
+来源：交通银行 近日，交通银行广东省分行成功上线自由贸易账户（下称“FT账户”）体系，标志着交行FT账户服务已全面覆盖上海、海南、广东、天津、深圳等全国试点区域。
 
-据泰晤士报援引一位知情人士称，已举行会谈，为议员们签署斯特里廷的提名文件做准备。
+这一突破进一步拓展了交行自贸金融服务的辐射范围，形成差异化核心优势。
 
-责任编辑：刘明亮
+交行将依托账户一体化服务，有效拓展区内新设外资项目、产业链跨境主体及异地落地集团客户，增强客户粘性，夯实客群根基。
+
+FT账户体系是我国高水平开放的核心基础设施，在试验区内构建起与国际金融市场相接轨、与境内市场相对隔离的特殊金融环境。
+
+在实现跨境资金高效自由流动的同时，极大便利企业跨境贸易、投融资与资金管理，显著降低融资成本、提升全球资源配置能力。
+
+早在2014年和2019年，交行便作为首批试点银行，先后在上海和海南上线FT账户体系。
+
+依托该体系，交行积极开展跨境融资、全功能资金池及自贸离岸债等创新试点，积累了一批可复制可推广的经验，为我国对接国际高标准经贸规则、稳步推进制度型开放提供了重要支撑与实践样本。
+
+近年来，交行自贸区分账核算单元（FTU单元）业务规模持续增长。
 
 ## 相关推荐
 
-- 2026-06-29 23:43 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 23:59 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 23:30 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 23:41 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 23:30 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 23:52 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 23:43 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 23:57 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 23:43 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 23:32 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 23:46 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 23:57 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 00:01 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 23:43 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 23:36 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-29 23:44 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 23:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 23:57 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 23:46 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 00:05 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 23:40 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 23:53 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 23:39 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:35 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/06952.shtml)
-- 2026-06-29 23:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/716986.shtml)
-- 2026-06-29 23:30 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/8597070.shtml)
-- 2026-06-29 23:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/39757633263.shtml)
-- 2026-06-29 23:53 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/770801690.shtml)
-- 2026-06-29 23:41 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/6771303.shtml)
-- 2026-06-29 23:45 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/68558.shtml)
-- 2026-06-29 23:35 - [斛珠夫人](http://www.share.minike.top/Article/details/5834911046.shtml)
-- 2026-06-29 23:46 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/7108657.shtml)
-- 2026-06-29 23:39 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/2624219661.shtml)
-- 2026-06-29 23:57 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/17227.shtml)
-- 2026-06-29 23:53 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/95553802.shtml)
-- 2026-06-29 23:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/63007327562.shtml)
-- 2026-06-29 23:49 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/44431335691.shtml)
-- 2026-06-29 23:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/284778472.shtml)
+- 2026-06-29 23:58 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/7607987863.shtml)
+- 2026-06-30 00:02 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/052401783.shtml)
+- 2026-06-29 23:52 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/234741211.shtml)
+- 2026-06-29 23:38 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/57007672790.shtml)
+- 2026-06-30 00:04 - [蔚来车主罚站](http://www.share.minike.top/Article/details/49477131.shtml)
+- 2026-06-30 00:01 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/49389780.shtml)
+- 2026-06-29 23:50 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/247098678.shtml)
+- 2026-06-29 23:36 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/79626671734.shtml)
+- 2026-06-29 23:56 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/516133726673.shtml)
+- 2026-06-29 23:50 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/68739.shtml)
+- 2026-06-29 23:49 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/78956928781.shtml)
+- 2026-06-29 23:40 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/31743527762.shtml)
+- 2026-06-29 23:40 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/9265758120.shtml)
+- 2026-06-29 23:40 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/53834.shtml)
+- 2026-06-30 00:02 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/14507093526.shtml)

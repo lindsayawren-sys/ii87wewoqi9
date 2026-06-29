@@ -1,61 +1,53 @@
-# Harrow预计第二季度营收7100万至8100万美元，重申全年业绩指引
+# 卡塔尔埃米尔与美国总统通电话 讨论最新地区局势
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-眼科制药公司Harrow Inc．公布2026年第一季度财报，披露了多项核心产品的强劲需求数据，并重申全年业绩指引。 第一季度业绩受一次性调整拖累，核心需求指标强劲 财报显示，第一季度营收为4420万美元，同比下降7.6%，主要因干眼症药物VEVYE新商业保险覆盖相关的一次性收入调整，导致季度收入减少约800万美元。剔除该非经常性因素后，公司业务基础需求强劲。 亏损方面，GAA
+当地时间3日，卡塔尔埃米尔(国家元首)塔米姆与美国总统特朗普通电话，就中东地区最新局势交换意见。 双方在通话中回顾了中东地区政治和安全形势的最新发展，以及地区和国际社会为缓和紧张局势、促进地区稳定所作出的努力。 塔米姆强调，应优先通过政治和外交途径解决争端，推动各方开展对话，以巩固地区安全与稳定，避免局势进一步紧张和升级。 双方还讨论了继续推进对话进程以解决当前问题的重要性，并
 
 ## 正文
 
-眼科制药公司Harrow Inc．公布2026年第一季度财报，披露了多项核心产品的强劲需求数据，并重申全年业绩指引。
+当地时间3日，卡塔尔埃米尔(国家元首)塔米姆与美国总统特朗普通电话，就中东地区最新局势交换意见。
 
-第一季度业绩受一次性调整拖累，核心需求指标强劲 财报显示，第一季度营收为4420万美元，同比下降7.6%，主要因干眼症药物VEVYE新商业保险覆盖相关的一次性收入调整，导致季度收入减少约800万美元。
+双方在通话中回顾了中东地区政治和安全形势的最新发展，以及地区和国际社会为缓和紧张局势、促进地区稳定所作出的努力。
 
-剔除该非经常性因素后，公司业务基础需求强劲。
+塔米姆强调，应优先通过政治和外交途径解决争端，推动各方开展对话，以巩固地区安全与稳定，避免局势进一步紧张和升级。
 
-亏损方面，GAAP净亏损为2760万美元，或每股亏损0.74美元。
+双方还讨论了继续推进对话进程以解决当前问题的重要性，并强调维护海上航行安全和战略通道畅通，确保全球供应链和能源运输稳定运行。
 
-调整后EBITDA亏损约1266万美元。
-
-核心运营指标方面，VEVYE季度处方量环比增长25%，月度总处方量已超越Xiidra，市场份额约达14%。
-
-麻醉剂IHEEZO单位需求同比增长18%，类固醇TRIESENCE单位需求同比翻倍以上，连续第六个季度增长。
-
-第二季度与全年指引 对于第二季度，公司预计收入在7100万至8100万美元之间。
+(总台记者 周宣)
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 23:36 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 23:33 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 23:32 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 23:50 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 23:40 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 23:47 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 23:45 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 23:44 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 23:58 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 23:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 23:41 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 23:42 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 23:30 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 23:48 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 23:59 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 00:02 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 23:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 23:48 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 23:41 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 23:43 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 00:02 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 23:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 23:42 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 23:53 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 23:42 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 23:54 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 00:04 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:43 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/26861906161.shtml)
-- 2026-06-29 23:35 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/758612.shtml)
-- 2026-06-29 23:58 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/46218730279.shtml)
-- 2026-06-29 23:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/718647.shtml)
-- 2026-06-29 23:31 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/363042234.shtml)
-- 2026-06-29 23:57 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/981199.shtml)
-- 2026-06-29 23:42 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/38772.shtml)
-- 2026-06-29 23:40 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/96802.shtml)
-- 2026-06-29 23:45 - [金牌调解](https://www.share.kurohicncr.top/Article/details/0005841.shtml)
-- 2026-06-29 23:51 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/857789645455.shtml)
-- 2026-06-29 23:32 - [《贺子珍》](https://www.share.minike.top/Article/details/682582530.shtml)
-- 2026-06-29 23:58 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/269743534247.shtml)
-- 2026-06-29 23:36 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/3874615.shtml)
-- 2026-06-29 23:48 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/24177.shtml)
-- 2026-06-29 23:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/617133621650.shtml)
+- 2026-06-29 23:57 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/16633717.shtml)
+- 2026-06-30 00:00 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/674245.shtml)
+- 2026-06-29 23:56 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/5153379692.shtml)
+- 2026-06-29 23:47 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/5976363210.shtml)
+- 2026-06-29 23:38 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/5038889372.shtml)
+- 2026-06-29 23:52 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/977516358195.shtml)
+- 2026-06-29 23:56 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/9024546452.shtml)
+- 2026-06-29 23:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/81210529045.shtml)
+- 2026-06-29 23:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/3476663260.shtml)
+- 2026-06-29 23:41 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/27559383252.shtml)
+- 2026-06-30 00:05 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/554761.shtml)
+- 2026-06-29 23:40 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/89103.shtml)
+- 2026-06-29 23:57 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/67527389.shtml)
+- 2026-06-29 23:38 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/3300168.shtml)
+- 2026-06-29 23:47 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/94094894054.shtml)

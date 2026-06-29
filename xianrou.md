@@ -1,45 +1,61 @@
-# “洪迪厄斯”号邮轮出现汉坦病毒疫情 法国确诊首例汉坦病毒感染病例
+# 酒价内参6月4日价格发布：洋河梦之蓝M6+保持不变
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 09:02 来源：央视新闻 责任编辑：【王祎】
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月4日整体明显走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日大幅下跌25元，回吐昨日全部涨幅。市场在前一日底部反弹后迅速转衰，终端交投情绪偏谨慎，今日除习酒君品微涨外其余十大品种均下跌或平盘。 今日白酒市场11大
 
 ## 正文
 
-发布时间：2026年05月12日 09:02 来源：央视新闻 责任编辑：【王祎】
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月4日整体明显走弱。
+
+如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日大幅下跌25元，回吐昨日全部涨幅。
+
+市场在前一日底部反弹后迅速转衰，终端交投情绪偏谨慎，今日除习酒君品微涨外其余十大品种均下跌或平盘。
+
+今日白酒市场11大单品一涨九跌一平，输家占据绝对优势。
+
+上涨方面，习酒君品小幅上涨1元/瓶，收获四连阳，逐步走出月内最低谷。
+
+下跌方面，五粮液普五八代与古井贡古20跌幅居前，均下跌5元/瓶，其中前者三连阴后创下月内最低价纪录，近一个月其价格下行势头明显；青花汾20与青花郎均下跌4元/瓶，其中前者回吐前一日全部涨幅，回落至月内最低位，后者创下月内最低价格记录；飞天茅台、精品茅台与水晶剑南春均下跌2元/瓶；五粮液1618与国窖1573均小幅下跌1元/瓶。
+
+洋河梦之蓝M6+的价格环比保持不变。
+
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 23:36 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 23:42 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 23:49 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 23:34 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 23:55 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 23:37 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 23:56 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 23:44 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 23:43 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 23:34 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 23:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 23:42 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 23:53 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 23:56 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 23:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 23:45 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 00:03 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 23:52 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 23:51 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 23:56 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 23:49 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 00:05 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 00:01 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 23:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 23:58 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 23:39 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 00:01 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 23:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:31 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/20431834.shtml)
-- 2026-06-29 23:36 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/80650717126.shtml)
-- 2026-06-29 23:40 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/8897396013.shtml)
-- 2026-06-29 23:40 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/37818139654.shtml)
-- 2026-06-29 23:58 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/31651936680.shtml)
-- 2026-06-29 23:38 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/542251206.shtml)
-- 2026-06-29 23:34 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/64331410968.shtml)
-- 2026-06-29 23:58 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/40533028.shtml)
-- 2026-06-29 23:37 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/395050791669.shtml)
-- 2026-06-29 23:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/59633880.shtml)
-- 2026-06-29 23:41 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/53990401117.shtml)
-- 2026-06-29 23:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/42355841644.shtml)
-- 2026-06-29 23:32 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/979432.shtml)
-- 2026-06-29 23:42 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/1888933.shtml)
-- 2026-06-29 23:46 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/211752.shtml)
+- 2026-06-29 23:54 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/31080.shtml)
+- 2026-06-29 23:36 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/1795362784.shtml)
+- 2026-06-29 23:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/51133.shtml)
+- 2026-06-30 00:04 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/616539252.shtml)
+- 2026-06-29 23:41 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/43160.shtml)
+- 2026-06-29 23:49 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/2481768126.shtml)
+- 2026-06-29 23:39 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/6091899524.shtml)
+- 2026-06-30 00:00 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/32132.shtml)
+- 2026-06-29 23:45 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/80261647719.shtml)
+- 2026-06-29 23:37 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/69842929162.shtml)
+- 2026-06-29 23:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/358268.shtml)
+- 2026-06-29 23:46 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/576922065046.shtml)
+- 2026-06-29 23:43 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/781887641.shtml)
+- 2026-06-29 23:55 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/7899861306.shtml)
+- 2026-06-29 23:48 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/5437343618.shtml)

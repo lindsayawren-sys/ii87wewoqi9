@@ -1,58 +1,60 @@
-# AI短剧冲击下，红果保底15亿扶持真人剧
+# 金山软件Q1游戏收入再降22% CEO直言“还得再熬两个季度” 上月已被剔出恒生科技指数成分股
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 伍洋宇 界面新闻编辑 | 文姝琪 在一个兴起不久便开始经历某种结构性调整的内容产业里，来自抖音集团短剧版权中心的态度很明确：加大对真人短剧的投入与扶持，加强对AI漫剧的治理与管控。 这的确能够提升内容质量，但对行业中的众多从业者而言，这对他们正在经历的挑战可能起不了什么作用。 5月12日，抖音集团短剧版权中心举办首届短剧产业大会。红果短剧总编辑乐力的很多观点围
+5月29日，金山软件交出了一份业务分化极为剧烈的一季报。公司当季总营收24.17亿元，同比仅微增3%；归母净利润同比大增284%至10.91亿元，但这笔看似亮眼的利润增长，并非来自主业经营改善，而是一笔合营公司带来的巨额利润贡献在支撑——报告期内合营公司从前一年同期的亏损1232.9万元一举转为盈利18.59亿元。 拆解收入构成，两大板块的割裂态势已至冰点。 办公软件及服务收入
 
 ## 正文
 
-界面新闻记者 | 伍洋宇 界面新闻编辑 | 文姝琪 在一个兴起不久便开始经历某种结构性调整的内容产业里，来自抖音集团短剧版权中心的态度很明确：加大对真人短剧的投入与扶持，加强对AI漫剧的治理与管控。
+5月29日，金山软件交出了一份业务分化极为剧烈的一季报。
 
-这的确能够提升内容质量，但对行业中的众多从业者而言，这对他们正在经历的挑战可能起不了什么作用。
+公司当季总营收24.17亿元，同比仅微增3%；归母净利润同比大增284%至10.91亿元，但这笔看似亮眼的利润增长，并非来自主业经营改善，而是一笔合营公司带来的巨额利润贡献在支撑——报告期内合营公司从前一年同期的亏损1232.9万元一举转为盈利18.59亿元。
 
-5月12日，抖音集团短剧版权中心举办首届短剧产业大会。
+拆解收入构成，两大板块的割裂态势已至冰点。
 
-红果短剧总编辑乐力的很多观点围绕对真人短剧的判断。
+办公软件及服务收入同比增长24%至16.13亿元，而网络游戏及其他业务收入仅录得8.04亿元，同比下降22%，环比也下降了7%。
 
-他表示，真人短剧的价值在于对人和生活的贴近，背后的真情实感仍然是行业发展的核心。
+游戏业务的表现不仅不及市场预期，更成为拖累整体收入的主因——中金公司在研报中直指，一季度经营利润仅3.95亿元，同比下滑34.3%，主要源于游戏业务表现不及预期。
 
-乐力透露，短剧版权中心近期推出了多项真人短剧扶持计划。
+与这份财报同步披露的，还有一个更令市场不安的信号：就在一季度财报发布前的5月上旬，金山软件被正式剔出恒生科技指数成分股。
 
-例如，针对真人剧核心品类调高内容分成比例。
+在财报电话会上，金山软件CEO邹涛给出了一个相当直白的判断：Q1游戏收入同比下滑的趋势，“还会延续未来一到两个季度”，因为内部仍在做积极的战略调整。
 
-该中心5月11日发布的新政策公告显示，自然流量场景下，真人剧付费内容分成比例从70%调高至80%，免费内容广告分成预算同等调高。
+邹涛的判断并非危言耸听。
 
 ## 相关推荐
 
-- 2026-06-29 23:30 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 23:33 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 23:57 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 23:36 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 23:36 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 23:59 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 23:33 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 23:52 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 23:48 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 23:54 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 23:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 23:54 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 00:04 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 23:40 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 23:41 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 23:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 23:52 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 23:45 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 23:44 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 23:51 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 23:51 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 23:54 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 23:40 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 23:50 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 00:00 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 00:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:32 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/4531848.shtml)
-- 2026-06-29 23:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/4276188983.shtml)
-- 2026-06-29 23:45 - [恋与深空回应争议](https://www.share.minike.top/Article/details/1402218.shtml)
-- 2026-06-29 23:57 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/421461760388.shtml)
-- 2026-06-29 23:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/186249.shtml)
-- 2026-06-29 23:48 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/208887732261.shtml)
-- 2026-06-29 23:59 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/640618251715.shtml)
-- 2026-06-29 23:43 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/6424094132.shtml)
-- 2026-06-29 23:50 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/57850939461.shtml)
-- 2026-06-29 23:53 - [毒液2](https://www.share.minike.top/Article/details/255739352.shtml)
-- 2026-06-29 23:51 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/2840777086.shtml)
-- 2026-06-29 23:44 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/208774.shtml)
-- 2026-06-29 23:49 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/943954814594.shtml)
-- 2026-06-29 23:44 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/617544716034.shtml)
-- 2026-06-29 23:31 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/6796156646.shtml)
+- 2026-06-29 23:52 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/15543792.shtml)
+- 2026-06-29 23:41 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/600343.shtml)
+- 2026-06-29 23:52 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/923566.shtml)
+- 2026-06-29 23:54 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/93398424117.shtml)
+- 2026-06-29 23:42 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/9563676.shtml)
+- 2026-06-29 23:50 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/42842.shtml)
+- 2026-06-29 23:48 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/06621568.shtml)
+- 2026-06-29 23:56 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/798096933.shtml)
+- 2026-06-29 23:57 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/1608859.shtml)
+- 2026-06-30 00:02 - [时光音乐会](https://www.share.minike.top/Article/details/033475967.shtml)
+- 2026-06-29 23:47 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/8918591489.shtml)
+- 2026-06-29 23:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/700488021.shtml)
+- 2026-06-29 23:49 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/962640.shtml)
+- 2026-06-29 23:51 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/689754.shtml)
+- 2026-06-29 23:42 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/19863.shtml)

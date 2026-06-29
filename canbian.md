@@ -1,61 +1,56 @@
-# 日本财相称在外汇政策上与贝森特密切协调 或代表美方默许干预
+# 市场预警AI债券“泡沫化”风险，更多债券发行还在路上
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-日本财务大臣片山皋月证实，她的团队正与美国财政部长斯科特·贝森特在外汇政策方面密切协调，暗示美国或默许了日本近期可能的市场干预行为。 “关于最近的汇率走势，我们确认日本和美国一直协调良好，并保持着密切的沟通，”片山周二在东京与贝森特会谈后告诉记者。 她表示：“我们也重申，我们将继续根据去年9月发表的联合声明，在外汇问题上密切合作。”她还补充说，该声明明确指出，干预是解决外汇市场
+今年债券市场上10%~15%的债券发行规模可能与AI有关。 在市场担心美股人工智能（AI）泡沫之际，债券市场的AI泡沫化也引起了市场关注。 双线资本（Double Line）投资组合经理科恩（Robert Cohen）6月3日在全球信贷论坛上表示，参照铁路、互联网等行业过往大量资本涌入催生泡沫的历史规律，AI相关债券几乎肯定会迈入泡沫阶段。 “我们陷入AI泡沫的可能性有多大？我
 
 ## 正文
 
-日本财务大臣片山皋月证实，她的团队正与美国财政部长斯科特·贝森特在外汇政策方面密切协调，暗示美国或默许了日本近期可能的市场干预行为。
+今年债券市场上10%~15%的债券发行规模可能与AI有关。
 
-“关于最近的汇率走势，我们确认日本和美国一直协调良好，并保持着密切的沟通，”片山周二在东京与贝森特会谈后告诉记者。
+在市场担心美股人工智能（AI）泡沫之际，债券市场的AI泡沫化也引起了市场关注。
 
-她表示：“我们也重申，我们将继续根据去年9月发表的联合声明，在外汇问题上密切合作。
+双线资本（Double Line）投资组合经理科恩（Robert Cohen）6月3日在全球信贷论坛上表示，参照铁路、互联网等行业过往大量资本涌入催生泡沫的历史规律，AI相关债券几乎肯定会迈入泡沫阶段。
 
-”她还补充说，该声明明确指出，干预是解决外汇市场过度波动的一种选择。
+“我们陷入AI泡沫的可能性有多大？
 
-“我相信我们在这一点上获得了充分理解，”片山说道。
+我敢说可能是100%。
 
-片山不愿就两人会面时是否讨论日本央行的货币政策发表评论。
+”他断言，“由于泡沫破裂的可能性很高，基金经理应该关注资产负债表稳健的公司以及具有强有力保障措施的投资项目。
 
-她还表示，她不会对贝森特的言论置评。
+”他补充称，当基金经理购买债券并假设公司未来能够发展壮大以履行其债务时，信贷市场就会过度乐观。
 
-市场密切关注日、美财长这场会谈。
+景顺北美投资级信贷主管布瑞尔（Matt Brill）表示，许多AI债券交易受益于被称为超大规模数据中心运营商（hyperscalers）的大型盈利科技公司的支持。
 
 ## 相关推荐
 
-- 2026-06-29 23:30 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 23:43 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 23:53 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 23:33 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 23:48 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 23:42 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 23:34 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 23:42 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 23:39 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 23:49 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 23:32 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 23:41 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 23:53 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 23:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 23:41 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 23:57 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 23:40 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 23:38 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 23:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 00:02 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 23:50 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 00:02 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 23:41 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 23:36 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 23:46 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:32 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/645004.shtml)
-- 2026-06-29 23:36 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/47762654.shtml)
-- 2026-06-29 23:56 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/38241397590.shtml)
-- 2026-06-29 23:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/5321368.shtml)
-- 2026-06-29 23:32 - [速度与激情9](http://www.blog.minike.top/Article/details/83930.shtml)
-- 2026-06-29 23:32 - [女心理师](https://www.share.minike.top/Article/details/9483389.shtml)
-- 2026-06-29 23:51 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/9477751640.shtml)
-- 2026-06-29 23:54 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/64022.shtml)
-- 2026-06-29 23:39 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/603034539908.shtml)
-- 2026-06-29 23:53 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/61040.shtml)
-- 2026-06-29 23:35 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/255164551338.shtml)
-- 2026-06-29 23:49 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/215273366866.shtml)
-- 2026-06-29 23:53 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/9839307.shtml)
-- 2026-06-29 23:48 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/689411122.shtml)
-- 2026-06-29 23:32 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/99393.shtml)
+- 2026-06-29 23:49 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/7849931787.shtml)
+- 2026-06-29 23:49 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/9908843.shtml)
+- 2026-06-29 23:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/97249047573.shtml)
+- 2026-06-29 23:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/322200268117.shtml)
+- 2026-06-30 00:05 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/1481748774.shtml)
+- 2026-06-29 23:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/338921669101.shtml)
+- 2026-06-30 00:00 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/823376.shtml)
+- 2026-06-29 23:41 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/0779324.shtml)
+- 2026-06-29 23:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/530294.shtml)
+- 2026-06-30 00:02 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/68785285.shtml)
+- 2026-06-29 23:49 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/20299.shtml)
+- 2026-06-29 23:43 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/62649824366.shtml)
+- 2026-06-30 00:04 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/945464415230.shtml)
+- 2026-06-29 23:54 - [恋与深空致歉](https://www.share.minike.top/Article/details/386958875.shtml)
+- 2026-06-29 23:49 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/293041044076.shtml)

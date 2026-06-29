@@ -1,57 +1,54 @@
-# 汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰
+# 两周内卖了120亿美元黄金？印度央行澄清：相关报道并不属实
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-来源：华尔街见闻 美国能源部周一宣布本轮拍卖共授出5330万桶，买家包括Trafigura、Marathon Petroleum及埃克森美孚，将于6至8月分批入市。本次拍卖规模创SPR历史第二高，是IEA牵头开展的降低全球油价行动的一部分。目前美国汽油均价已突破每加仑4.50美元，创2022年7月以来最高水平。 美国正以近乎创纪录的速度动用战略石油储备，以应对伊朗战争引发的油价
+上证报中国证券网讯（记者 陈佳怡）6月3日，印度储备银行（印度央行）发布相关声明，称已注意到某些媒体关于印度储备银行出售黄金一事的报道，这些报道并不属实。截至目前，实物黄金储备仍为880.52吨，没有变化。 近日，多家外媒报道称，印度央行可能已经抛售了部分黄金储备，以保护其外汇储备。相关媒体援引彭博经济研究基于公开数据的评估称，印度央行在截至5月22日的两周内出售了价值约120
 
 ## 正文
 
-来源：华尔街见闻 美国能源部周一宣布本轮拍卖共授出5330万桶，买家包括Trafigura、Marathon Petroleum及埃克森美孚，将于6至8月分批入市。
+上证报中国证券网讯（记者 陈佳怡）6月3日，印度储备银行（印度央行）发布相关声明，称已注意到某些媒体关于印度储备银行出售黄金一事的报道，这些报道并不属实。
 
-本次拍卖规模创SPR历史第二高，是IEA牵头开展的降低全球油价行动的一部分。
+截至目前，实物黄金储备仍为880.52吨，没有变化。
 
-目前美国汽油均价已突破每加仑4.50美元，创2022年7月以来最高水平。
+近日，多家外媒报道称，印度央行可能已经抛售了部分黄金储备，以保护其外汇储备。
 
-美国正以近乎创纪录的速度动用战略石油储备，以应对伊朗战争引发的油价飙升及随之而来的汽油价格压力。
+相关媒体援引彭博经济研究基于公开数据的评估称，印度央行在截至5月22日的两周内出售了价值约120亿美元的黄金。
 
-5月11日周一，美国能源部宣布，本轮战略石油储备（SPR）拍卖共授出5330万桶原油，买家涵盖石油交易商Trafigura Group、美国炼油商Marathon Petroleum Corp及埃克森美孚等企业。
-
-本轮释放将于6月至8月间分批入市，恰逢美国夏季驾车出行旺季、汽油需求攀升之际。
-
-目前美国普通汽油均价已突破每加仑4.50美元，为2022年7月以来首次触及这一水平。
-
-与此同时，特朗普周一表示将寻求暂停每加仑18.4美分的联邦汽油税，“直至时机合适为止”。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 23:31 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 23:55 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 23:50 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 23:58 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 23:47 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 23:44 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 23:53 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 23:41 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 23:47 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 23:43 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 23:37 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 23:54 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 23:40 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 23:39 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 23:55 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 23:42 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 23:51 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 23:37 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 23:46 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 00:01 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 23:42 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 23:56 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 23:53 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 23:36 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 23:38 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:51 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/726270539.shtml)
-- 2026-06-29 23:50 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/87579418.shtml)
-- 2026-06-29 23:36 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/0770990.shtml)
-- 2026-06-29 23:48 - [第一炉香](https://www.share.kurohicncr.top/Article/details/5547695957.shtml)
-- 2026-06-29 23:32 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/995566913294.shtml)
-- 2026-06-29 23:52 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/5487187.shtml)
-- 2026-06-29 23:50 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/446097635.shtml)
-- 2026-06-29 23:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/646783.shtml)
-- 2026-06-29 23:40 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/06839.shtml)
-- 2026-06-29 23:44 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/043102243.shtml)
-- 2026-06-29 23:53 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/23119221571.shtml)
-- 2026-06-29 23:40 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/437070564828.shtml)
-- 2026-06-29 23:34 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/632606608.shtml)
-- 2026-06-29 23:59 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/2031820539.shtml)
-- 2026-06-29 23:59 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/056579.shtml)
+- 2026-06-29 23:50 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/49201238.shtml)
+- 2026-06-29 23:55 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/7115418727.shtml)
+- 2026-06-29 23:44 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/59084.shtml)
+- 2026-06-29 23:41 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/7082872348.shtml)
+- 2026-06-29 23:37 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/35631.shtml)
+- 2026-06-29 23:37 - [女心理师](https://www.share.minike.top/Article/details/1342630.shtml)
+- 2026-06-29 23:49 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/411724.shtml)
+- 2026-06-29 23:56 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/687702.shtml)
+- 2026-06-29 23:56 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/84376259944.shtml)
+- 2026-06-29 23:40 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/1625767310.shtml)
+- 2026-06-29 23:45 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/14781602425.shtml)
+- 2026-06-29 23:37 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/392906.shtml)
+- 2026-06-29 23:44 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/82884234.shtml)
+- 2026-06-29 23:55 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/862977855.shtml)
+- 2026-06-30 00:00 - [流金岁月](https://www.blog.minike.top/Article/details/75822.shtml)

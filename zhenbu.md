@@ -1,59 +1,56 @@
-# 大陆学者：如何对待“台独”是检验美方一中政策的试金石
+# SpaceX上市料让特朗普班底身家再增 披露文件显示多名官员持有股份
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-中新社北京5月12日电 (记者 张杨彬)中美元首会晤在即，海外舆论以台湾问题为关注焦点之一。中国人民大学两岸关系研究中心主任、国发院研究员王英津12日接受中新社采访时表示，美国应当心被“台独”拖下水，管控和反对“台独”，符合美国的战略利益。“美国有识之士已经意识到‘台独’亦是美国之患，对美国而言，一味地默许甚至纵容‘台独’分裂活动，绝非明智之举。”王英津说。 他分析指出，从中美
+SpaceX首次公开募股很可能会让唐纳德·特朗普本已富有的政府班底变得更加富裕。 根据这些官员最近一次公开的财务披露文件，从总统特使史蒂夫·威特科夫到美国小企业管理局局长Kelly Loeffler在内，10名官员申报持有埃隆·马斯克火箭公司SpaceX或xAI的权益。 披露文件显示，这些联邦官员合计持有价值至少990万美元、至多4380万美元的SpaceX或xAI股票。上述披
 
 ## 正文
 
-中新社北京5月12日电 (记者 张杨彬)中美元首会晤在即，海外舆论以台湾问题为关注焦点之一。
+SpaceX首次公开募股很可能会让唐纳德·特朗普本已富有的政府班底变得更加富裕。
 
-中国人民大学两岸关系研究中心主任、国发院研究员王英津12日接受中新社采访时表示，美国应当心被“台独”拖下水，管控和反对“台独”，符合美国的战略利益。
+根据这些官员最近一次公开的财务披露文件，从总统特使史蒂夫·威特科夫到美国小企业管理局局长Kelly Loeffler在内，10名官员申报持有埃隆·马斯克火箭公司SpaceX或xAI的权益。
 
-“美国有识之士已经意识到‘台独’亦是美国之患，对美国而言，一味地默许甚至纵容‘台独’分裂活动，绝非明智之举。
+披露文件显示，这些联邦官员合计持有价值至少990万美元、至多4380万美元的SpaceX或xAI股票。
 
-”王英津说。
+上述披露是在去年作出的，资产价值按较宽区间列示。
 
-他分析指出，从中美关系看，台湾问题始终是中美关系中最重要、最敏感的问题。
+此后，这些官员可能已出售其全部或部分持股，而未触发额外披露要求。
 
-美国政府多次重申坚持一个中国政策，这是两国关系得以维系的重要政治基础。
+SpaceX位于加利福尼亚州Hawthorne的设施 SpaceX之所以格外引人注目，不仅因为其计划中的IPO规模空前，也因为它与政府及本届政府成员关系密切。
 
-“放纵‘台独’的危险行为不仅会断送中美之间来之不易的稳定局面，更极有可能诱发一系列难以估量的灾难。
+此次IPO预计最快将于下周进行。
 
-” 从美方利益看，王英津表示，美国深陷地缘政治冲突，军事投入与资源消耗居高不下，国内通胀压力持续存在，中期选举临近，这对特朗普本人、美国国内经济发展及全球战略都是极不利的。
+如果达到至少1.8万亿美元的目标估值，马斯克将成为全球首位万亿美元富豪。
 
 ## 相关推荐
 
-- 2026-06-29 23:41 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 23:42 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 23:41 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 23:44 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 23:52 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 23:55 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 23:59 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 23:45 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 23:39 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 23:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 23:43 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 23:50 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 23:41 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 00:04 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 23:50 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 23:46 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 23:41 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 23:55 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 23:54 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 23:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 00:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 23:51 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 23:48 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:31 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/66473463411.shtml)
-- 2026-06-29 23:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/5930004853.shtml)
-- 2026-06-29 23:31 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/065663760.shtml)
-- 2026-06-29 23:57 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.kurohicncr.top/Article/details/23968738096.shtml)
-- 2026-06-29 23:59 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/3464579401.shtml)
-- 2026-06-29 23:41 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/9421300.shtml)
-- 2026-06-29 23:50 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/031251914.shtml)
-- 2026-06-29 23:52 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/31468.shtml)
-- 2026-06-29 23:59 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/29401669140.shtml)
-- 2026-06-29 23:47 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/165631907244.shtml)
-- 2026-06-29 23:30 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/281086377570.shtml)
-- 2026-06-29 23:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/578342.shtml)
-- 2026-06-29 23:47 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/414029757.shtml)
-- 2026-06-29 23:40 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/74411528866.shtml)
-- 2026-06-29 23:49 - [女心理师](https://www.share.minike.top/Article/details/4365688.shtml)
+- 2026-06-29 23:57 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/59904650811.shtml)
+- 2026-06-29 23:59 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/25718591794.shtml)
+- 2026-06-29 23:44 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/8089785922.shtml)
+- 2026-06-30 00:04 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/73743295.shtml)
+- 2026-06-29 23:46 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/77045.shtml)
+- 2026-06-29 23:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/65064.shtml)
+- 2026-06-29 23:39 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/44913.shtml)
+- 2026-06-29 23:46 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/099509619.shtml)
+- 2026-06-29 23:41 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/847145552596.shtml)
+- 2026-06-29 23:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/10209912990.shtml)
+- 2026-06-29 23:42 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/579699.shtml)
+- 2026-06-30 00:00 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/887222.shtml)
+- 2026-06-29 23:39 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/164649872399.shtml)
+- 2026-06-29 23:49 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/0182870.shtml)
+- 2026-06-30 00:05 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/15493.shtml)

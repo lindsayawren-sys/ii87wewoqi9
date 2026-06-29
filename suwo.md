@@ -1,60 +1,42 @@
-# 唐纳德·特朗普称伊朗停火协议已经岌岌可危
+# 这座“高原小故宫”，藏着600年前汉藏共书的“中国”
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-唐纳德·特朗普（Donald Trump）周一表示，美国与伊朗之间为期一个月的停火已经岌岌可危，此前他拒绝了德黑兰方面为结束战争和重新开放霍尔木兹海峡（Strait of Hormuz）而提出的反提案。 这位美国总统在椭圆形办公室（Oval Office）发表讲话时表示，伊朗对美国提案的回应是“不可接受的”和“愚蠢的”。 德黑兰的提案未能纳入一项条款，他称伊朗谈判代表“两天前”
+从青海西宁向东 翻过一道山梁 瞿昙寺的红墙静静矗立在河湟谷地 当地人常说： “浪了瞿昙寺，北京再甭去” 这句夸赞里 藏着一座“高原小故宫”的骄傲与秘密 走进中国工艺美术馆 “高原丝路 瞿昙之光——青海丝路文物与瞿昙寺壁画艺术展” 84件精品文物 113件壁画临摹作品 带你翻越祁连山 直抵瞿昙寺 一座“缩小版”紫禁城 始建于明洪武年间的瞿昙寺 由明太祖朱元璋钦赐寺名 它是明朝在河
 
 ## 正文
 
-唐纳德·特朗普（Donald Trump）周一表示，美国与伊朗之间为期一个月的停火已经岌岌可危，此前他拒绝了德黑兰方面为结束战争和重新开放霍尔木兹海峡（Strait of Hormuz）而提出的反提案。
-
-这位美国总统在椭圆形办公室（Oval Office）发表讲话时表示，伊朗对美国提案的回应是“不可接受的”和“愚蠢的”。
-
-德黑兰的提案未能纳入一项条款，他称伊朗谈判代表“两天前”曾提及该条款——即允许美国或中国移除伊朗埋藏的高浓缩铀库存。
-
-“他们发给我们的那堆垃圾——我都没读完，”特朗普在一次关于孕产妇保健的活动中对记者说。
-
-“我会说，停火正依赖大规模生命支持系统维持，”他说，停火“存活的可能性只有1%”。
-
-国际基准布伦特原油（Brent crude）周一上涨3.4%，至每桶104.72美元，周二亚洲交易时段在略低于105美元的水平。
-
-自脆弱的停火于4月8日生效以来，由巴基斯坦牵头的调解人一直试图促成一项重新开放霍尔木兹海峡并就伊朗核计划达成协议的交易。
-
-但外交努力未能弥合双方之间的巨大分歧和不信任，双方都认为自己占据上风。
+从青海西宁向东 翻过一道山梁 瞿昙寺的红墙静静矗立在河湟谷地 当地人常说： “浪了瞿昙寺，北京再甭去” 这句夸赞里 藏着一座“高原小故宫”的骄傲与秘密 走进中国工艺美术馆 “高原丝路 瞿昙之光——青海丝路文物与瞿昙寺壁画艺术展” 84件精品文物 113件壁画临摹作品 带你翻越祁连山 直抵瞿昙寺 一座“缩小版”紫禁城 始建于明洪武年间的瞿昙寺 由明太祖朱元璋钦赐寺名 它是明朝在河湟地区敕建的第一座藏传佛教寺院 走进展厅看到瞿昙寺的模型 你会恍惚是否穿越到了北京故宫 中轴对称，三进院落 隆国殿两翼 抄手斜廊向上拱起 大钟楼、大鼓楼左右对峙 格局与明朝紫禁城 奉天殿、文楼、武楼如出一辙 这不是巧合 而是在雪域高原 明代中央政权针对中原官式规制的一项“国家工程” 中原工匠带来的形制 融入地方审美 建成了这座汉藏合璧的建筑活化石 御碑上的“中国” 一座汉文与藏
 
 ## 相关推荐
 
-- 2026-06-29 23:39 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 23:45 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 23:36 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 23:33 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 23:58 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 23:51 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 23:31 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 23:39 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 23:43 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 23:50 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 23:38 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 23:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 23:40 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 23:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 23:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 23:48 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 00:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 23:54 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 23:59 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 23:49 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 00:05 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 23:47 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 00:02 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 23:43 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/13650218012.shtml)
-- 2026-06-29 23:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/502909247690.shtml)
-- 2026-06-29 23:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/6096001188.shtml)
-- 2026-06-29 23:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/7117881.shtml)
-- 2026-06-29 23:33 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/71068668.shtml)
-- 2026-06-29 23:31 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/47354596.shtml)
-- 2026-06-29 23:34 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/726898072860.shtml)
-- 2026-06-29 23:34 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/060032887430.shtml)
-- 2026-06-29 23:36 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/44607306.shtml)
-- 2026-06-29 23:33 - [东方风云榜直播](http://www.blog.minike.top/Article/details/047179038.shtml)
-- 2026-06-29 23:43 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/24654544868.shtml)
-- 2026-06-29 23:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/357750210955.shtml)
-- 2026-06-29 23:30 - [巴黎区长紧急采购50台中国空调](http://www.blog.minike.top/Article/details/43075458.shtml)
-- 2026-06-29 23:37 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/824057.shtml)
-- 2026-06-29 23:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/84261382666.shtml)
+- 2026-06-30 00:01 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/70148.shtml)
+- 2026-06-29 23:44 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/3081584301.shtml)
+- 2026-06-29 23:47 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/202001610132.shtml)
+- 2026-06-29 23:40 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/9907881.shtml)
+- 2026-06-29 23:41 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/4469360509.shtml)
+- 2026-06-29 23:58 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/37847133175.shtml)
+- 2026-06-29 23:53 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/45500.shtml)
+- 2026-06-29 23:46 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/109271789.shtml)
+- 2026-06-29 23:39 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/49584.shtml)
+- 2026-06-30 00:02 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/530637380410.shtml)
+- 2026-06-29 23:47 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/253816330078.shtml)
+- 2026-06-29 23:42 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/8597228746.shtml)
+- 2026-06-29 23:45 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/35406435510.shtml)
+- 2026-06-29 23:53 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.kurohicncr.top/Article/details/952764.shtml)
+- 2026-06-30 00:03 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/24538.shtml)

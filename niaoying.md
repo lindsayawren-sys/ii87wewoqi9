@@ -1,57 +1,61 @@
-# OEXN:油价宽幅震荡蓄势整理
+# 人为制造“稳赚不赔”假象 5.6万人卷入“酒水竞拍”传销骗局
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-5月12，国际原油市场近期经历了今年以来波动最为剧烈的一周。六月WTI原油期货在每桶107.46美元与88.66美元之间剧烈摆动，最终企稳于约97美元水平，布伦特原油亦同步收负，周线累计跌幅约7%。OEXN表示，市场对美伊谈判与中东冲突的反复信号难以充分定价，导致价格在地缘紧张与外交缓和之间快速切换。该机构分析称，短期市场进入多空博弈极度激烈的阶段，前期累积的地缘溢价被快速释放
+开发App，采购“道具产品”，制造“稳赚不赔”假象，以“拉人头抽成”方式吸引会员—— 5.6万人卷入“酒水竞拍”传销骗局 检察日报全媒体记者 管莹 通讯员 夏艺芳 宿世欣 ◆以“酒水拍卖”为幌子，搭建平台、售卖虚拟积分敛财。◆设计双重盈利模式：以“酒水自动涨价”为诱饵，收取50个至200个积分作为竞拍手续费，制造“低投入、高收益”假象；推出“拉人给佣金”机制，激励会员发展新人，
 
 ## 正文
 
-5月12，国际原油市场近期经历了今年以来波动最为剧烈的一周。
+开发App，采购“道具产品”，制造“稳赚不赔”假象，以“拉人头抽成”方式吸引会员—— 5.6万人卷入“酒水竞拍”传销骗局 检察日报全媒体记者 管莹 通讯员 夏艺芳 宿世欣 ◆以“酒水拍卖”为幌子，搭建平台、售卖虚拟积分敛财。
 
-六月WTI原油期货在每桶107.46美元与88.66美元之间剧烈摆动，最终企稳于约97美元水平，布伦特原油亦同步收负，周线累计跌幅约7%。
+◆设计双重盈利模式：以“酒水自动涨价”为诱饵，收取50个至200个积分作为竞拍手续费，制造“低投入、高收益”假象；推出“拉人给佣金”机制，激励会员发展新人，扩大积分购买量。
 
-OEXN表示，市场对美伊谈判与中东冲突的反复信号难以充分定价，导致价格在地缘紧张与外交缓和之间快速切换。
+◆通过线上线下同步推广，平台会员呈爆炸式增长，截至2024年11月，有效会员达5.6万余人，上下线最高层级有26层。
 
-该机构分析称，短期市场进入多空博弈极度激烈的阶段，前期累积的地缘溢价被快速释放又部分回补。
+整个网络传销平台的会员及各级代理之间的资金流转量达上亿元。
 
-从基本面看，霍尔木兹海峡的供应阻断风险并未完全消除，全球约20%的海运原油经此通过。
+一款看似平平无奇的电商App，每天定时开启火爆拍卖，会员拍下任意一款酒水，转手就能赚钱，介绍新会员加入还能抽取提成……这稳赚不赔的生意只需花50元向上线买50个积分，便能解锁参与权限。
 
-OEXN认为，全球库存仍处偏紧状态，出口需求维持高位，意味着市场对供应冲击的敏感度仍然较高。
+靠着这套保本返利的营销套路，上线未满一年，该App的注册会员就超过5万人，流转资金达上亿元。
 
-该机构判断，OPEC+产油国后续产量决策、美国页岩油产量弹性、战略石油储备释放节奏，以及主要消费国的需求走势，将共同决定油价的中期方向，多家投行陆续修正年内油价预测以适应高波动格局。
+“酒水竞拍”躺着赚钱 61岁的闻女士家住江苏徐州，平日里靠打零工维生。
 
-市场层面，原油价格的剧烈震荡已开始影响下游传导节奏，部分炼厂利润空间被压缩，通胀路径的不确定性进一步抬升。
+2024年6月的一天，朋友陈某来家中做客时，向她介绍了一个轻松赚钱的门路。
 
 ## 相关推荐
 
-- 2026-06-29 23:33 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 23:58 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 23:46 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 23:40 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 23:49 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 23:46 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 23:48 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 23:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 23:53 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 23:34 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 23:43 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 23:55 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 00:05 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 23:37 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 23:54 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 00:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 23:55 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 00:01 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 23:41 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 23:41 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 23:52 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 23:54 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 00:02 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 23:42 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 23:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 23:45 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:42 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/19123826.shtml)
-- 2026-06-29 23:41 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/904228689565.shtml)
-- 2026-06-29 23:36 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/380201.shtml)
-- 2026-06-29 23:49 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/745491.shtml)
-- 2026-06-29 23:54 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/74780180521.shtml)
-- 2026-06-29 23:53 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/521255.shtml)
-- 2026-06-29 23:54 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/43646947149.shtml)
-- 2026-06-29 23:57 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/205338616845.shtml)
-- 2026-06-29 23:52 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/3386313898.shtml)
-- 2026-06-29 23:36 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/2528153.shtml)
-- 2026-06-29 23:43 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/80944405967.shtml)
-- 2026-06-29 23:41 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/91408.shtml)
-- 2026-06-29 23:44 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/5150316352.shtml)
-- 2026-06-29 23:45 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/7417510679.shtml)
-- 2026-06-29 23:32 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/77350.shtml)
+- 2026-06-30 00:03 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/58545.shtml)
+- 2026-06-30 00:04 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/3662360.shtml)
+- 2026-06-29 23:57 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/551449.shtml)
+- 2026-06-29 23:52 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/253945733.shtml)
+- 2026-06-30 00:01 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/961082.shtml)
+- 2026-06-29 23:40 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/463490016.shtml)
+- 2026-06-29 23:55 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/23105279314.shtml)
+- 2026-06-30 00:01 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/810047.shtml)
+- 2026-06-29 23:54 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/683033437.shtml)
+- 2026-06-29 23:51 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/662418.shtml)
+- 2026-06-30 00:04 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/1838370.shtml)
+- 2026-06-29 23:42 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/419593367622.shtml)
+- 2026-06-30 00:01 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/360685933.shtml)
+- 2026-06-29 23:37 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/83396121.shtml)
+- 2026-06-29 23:42 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/54498803.shtml)

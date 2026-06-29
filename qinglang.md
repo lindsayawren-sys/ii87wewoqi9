@@ -1,49 +1,54 @@
-# 河南省南阳市人大常委会原副主任余广东被“双开”
+# 赖清德为什么怕小红书？
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-中新网5月13日电 据河南省纪委监委消息：经中共河南省委批准，河南省纪委监委对河南省南阳市人大常委会原党组成员、副主任余广东严重违纪违法问题进行了立案审查调查。 经查，余广东丧失理想信念，背弃初心使命，结交政治骗子，对抗组织审查；无视中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡；违背组织原则，在组织谈话时不如实说明问题，不按规定报告个人有关事项，利用职权为他人
+发布时间：2026年06月04日 19:25 来源：中国新闻网 近日，赖清德在与岛内高中生对谈时称，TikTok、小红书对台湾青年世代的影响已达“安全危机”，久而久之，会把中国大陆当作好人。台湾原乡人文化工作室执行长、媒体人张钧凯向中国新闻网“燕新台”工作室表示，赖清德的言论本质是冷战思维与信息茧房下的认知错位，也是其自卑心态的真实反映。他指出，台湾年轻人对大陆APP“用脚投票
 
 ## 正文
 
-中新网5月13日电 据河南省纪委监委消息：经中共河南省委批准，河南省纪委监委对河南省南阳市人大常委会原党组成员、副主任余广东严重违纪违法问题进行了立案审查调查。
+发布时间：2026年06月04日 19:25 来源：中国新闻网 近日，赖清德在与岛内高中生对谈时称，TikTok、小红书对台湾青年世代的影响已达“安全危机”，久而久之，会把中国大陆当作好人。
 
-经查，余广东丧失理想信念，背弃初心使命，结交政治骗子，对抗组织审查；无视中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡；违背组织原则，在组织谈话时不如实说明问题，不按规定报告个人有关事项，利用职权为他人谋取人事利益并收受财物；廉洁底线失守，通过民间借贷获取大额回报，违规从事营利性活动，将应当由本人支付的费用由他人支付，利用职权为他人谋利并收受财物；丧失纪法底线，大搞权钱交易，利用职务便利为他人在工程承揽、职务调整等方面谋取利益，非法收受巨额财物。
+台湾原乡人文化工作室执行长、媒体人张钧凯向中国新闻网“燕新台”工作室表示，赖清德的言论本质是冷战思维与信息茧房下的认知错位，也是其自卑心态的真实反映。
 
-余广东严重违反党的政治纪律、组织纪律和廉洁纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+他指出，台湾年轻人对大陆APP“用脚投票”，本身就是对赖清德当局妖魔化大陆的破解与抵抗，他们相信自己的亲身经历与亲眼所见，对大陆的善意在提高，这是赖清德当局不愿意看到的局面，却也是两岸关系相向而行的大势所趋。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经河南省纪委常委会会议研究并报中共河南省委批准，决定给予余广东开除党籍处分；由河南省监委给予其开除公职处分；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+台湾青年自媒体人翟翾说，两岸同胞渴望通过真实的民间交流来认识彼此，不会被任何政治谎言所限制。
+
+(策划/制作：燕新台 君言晚 常望涛 中新网“燕新台”工作室出品） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 23:37 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 23:44 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 23:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 23:33 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 23:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 23:42 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 23:55 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 23:36 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 23:48 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 23:38 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 23:57 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 23:51 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 23:41 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 23:50 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 23:49 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 23:55 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 23:59 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 23:55 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 23:48 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 23:38 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 23:57 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 00:01 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 23:46 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 23:53 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 23:56 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/254207.shtml)
-- 2026-06-29 23:42 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/043813860.shtml)
-- 2026-06-29 23:47 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/747697222723.shtml)
-- 2026-06-29 23:36 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/978827156.shtml)
-- 2026-06-29 23:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/901079138587.shtml)
-- 2026-06-29 23:44 - [沙丘](https://www.blog.kurohicncr.top/Article/details/234571.shtml)
-- 2026-06-29 23:33 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/8716236.shtml)
-- 2026-06-29 23:57 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/42178697.shtml)
-- 2026-06-29 23:34 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/5150364.shtml)
-- 2026-06-29 23:56 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/552104031571.shtml)
-- 2026-06-29 23:40 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/3706854.shtml)
-- 2026-06-29 23:46 - [炽夏](https://www.blog.minike.top/Article/details/15145.shtml)
-- 2026-06-29 23:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/2850496544.shtml)
-- 2026-06-29 23:40 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/25944444369.shtml)
-- 2026-06-29 23:40 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/081528893331.shtml)
+- 2026-06-29 23:49 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/63276.shtml)
+- 2026-06-29 23:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/492855.shtml)
+- 2026-06-30 00:02 - [美股](https://www.blog.minike.top/Article/details/82658374896.shtml)
+- 2026-06-29 23:56 - [一生一世](http://www.share.kurohicncr.top/Article/details/452584.shtml)
+- 2026-06-30 00:03 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/29074115.shtml)
+- 2026-06-29 23:51 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/22573716.shtml)
+- 2026-06-29 23:37 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/277914385.shtml)
+- 2026-06-29 23:59 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/59139247.shtml)
+- 2026-06-29 23:37 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/25003471361.shtml)
+- 2026-06-29 23:56 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/40967459.shtml)
+- 2026-06-29 23:46 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/03853772127.shtml)
+- 2026-06-29 23:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/76311634.shtml)
+- 2026-06-29 23:37 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/90061.shtml)
+- 2026-06-29 23:38 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/76964373733.shtml)
+- 2026-06-29 23:48 - [扫黑风暴](https://www.share.minike.top/Article/details/955386681.shtml)

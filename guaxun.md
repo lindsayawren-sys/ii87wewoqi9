@@ -1,58 +1,61 @@
-# 多只理财产品提前终止，什么情况？
+# 市场环境承压，Inditex销售额增速逆势走高
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-“下午5点多收到产品提前终止提醒，达到目标收益率太快了。”5月12日，上海一位投资者说，自己持有的招银理财招睿目标盈优选4号固收增强理财计划，已触发止盈条件，于5月13日提前终止。 中国证券报记者调研发现，除招银理财之外，近日，平安理财、信银理财、民生理财、交银理财、上银理财、光大理财等多家理财公司都发布了部分理财产品的提前终止公告。相关产品既有日开型产品，又有最低持有期限产品
+专题：聚焦美股2026年第一季度财报 中东冲突抬升成本、消费信心走弱，服装零售商普遍承压 ZARA 母公司Inditex（ITX）股价上涨 5.73%。公司表示，尽管中东战事推高原材料与物流运费、服装行业整体经营环境严峻，上月公司营收增速仍出现提速。 这家西班牙时尚巨头旗下还拥有玛西莫・杜蒂、波丝卡等服饰品牌。公司周三披露：5 月 1 日 —6 月 1 日期间，固定汇率口径销售
 
 ## 正文
 
-“下午5点多收到产品提前终止提醒，达到目标收益率太快了。
+专题：聚焦美股2026年第一季度财报 中东冲突抬升成本、消费信心走弱，服装零售商普遍承压 ZARA 母公司Inditex（ITX）股价上涨 5.73%。
 
-”5月12日，上海一位投资者说，自己持有的招银理财招睿目标盈优选4号固收增强理财计划，已触发止盈条件，于5月13日提前终止。
+公司表示，尽管中东战事推高原材料与物流运费、服装行业整体经营环境严峻，上月公司营收增速仍出现提速。
 
-中国证券报记者调研发现，除招银理财之外，近日，平安理财、信银理财、民生理财、交银理财、上银理财、光大理财等多家理财公司都发布了部分理财产品的提前终止公告。
+这家西班牙时尚巨头旗下还拥有玛西莫・杜蒂、波丝卡等服饰品牌。
 
-相关产品既有日开型产品，又有最低持有期限产品，还有封闭式产品。
+公司周三披露：5 月 1 日 —6 月 1 日期间，固定汇率口径销售额同比大涨 11.5%，较截至 4 月 30 日一季度 8.8% 的营收增速显著抬升；其一季度总营收 87.5 亿欧元（折合 101.8 亿美元），Visible Alpha 汇总的分析师一致预期为 87.2 亿欧元，业绩小幅优于预期。
 
-除止盈触发的“主动收官”，记者采访了解到，还有因理财产品赎回较多造成规模缩水而产生的“被动退场”。
+受波斯湾地缘冲突带来的成本上涨、居民消费意愿下滑双重冲击，全球服装零售商经营普遍承压。
 
-“落袋为安”型清盘 根据记者梳理，在提前终止的理财产品中，有一些为“落袋为安”型清盘。
+Inditex称：“全品类开支均执行精细化管控，成本管控成效向好。
 
-一般此类产品会在产品说明书和运行公告中提及“止盈”等。
+” 公司一季度净利润由去年同期 13.1 亿欧元增至 13.8 亿欧元。
 
-例如，上述招银理财招睿目标盈安盈优选4号固收增强理财计划的公告中提到，该产品原预计到期日为2027年2月1日。
+公司展望 2027 财年（截至次年 1 月）毛利率保持平稳，波动区间控制在正负 0.5 个百分点以内。
 
 ## 相关推荐
 
-- 2026-06-29 23:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 23:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 23:58 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 23:45 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 23:37 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 23:39 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 23:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 23:34 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 23:39 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 23:44 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 23:34 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 23:59 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 23:40 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 23:43 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 23:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 00:01 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 23:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 23:47 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 00:04 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 00:01 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 00:05 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 23:36 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 23:38 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 23:53 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 23:44 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 23:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 23:41 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:42 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/5200555722.shtml)
-- 2026-06-29 23:53 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/28112230.shtml)
-- 2026-06-29 23:51 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/39772100835.shtml)
-- 2026-06-29 23:48 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.minike.top/Article/details/769387695.shtml)
-- 2026-06-29 23:52 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/66285.shtml)
-- 2026-06-29 23:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/676588.shtml)
-- 2026-06-29 23:33 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/309517224716.shtml)
-- 2026-06-29 23:49 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/410076724532.shtml)
-- 2026-06-29 23:47 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/686392.shtml)
-- 2026-06-29 23:37 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/03453289.shtml)
-- 2026-06-29 23:35 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/899020279169.shtml)
-- 2026-06-29 23:30 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/436922.shtml)
-- 2026-06-29 23:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/849792855.shtml)
-- 2026-06-29 23:47 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/3788620.shtml)
-- 2026-06-29 23:33 - [刘念回应](http://www.share.minike.top/Article/details/82782258521.shtml)
+- 2026-06-29 23:39 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/081084161.shtml)
+- 2026-06-29 23:53 - [女心理师](https://www.share.kurohicncr.top/Article/details/216293.shtml)
+- 2026-06-29 23:54 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/5072327.shtml)
+- 2026-06-30 00:03 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/9286367.shtml)
+- 2026-06-29 23:36 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/8119232.shtml)
+- 2026-06-30 00:00 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/7979431.shtml)
+- 2026-06-29 23:58 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/009762318861.shtml)
+- 2026-06-29 23:55 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/357523.shtml)
+- 2026-06-29 23:56 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/097896770.shtml)
+- 2026-06-29 23:43 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/4476418.shtml)
+- 2026-06-29 23:43 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/14903.shtml)
+- 2026-06-30 00:02 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/0737217.shtml)
+- 2026-06-29 23:42 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/792713.shtml)
+- 2026-06-29 23:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/626442630253.shtml)
+- 2026-06-29 23:36 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/356431.shtml)

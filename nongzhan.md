@@ -1,52 +1,55 @@
-# 拉萨市新增成立一家社会工作服务中心
+# （美丽中国行）深山“追猫人”扎根唐家河 十四年守护大熊猫家园
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-中新网拉萨5月13日电 (卢鑫)12日，拉萨市山禾社会工作服务中心成立大会暨第一届理事会在拉萨市顺利召开。 拉萨市民政局党组成员、副局长琼吉表示，该中心将立足拉萨本地民生需求，深耕专业社会工作，切实发挥社会组织桥梁纽带作用，助力基层社会治理、民生保障、公益服务等工作落地见效。 大会严格按照社会组织章程及选举规范，采取无记名投票方式，依次审议通过《拉萨市山禾社会工作服务中心章程(
+发布时间：2026年06月04日 15:53 来源：中国新闻网 大熊猫野外巡护员被大家爱称为“追猫人”。近日，中新社记者跟随“美丽中国行之探访国家公园”集体采访活动的脚步，走进大熊猫国家公园唐家河片区。扎根野外巡护一线已经十四年的白熊坪保护站副站长贾飞德，便是这片深山里的一名“追猫人”。片区山林无路可行，巡护队员常年循着羚牛等野生动物踏出的兽径穿梭陡峭密林，日复一日开展野外监测
 
 ## 正文
 
-中新网拉萨5月13日电 (卢鑫)12日，拉萨市山禾社会工作服务中心成立大会暨第一届理事会在拉萨市顺利召开。
+发布时间：2026年06月04日 15:53 来源：中国新闻网 大熊猫野外巡护员被大家爱称为“追猫人”。
 
-拉萨市民政局党组成员、副局长琼吉表示，该中心将立足拉萨本地民生需求，深耕专业社会工作，切实发挥社会组织桥梁纽带作用，助力基层社会治理、民生保障、公益服务等工作落地见效。
+近日，中新社记者跟随“美丽中国行之探访国家公园”集体采访活动的脚步，走进大熊猫国家公园唐家河片区。
 
-大会严格按照社会组织章程及选举规范，采取无记名投票方式，依次审议通过《拉萨市山禾社会工作服务中心章程(草案)》《拉萨市山禾社会工作服务中心理事会选举办法》，并依法选举产生中心第一届理事会负责人及监事。
+扎根野外巡护一线已经十四年的白熊坪保护站副站长贾飞德，便是这片深山里的一名“追猫人”。
 
-经现场监票、计票，全票通过选举结果。
+片区山林无路可行，巡护队员常年循着羚牛等野生动物踏出的兽径穿梭陡峭密林，日复一日开展野外监测，默默守护着野生大熊猫的栖息家园。
 
-据悉，拉萨市山禾社会工作服务中心的成立，是拉萨市培育发展专业社会组织、壮大社会工作力量的重要举措，进一步充实了基层社会工作服务队伍。
-
-(完)
+记者 范思忆 韩仪 刘世炯 四川广元报道 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 23:36 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 23:44 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 23:47 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 23:59 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 23:50 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 23:59 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 23:58 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 23:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 23:34 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 23:58 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 23:53 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 23:54 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 23:37 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 23:46 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 23:53 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 00:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 23:54 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 23:37 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 23:59 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 00:03 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 23:57 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 23:41 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 23:45 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 00:03 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 23:50 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:37 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/0743994788.shtml)
-- 2026-06-29 23:36 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/33925100.shtml)
-- 2026-06-29 23:46 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/916318947.shtml)
-- 2026-06-29 23:56 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/72508172129.shtml)
-- 2026-06-29 23:48 - [世界杯](http://www.blog.minike.top/Article/details/63583773.shtml)
-- 2026-06-29 23:45 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/06926370532.shtml)
-- 2026-06-29 23:42 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/207826.shtml)
-- 2026-06-29 23:53 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/8619371382.shtml)
-- 2026-06-29 23:59 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/16676081900.shtml)
-- 2026-06-29 23:46 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/67049.shtml)
-- 2026-06-29 23:40 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/92043916.shtml)
-- 2026-06-29 23:40 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/045677186.shtml)
-- 2026-06-29 23:51 - [速度与激情9](http://www.share.minike.top/Article/details/244081.shtml)
-- 2026-06-29 23:37 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/3632671551.shtml)
-- 2026-06-29 23:55 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/8684056.shtml)
+- 2026-06-30 00:03 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/129065455949.shtml)
+- 2026-06-30 00:01 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/726461.shtml)
+- 2026-06-29 23:56 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/0412665144.shtml)
+- 2026-06-29 23:48 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/05064.shtml)
+- 2026-06-29 23:42 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/35714679.shtml)
+- 2026-06-29 23:38 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/86451.shtml)
+- 2026-06-29 23:36 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/37591544.shtml)
+- 2026-06-29 23:41 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/19377978.shtml)
+- 2026-06-29 23:38 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/26114540.shtml)
+- 2026-06-29 23:43 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/283832459.shtml)
+- 2026-06-29 23:38 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/94348481.shtml)
+- 2026-06-30 00:05 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/76839317415.shtml)
+- 2026-06-29 23:50 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/88394.shtml)
+- 2026-06-29 23:48 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/8862859790.shtml)
+- 2026-06-29 23:54 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/71583609757.shtml)

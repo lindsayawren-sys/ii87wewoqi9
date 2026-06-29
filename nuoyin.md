@@ -1,61 +1,61 @@
-# 谷歌母公司Alphabet拟首次发行日元债券以支持AI支出
+# 美国青少年海口体验中国传统文化：“真的很酷！”
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-一份销售文件显示，谷歌母公司Alphabet计划首次发行多档日元债券。多家科技巨头正日益通过发债为人工智能（AI）基础设施支出筹集资金。 销售文件未披露Alphabet债券发行的规模，但一位直接知情人士周一表示，此次发行总额预计将达数千亿日元。 一位知情人士周一表示，电商巨头亚马逊也正准备首次发行六部分组成的瑞郎债券。 这些海外债券发行凸显出AI支出激增正促使美国科技业者向海外
+中新社海口6月3日电(记者 张茜翼) “这是我第一次接触中国功夫，那么多复杂动作，真的很酷！”12岁美国学生林曼彤(Scarlett)3日在海口说，以前只能在电视或书本里看到中国功夫，如今亲身体验“感觉很新鲜”。 当日，参加“海南自贸港中美基础教育对话会暨中美青少年人文交流营”的美国师生及家长走进海南师范大学附属小学，开启一场中华传统文化体验之旅。 书法体验区墨香四溢。美国青少
 
 ## 正文
 
-一份销售文件显示，谷歌母公司Alphabet计划首次发行多档日元债券。
+中新社海口6月3日电(记者 张茜翼) “这是我第一次接触中国功夫，那么多复杂动作，真的很酷！
 
-多家科技巨头正日益通过发债为人工智能（AI）基础设施支出筹集资金。
+”12岁美国学生林曼彤(Scarlett)3日在海口说，以前只能在电视或书本里看到中国功夫，如今亲身体验“感觉很新鲜”。
 
-销售文件未披露Alphabet债券发行的规模，但一位直接知情人士周一表示，此次发行总额预计将达数千亿日元。
+当日，参加“海南自贸港中美基础教育对话会暨中美青少年人文交流营”的美国师生及家长走进海南师范大学附属小学，开启一场中华传统文化体验之旅。
 
-一位知情人士周一表示，电商巨头亚马逊也正准备首次发行六部分组成的瑞郎债券。
+书法体验区墨香四溢。
 
-这些海外债券发行凸显出AI支出激增正促使美国科技业者向海外投资者寻求资金。
+美国青少年第一次握起毛笔，认真写下“和平”“开心”“海南”等汉字。
 
-科技巨头今年AI基础设施支出料将超过7，000亿美元，较2025年的4，100亿美元大幅增长。
+“中国书法很美。
 
-这些公司不得不更多地依赖债务融资。
+”文凯(Bennett)说，书法之美不仅在于字形的结构，更在于笔画的粗细变化与书写方式——“充满了情绪”。
 
-销售文件显示，Alphabet发行的日元债券将包括三年、五年、七年、10年、15年、20年、30年和40年期，但根据需求和市场情况，可能取消其中一个或多个档次。
+孙小涛(Todd)则写下一个端正的“福”字，并小心翼翼地将作品收好。
 
 ## 相关推荐
 
-- 2026-06-29 23:46 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 23:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 23:59 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 23:48 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 23:47 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 23:48 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 23:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 23:41 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-29 23:53 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 23:34 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 23:48 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 23:47 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 23:46 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 23:53 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 23:48 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 23:57 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 00:04 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 23:57 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 23:40 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 23:55 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 23:40 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 23:46 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 23:47 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 00:04 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 23:43 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 23:46 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 23:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 23:38 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 23:58 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 23:58 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:35 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/44516560475.shtml)
-- 2026-06-29 23:43 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/80889333.shtml)
-- 2026-06-29 23:37 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/83206552.shtml)
-- 2026-06-29 23:50 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/157025091.shtml)
-- 2026-06-29 23:37 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/34962336.shtml)
-- 2026-06-29 23:41 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/21931461214.shtml)
-- 2026-06-29 23:30 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/011860386.shtml)
-- 2026-06-29 23:46 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/3173331.shtml)
-- 2026-06-29 23:40 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/65579.shtml)
-- 2026-06-29 23:54 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/5327384.shtml)
-- 2026-06-29 23:49 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/999198302504.shtml)
-- 2026-06-29 23:43 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/1671380.shtml)
-- 2026-06-29 23:36 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/342655131.shtml)
-- 2026-06-29 23:32 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/09082072731.shtml)
-- 2026-06-29 23:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/86429827.shtml)
+- 2026-06-29 23:56 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/639154.shtml)
+- 2026-06-29 23:43 - [巴西队主帅称日本队是世界最佳之一](https://www.share.minike.top/Article/details/317754841.shtml)
+- 2026-06-30 00:05 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/88255.shtml)
+- 2026-06-29 23:50 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/863850351.shtml)
+- 2026-06-29 23:52 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/16956.shtml)
+- 2026-06-29 23:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/169884686359.shtml)
+- 2026-06-29 23:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/7678778225.shtml)
+- 2026-06-29 23:56 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/656852635.shtml)
+- 2026-06-29 23:55 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/876284128775.shtml)
+- 2026-06-29 23:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/103703.shtml)
+- 2026-06-30 00:01 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/253208931631.shtml)
+- 2026-06-29 23:47 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/890256576154.shtml)
+- 2026-06-29 23:59 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/302261477694.shtml)
+- 2026-06-29 23:57 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/29494948.shtml)
+- 2026-06-29 23:40 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/276456461262.shtml)

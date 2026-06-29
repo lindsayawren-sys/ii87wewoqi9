@@ -1,58 +1,57 @@
-# 央行：精准有效实施适度宽松的货币政策
+# 调查：未来一年加元有望走强，关键在美墨加协定审查取得进展
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-证券时报记者 贺觉渊 5月11日，中国人民银行发布《2026年第一季度中国货币政策执行报告》（以下简称《报告》），明确下阶段将精准有效实施适度宽松的货币政策，着力扩大内需、优化供给，做优增量、盘活存量，增强经济发展内生动力，不断巩固拓展经济稳中向好势头。 今年以来，外部形势复杂多变，我国宏观政策更加积极有为，国民经济运行起步有力。《报告》指出，有效需求逐步回升，实体经济供需关系
+路透公布的一项调查显示，只要加拿大国内经济复苏，且北美贸易协定的审查取得进展，未来一年加元兑美元将走强。 在5月29日至6月3日进行的调查中，31位外汇分析师的预测中值显示，未来三个月加元/美元将升值1.4%，升至1.37加元，即72.99美分。这略低于上月调查预测的1.3667。 最新调查预测12个月后，加元/美元将上涨3.7%至1.3400，而此前预测为1.3433。 负责
 
 ## 正文
 
-证券时报记者 贺觉渊 5月11日，中国人民银行发布《2026年第一季度中国货币政策执行报告》（以下简称《报告》），明确下阶段将精准有效实施适度宽松的货币政策，着力扩大内需、优化供给，做优增量、盘活存量，增强经济发展内生动力，不断巩固拓展经济稳中向好势头。
+路透公布的一项调查显示，只要加拿大国内经济复苏，且北美贸易协定的审查取得进展，未来一年加元兑美元将走强。
 
-今年以来，外部形势复杂多变，我国宏观政策更加积极有为，国民经济运行起步有力。
+在5月29日至6月3日进行的调查中，31位外汇分析师的预测中值显示，未来三个月加元/美元将升值1.4%，升至1.37加元，即72.99美分。
 
-《报告》指出，有效需求逐步回升，实体经济供需关系持续改善，市场竞争秩序不断优化，为物价合理回升提供了有力支撑。
+这略低于上月调查预测的1.3667。
 
-近期，中东地缘政治事件引起国际原油和部分大宗商品价格上行，《报告》认为，这对当前我国物价指标回升有一定作用，外部输入型通胀对国内经济运行的影响也需要密切关注。
+最新调查预测12个月后，加元/美元将上涨3.7%至1.3400，而此前预测为1.3433。
 
-宏观审慎管理是防范系统性金融风险的关键举措。
+负责加美贸易事务的部长 勒布朗（Dominic LeBlanc）周二在华盛顿表示，加拿大与美国就《美墨加协定》的审查举行了一次积极的会谈。
 
-《报告》明确下阶段将加快构建覆盖全面的宏观审慎管理体系。
+BMO资本市场加拿大利率及宏观策略师 Benjamin Reitzes表示：“美墨加协定谈判需取得进展并最终达成协议，加元才能实现持久走强。
 
-丰富宏观审慎政策工具箱，持续做好重点领域宏观审慎管理。
+” “在此之前，加元将面临挑战，因为经济仍受不确定性的压力，且美伊局势的头条新闻正令市场剧烈波动，”他称。
 
-逐步拓展宏观审慎管理范围。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 23:30 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 23:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 23:53 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 23:47 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 23:46 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 23:44 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 23:41 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 23:43 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 23:59 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 23:43 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 23:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 23:54 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 00:02 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 23:54 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 23:52 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 23:42 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 23:50 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 23:39 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 23:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 23:39 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 23:53 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 23:58 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 23:47 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:34 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/0146515116.shtml)
-- 2026-06-29 23:47 - [急先锋](http://www.share.kurohicncr.top/Article/details/6905592091.shtml)
-- 2026-06-29 23:52 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/077273989.shtml)
-- 2026-06-29 23:54 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/2134366506.shtml)
-- 2026-06-29 23:59 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/6718382617.shtml)
-- 2026-06-29 23:37 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/478103146289.shtml)
-- 2026-06-29 23:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/91554101640.shtml)
-- 2026-06-29 23:42 - [起风了](http://www.share.minike.top/Article/details/401257603.shtml)
-- 2026-06-29 23:37 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/375553.shtml)
-- 2026-06-29 23:31 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/61431223.shtml)
-- 2026-06-29 23:49 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/27463663.shtml)
-- 2026-06-29 23:35 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/19341.shtml)
-- 2026-06-29 23:57 - [电影后室值得看吗](https://www.share.minike.top/Article/details/292652341.shtml)
-- 2026-06-29 23:55 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/18915028.shtml)
-- 2026-06-29 23:37 - [月亮](http://www.share.minike.top/Article/details/577795610469.shtml)
+- 2026-06-29 23:41 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/91356415786.shtml)
+- 2026-06-29 23:44 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/129571.shtml)
+- 2026-06-29 23:50 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/638143085635.shtml)
+- 2026-06-29 23:58 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/89703928744.shtml)
+- 2026-06-29 23:37 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/485139388266.shtml)
+- 2026-06-29 23:57 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/539495988.shtml)
+- 2026-06-30 00:05 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/63417.shtml)
+- 2026-06-29 23:38 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/5304501.shtml)
+- 2026-06-29 23:56 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/052398331670.shtml)
+- 2026-06-30 00:02 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/00350588.shtml)
+- 2026-06-29 23:36 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/2271330.shtml)
+- 2026-06-29 23:39 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/946134408.shtml)
+- 2026-06-30 00:02 - [一生一世](https://www.share.kurohicncr.top/Article/details/0669651306.shtml)
+- 2026-06-29 23:41 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/4615402.shtml)
+- 2026-06-29 23:47 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/41684275.shtml)

@@ -1,58 +1,60 @@
-# 千年“柳杉王”见证中美民间代代“鼓岭缘”
+# 白酒618线上销售暴增！吃喝板块持续回调，华宝基金食品饮料ETF（515710）盘中跌超2%！机构高呼十年大底
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-中新网福州5月13日电 题：千年“柳杉王”见证中美民间代代“鼓岭缘” 作者 叶秋云 在福州鼓岭，一株树龄长达1300年、树高30米的“柳杉王”巍然屹立，因两大树干合抱相拥而有“友谊树”等别称。这株古树见证着中美民间跨越百年、绵延数代的深厚情缘。 1901年，尚在襁褓中的美国人密尔顿·加德纳随父母初到鼓岭，此后10年，加德纳一家每年夏季都在鼓岭避暑，他和许多当地小伙伴成为好友，常
+吃喝板块今日（6月3日）继续回调，反映吃喝板块整体走势的食品饮料ETF华宝（515710）开盘后迅速走弱，盘中场内价格一度跌超2%，尾盘略有回升，截至收盘，跌1.37%。 成份股方面，大众品跌幅居前。截至收盘，盐津铺子跌5.43%，安琪酵母跌3.96%，部分白酒股亦表现不佳，古井贡酒、金种子酒、迎驾贡酒等跌超2%，拖累板块走势。 消息面上，近期白酒线上渠道销售节节攀升，多元化、
 
 ## 正文
 
-中新网福州5月13日电 题：千年“柳杉王”见证中美民间代代“鼓岭缘” 作者 叶秋云 在福州鼓岭，一株树龄长达1300年、树高30米的“柳杉王”巍然屹立，因两大树干合抱相拥而有“友谊树”等别称。
+吃喝板块今日（6月3日）继续回调，反映吃喝板块整体走势的食品饮料ETF华宝（515710）开盘后迅速走弱，盘中场内价格一度跌超2%，尾盘略有回升，截至收盘，跌1.37%。
 
-这株古树见证着中美民间跨越百年、绵延数代的深厚情缘。
+成份股方面，大众品跌幅居前。
 
-1901年，尚在襁褓中的美国人密尔顿·加德纳随父母初到鼓岭，此后10年，加德纳一家每年夏季都在鼓岭避暑，他和许多当地小伙伴成为好友，常在“柳杉王”树下玩耍。
+截至收盘，盐津铺子跌5.43%，安琪酵母跌3.96%，部分白酒股亦表现不佳，古井贡酒、金种子酒、迎驾贡酒等跌超2%，拖累板块走势。
 
-鼓岭讲解员练晶晶介绍道，密尔顿·加德纳随父母回美国前，特意来到“柳杉王”树下与小伙伴立下要重回鼓岭的约定。
+消息面上，近期白酒线上渠道销售节节攀升，多元化、年轻化趋势明显。
 
-回国后，密尔顿·加德纳始终与鼓岭友人保持书信往来，直至临终前仍念叨着“Ku liang(鼓岭)，Ku liang”。
+6月2日，京东超市酒类业务部更新了“6·18”开门红战报。
 
-密尔顿·加德纳的夫人于1992年来到丈夫眷念的鼓岭，与丈夫当年的玩伴聚首、触摸丈夫记忆中的“柳杉王”。
+数据显示，5月30日20：00至6月1日24：00，名酒销售量同比增长40%。
 
-归程时，她特意在“柳杉王”树下，取下一块树皮、拾起一把泥土留作念想。
+天猫“6·18”开卖首周（截至5月27日），天猫超市酒水闪购的销量同比增长5倍，首周133个品牌实现翻倍增长，189个品牌增长超过50%。
 
-而后，密尔顿·加德纳的后人多次来访，都会到“柳杉王”树下，拥抱大树。
+此外，从客群来看，今年天猫“6·18”期间，酒水消费中的女性用户占比超过45%，18~24岁的年轻用户更是同比激增超70%。
 
 ## 相关推荐
 
-- 2026-06-29 23:51 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 23:56 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 23:33 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 23:33 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 23:53 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 23:32 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 23:57 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 23:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 23:58 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 23:40 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 23:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 23:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 00:03 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 23:38 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 23:39 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 23:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 23:53 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 23:41 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 23:58 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 23:56 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 23:40 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 23:39 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 23:47 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 23:45 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 23:47 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 23:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:56 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/0912469215.shtml)
-- 2026-06-29 23:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/73250742.shtml)
-- 2026-06-29 23:49 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/7741303021.shtml)
-- 2026-06-29 23:35 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/992369340.shtml)
-- 2026-06-29 23:45 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/369443395.shtml)
-- 2026-06-29 23:45 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/73812256527.shtml)
-- 2026-06-29 23:38 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.minike.top/Article/details/46683936.shtml)
-- 2026-06-29 23:41 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/79092.shtml)
-- 2026-06-29 23:32 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/261659645466.shtml)
-- 2026-06-29 23:39 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/224153.shtml)
-- 2026-06-29 23:41 - [周生如故](http://www.blog.minike.top/Article/details/983472.shtml)
-- 2026-06-29 23:55 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/73083471.shtml)
-- 2026-06-29 23:51 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/810029805223.shtml)
-- 2026-06-29 23:43 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/178217746332.shtml)
-- 2026-06-29 23:44 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/27752.shtml)
+- 2026-06-29 23:45 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/621792.shtml)
+- 2026-06-30 00:03 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/57961489843.shtml)
+- 2026-06-30 00:02 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/12330202778.shtml)
+- 2026-06-29 23:56 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/616130119250.shtml)
+- 2026-06-30 00:00 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/1671553805.shtml)
+- 2026-06-29 23:43 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/5741824192.shtml)
+- 2026-06-29 23:52 - [巴西队主帅称日本队是世界最佳之一](https://www.share.minike.top/Article/details/8408994.shtml)
+- 2026-06-29 23:43 - [一生一世](http://www.blog.minike.top/Article/details/86623.shtml)
+- 2026-06-29 23:50 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/88499353.shtml)
+- 2026-06-29 23:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/75109.shtml)
+- 2026-06-30 00:01 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/879284448.shtml)
+- 2026-06-29 23:40 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/257400659.shtml)
+- 2026-06-29 23:53 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/1081467.shtml)
+- 2026-06-29 23:53 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/5538615243.shtml)
+- 2026-06-29 23:50 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/134793973368.shtml)

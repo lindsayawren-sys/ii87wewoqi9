@@ -1,52 +1,60 @@
-# 大渡河金川水电站正式并网发电
+# 酒价内参6月5日价格发布：国窖1573下跌5元
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-中新网成都5月12日电 (记者 安源)记者12日从国家能源集团获悉，位于大渡河流域的金川水电站首台机组正式并网发电。金川水电站总装机容量86万千瓦，装有4台单机21.5万千瓦的混流式水轮发电机组，年发电量约35亿千瓦时，对改善区域电力系统电源结构、促进经济社会和环境协调发展具有重要意义。 据介绍，金川水电站位于四川省阿坝藏族羌族自治州金川县、马尔康市境内，总装机容量86万千瓦，
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月5日整体继续承压大幅走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9876元，较昨日大幅下跌24元，总价创下近50天以来最低。市场在前一日转衰后再度大幅走弱，终端交投情绪偏冷，今日除青花汾20与古井贡古20上涨外其余九大品种均下
 
 ## 正文
 
-中新网成都5月12日电 (记者 安源)记者12日从国家能源集团获悉，位于大渡河流域的金川水电站首台机组正式并网发电。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月5日整体继续承压大幅走弱。
 
-金川水电站总装机容量86万千瓦，装有4台单机21.5万千瓦的混流式水轮发电机组，年发电量约35亿千瓦时，对改善区域电力系统电源结构、促进经济社会和环境协调发展具有重要意义。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9876元，较昨日大幅下跌24元，总价创下近50天以来最低。
 
-据介绍，金川水电站位于四川省阿坝藏族羌族自治州金川县、马尔康市境内，总装机容量86万千瓦，装有4台单机21.5万千瓦的混流式水轮发电机组，年发电量约35亿度，是四川省“十四五”能源发展规划重点建设项目，对改善区域电力系统电源结构、促进经济社会和环境协调发展具有重要意义。
+市场在前一日转衰后再度大幅走弱，终端交投情绪偏冷，今日除青花汾20与古井贡古20上涨外其余九大品种均下跌或平盘，其中四款酒价创下月内新低。
 
-国家能源集团金川水电项目现场总指挥李方平表示，项目团队正全力冲刺剩余3台机组上半年投产发电目标，届时，整个电站年发电量达35亿千瓦时，减排二氧化碳260万吨，为“双碳”目标的实现贡献力量。
+今日白酒市场11大单品二涨八跌一平，输家仍旧占据绝对优势。
 
-(完)
+上涨方面，古井贡古20涨幅居前，上涨5元/瓶，收复昨日全部失地，自月内低谷温和回升；青花汾20上涨4元/瓶，亦回补前一日全部跌幅。
+
+下跌方面，国窖1573、洋河梦之蓝M6+、习酒君品与青花郎均下跌5元/瓶，其中国窖1573再度失守890元，平月内最低价格纪录，洋河梦之蓝M6+再度跌落600元大关，习酒君品终结此前四连阳，青花郎则续创月内新低，亦创下“酒价内参”统计以来的最低均价纪录；精品茅台与五粮液普五八代均下跌4元/瓶，后者近一个月价格下行明显，今日亦创下月内新低；水晶剑南春下跌3元/瓶；飞天茅台下跌2元/瓶。
+
+五粮液1618的价格环比保持不变，近一个月走势颇为平稳。
+
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 23:45 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 23:36 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 23:46 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 23:51 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 23:43 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 23:47 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 23:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 23:38 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 23:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 23:51 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 23:40 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 23:53 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 23:54 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 23:52 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 23:40 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 23:41 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 00:01 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 23:44 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-30 00:01 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 00:05 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 23:51 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 23:58 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 23:46 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 23:46 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 23:53 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 23:52 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:44 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/587496948.shtml)
-- 2026-06-29 23:56 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/47405279553.shtml)
-- 2026-06-29 23:46 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/49057018418.shtml)
-- 2026-06-29 23:41 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/4848239.shtml)
-- 2026-06-29 23:52 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/4931146.shtml)
-- 2026-06-29 23:42 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/346824059.shtml)
-- 2026-06-29 23:49 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/8795584657.shtml)
-- 2026-06-29 23:55 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/7485069604.shtml)
-- 2026-06-29 23:33 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/8322089.shtml)
-- 2026-06-29 23:54 - [毒液2](http://www.share.minike.top/Article/details/449555466588.shtml)
-- 2026-06-29 23:39 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/6647409093.shtml)
-- 2026-06-29 23:33 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/6898336.shtml)
-- 2026-06-29 23:50 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/370898724842.shtml)
-- 2026-06-29 23:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/41071934176.shtml)
-- 2026-06-29 23:57 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/536558794.shtml)
+- 2026-06-29 23:48 - [金刚川](https://www.blog.minike.top/Article/details/916974021248.shtml)
+- 2026-06-29 23:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/123343499.shtml)
+- 2026-06-29 23:48 - [送你一朵小红花](https://www.share.minike.top/Article/details/111657618.shtml)
+- 2026-06-29 23:45 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/4178033245.shtml)
+- 2026-06-29 23:45 - [扫黑风暴](http://www.share.minike.top/Article/details/388824127353.shtml)
+- 2026-06-29 23:57 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/947521872259.shtml)
+- 2026-06-29 23:56 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/395668.shtml)
+- 2026-06-30 00:04 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/257850590918.shtml)
+- 2026-06-29 23:49 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/757850.shtml)
+- 2026-06-29 23:41 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/88038.shtml)
+- 2026-06-30 00:02 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/3854066.shtml)
+- 2026-06-30 00:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/81203791.shtml)
+- 2026-06-29 23:53 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/9722841143.shtml)
+- 2026-06-30 00:00 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/419782801.shtml)
+- 2026-06-29 23:41 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/27011.shtml)

@@ -1,58 +1,59 @@
-# 第三届海峡两岸中华文化峰会两岸视听交流合作论坛在北京举行
+# 政策驱动与行业转型共振 富国中证全指证券公司ETF发起式联接布局券商新周期
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-中新网北京5月12日电 (记者 刘大炜)以“携手赓续中华文明根脉 深化两岸视听融合发展”为主题的第三届海峡两岸中华文化峰会两岸视听交流合作论坛12日在北京举行。来自海峡两岸视听业社会组织、视听媒体头部企事业单位、高校与科研院所的近150位代表参与活动。 中华广播影视交流协会常务副理事长、国家广电总局港澳台办副主任杨勇在致辞中指出，近期，中央台办受权发布了十项促进两岸交流合作的政
+今年以来，A股市场交投活跃度维持高位，证券行业盈利端同比改善。Wind数据显示，2026年一季度，中证全指证券公司指数（399975.SZ，下称“证券公司指数”）营收同比增长30.90%，归母净利润同比增长17.23%，经纪、自营、投行等核心业务同步回暖，盈利边际改善态势显著。另一方面，证券板块年内出现阶段性回调，市盈率处于近10年极低水位，与持续向好的基本面形成明显背离，证券
 
 ## 正文
 
-中新网北京5月12日电 (记者 刘大炜)以“携手赓续中华文明根脉 深化两岸视听融合发展”为主题的第三届海峡两岸中华文化峰会两岸视听交流合作论坛12日在北京举行。
+今年以来，A股市场交投活跃度维持高位，证券行业盈利端同比改善。
 
-来自海峡两岸视听业社会组织、视听媒体头部企事业单位、高校与科研院所的近150位代表参与活动。
+Wind数据显示，2026年一季度，中证全指证券公司指数（399975.SZ，下称“证券公司指数”）营收同比增长30.90%，归母净利润同比增长17.23%，经纪、自营、投行等核心业务同步回暖，盈利边际改善态势显著。
 
-中华广播影视交流协会常务副理事长、国家广电总局港澳台办副主任杨勇在致辞中指出，近期，中央台办受权发布了十项促进两岸交流合作的政策措施，国家广电总局正在积极研究落实，加大扶持引导力度，让台湾业者共享融合发展红利。
+另一方面，证券板块年内出现阶段性回调，市盈率处于近10年极低水位，与持续向好的基本面形成明显背离，证券板块当前估值处于低位，市场关注其修复潜力。
 
-今年是大陆“十五五”开局之年，新时代新征程上，中华广播影视交流协会将坚守初心，携手两岸视听业界同仁，共同建设两岸视听融合发展美好未来。
+以此为背景，量化大厂富国基金正在发行的富国中证全指证券公司ETF联接基金（A类027508/C类027509），或为场外投资者提供捕捉上市券商发展机遇的高纯度、低成本工具。
 
-台湾中华广播电视节目制作商业同业公会创会理事长汪威江致辞提到，人工智能(AI)的浪潮已经到来，两岸影视交流也正迎来新的契机，两岸视听同行应善用AI，深化合作，携手共进、迎接璀璨的明天。
+中证指数有限公司及Wind数据显示，证券公司指数不仅全面覆盖了传统券商龙头，更纳入了以东方财富为代表的互联网券商新势力。
 
-交流环节，两岸视听业界15位嘉宾，围绕“AI赋能视听业浪潮下两岸同行如何深化融合发展”的主题发言。
+截至6月4日，该指数前十大成分股的权重合计超60%，总市值超千亿的个股共有11只，同时也包含33只总市值低于500亿元的中小券商。
 
-其中，国家广电总局广播影视发展研究中心战略研究所所长、中国广播电视社会组织联合会纪录片委员会会长赵捷以优秀视听作品为例，剖析两岸视听发展新趋势。
+这种“龙头+弹性”的多元结构，使证券公司指数既能捕捉券商板块整体贝塔行情，也能受益于互联网券商特有的轻资产运营模式和用户流量禀赋带来的差异化优势。
 
-福建省广播电视局党组成员、副局长张明生介绍了福建省落实促进两岸交流合作的政策措施的情况。
+从目标ETF的运作情况来看，证券ETF富国（515850）成立于2020年1月21日，自2020年至2025年的净值增长率分别为37.40%、3.26%、-25.80%、5.23%、28.71%、4.96%，各年度的业绩比较基准收益率分别为15.80%、-4.95%、-27.37%、3.04%、27.26%、2.54%。
 
 ## 相关推荐
 
-- 2026-06-29 23:43 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 23:48 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 23:57 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 23:57 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 23:37 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 23:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 23:35 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 23:53 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 23:45 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 23:35 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 23:30 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 23:45 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 23:56 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 23:46 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 23:44 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 00:00 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 23:42 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 00:01 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 23:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 23:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 00:04 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 23:52 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 00:05 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 23:37 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 00:01 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:57 - [送你一朵小红花](https://www.blog.minike.top/Article/details/492384166.shtml)
-- 2026-06-29 23:55 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/651525.shtml)
-- 2026-06-29 23:36 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/81768.shtml)
-- 2026-06-29 23:41 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/68875781233.shtml)
-- 2026-06-29 23:53 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/85137969.shtml)
-- 2026-06-29 23:41 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/21364056.shtml)
-- 2026-06-29 23:33 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/14182160090.shtml)
-- 2026-06-29 23:52 - [女心理师](https://www.blog.kurohicncr.top/Article/details/1311954633.shtml)
-- 2026-06-29 23:57 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/507918948.shtml)
-- 2026-06-29 23:56 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/961836561978.shtml)
-- 2026-06-29 23:31 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/655558.shtml)
-- 2026-06-29 23:40 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/14912248.shtml)
-- 2026-06-29 23:37 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/50371.shtml)
-- 2026-06-29 23:49 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/36136525953.shtml)
-- 2026-06-29 23:57 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/132471404.shtml)
+- 2026-06-30 00:01 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/11417268089.shtml)
+- 2026-06-29 23:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/77221467962.shtml)
+- 2026-06-29 23:38 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/1333494456.shtml)
+- 2026-06-29 23:47 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/98771.shtml)
+- 2026-06-29 23:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/1490768463.shtml)
+- 2026-06-29 23:53 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/212018347119.shtml)
+- 2026-06-29 23:38 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/010508422.shtml)
+- 2026-06-29 23:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/075336629829.shtml)
+- 2026-06-30 00:05 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/22330.shtml)
+- 2026-06-30 00:02 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/86603236.shtml)
+- 2026-06-29 23:57 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/64448.shtml)
+- 2026-06-29 23:54 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/380441847.shtml)
+- 2026-06-30 00:02 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/92997542654.shtml)
+- 2026-06-30 00:04 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/0352455.shtml)
+- 2026-06-29 23:43 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/4105659.shtml)

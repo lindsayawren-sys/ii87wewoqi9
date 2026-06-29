@@ -1,56 +1,60 @@
-# 花旗：日本或将动用高达30万亿日元进行外汇干预
+# 70亿富豪正式离婚，40亿元冻结股权如何分？
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-花旗集团策略师认为，日本当局最终可能花费总计30万亿日元用于货币干预，而此前他们可能已经为此花费了 10 万亿日元。 日本的外汇储备超过1.3万亿美元。花旗策略师表示，如果日本财务省“接受此次外汇储备下降幅度与2022年至2024年期间大致相同的事实”，那么它可能需要花费约30万亿日元用于干预。 不过，考虑到与美国的关系，日本财务省“将尽一切努力避免对美国债券市场造成直接影响”
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷达Finance 雷达财经出品 文|丁禹 编|孟帅 5月29日晚，神州数码披露了公司控股股东、实际控制人郭为离婚案的最新进展。 神州数码收到郭为通知，法院二审驳回了郭为前妻郭郑俐的上诉，维持原判，且该判决为终审判决。 雷达财经注意到，去年1月、今年2月，法院相继冻结郭为所持有的神州数码的全部股份，共
 
 ## 正文
 
-花旗集团策略师认为，日本当局最终可能花费总计30万亿日元用于货币干预，而此前他们可能已经为此花费了 10 万亿日元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-日本的外汇储备超过1.3万亿美元。
+来源：雷达Finance 雷达财经出品 文|丁禹 编|孟帅 5月29日晚，神州数码披露了公司控股股东、实际控制人郭为离婚案的最新进展。
 
-花旗策略师表示，如果日本财务省“接受此次外汇储备下降幅度与2022年至2024年期间大致相同的事实”，那么它可能需要花费约30万亿日元用于干预。
+神州数码收到郭为通知，法院二审驳回了郭为前妻郭郑俐的上诉，维持原判，且该判决为终审判决。
 
-不过，考虑到与美国的关系，日本财务省“将尽一切努力避免对美国债券市场造成直接影响”。
+雷达财经注意到，去年1月、今年2月，法院相继冻结郭为所持有的神州数码的全部股份，共计1.55亿股股份，占公司总股本的21.36%。
 
-如果干预措施迫使美元兑日元汇率跌破155，则可能会“扼杀日本进口商（包括中小企业）购买美元的潜在需求”。
+按公司最新股价计算，这部分股份价值约40亿元。
 
-鉴于供需动态改善以及当前的干预措施，美元兑日元上涨势头减弱，难以突破158-160区间。
+后续，法院就二人离婚财产分割的进一步判决，或将影响神州数码的控制权。
 
-责任编辑：于健 SF069
+值得一提的是，在今年3月揭晓的《2026胡润全球富豪榜》中，郭为以70亿元的财富登榜。
+
+截至6月3日收盘，神州数码股价为25.58元/股，较去年股价峰值（前复权）缩水约四成，总市值约260亿元。
 
 ## 相关推荐
 
-- 2026-06-29 23:38 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 23:55 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 23:33 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 23:59 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 23:30 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 23:40 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 23:58 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 23:52 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 23:54 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 23:34 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 23:52 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 23:48 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 23:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 23:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 23:43 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 23:36 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 23:50 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 23:51 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 23:50 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 23:41 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 23:45 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 23:53 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 23:54 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 23:58 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 23:37 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 23:39 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:46 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/26082878.shtml)
-- 2026-06-29 23:50 - [世界杯](http://www.blog.kurohicncr.top/Article/details/109533.shtml)
-- 2026-06-29 23:53 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/20903054604.shtml)
-- 2026-06-29 23:34 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/3454001962.shtml)
-- 2026-06-29 23:36 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/57696.shtml)
-- 2026-06-29 23:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/20545.shtml)
-- 2026-06-29 23:58 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/57124398.shtml)
-- 2026-06-29 23:59 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/0527995.shtml)
-- 2026-06-29 23:49 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/339553529073.shtml)
-- 2026-06-29 23:40 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/533195772.shtml)
-- 2026-06-29 23:58 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/62086164408.shtml)
-- 2026-06-29 23:56 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/36102886.shtml)
-- 2026-06-29 23:51 - [起风了](http://www.share.kurohicncr.top/Article/details/29393.shtml)
-- 2026-06-29 23:31 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/932308099513.shtml)
-- 2026-06-29 23:59 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/34039853142.shtml)
+- 2026-06-29 23:38 - [女心理师](http://www.blog.minike.top/Article/details/00686.shtml)
+- 2026-06-29 23:55 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/43922583.shtml)
+- 2026-06-30 00:02 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/061894404.shtml)
+- 2026-06-29 23:44 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/53457029.shtml)
+- 2026-06-30 00:05 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/21175.shtml)
+- 2026-06-29 23:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/465377716.shtml)
+- 2026-06-29 23:51 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/3920153.shtml)
+- 2026-06-29 23:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/84700714.shtml)
+- 2026-06-30 00:03 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/6908311.shtml)
+- 2026-06-29 23:43 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/751874.shtml)
+- 2026-06-29 23:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/392407.shtml)
+- 2026-06-29 23:36 - [请回答王牌2019](https://www.share.minike.top/Article/details/0304988956.shtml)
+- 2026-06-29 23:58 - [毒液2](https://www.blog.minike.top/Article/details/64742.shtml)
+- 2026-06-29 23:48 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/834966.shtml)
+- 2026-06-29 23:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/74019771941.shtml)

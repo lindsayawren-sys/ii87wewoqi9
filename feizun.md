@@ -1,56 +1,53 @@
-# 九华山“厕所存放食材”餐厅已停业整顿 负责人称系“疏忽大意”
+# 新疆维吾尔自治区民委首期“铸牢”大讲堂开讲
 
-> 更新时间：2026-06-30 00:00:02 UTC+8
+> 更新时间：2026-06-30 00:06:03 UTC+8
 
 ## 摘要
 
-中新网合肥5月13日电 (记者 张俊)针对媒体曝光的安徽池州九华山景区内“灵山土菜馆”将食材存放于厕所的卫生乱象，该餐厅负责人13日在接受中新社记者采访时称，此举系“疏忽大意”，目前餐厅已停止营业，正在接受相关部门调查。在媒体曝光后，记者尝试联系该餐厅负责人。对方在电话中承认了这一情况，并解释称：此举系疏忽大意。该负责人表示，此前，店内进行卫生大扫除，因空间狭小，临时将装有笋干
+6月2日，自治区民委举办2026年首期铸牢中华民族共同体意识大讲堂，特邀国家民委民族团结促进司有关同志线上授课，自治区“三项计划”协调小组各成员单位、自治区民委各处室、乌鲁木齐市和昌吉州民委60余人参加活动。本期大讲堂深入贯彻习近平总书记关于加强和改进民族工作的重要思想，坚持以铸牢中华民族共同体意识为主线，围绕树立正确中华民族历史观，从各民族血脉相融、信念相同、文化相通、经济相
 
 ## 正文
 
-中新网合肥5月13日电 (记者 张俊)针对媒体曝光的安徽池州九华山景区内“灵山土菜馆”将食材存放于厕所的卫生乱象，该餐厅负责人13日在接受中新社记者采访时称，此举系“疏忽大意”，目前餐厅已停止营业，正在接受相关部门调查。
+6月2日，自治区民委举办2026年首期铸牢中华民族共同体意识大讲堂，特邀国家民委民族团结促进司有关同志线上授课，自治区“三项计划”协调小组各成员单位、自治区民委各处室、乌鲁木齐市和昌吉州民委60余人参加活动。
 
-在媒体曝光后，记者尝试联系该餐厅负责人。
+本期大讲堂深入贯彻习近平总书记关于加强和改进民族工作的重要思想，坚持以铸牢中华民族共同体意识为主线，围绕树立正确中华民族历史观，从各民族血脉相融、信念相同、文化相通、经济相依、情感相亲五个维度，系统总结了中华民族共同体形成的共同基础、深厚基因和动力源泉。
 
-对方在电话中承认了这一情况，并解释称：此举系疏忽大意。
+同时，立足新疆区情实际，分层拆解“三项计划”重点工作，将中央民族工作会议部署转化为贴合基层的具象工作举措，实现顶层政策与地方实践有效衔接。
 
-该负责人表示，此前，店内进行卫生大扫除，因空间狭小，临时将装有笋干的箱子和腌菜坛子放置在了洗手间内。
+在互动交流环节，授课专家就当前“三项计划”工作中存在的难点、堵点问题作了深入解答，特别强调要构建“全链条闭环培育机制”，进一步提升各族青少年交流活动质效。
 
-随后因生意忙碌，工作人员大意，未能及时将食材移出，导致了这一情况的发生。
+自治区民委有关负责同志表示将系统梳理总结现有成熟经验做法，紧跟流动人口发展新形势、青少年交往新特点，不断创新工作路径、优化实施举措，持续以“三项计划”赋能各族群众交往交流交融。
 
-“东西是放在储藏间的，搞卫生才挪过去的。
-
-”该负责人说，平时食材是在专门的储藏间，此次是工作人员的疏忽大意，对此感到非常后悔。
-
-对于后续处理，该负责人向记者表示，目前餐厅已全面停业，具体如何处置需等待监管部门的进一步通知。
+(东风·巴依尔 喇小飞) 来源：自治区民委 (“丝路同心圆”微信公众号)
 
 ## 相关推荐
 
-- 2026-06-29 23:33 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 23:43 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 23:43 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 23:46 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 23:55 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 23:38 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 23:43 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 23:56 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 23:35 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 23:42 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 23:36 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 00:05 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 23:50 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 23:38 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 23:37 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 23:42 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 23:45 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 23:54 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 23:50 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 23:56 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 23:57 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:43 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/27970.shtml)
-- 2026-06-29 23:56 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/460645058176.shtml)
-- 2026-06-29 23:37 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/71271.shtml)
-- 2026-06-29 23:38 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/3501303.shtml)
-- 2026-06-29 23:56 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/9404783.shtml)
-- 2026-06-29 23:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/43168420.shtml)
-- 2026-06-29 23:51 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/6069429486.shtml)
-- 2026-06-29 23:39 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/56133542202.shtml)
-- 2026-06-29 23:50 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/8439943.shtml)
-- 2026-06-29 23:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/35190.shtml)
-- 2026-06-29 23:57 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/9064842.shtml)
-- 2026-06-29 23:47 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/59817948570.shtml)
-- 2026-06-29 23:57 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/23258245748.shtml)
-- 2026-06-29 23:34 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/50479336774.shtml)
-- 2026-06-29 23:50 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/677061702525.shtml)
+- 2026-06-29 23:48 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/430823241429.shtml)
+- 2026-06-29 23:50 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/16269333293.shtml)
+- 2026-06-30 00:03 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/016807798.shtml)
+- 2026-06-29 23:50 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/18425.shtml)
+- 2026-06-29 23:48 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/05093366121.shtml)
+- 2026-06-29 23:45 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/029670.shtml)
+- 2026-06-29 23:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/1824561971.shtml)
+- 2026-06-29 23:57 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/885924595.shtml)
+- 2026-06-29 23:56 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/23678116559.shtml)
+- 2026-06-29 23:43 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/16302190.shtml)
+- 2026-06-29 23:58 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/551256526359.shtml)
+- 2026-06-30 00:05 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/336879.shtml)
+- 2026-06-29 23:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/06805342.shtml)
+- 2026-06-29 23:41 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/31449.shtml)
+- 2026-06-29 23:39 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/429315719754.shtml)
