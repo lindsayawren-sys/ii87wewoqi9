@@ -1,61 +1,58 @@
-# 刚刚！黄金飙涨、股市拉升、油价跳水！特朗普释放重磅信号
+# 雪佛龙置换海上天然气资产以增持委内瑞拉重油权益
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-特朗普最新表态。 3月31日早间，国际金、银价格直线拉升，截至发稿，现货黄金涨超2%，站上4600美元/盎司，现货白银涨超4%。 消息面上，据美国《华尔街日报》援引美政府官员的话报道，美国总统特朗普告诉其助手，即使霍尔木兹海峡仍关闭，他也愿意结束美国对伊朗的军事行动。 据悉，美政府官员评估认为，强行重新开放该水道将使军事行动超出原定4至6周的时间框架。基于此，特朗普决定在实现削
+雪佛龙已与委内瑞拉国家石油公司及其子公司达成一项资产置换协议，以巩固其在委内瑞拉重油领域的地位。 根据该协议，雪佛龙将在Petroindependencia合资企业中额外获得13.21%的工作权益，使其总持股比例增至49%。 雪佛龙持有30%权益的Petropiar合资企业也被授予开发奥里诺科重油带邻近Ayacucho 8区域的权利。 作为置换的一部分，委内瑞拉将获得雪佛龙在P
 
 ## 正文
 
-特朗普最新表态。
+雪佛龙已与委内瑞拉国家石油公司及其子公司达成一项资产置换协议，以巩固其在委内瑞拉重油领域的地位。
 
-3月31日早间，国际金、银价格直线拉升，截至发稿，现货黄金涨超2%，站上4600美元/盎司，现货白银涨超4%。
+根据该协议，雪佛龙将在Petroindependencia合资企业中额外获得13.21%的工作权益，使其总持股比例增至49%。
 
-消息面上，据美国《华尔街日报》援引美政府官员的话报道，美国总统特朗普告诉其助手，即使霍尔木兹海峡仍关闭，他也愿意结束美国对伊朗的军事行动。
+雪佛龙持有30%权益的Petropiar合资企业也被授予开发奥里诺科重油带邻近Ayacucho 8区域的权利。
 
-据悉，美政府官员评估认为，强行重新开放该水道将使军事行动超出原定4至6周的时间框架。
+作为置换的一部分，委内瑞拉将获得雪佛龙在Plataforma Deltana近海2号区块许可证（含Loran天然气发现）中分别持有的60%和100%作业权益，以及3号区块许可证（含Macuira天然气发现）中分别持有的60%和100%作业权益，此外还有委内瑞拉西部Petroindependiente合资企业25.2%的非作业权益。
 
-基于此，特朗普决定在实现削弱伊朗海军及其导弹能力等主要目标后，逐步结束当前军事行动。
+雪佛龙基础资产与新兴国家总裁哈维尔·拉罗萨表示：“这项协议扩大了雪佛龙在委内瑞拉两个关键合资企业中的重油业务布局，体现了我们对开发该国重要资源的严谨态度。
 
-当地时间30日，伊朗议会国家安全委员会通过了拟对霍尔木兹海峡通行船只收费的法案。
+Ayacucho 8是一个在产资产，且与Petropiar地理位置相近，这提高了开发效率。
 
-计划内容包括将以伊朗里亚尔形式实施财务安排和收费系统；将禁止美国和以色列的船只通过霍尔木兹海峡；将维护伊朗及其武装部队的主导地位；将禁止对伊朗实施单边制裁的国家的船只通行；伊朗将与阿曼合作制定相关法律框架。
+” “此次资产置换标志着雪佛龙在委内瑞拉悠久历史中的又一重要步伐，并强化了我们在支持区域能源安全方面的作用。
 
-此前，美国国务卿鲁比奥30日称，绝不允许伊朗永久控制霍尔木兹海峡、建立收费系统等。
+” 雪佛龙表示，自1923年起便在委内瑞拉开展业务，Petroindependencia和Petropiar目前正从奥里诺科重油带项目中生产超重油。
 
 ## 相关推荐
 
-- 2026-06-29 20:14 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 20:02 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 20:13 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 20:14 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 19:55 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 20:23 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 20:03 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 20:03 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 19:55 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 19:54 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 20:13 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 19:58 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 20:17 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 20:00 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 19:59 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 20:11 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 20:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 20:23 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 20:06 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 20:22 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 20:29 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 20:03 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 20:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 20:08 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 20:17 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 20:28 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 20:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:14 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/1056294757.shtml)
-- 2026-06-29 20:03 - [郑钦文谈再战西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/383958042.shtml)
-- 2026-06-29 19:55 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/38896.shtml)
-- 2026-06-29 19:58 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/12022.shtml)
-- 2026-06-29 20:18 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/1324133.shtml)
-- 2026-06-29 20:20 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/403062862.shtml)
-- 2026-06-29 20:19 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/82235218.shtml)
-- 2026-06-29 20:09 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/418458565376.shtml)
-- 2026-06-29 20:09 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/04221182.shtml)
-- 2026-06-29 20:11 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/9609299.shtml)
-- 2026-06-29 19:54 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/3439436.shtml)
-- 2026-06-29 20:00 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/518503874789.shtml)
-- 2026-06-29 20:22 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/7580794.shtml)
-- 2026-06-29 20:14 - [郑钦文谈再战西尼亚科娃](http://www.share.kurohicncr.top/Article/details/307018.shtml)
-- 2026-06-29 19:55 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/78406870.shtml)
+- 2026-06-29 20:07 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/26108385.shtml)
+- 2026-06-29 20:16 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/6054268700.shtml)
+- 2026-06-29 20:05 - [官媒首曝六代机？大V解读](http://www.blog.kurohicncr.top/Article/details/38102026.shtml)
+- 2026-06-29 20:17 - [天道](http://www.share.minike.top/Article/details/8923569.shtml)
+- 2026-06-29 20:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/355289840.shtml)
+- 2026-06-29 20:07 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/747860258890.shtml)
+- 2026-06-29 20:00 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/952804.shtml)
+- 2026-06-29 20:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/3182116.shtml)
+- 2026-06-29 20:02 - [小龙女配音去世 李若彤发文悼念](https://www.share.kurohicncr.top/Article/details/4908213.shtml)
+- 2026-06-29 20:23 - [一见倾心](https://www.blog.minike.top/Article/details/669220.shtml)
+- 2026-06-29 20:16 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/523746041.shtml)
+- 2026-06-29 20:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/569395599.shtml)
+- 2026-06-29 20:14 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/127661.shtml)
+- 2026-06-29 20:25 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/870403.shtml)
+- 2026-06-29 20:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/93537.shtml)

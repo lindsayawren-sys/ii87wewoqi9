@@ -1,61 +1,45 @@
-# 金价劲扬逾3% 特朗普与伊朗先前同意停火两周
+# 总书记引领强国之路｜擘画中国制造新蓝图
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-专题：外部冲击与内部驱动交织 四月下旬决断市场方向 金价劲扬，在美国总统唐纳德·特朗普和伊朗达成协议停火两周，以敲定结束这场扰乱全球市场的战争的谈判。 金价一度上涨3.1%，突破每盎司4，850美元，延续了前一交易日1.2%的涨幅。特朗普在社群媒体贴文表示，他同意暂停轰炸，并补充说，重新开放霍尔木兹海峡是暂停轰炸的关键条件。伊朗则表示，在两周的时间内，安全通过霍尔木兹海峡是安全
+发布时间：2026年04月13日 20:55 来源：新华社 责任编辑：【韦俊龙】
 
 ## 正文
 
-专题：外部冲击与内部驱动交织 四月下旬决断市场方向 金价劲扬，在美国总统唐纳德·特朗普和伊朗达成协议停火两周，以敲定结束这场扰乱全球市场的战争的谈判。
-
-金价一度上涨3.1%，突破每盎司4，850美元，延续了前一交易日1.2%的涨幅。
-
-特朗普在社群媒体贴文表示，他同意暂停轰炸，并补充说，重新开放霍尔木兹海峡是暂停轰炸的关键条件。
-
-伊朗则表示，在两周的时间内，安全通过霍尔木兹海峡是安全通过海峡是“可能的”。
-
-油价跌破每桶100美元，美元也下跌，支撑了以美元计价的黄金价格。
-
-股市劲扬超过2%。
-
-Pepperstone Group Ltd．策略师Ahmad Assiri表示，黄金价格突破4，800美元反映的是风险偏好的重新调整，而非彻底的范式转变。
-
-现货黄金上涨3%，至每盎司4，849.01美元。
+发布时间：2026年04月13日 20:55 来源：新华社 责任编辑：【韦俊龙】
 
 ## 相关推荐
 
-- 2026-06-29 20:04 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 19:58 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 20:24 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 20:09 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 20:01 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 19:58 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 20:11 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 20:21 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 20:20 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 20:02 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 20:08 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 20:14 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 19:54 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 19:57 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 20:23 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 20:29 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 20:28 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 20:06 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 20:14 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 20:14 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 20:29 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 20:10 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 20:15 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 20:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 20:06 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 20:18 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 20:28 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 20:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:11 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/83137532.shtml)
-- 2026-06-29 20:17 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/349159058299.shtml)
-- 2026-06-29 20:14 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/56614.shtml)
-- 2026-06-29 20:19 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/39799.shtml)
-- 2026-06-29 19:55 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/58261.shtml)
-- 2026-06-29 20:12 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/0210979.shtml)
-- 2026-06-29 20:22 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/83330.shtml)
-- 2026-06-29 20:18 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/763158.shtml)
-- 2026-06-29 20:04 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/12974122515.shtml)
-- 2026-06-29 20:01 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/4915184984.shtml)
-- 2026-06-29 20:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/4366220536.shtml)
-- 2026-06-29 20:03 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/6643439.shtml)
-- 2026-06-29 19:56 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/290455315.shtml)
-- 2026-06-29 20:00 - [锐评白玉兰提名片段](https://www.blog.minike.top/Article/details/662085.shtml)
-- 2026-06-29 20:07 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/90695.shtml)
+- 2026-06-29 20:25 - [无畏为自己的猫正名了](https://www.share.minike.top/Article/details/603669544.shtml)
+- 2026-06-29 20:18 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/1486997258.shtml)
+- 2026-06-29 20:18 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/847972142.shtml)
+- 2026-06-29 20:16 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/31860165133.shtml)
+- 2026-06-29 20:12 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/97094241190.shtml)
+- 2026-06-29 20:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/3448382275.shtml)
+- 2026-06-29 20:09 - [《贺子珍》](https://www.share.minike.top/Article/details/60351771772.shtml)
+- 2026-06-29 20:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/36884279339.shtml)
+- 2026-06-29 20:17 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/512846651358.shtml)
+- 2026-06-29 20:04 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/8956130.shtml)
+- 2026-06-29 20:15 - [伊朗足球队将启程回国](https://www.share.kurohicncr.top/Article/details/738798982416.shtml)
+- 2026-06-29 20:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/5528800058.shtml)
+- 2026-06-29 20:15 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/742134.shtml)
+- 2026-06-29 20:12 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/920556812.shtml)
+- 2026-06-29 20:24 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/3271098828.shtml)

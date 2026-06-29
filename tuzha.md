@@ -1,58 +1,58 @@
-# 医渡科技早盘涨超5% 医疗人工智能大模型领域实践再突破
+# 多位外国政要，密集访华！
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-医渡科技（02158）盘中涨超7%，截至发稿，股价上涨7.03%，现报5.48港元，成交额2349.67万港元。 4月8日，医渡科技发布自愿性公告，公司中标北京肿瘤医院人工智能建设银医合作项目，项目总金额约为人民488万元。该项目被视为医渡科技在医疗人工智能大模型领域的又一突破性实践，未来将以北京大学肿瘤医院为标杆场景持续深耕，为后续大模型业务的全面拓展树立示范案例。 另值得关
+越共中央总书记、国家主席苏林访华 越共中央总书记、国家主席苏林于4月14日至17日对中国进行国事访问。 越共中央总书记、国家主席苏林4月14日上午开始对中国进行为期四天的国事访问。抵达北京后，他随即乘高铁前往雄安新区参访。 阿联酋阿布扎比王储哈立德访华 阿联酋阿布扎比王储哈立德于4月12日至14日对中国进行访问。4月14日，国家主席习近平在北京会见来华进行访问的阿联酋阿布扎比王
 
 ## 正文
 
-医渡科技（02158）盘中涨超7%，截至发稿，股价上涨7.03%，现报5.48港元，成交额2349.67万港元。
+越共中央总书记、国家主席苏林访华 越共中央总书记、国家主席苏林于4月14日至17日对中国进行国事访问。
 
-4月8日，医渡科技发布自愿性公告，公司中标北京肿瘤医院人工智能建设银医合作项目，项目总金额约为人民488万元。
+越共中央总书记、国家主席苏林4月14日上午开始对中国进行为期四天的国事访问。
 
-该项目被视为医渡科技在医疗人工智能大模型领域的又一突破性实践，未来将以北京大学肿瘤医院为标杆场景持续深耕，为后续大模型业务的全面拓展树立示范案例。
+抵达北京后，他随即乘高铁前往雄安新区参访。
 
-另值得关注的是，医渡科技近日与北京银行签署战略合作协议。
+阿联酋阿布扎比王储哈立德访华 阿联酋阿布扎比王储哈立德于4月12日至14日对中国进行访问。
 
-据悉，双方将围绕“智慧医疗”展开深度合作：依托医渡科技的“AI医疗大脑”YiduCore及大数据治理能力，结合北京银行在医疗金融服务及医院场景建设的经验，共同为医院提供在线预约挂号、智能导诊、实时缴费、报告查询等智慧门诊服务，以及入院登记、出院结算、电子发票等智慧住院服务。
+4月14日，国家主席习近平在北京会见来华进行访问的阿联酋阿布扎比王储哈立德。
 
-本次中标项目同样采用银医合作模式，市场预期医渡科技未来有望在银医合作领域持续落地更多项目。
+视频：习近平会见阿联酋阿布扎比王储来源：央视新闻客户端 西班牙首相桑切斯访华 西班牙首相桑切斯于4月11日至15日对中国进行正式访问。
 
-责任编辑：卢昱君
+4月11日上午，国家主席习近平在北京钓鱼台国宾馆会见来华访问的西班牙首相桑切斯。
+
+视频：习近平会见西班牙首相桑切斯：共同捍卫真正的多边主义 守护全球和平与发展来源：央视新闻客户端 俄罗斯外长拉夫罗夫访华 俄罗斯外长拉夫罗夫于4月14日至15日对中国进行正式访问。
 
 ## 相关推荐
 
-- 2026-06-29 20:17 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 20:10 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 20:09 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 19:54 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 19:59 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 20:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 20:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 19:55 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 20:10 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 20:00 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 20:04 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 20:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 20:06 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 19:54 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 20:16 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 20:25 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 20:20 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 20:17 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 20:02 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 20:27 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 20:17 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 20:15 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 20:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 20:03 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 20:10 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 20:07 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:14 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/82252333.shtml)
-- 2026-06-29 20:20 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/140021.shtml)
-- 2026-06-29 20:09 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.kurohicncr.top/Article/details/1875408.shtml)
-- 2026-06-29 19:57 - [世界杯1/16决赛对阵出炉](http://www.share.minike.top/Article/details/00400.shtml)
-- 2026-06-29 20:05 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/7957136884.shtml)
-- 2026-06-29 20:09 - [蔚来回应车漆洗车时被冲掉](https://www.blog.minike.top/Article/details/03691489804.shtml)
-- 2026-06-29 20:01 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/060673.shtml)
-- 2026-06-29 20:06 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/42652371.shtml)
-- 2026-06-29 20:16 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/93623814817.shtml)
-- 2026-06-29 20:06 - [华工科技龙虎榜数据](http://www.blog.minike.top/Article/details/0000219.shtml)
-- 2026-06-29 20:23 - [千与千寻](https://www.share.kurohicncr.top/Article/details/441863470088.shtml)
-- 2026-06-29 20:10 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/7649244071.shtml)
-- 2026-06-29 20:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/83803.shtml)
-- 2026-06-29 20:01 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/8429165.shtml)
-- 2026-06-29 20:03 - [医药生物行业今日涨5.91%](http://www.blog.kurohicncr.top/Article/details/97787.shtml)
+- 2026-06-29 20:01 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.minike.top/Article/details/92764923.shtml)
+- 2026-06-29 20:12 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/819046163016.shtml)
+- 2026-06-29 20:04 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/595080.shtml)
+- 2026-06-29 20:16 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/566529.shtml)
+- 2026-06-29 20:08 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/126944.shtml)
+- 2026-06-29 20:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/592040985157.shtml)
+- 2026-06-29 20:13 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/27888.shtml)
+- 2026-06-29 20:27 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/58795928804.shtml)
+- 2026-06-29 20:01 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.kurohicncr.top/Article/details/96424837.shtml)
+- 2026-06-29 20:20 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/35800821.shtml)
+- 2026-06-29 20:01 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/64520732027.shtml)
+- 2026-06-29 20:11 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.blog.kurohicncr.top/Article/details/7784791.shtml)
+- 2026-06-29 20:19 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/7701394.shtml)
+- 2026-06-29 20:09 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/289112923723.shtml)
+- 2026-06-29 20:02 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/112349548748.shtml)

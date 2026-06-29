@@ -1,56 +1,59 @@
-# 新东方烹饪牵手米其林餐厅|解锁餐饮人才高端就业新赛道
+# 东兴海关关于开展2026年4月份“关领导接待日”的通知
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-作为烹饪职业教育领军品牌，中国东方教育（00667.HK）旗下新东方烹饪教育已搭建起覆盖多元业态的企业合作网络，合作伙伴涵盖连锁餐饮、星级酒店、米其林及黑珍珠餐厅等不同层级品牌，形成覆盖全业态、适配多层次就业需求的校企合作体系。 3月24至25日，新东方烹饪教育走进北京四季民福、好利来、京兆尹、淮扬府等国内高端标杆餐饮品牌开展深度回访。通过实地调研育人成效、精准对接企业用人需求
+为了了解社会各界的建议和意见，并切实解决实际问题和困难，现就东兴海关2026年4月份关领导接待日有关事项通知如下： 一、接待时间：2026年4月14日(星期二上午上班时间)。 二、当值领导：张伟东副关长。 三、接待地点：东兴海关办公楼。需预约的企业和社会公众请按照有关要求提前预约，可致电0770-7666661或填写《东兴海关关领导接待日预约登记表》发送至东兴海关办公邮箱dxh
 
 ## 正文
 
-作为烹饪职业教育领军品牌，中国东方教育（00667.HK）旗下新东方烹饪教育已搭建起覆盖多元业态的企业合作网络，合作伙伴涵盖连锁餐饮、星级酒店、米其林及黑珍珠餐厅等不同层级品牌，形成覆盖全业态、适配多层次就业需求的校企合作体系。
+为了了解社会各界的建议和意见，并切实解决实际问题和困难，现就东兴海关2026年4月份关领导接待日有关事项通知如下： 一、接待时间：2026年4月14日(星期二上午上班时间)。
 
-3月24至25日，新东方烹饪教育走进北京四季民福、好利来、京兆尹、淮扬府等国内高端标杆餐饮品牌开展深度回访。
+二、当值领导：张伟东副关长。
 
-通过实地调研育人成效、精准对接企业用人需求，推动产教融合从“纸面协议”落地为校企共生共赢的长效生态，实现人才培养从“基础技能型”向“高质量技能型”升级，以高端化校企协同，为学子铺就高质量就业通道，持续夯实烹饪职教高端育人品牌。
+三、接待地点：东兴海关办公楼。
 
-锚定头部品牌，精准对接高端餐饮人才需求 “在新东方烹饪不仅练就了扎实的专业功底，更培养了良好的职业素养，让我在京兆尹这样的米其林三星餐厅成长更快。
+需预约的企业和社会公众请按照有关要求提前预约，可致电0770-7666661或填写《东兴海关关领导接待日预约登记表》发送至东兴海关办公邮箱dxhgbgs0601@163.com。
 
-”就职于京兆尹的新东方烹饪毕业生说道。
+截止时间：2026年4月10日(星期五)上午下班前。
 
-顺应餐饮行业高端化、品质化发展趋势，新东方烹饪教育持续拓展与星级酒店、米其林餐厅、头部餐饮集团等高端品牌的合作，构建定向培养、深度协同的育人模式，精准匹配高端餐饮对精细技艺、标准出品、菜品研发、综合服务等复合型高技能人才的需求。
+特此通知。
 
-通过共建实训基地、共研专业课程、引入企业导师驻校教学，让学生在校即可对标米其林后厨标准、学习头部品牌运营逻辑，实现人才培养与高端餐饮产业需求同频共振。
-
-打破浅层合作，构建长效协同育人体系 此次回访直击教学与岗位的衔接痛点。
+《关领导接待日预约登记表》.doc
 
 ## 相关推荐
 
-- 2026-06-29 20:01 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 19:59 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 20:04 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 20:08 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 20:17 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 20:10 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 20:05 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 20:05 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 19:57 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 20:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 20:28 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 20:24 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 20:12 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 20:12 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 20:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 20:26 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 20:19 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 20:27 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 20:02 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 20:00 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 20:08 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 20:29 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 20:07 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 20:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 20:29 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:11 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/49782.shtml)
-- 2026-06-29 20:03 - [恋与深空回应争议](http://www.share.minike.top/Article/details/0206388181.shtml)
-- 2026-06-29 20:20 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/534693.shtml)
-- 2026-06-29 19:58 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/855539.shtml)
-- 2026-06-29 20:16 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/726604.shtml)
-- 2026-06-29 20:17 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/905632378456.shtml)
-- 2026-06-29 19:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/59608086.shtml)
-- 2026-06-29 20:05 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/130828603410.shtml)
-- 2026-06-29 20:16 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/64401984362.shtml)
-- 2026-06-29 20:19 - [高质量发展看新疆](http://www.blog.kurohicncr.top/Article/details/283262683.shtml)
-- 2026-06-29 20:23 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/988924.shtml)
-- 2026-06-29 19:54 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/784300.shtml)
-- 2026-06-29 20:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/810058.shtml)
-- 2026-06-29 20:14 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/07675.shtml)
-- 2026-06-29 20:00 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/12047829.shtml)
+- 2026-06-29 20:29 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/4775485.shtml)
+- 2026-06-29 20:05 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/527672598.shtml)
+- 2026-06-29 20:11 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/246977.shtml)
+- 2026-06-29 20:01 - [委内瑞拉发生余震](https://www.share.minike.top/Article/details/8388376.shtml)
+- 2026-06-29 20:17 - [爱很美味](http://www.blog.minike.top/Article/details/7311897698.shtml)
+- 2026-06-29 20:15 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/247286767842.shtml)
+- 2026-06-29 20:21 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.minike.top/Article/details/17931554093.shtml)
+- 2026-06-29 20:25 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/5180398.shtml)
+- 2026-06-29 20:24 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/7598235492.shtml)
+- 2026-06-29 20:17 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/1486799.shtml)
+- 2026-06-29 20:29 - [德国医生在没有空调的手术室工作](http://www.blog.kurohicncr.top/Article/details/2801333.shtml)
+- 2026-06-29 20:22 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/84870.shtml)
+- 2026-06-29 20:29 - [张杰我九岁就跟你了](https://www.blog.kurohicncr.top/Article/details/27298680.shtml)
+- 2026-06-29 20:14 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/37478319.shtml)
+- 2026-06-29 20:16 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/220828.shtml)

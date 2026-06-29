@@ -1,50 +1,51 @@
-# 2025年我国新能源车险承保亏损56亿元 同比减亏1亿元
+# 蓝黛科技：公司完成了从燃油乘用车领域向新能源汽车、商用车领域、非道路机械等领域的扩展
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-3月31日金融一线消息，中国精算师协会、中国银行保险信息技术管理有限公司发布我国新能源车险2025年有关赔付信息。2025年，我国保险行业承保新能源汽车4358万辆（其中客车4181万辆，货车177万辆），比上年增加1248万辆，增长40.1%；保费收入1900亿元，提供风险保障金额159万亿元；承保亏损56亿元，同比减亏1亿元；综合成本率同比下降1.3个百分点。新能源汽车规模
+证券日报网4月14日讯，蓝黛科技在接受调研者提问时表示，公司贯彻“深挖内功、外拓市场”策略，凭借在动力传动领域多年积累的技术经验，并借助客户、区位、质量、积极的市场策略等优势，持续拓展产品品类和市场。从产品分类方面，公司产品实现了从汽车变速器总成及零部件系列向新能源减速器及新能源传动系统零部件、汽车发动机平衡轴总成及零部件、工程机械产品类拓展；从产品应用方面，公司完成了从燃油乘
 
 ## 正文
 
-3月31日金融一线消息，中国精算师协会、中国银行保险信息技术管理有限公司发布我国新能源车险2025年有关赔付信息。
+证券日报网4月14日讯，蓝黛科技在接受调研者提问时表示，公司贯彻“深挖内功、外拓市场”策略，凭借在动力传动领域多年积累的技术经验，并借助客户、区位、质量、积极的市场策略等优势，持续拓展产品品类和市场。
 
-2025年，我国保险行业承保新能源汽车4358万辆（其中客车4181万辆，货车177万辆），比上年增加1248万辆，增长40.1%；保费收入1900亿元，提供风险保障金额159万亿元；承保亏损56亿元，同比减亏1亿元；综合成本率同比下降1.3个百分点。
+从产品分类方面，公司产品实现了从汽车变速器总成及零部件系列向新能源减速器及新能源传动系统零部件、汽车发动机平衡轴总成及零部件、工程机械产品类拓展；从产品应用方面，公司完成了从燃油乘用车领域向新能源汽车、商用车领域、非道路机械等领域的扩展。
 
-新能源汽车规模车系数量429个，其中客车370个、货车59个。
-
-2025年赔付率超过100%（尚未考虑财险公司日常经营管理费用成本）的高赔付车系有143个，较上年增加6个，其中客车106个、货车37个。
-
-责任编辑：秦艺
+2025年度具体经营管理情况请参见公司于2026年3月30日披露的2025年年度报告。
 
 ## 相关推荐
 
-- 2026-06-29 19:59 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 20:18 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 20:02 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 20:24 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 20:18 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 20:09 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 20:06 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 20:07 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 19:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 20:02 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 20:27 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 20:24 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 20:26 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 20:09 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 20:01 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 20:24 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 20:09 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 20:27 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 20:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 20:21 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 20:01 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 20:03 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 20:05 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 20:01 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 20:17 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:59 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/48416359.shtml)
-- 2026-06-29 20:05 - [北京发布地质灾害气象风险蓝色预警](https://www.share.kurohicncr.top/Article/details/870107.shtml)
-- 2026-06-29 20:17 - [官媒首曝六代机？大V解读](http://www.share.minike.top/Article/details/095650697.shtml)
-- 2026-06-29 20:05 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/656651655056.shtml)
-- 2026-06-29 20:13 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/57572938465.shtml)
-- 2026-06-29 20:00 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/63987975810.shtml)
-- 2026-06-29 19:54 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/009409.shtml)
-- 2026-06-29 20:14 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/92513948555.shtml)
-- 2026-06-29 20:07 - [大学专业未来如何洗牌](http://www.share.minike.top/Article/details/676713537632.shtml)
-- 2026-06-29 20:11 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/957284960.shtml)
-- 2026-06-29 20:21 - [本届世界杯已有5人涉性侵风波](https://www.share.kurohicncr.top/Article/details/29085177.shtml)
-- 2026-06-29 20:05 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/6658900.shtml)
-- 2026-06-29 20:10 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/034043336292.shtml)
-- 2026-06-29 20:20 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/1911856745.shtml)
-- 2026-06-29 20:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/35957.shtml)
+- 2026-06-29 20:05 - [T1零封KC MSI](http://www.share.minike.top/Article/details/414596846141.shtml)
+- 2026-06-29 20:00 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/0984879.shtml)
+- 2026-06-29 20:26 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/154936798105.shtml)
+- 2026-06-29 20:27 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/19527.shtml)
+- 2026-06-29 20:20 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/8154373.shtml)
+- 2026-06-29 20:21 - [我们的少年时代2](https://www.share.minike.top/Article/details/009201660547.shtml)
+- 2026-06-29 20:02 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.minike.top/Article/details/660089736847.shtml)
+- 2026-06-29 20:29 - [温网](http://www.share.minike.top/Article/details/38022355879.shtml)
+- 2026-06-29 20:23 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/49656075.shtml)
+- 2026-06-29 20:16 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/212443036003.shtml)
+- 2026-06-29 20:01 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/3982495271.shtml)
+- 2026-06-29 20:01 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/4266896616.shtml)
+- 2026-06-29 20:10 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/247329144.shtml)
+- 2026-06-29 20:00 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/537187.shtml)
+- 2026-06-29 20:19 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/766606396782.shtml)

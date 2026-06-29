@@ -1,61 +1,56 @@
-# 机构预计2026年泰国芯片出口值将增长22%
+# 中哈专家共探骨科前沿与中医药国际化路径
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-中新社曼谷4月8日电 (李映民 刘宇博)泰国开泰研究中心8日发布报告称，受全球人工智能和数据中心投资持续扩张带动，预计2026年泰国集成电路芯片出口值将同比增长22%，延续近年来增长态势，但整体增速将有所放缓。报告指出，在人工智能应用需求快速增长背景下，全球数据中心建设步伐加快，带动芯片需求持续提升。预计2025年至2030年，全球数据中心产业年均复合增长率约为8.4%。作为电
+【中亚专线】中哈专家共探骨科前沿与中医药国际化路径 中新社广州4月14日电 (记者 蔡敏婕)“中国—哈萨克斯坦骨关节学术交流与手术技术国际培训班”12日至15日在广州举行。此次培训班旨在深化中哈两国骨科领域学术互鉴，推动中医药适宜技术与先进微创手术在中亚地区的融合应用。 广东省中医院骨伤科专科医院院长林定坤表示，本次培训班将贯彻“以扎实的传承工作及骨科微创技术支撑高质量临床研究
 
 ## 正文
 
-中新社曼谷4月8日电 (李映民 刘宇博)泰国开泰研究中心8日发布报告称，受全球人工智能和数据中心投资持续扩张带动，预计2026年泰国集成电路芯片出口值将同比增长22%，延续近年来增长态势，但整体增速将有所放缓。
+【中亚专线】中哈专家共探骨科前沿与中医药国际化路径 中新社广州4月14日电 (记者 蔡敏婕)“中国—哈萨克斯坦骨关节学术交流与手术技术国际培训班”12日至15日在广州举行。
 
-报告指出，在人工智能应用需求快速增长背景下，全球数据中心建设步伐加快，带动芯片需求持续提升。
+此次培训班旨在深化中哈两国骨科领域学术互鉴，推动中医药适宜技术与先进微创手术在中亚地区的融合应用。
 
-预计2025年至2030年，全球数据中心产业年均复合增长率约为8.4%。
+广东省中医院骨伤科专科医院院长林定坤表示，本次培训班将贯彻“以扎实的传承工作及骨科微创技术支撑高质量临床研究”的总原则，不仅聚焦手术技艺的切磋，更将推动岭南特色中医理筋手法、中医外治法与哈方本土民族医药的相互借鉴与融合。
 
-作为电子设备关键基础元件，芯片需求的扩大为相关出口提供重要支撑。
+他期待以此次培训班为契机，加速“中哈骨伤科研究中心”的筹备建设，进一步提升中亚地区骨伤科医疗服务能力。
 
-尽管泰国并非高端人工智能芯片的主要生产地，但在通用芯片领域具备一定产业基础，其产品广泛应用于各类电子电路及智能终端，成为出口增长的重要支撑力量。
+“双方正积极筹划共建中哈骨伤科研究中心，计划于今年落地建设。
 
-从产品结构看，2026年泰国各类芯片出口预计保持增长。
+”广东省中医院副院长陈博来介绍，该中心不仅致力于技术传承与人才培养，更将聚焦临床科研联合攻关，助力提升中亚地区骨科诊疗服务能力。
 
-其中，电源管理芯片、微控制器和存储芯片出口预计分别增长21%、31%和25%。
+未来，中心还将搭建国际化骨科诊疗与质控体系，进一步提升中医药在国际医疗领域的影响力。
 
-增长动力主要来自全球智能终端设备普及、物联网应用拓展以及部分细分产品供需趋紧等因素。
+陈博来介绍，该医院已与乌兹别克斯坦、吉尔吉斯斯坦、格鲁吉亚等国开展多年交流与合作，今年下半年，将与格鲁吉亚深化合作，共同推进欧亚脊柱外科协会建设。
 
 ## 相关推荐
 
-- 2026-06-29 20:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 19:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 20:17 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 19:57 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 20:21 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 20:03 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 19:58 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 20:05 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 20:01 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 19:55 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 20:05 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 20:07 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 20:08 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-29 20:14 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 20:12 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 20:23 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 20:26 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 20:01 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 20:18 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 20:00 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 20:07 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 20:16 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 20:02 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 20:19 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 20:14 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:59 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/2379736.shtml)
-- 2026-06-29 20:23 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/2767761.shtml)
-- 2026-06-29 20:08 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/75278907794.shtml)
-- 2026-06-29 20:08 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/249803489316.shtml)
-- 2026-06-29 20:23 - [记者暗访养老机构消防安全](https://www.share.minike.top/Article/details/1929055016.shtml)
-- 2026-06-29 20:11 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/38947.shtml)
-- 2026-06-29 19:59 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/5548903841.shtml)
-- 2026-06-29 20:18 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/3594408776.shtml)
-- 2026-06-29 20:01 - [伊朗足球队将启程回国](http://www.share.minike.top/Article/details/802798.shtml)
-- 2026-06-29 20:15 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/33066.shtml)
-- 2026-06-29 20:08 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/05954.shtml)
-- 2026-06-29 20:06 - [我们的少年时代2](https://www.share.minike.top/Article/details/0620331925.shtml)
-- 2026-06-29 20:00 - [CORTIS 小牌大耍](http://www.blog.minike.top/Article/details/808840466168.shtml)
-- 2026-06-29 20:16 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/359684.shtml)
-- 2026-06-29 20:05 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/395088610213.shtml)
+- 2026-06-29 20:10 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/5295237.shtml)
+- 2026-06-29 20:13 - [小娘惹](https://www.share.kurohicncr.top/Article/details/7404042532.shtml)
+- 2026-06-29 20:27 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/595998.shtml)
+- 2026-06-29 20:23 - [当家电外通风口出现鸟窝](https://www.share.minike.top/Article/details/3633680.shtml)
+- 2026-06-29 20:17 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/7828575037.shtml)
+- 2026-06-29 20:10 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/87166.shtml)
+- 2026-06-29 20:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/697483.shtml)
+- 2026-06-29 20:21 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/096570514025.shtml)
+- 2026-06-29 20:10 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/4250393647.shtml)
+- 2026-06-29 20:04 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/09728120086.shtml)
+- 2026-06-29 20:23 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.minike.top/Article/details/73272535.shtml)
+- 2026-06-29 20:01 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.kurohicncr.top/Article/details/17497969.shtml)
+- 2026-06-29 20:17 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/5497437.shtml)
+- 2026-06-29 20:07 - [伊朗足球队将启程回国](http://www.share.minike.top/Article/details/157082692.shtml)
+- 2026-06-29 20:13 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/0346114360.shtml)

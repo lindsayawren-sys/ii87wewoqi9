@@ -1,60 +1,60 @@
-# “张雪机车”引岛内网友热议 国台办邀台胞台企共壮民族经济
+# 同业存单发行缩量2万亿元！多家银行实际认购量不及预期
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月8日电 (李百加 张杨彬)“大陆确实是广大创新创业者的热土，为两岸产业合作开辟更广阔空间。”国台办发言人朱凤莲8日在北京表示，热忱欢迎广大台胞台企扎根大陆发展，深化两岸交流合作、融合发展，共同壮大中华民族经济。在当日举行的国台办例行新闻发布会上，有记者问，大陆摩托车品牌“张雪机车”在世界超级摩托车锦标赛(WSBK)中夺冠，引发台湾网友热议，认为大陆制造已达全球一流
+来源：中国经营报 记者：慈玉鹏 Wind数据显示，今年1月1日至4月13日，同业存单发行额共计7.22万亿元，相比去年同期减少2万亿元。 主动补充负债意愿减弱 具体来说，今年截至4月13日，同业存单共发行只数共计5177个，相比去年同期减少1106只；发行额共计7.22万亿元，相比去年同期9.25万亿元缩减2万亿元。 中国邮政储蓄银行研究员娄飞鹏告诉记者，同业存单发行同比大减主
 
 ## 正文
 
-中新社北京4月8日电 (李百加 张杨彬)“大陆确实是广大创新创业者的热土，为两岸产业合作开辟更广阔空间。
+来源：中国经营报 记者：慈玉鹏 Wind数据显示，今年1月1日至4月13日，同业存单发行额共计7.22万亿元，相比去年同期减少2万亿元。
 
-”国台办发言人朱凤莲8日在北京表示，热忱欢迎广大台胞台企扎根大陆发展，深化两岸交流合作、融合发展，共同壮大中华民族经济。
+主动补充负债意愿减弱 具体来说，今年截至4月13日，同业存单共发行只数共计5177个，相比去年同期减少1106只；发行额共计7.22万亿元，相比去年同期9.25万亿元缩减2万亿元。
 
-在当日举行的国台办例行新闻发布会上，有记者问，大陆摩托车品牌“张雪机车”在世界超级摩托车锦标赛(WSBK)中夺冠，引发台湾网友热议，认为大陆制造已达全球一流水平，大长两岸中国人的志气。
+中国邮政储蓄银行研究员娄飞鹏告诉记者，同业存单发行同比大减主要是实体融资需求偏弱，银行出现资产荒，叠加存款增长充裕，主动减少高成本同业负债；同时，市场流动性整体宽松，银行对存单依赖度下降；再者监管引导压降同业负债占比，叠加存单备案额度改革与市场观望情绪，银行发行意愿和供给同步收缩，整体从主动扩表转为被动调节。
 
-朱凤莲答问时说，机器人、无人机、新能源汽车、摩托车，越来越多大陆优秀品牌和产品不断走出去，受到全球关注，得到广泛认可，成为消费者首选。
+一位股份行人士表示，2026年以来同业存单发行量减少，由多重因素叠加导致。
 
-“依托完整的产业体系和深厚的产业基础，大陆制造持续创造新的纪录。
+需求端，优质信贷资产稀缺，贷款投放承压，银行主动补充负债的意愿大幅减弱。
 
-”朱凤莲表示，“十五五”时期，我们将继续着力推动高质量发展，构建以先进制造业为骨干的现代化产业体系。
+成本端，2025 年年末至 2026 年年初资金面阶段性偏紧，发行利率一度上行，叠加一二级市场价格背离，投资者一级市场认购积极性下降。
 
-第六届中国国际消费品博览会将于4月13日至18日在海南省海口市举办。
+实际认购量低于计划发行 近日，多家银行在中国货币网公示了同业存单发行情况。
 
-朱凤莲介绍，本届消博会首次设立台湾特色展区，20家台企将带来特色文创、生技健康、时尚好物、甄选美食等优质产品。
+例如，广东华兴银行2026年度第168期同业存单计划发行3.0亿元，实际认购量1.0亿元，占比33.33%；该行2026年度第169期同业存单计划发行量3.0亿元，实际认购量0.7亿元，占比23.33%。
 
 ## 相关推荐
 
-- 2026-06-29 20:07 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 20:23 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 19:57 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 20:04 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 19:54 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 19:56 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 20:04 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 20:06 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 20:17 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 20:18 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 19:55 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 20:07 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 20:23 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 20:14 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 20:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 20:14 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 20:21 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 20:23 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 20:17 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 20:26 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 20:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 20:05 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 20:13 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 20:23 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 20:08 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 20:28 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 20:23 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 20:27 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:07 - [德国医生在没有空调的手术室工作](http://www.share.minike.top/Article/details/2207682.shtml)
-- 2026-06-29 20:08 - [金鹰奖第二阶段投票明日开启](http://www.blog.minike.top/Article/details/394505131674.shtml)
-- 2026-06-29 20:19 - [佛得角队长门德斯被控强奸](http://www.blog.kurohicncr.top/Article/details/82418.shtml)
-- 2026-06-29 20:10 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/660767040186.shtml)
-- 2026-06-29 20:10 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/1731452327.shtml)
-- 2026-06-29 20:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/50431415625.shtml)
-- 2026-06-29 20:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/9817347.shtml)
-- 2026-06-29 20:19 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/019460.shtml)
-- 2026-06-29 20:09 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/34614647.shtml)
-- 2026-06-29 20:19 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/87301394560.shtml)
-- 2026-06-29 20:02 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/93436025028.shtml)
-- 2026-06-29 20:01 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/1727137.shtml)
-- 2026-06-29 20:03 - [湖南姑娘被东北同事带偏口音](http://www.blog.kurohicncr.top/Article/details/91349407.shtml)
-- 2026-06-29 20:17 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/836686778070.shtml)
-- 2026-06-29 20:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/98741077.shtml)
+- 2026-06-29 20:26 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/8790519.shtml)
+- 2026-06-29 20:27 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/236241.shtml)
+- 2026-06-29 20:09 - [法生态部长反对装空调却自己吹空调](http://www.blog.minike.top/Article/details/52344.shtml)
+- 2026-06-29 20:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/915169254.shtml)
+- 2026-06-29 20:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/767014316.shtml)
+- 2026-06-29 20:15 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/54123654.shtml)
+- 2026-06-29 20:29 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/467579708059.shtml)
+- 2026-06-29 20:11 - [海清4次陪跑白玉兰](https://www.blog.minike.top/Article/details/773194797080.shtml)
+- 2026-06-29 20:17 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/22371.shtml)
+- 2026-06-29 20:01 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/026721.shtml)
+- 2026-06-29 20:08 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.kurohicncr.top/Article/details/91863005.shtml)
+- 2026-06-29 20:10 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/657606139.shtml)
+- 2026-06-29 20:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/246987739738.shtml)
+- 2026-06-29 20:26 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/4844527529.shtml)
+- 2026-06-29 20:22 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.kurohicncr.top/Article/details/14120.shtml)

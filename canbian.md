@@ -1,59 +1,57 @@
-# 克明食品回应产品命名等争议，全面开展商标及标识合规排查
+# 为什么说“场景Token”比“算力Token”更值得关注？
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-4月8日，克明食品在深交所互动易平台就投资者提出的产品命名合规性、商标使用争议等相关问题作出回应。 此前，有投资者在互动易平台向公司提问称，公司客服已承认“手擀挂面”为机器生产，却仍将“手擀”作为产品名及商标使用，同时“北方劲道”“高筋面”等通用描述性词汇也被公司注册为商标。该投资者提出，当前食品行业同类模糊命名行为已引发大量市场争议与监管关注。该投资者质疑该类做法是否契合公司
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：智通财经 智通财经APP获悉，2025年以来，资本市场围绕 Token 经济的讨论持续升温。算力 Token、模型 Token、调用 Token，背后都指向同一个趋势：AI 正在从技术概念走向计量化、结算化与商业化。 但从产业演进规律看，一个更重要的区分正在形成：算力 Token 和模型 Token，
 
 ## 正文
 
-4月8日，克明食品在深交所互动易平台就投资者提出的产品命名合规性、商标使用争议等相关问题作出回应。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-此前，有投资者在互动易平台向公司提问称，公司客服已承认“手擀挂面”为机器生产，却仍将“手擀”作为产品名及商标使用，同时“北方劲道”“高筋面”等通用描述性词汇也被公司注册为商标。
+来源：智通财经 智通财经APP获悉，2025年以来，资本市场围绕 Token 经济的讨论持续升温。
 
-该投资者提出，当前食品行业同类模糊命名行为已引发大量市场争议与监管关注。
+算力 Token、模型 Token、调用 Token，背后都指向同一个趋势：AI 正在从技术概念走向计量化、结算化与商业化。
 
-该投资者质疑该类做法是否契合公司长期经营原则，并询问公司后续是否会对产品命名与宣传进行规范。
+但从产业演进规律看，一个更重要的区分正在形成：算力 Token 和模型 Token，更接近底层能力供给；而场景 Token，则更接近最终的价值兑现。
 
-针对上述质疑，克明食品在回复中表示，产品名称中使用“手擀”二字，系因该产品通过特定机器生产工艺，还原了传统手工擀制挂面的口感特征，并非指代产品为手工制作。
+“场景 Token”或许可以被理解为：AI 原生应用在具体业务场景中，将底层算力与模型调用转化为可量化经营结果的价值单元。
 
-同时，产品包装采用透明窗口设计，消费者可通过外观形态判断产品为工业化生产，不会对生产工艺产生误解。
+企业真正愿意付费的，并不是底层消耗了多少 Token，而是这些 Token 最终能否带来结果——更高的转化率、更快的成交推进、更低的客服成本，以及更优的组织效率。
 
-对于商标与产品命名的合规整改，克明食品表示，公司已组织法务、市场等相关部门，对全部已注册商标及标识使用情况开展系统性合规排查。
+如果把 Token 经济产业链做一个更直观的比喻：算力 Token 像电费，模型 Token 像油费，而场景 Token 更像“把人送到目的地”的打车费。
 
-针对排查中发现的可能存在消费者认知歧义、易产生误解的商标及产品名称，公司将采取规范标识使用方式、优化产品包装设计等措施消除误解。
+企业客户不会因为“用了多少电、烧了多少油”而额外付钱，但会为最终结果付费。
 
 ## 相关推荐
 
-- 2026-06-29 20:23 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 20:18 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 20:13 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 19:56 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 20:11 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 20:11 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 20:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 19:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 20:05 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 20:02 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 19:54 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 20:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 20:05 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 20:24 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 20:01 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 20:04 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 20:26 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 20:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 20:08 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 20:22 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 20:07 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 20:00 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 20:28 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 20:19 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:21 - [世界杯1/16决赛对阵出炉](http://www.blog.kurohicncr.top/Article/details/70543678.shtml)
-- 2026-06-29 20:11 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/58700908022.shtml)
-- 2026-06-29 20:20 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/30412917418.shtml)
-- 2026-06-29 20:12 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.minike.top/Article/details/3071270841.shtml)
-- 2026-06-29 19:54 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/645131215.shtml)
-- 2026-06-29 20:13 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.kurohicncr.top/Article/details/675364.shtml)
-- 2026-06-29 20:04 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/8474512.shtml)
-- 2026-06-29 20:21 - [沙丘](https://www.share.kurohicncr.top/Article/details/18085343.shtml)
-- 2026-06-29 20:13 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/14364539286.shtml)
-- 2026-06-29 20:00 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/99059.shtml)
-- 2026-06-29 20:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/616782856.shtml)
-- 2026-06-29 20:23 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/930089.shtml)
-- 2026-06-29 20:14 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/143540.shtml)
-- 2026-06-29 19:58 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/7338746.shtml)
-- 2026-06-29 20:15 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/319037426.shtml)
+- 2026-06-29 20:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/06400995558.shtml)
+- 2026-06-29 20:20 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/64312712.shtml)
+- 2026-06-29 20:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/74501338042.shtml)
+- 2026-06-29 20:16 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/1280029.shtml)
+- 2026-06-29 20:17 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/915486646.shtml)
+- 2026-06-29 20:03 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/450259260.shtml)
+- 2026-06-29 20:08 - [北京发布地质灾害气象风险蓝色预警](http://www.share.minike.top/Article/details/4564531559.shtml)
+- 2026-06-29 20:03 - [济南航空航天全面起势](http://www.share.minike.top/Article/details/486431743.shtml)
+- 2026-06-29 20:02 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/702715378417.shtml)
+- 2026-06-29 20:02 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/93859.shtml)
+- 2026-06-29 20:19 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.minike.top/Article/details/47482.shtml)
+- 2026-06-29 20:13 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/88852479.shtml)
+- 2026-06-29 20:22 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/71796198.shtml)
+- 2026-06-29 20:24 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/035033.shtml)
+- 2026-06-29 20:23 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/134386676.shtml)

@@ -1,60 +1,48 @@
-# 监管机构着手制定规则之际 美联储理事巴尔提示稳定币风险
+# 能源价格回落后 交易员下调对欧洲央行加息的押注
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-在官员们制定相关规则之际，美联储理事迈克尔·巴尔警告称，稳定币在反洗钱和金融稳定方面存在一些值得关注的风险。 “稳定币储备资产的质量和流动性对其长期可行性至关重要，”巴尔在为联邦党人学会（Federalist Society）准备的发言稿中表示，“同时，稳定币发行方有动机尽可能向更高风险端延伸，以实现储备资产回报的最大化。” 巴尔周二也指出了数字资产的潜在益处，例如帮助企业进行
+交易员大幅削减对欧洲央行和英国央行加息的押注，因为在有迹象显示美国和伊朗可能重启谈判后石油和天然气价格下挫。 互换市场预计欧洲央行年内将加息56个基点，低于周一预计的68个基点和一周前预计的80个基点；交易员预计本月政策会议加息8个基点。 交易员预计英国央行年内加息39个基点，低于此前预计的46个基点。责任编辑：李桐
 
 ## 正文
 
-在官员们制定相关规则之际，美联储理事迈克尔·巴尔警告称，稳定币在反洗钱和金融稳定方面存在一些值得关注的风险。
+交易员大幅削减对欧洲央行和英国央行加息的押注，因为在有迹象显示美国和伊朗可能重启谈判后石油和天然气价格下挫。
 
-“稳定币储备资产的质量和流动性对其长期可行性至关重要，”巴尔在为联邦党人学会（Federalist Society）准备的发言稿中表示，“同时，稳定币发行方有动机尽可能向更高风险端延伸，以实现储备资产回报的最大化。
+互换市场预计欧洲央行年内将加息56个基点，低于周一预计的68个基点和一周前预计的80个基点；交易员预计本月政策会议加息8个基点。
 
-” 巴尔周二也指出了数字资产的潜在益处，例如帮助企业进行司库管理或汇款转账。
+交易员预计英国央行年内加息39个基点，低于此前预计的46个基点。
 
-与可能需要几个工作日的电汇相比，稳定币因能够实现快速结算而受到认可。
-
-美联储及其他监管机构正在制定《Genius法》相关的规则，该法要求稳定币发行方进行正式注册，并持有等额美元储备。
-
-近期，银行和加密货币企业围绕数字资产监管出现摩擦，包括在获取银行牌照问题上的争议。
-
-“对储备资产进行严格管控，配合监管、资本和流动性要求以及其他措施，可增强稳定币的稳定性，使其成为更具可行性的支付工具，”他表示，“但这些目标能否实现，将取决于监管落实的具体细节。
-
-”责任编辑：丁文武
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 20:08 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 20:18 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 20:10 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 20:16 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 20:13 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 19:56 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 20:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 20:18 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 20:12 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 20:19 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 20:10 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 20:18 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 20:22 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 20:01 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 20:03 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 20:29 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 20:23 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 20:08 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 20:18 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 20:26 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 20:10 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 20:03 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 20:15 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 20:05 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:17 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/58920632102.shtml)
-- 2026-06-29 20:10 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/008156312.shtml)
-- 2026-06-29 20:19 - [欧洲安装一台空调要花近8000元](http://www.share.minike.top/Article/details/762009749.shtml)
-- 2026-06-29 20:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/10788925653.shtml)
-- 2026-06-29 20:23 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/098560.shtml)
-- 2026-06-29 20:06 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/379166.shtml)
-- 2026-06-29 20:17 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/2779933.shtml)
-- 2026-06-29 20:09 - [存储三巨头被告了](https://www.share.minike.top/Article/details/9339679.shtml)
-- 2026-06-29 20:00 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/423082563.shtml)
-- 2026-06-29 20:00 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/707659019.shtml)
-- 2026-06-29 20:17 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/02952481718.shtml)
-- 2026-06-29 20:22 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/815786122019.shtml)
-- 2026-06-29 20:04 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/83094005127.shtml)
-- 2026-06-29 20:08 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/72829573.shtml)
-- 2026-06-29 20:20 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/54591786.shtml)
+- 2026-06-29 20:00 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/54292.shtml)
+- 2026-06-29 20:26 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/383681.shtml)
+- 2026-06-29 20:23 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/376636.shtml)
+- 2026-06-29 20:13 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/20057414939.shtml)
+- 2026-06-29 20:11 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/7972211883.shtml)
+- 2026-06-29 20:15 - [韩国队主帅遭极端网友死亡威胁](https://www.share.minike.top/Article/details/6078614407.shtml)
+- 2026-06-29 20:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/394169240.shtml)
+- 2026-06-29 20:16 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/53524.shtml)
+- 2026-06-29 20:15 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/31102.shtml)
+- 2026-06-29 20:08 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/30309.shtml)
+- 2026-06-29 20:09 - [委内瑞拉发生余震](http://www.blog.kurohicncr.top/Article/details/38102144.shtml)
+- 2026-06-29 20:09 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/0831376.shtml)
+- 2026-06-29 20:22 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/035167660.shtml)
+- 2026-06-29 20:16 - [无畏为自己的猫正名了](https://www.share.minike.top/Article/details/194214582122.shtml)
+- 2026-06-29 20:23 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.minike.top/Article/details/622055.shtml)

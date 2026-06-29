@@ -1,51 +1,58 @@
-# 埃斯顿：稳定价格行动、稳定价格期结束及超额配股权失效
+# 这种防癌方式不仅有效，性价比也很高！丨肿瘤防治早知道
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-埃斯顿（02715）发布公告，根据香港法例第571W章《证券及期货（稳定价格）规则》第9（2）条，本公司宣布，有关全球发售的稳定价格期已于2026年4月3日（星期五）（即递交香港公开发售申请截止日期后第30日）结束。保荐人兼整体协调人（代表其本身及国际包销商）于稳定价格期内并无行使超额配股权，而超额配股权已于2026年4月3日（星期五）失效。因此，本公司未曾亦不会根据超额配股权
+关注健康 预防癌症 癌症防治，关键在预防，核心在早筛。坚持关口前移是最经济有效的防癌策略。围绕一级预防、健康生活方式、防癌体检与常规体检的差异等公众关注的问题，本期邀请国家健康科普专家库成员、国家癌症中心/中国医学科学院肿瘤医院防癌科主任医师张凯，解读科学防癌核心要点，破解认知误区，为公众提供专业指导。 Q1 何为癌症一级预防？为什么它被称为性价比最高的防癌方式？A 一级预防即
 
 ## 正文
 
-埃斯顿（02715）发布公告，根据香港法例第571W章《证券及期货（稳定价格）规则》第9（2）条，本公司宣布，有关全球发售的稳定价格期已于2026年4月3日（星期五）（即递交香港公开发售申请截止日期后第30日）结束。
+关注健康 预防癌症 癌症防治，关键在预防，核心在早筛。
 
-保荐人兼整体协调人（代表其本身及国际包销商）于稳定价格期内并无行使超额配股权，而超额配股权已于2026年4月3日（星期五）失效。
+坚持关口前移是最经济有效的防癌策略。
 
-因此，本公司未曾亦不会根据超额配股权发行任何H股。
+围绕一级预防、健康生活方式、防癌体检与常规体检的差异等公众关注的问题，本期邀请国家健康科普专家库成员、国家癌症中心/中国医学科学院肿瘤医院防癌科主任医师张凯，解读科学防癌核心要点，破解认知误区，为公众提供专业指导。
 
-责任编辑：卢昱君
+Q1 何为癌症一级预防？
+
+为什么它被称为性价比最高的防癌方式？
+
+A 一级预防即病因预防，是在癌症发生前，通过减少或消除致癌危险因素暴露、采取干预措施，从源头上阻断癌症发生。
+
+人体接触致癌因素后，通常要经过数年甚至二三十年的诱发期，才有可能逐步发展为癌症。
+
+癌症由多因素综合作用、分阶段推进，主要包括启动、促进、进展等过程。
 
 ## 相关推荐
 
-- 2026-06-29 20:14 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 20:18 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 20:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 20:03 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 20:05 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 20:03 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 20:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 20:01 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 20:01 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 20:22 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 20:19 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 20:04 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 20:19 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 20:11 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 20:06 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 20:15 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 20:13 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 20:02 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 20:09 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 20:02 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 20:19 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 20:06 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 20:13 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 20:05 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 20:14 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:05 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/56945794.shtml)
-- 2026-06-29 20:22 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/62051405.shtml)
-- 2026-06-29 19:56 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/0970701.shtml)
-- 2026-06-29 20:10 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/57942034434.shtml)
-- 2026-06-29 20:06 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/9425855.shtml)
-- 2026-06-29 20:20 - [逆天祖国人](http://www.share.minike.top/Article/details/37041656.shtml)
-- 2026-06-29 20:23 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/269821845.shtml)
-- 2026-06-29 20:23 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/545924231.shtml)
-- 2026-06-29 20:21 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.minike.top/Article/details/7212143115.shtml)
-- 2026-06-29 20:18 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/78586500.shtml)
-- 2026-06-29 20:09 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/711109033954.shtml)
-- 2026-06-29 20:12 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/34720968060.shtml)
-- 2026-06-29 20:02 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/030989.shtml)
-- 2026-06-29 20:19 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/3610181389.shtml)
-- 2026-06-29 19:57 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/29536.shtml)
+- 2026-06-29 20:12 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/4146222005.shtml)
+- 2026-06-29 20:15 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/6340839987.shtml)
+- 2026-06-29 20:18 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/12890.shtml)
+- 2026-06-29 20:00 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/1982886.shtml)
+- 2026-06-29 20:22 - [世界杯在中国观看最多的比赛](http://www.share.kurohicncr.top/Article/details/49627.shtml)
+- 2026-06-29 20:25 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/931237129764.shtml)
+- 2026-06-29 20:19 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/93541.shtml)
+- 2026-06-29 20:15 - [华工科技龙虎榜数据](http://www.blog.minike.top/Article/details/0298991502.shtml)
+- 2026-06-29 20:04 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/239180097406.shtml)
+- 2026-06-29 20:12 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/7348675.shtml)
+- 2026-06-29 20:16 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/446671722.shtml)
+- 2026-06-29 20:25 - [欧洲极端高温如何影响家电股](https://www.blog.minike.top/Article/details/253822463677.shtml)
+- 2026-06-29 20:26 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/562844355.shtml)
+- 2026-06-29 20:27 - [速度与激情9](https://www.share.minike.top/Article/details/90980970295.shtml)
+- 2026-06-29 20:22 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/7398563656.shtml)

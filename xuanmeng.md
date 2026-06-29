@@ -1,58 +1,56 @@
-# 刚刚，中东大消息！全线暴涨，超12万人爆仓
+# 京东工业午前涨超12% 工业AI大模型跃升至2.0阶段
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-专题：外部冲击与内部驱动交织 四月下旬决断市场方向 【导读】加密货币集体暴涨，比特币升破72500美元，超12万人被爆仓 中国基金报记者 晨曦 一觉醒来，全线暴涨！ 4月8日早间，随着美伊停火消息的公布，加密货币市场迎来久违的大涨行情。比特币价格直线冲高，一度突破72500美元，24小时涨幅超5%。 主流币种迎来集体狂欢，以太坊价格突破2260美元，24小时涨幅超8%；XRP、
+京东工业（07618）午前涨超12%，截至发稿，股价上涨12.32%，现报13.77港元，成交额5645.43万港元。 4月9日，京东工业发布工业AI大模型能力建设规划和技术成果，宣布正在从1.0阶段的AI工具跃迁到2.0阶段的AI专家。京东工业的AI专家具备工作闭环能力，可独立完成商品、履约、售后等核心场景任务，从按需调用升级为自主进化，能主动洞察需求、参与决策、推进组织协同
 
 ## 正文
 
-专题：外部冲击与内部驱动交织 四月下旬决断市场方向 【导读】加密货币集体暴涨，比特币升破72500美元，超12万人被爆仓 中国基金报记者 晨曦 一觉醒来，全线暴涨！
+京东工业（07618）午前涨超12%，截至发稿，股价上涨12.32%，现报13.77港元，成交额5645.43万港元。
 
-4月8日早间，随着美伊停火消息的公布，加密货币市场迎来久违的大涨行情。
+4月9日，京东工业发布工业AI大模型能力建设规划和技术成果，宣布正在从1.0阶段的AI工具跃迁到2.0阶段的AI专家。
 
-比特币价格直线冲高，一度突破72500美元，24小时涨幅超5%。
+京东工业的AI专家具备工作闭环能力，可独立完成商品、履约、售后等核心场景任务，从按需调用升级为自主进化，能主动洞察需求、参与决策、推进组织协同。
 
-主流币种迎来集体狂欢，以太坊价格突破2260美元，24小时涨幅超8%；XRP、SOL、ADA等均有明显涨幅。
+国内首个工业供应链垂直AI大模型JoyIndustrial，将再次引领行业技术和应用升级。
 
-与此同时，全球爆仓数据持续增加。
+京东工业技术负责人表示，京东工业AI能力已经基本完成AI工具的建设和应用布局，在内外部业务实践中取得了扎实的成果，目前正处于向AI专家跃迁的过程中。
 
-截至发稿，根据CoinGlass的统计，最近24小时，全球共有120077人被爆仓，爆仓总金额为5.98亿美元。
+面向未来，京东工业认为AI专家会跃迁到3.0阶段的AI超脑，即可以实现生态进化，全链协同，和工业大模型构建数智化的供应链大脑，通过AI需求大脑、AI商品大脑、AI履约大脑等产品和服务，根本性地提升工业供应链水平。
 
-其中多单1.67亿美元，空单4.31亿美元。
-
-消息面上，据央视新闻消息，当地时间4月7日，美国总统特朗普在社交平台发文称，美方决定暂缓原计划针对伊朗的军事打击行动。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 20:01 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 20:12 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 19:56 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 20:05 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 20:03 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 20:04 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 19:58 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 19:57 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 19:58 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 20:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 20:00 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 20:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 20:01 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 20:24 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 20:08 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 20:00 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 20:21 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 20:02 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 20:16 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 20:10 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 20:27 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 20:11 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 20:29 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:11 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/853504.shtml)
-- 2026-06-29 20:07 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/86718.shtml)
-- 2026-06-29 20:13 - [网友晒14年前支教影像等来学生评论](https://www.share.minike.top/Article/details/03729.shtml)
-- 2026-06-29 20:23 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/67543.shtml)
-- 2026-06-29 19:55 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.minike.top/Article/details/8997259703.shtml)
-- 2026-06-29 20:03 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/175233378.shtml)
-- 2026-06-29 20:06 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.kurohicncr.top/Article/details/211758211424.shtml)
-- 2026-06-29 20:04 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/92233891150.shtml)
-- 2026-06-29 20:02 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/8134920.shtml)
-- 2026-06-29 20:18 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/550211505678.shtml)
-- 2026-06-29 20:00 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.minike.top/Article/details/722526636977.shtml)
-- 2026-06-29 20:05 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/0233971.shtml)
-- 2026-06-29 20:13 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/23883.shtml)
-- 2026-06-29 20:18 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/3317729128.shtml)
-- 2026-06-29 20:17 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/2777272.shtml)
+- 2026-06-29 20:18 - [本届世界杯已有5人涉性侵风波](https://www.share.minike.top/Article/details/83000.shtml)
+- 2026-06-29 20:10 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/240332014788.shtml)
+- 2026-06-29 20:15 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.kurohicncr.top/Article/details/2995301878.shtml)
+- 2026-06-29 20:07 - [张杰我九岁就跟你了](https://www.blog.minike.top/Article/details/364739.shtml)
+- 2026-06-29 20:12 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/13430785.shtml)
+- 2026-06-29 20:27 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/6733495.shtml)
+- 2026-06-29 20:18 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/401821.shtml)
+- 2026-06-29 20:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/32583.shtml)
+- 2026-06-29 20:22 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.minike.top/Article/details/8332925401.shtml)
+- 2026-06-29 20:13 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/2335823.shtml)
+- 2026-06-29 20:28 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/125772.shtml)
+- 2026-06-29 20:17 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/6996797988.shtml)
+- 2026-06-29 20:20 - [高质量发展看新疆](http://www.blog.minike.top/Article/details/891857.shtml)
+- 2026-06-29 20:27 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/396456313816.shtml)
+- 2026-06-29 20:20 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/360657.shtml)

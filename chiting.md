@@ -1,59 +1,60 @@
-# 避险情绪回落，美元指数跌至99关口附近等待美联储纪要指引
+# 涪陵海关暖通工程改造项目监理服务项目采购公告
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 美元指数在周三亚洲时段持续承压运行，目前交投于99.05附近，延续此前一交易日的回落走势。推动美元走弱的主要因素来自中东局势阶段性缓和，美国总统特朗普宣布暂停对伊朗军事行动两周，这一决定显著削弱了市场对避险资产的需求。有外汇策略分析师指出：“随着冲突短期降温，市场风险偏好回升，美元作为避险资产的吸引力明显下降。” 从事件进展来看，此次暂停行动附带条件，即伊朗
+中华人民共和国涪陵海关对关区暖通工程改造项目监理服务进行比选，现邀请符合资格的监理方参加比选。 一、项目基本情况 1、工程名称：涪陵海关暖通工程改造项目监理服务。 2、工程地址：重庆市涪陵区大鹅居委6组(涪陵新区大厦对面)。3、工程规模：改造总面积4611.1㎡，含中央空调、新风系统、强电改造、智能控制系统升级等；工程总投资158万元。具体施工内容以招标人发出的工程量清单、施工
 
 ## 正文
 
-文章来源：汇通财经 美元指数在周三亚洲时段持续承压运行，目前交投于99.05附近，延续此前一交易日的回落走势。
+中华人民共和国涪陵海关对关区暖通工程改造项目监理服务进行比选，现邀请符合资格的监理方参加比选。
 
-推动美元走弱的主要因素来自中东局势阶段性缓和，美国总统特朗普宣布暂停对伊朗军事行动两周，这一决定显著削弱了市场对避险资产的需求。
+一、项目基本情况 1、工程名称：涪陵海关暖通工程改造项目监理服务。
 
-有外汇策略分析师指出：“随着冲突短期降温，市场风险偏好回升，美元作为避险资产的吸引力明显下降。
+2、工程地址：重庆市涪陵区大鹅居委6组(涪陵新区大厦对面)。
 
-” 从事件进展来看，此次暂停行动附带条件，即伊朗需重新开放霍尔木兹海峡通行。
+3、工程规模：改造总面积4611.1㎡，含中央空调、新风系统、强电改造、智能控制系统升级等；工程总投资158万元。
 
-伊朗方面表示，在与武装力量协调的前提下，将允许该关键航道在未来两周内实现安全通行。
+具体施工内容以招标人发出的工程量清单、施工图及图说为准。
 
-这一表态在一定程度上缓解了市场对能源供应中断的担忧，从而削弱美元的避险支撑逻辑 霍尔木兹海峡承担全球约20%的海运能源运输，其通行状态直接影响全球市场稳定预期。
+4、服务内容：本次监理范围主要包括施工图所示全部工程内容，含暖通、强电、智能化、利旧利用等施工阶段及缺陷责任期全过程监理，对进度、质量、造价、安全、合同、信息、协调实施全过程控制。
 
-随着该航道恢复预期升温，市场风险情绪明显改善，资金从避险资产流向风险资产，进一步压制美元表现。
+5、服务费用：本项目监理费最高限价52140元(总价包干)，超过按废标处理。
 
-与此同时，市场焦点逐渐转向即将公布的美联储会议纪要。
+费用包含完成本工程全部监理工作(含施工设计图示工作范围、工程变更等)的附加工作费用、额外工作费用、风险费用等，包括但不限于完成本合同约定全部监理工作对应的工作人员工资、劳保、医疗、福利、津贴、保险、差旅费，监理机构的管理费、利润、税金，且包含办公用品、交通工具、通讯设备等，以及协助对主要材料及设备询价咨询以及相关造价的初步审查工作等所有发生的费用，比选人将不再另行支付任何费用。
 
 ## 相关推荐
 
-- 2026-06-29 20:23 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 20:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 20:18 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 20:16 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 20:09 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 20:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 20:01 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 20:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 19:56 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 20:11 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 20:10 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 20:08 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-29 19:56 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 20:27 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 20:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 20:09 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 20:13 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 20:20 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 20:03 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 20:02 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 20:11 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 20:02 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 20:20 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 20:02 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 20:23 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 20:14 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 20:26 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:18 - [林逸向方筱然求婚了](https://www.share.kurohicncr.top/Article/details/041316318.shtml)
-- 2026-06-29 20:13 - [金刚川](https://www.share.minike.top/Article/details/32786572168.shtml)
-- 2026-06-29 20:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/15566753628.shtml)
-- 2026-06-29 20:17 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/89740.shtml)
-- 2026-06-29 20:06 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/7896935.shtml)
-- 2026-06-29 20:13 - [华工科技龙虎榜数据](http://www.share.minike.top/Article/details/176981641.shtml)
-- 2026-06-29 19:59 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/32987377272.shtml)
-- 2026-06-29 20:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/4070783.shtml)
-- 2026-06-29 20:01 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/44982.shtml)
-- 2026-06-29 19:58 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/229208915.shtml)
-- 2026-06-29 20:14 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/49439448465.shtml)
-- 2026-06-29 20:07 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/879527217653.shtml)
-- 2026-06-29 19:57 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/394436055.shtml)
-- 2026-06-29 20:01 - [当家电外通风口出现鸟窝](https://www.share.minike.top/Article/details/7120485.shtml)
-- 2026-06-29 20:08 - [急先锋](http://www.blog.minike.top/Article/details/4401516.shtml)
+- 2026-06-29 20:11 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/775328890.shtml)
+- 2026-06-29 20:22 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/82686.shtml)
+- 2026-06-29 20:26 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/4864014492.shtml)
+- 2026-06-29 20:22 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/317238603012.shtml)
+- 2026-06-29 20:07 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/52067838026.shtml)
+- 2026-06-29 20:26 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/9143957.shtml)
+- 2026-06-29 20:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/03958407998.shtml)
+- 2026-06-29 20:27 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/05718526.shtml)
+- 2026-06-29 20:21 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/5693324534.shtml)
+- 2026-06-29 20:12 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/5877986558.shtml)
+- 2026-06-29 20:18 - [扩军害了世界杯吗](https://www.share.kurohicncr.top/Article/details/563007.shtml)
+- 2026-06-29 20:03 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/8540712.shtml)
+- 2026-06-29 20:00 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/3142716225.shtml)
+- 2026-06-29 20:09 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/69958.shtml)
+- 2026-06-29 20:15 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/9409486371.shtml)

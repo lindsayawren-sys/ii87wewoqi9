@@ -1,60 +1,61 @@
-# 今年武汉樱花季入境外籍旅客同比增110.99%
+# 尽管受到中东战争的冲击，阳狮集团营收仍实现增长
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-中新社武汉4月7日电 (武一力 李逊)记者7日从武汉海关获悉，今年3月以来，武汉樱花季“催热”入境游。武汉天河机场海关累计监管国际出入境人员超12万人次，其中入境外籍旅客1.61万人次，同比增长110.99%，主要来自韩国、马来西亚、新加坡、美国等地。 武汉海关相关负责人表示，随着武汉天河国际机场“超级中转枢纽”建设提速，通关服务保障能力持续升级，叠加240小时过境免签、多国入
+阳狮集团表示，一季度，人工智能相关服务需求旺盛，推动美国及其他主要市场营收增长，抵消了中东战事带来的冲击。 这家法国广告集团于周二公布，其一季度内生净收入同比增长4.5%，高于公司统计的市场普遍预期值4.3%。不过该增速低于上一季度的5.9%以及去年同期的4.9%。 当前投资者正担忧中东冲突对广告行业短期前景的影响，以及人工智能带来的长期风险，阳狮就此拉开了全球广告机构板块财报
 
 ## 正文
 
-中新社武汉4月7日电 (武一力 李逊)记者7日从武汉海关获悉，今年3月以来，武汉樱花季“催热”入境游。
+阳狮集团表示，一季度，人工智能相关服务需求旺盛，推动美国及其他主要市场营收增长，抵消了中东战事带来的冲击。
 
-武汉天河机场海关累计监管国际出入境人员超12万人次，其中入境外籍旅客1.61万人次，同比增长110.99%，主要来自韩国、马来西亚、新加坡、美国等地。
+这家法国广告集团于周二公布，其一季度内生净收入同比增长4.5%，高于公司统计的市场普遍预期值4.3%。
 
-武汉海关相关负责人表示，随着武汉天河国际机场“超级中转枢纽”建设提速，通关服务保障能力持续升级，叠加240小时过境免签、多国入境免签等政策红利，口岸出入境客流节节攀升。
+不过该增速低于上一季度的5.9%以及去年同期的4.9%。
 
-从入境观光到入境消费，外籍游客消费热情高涨。
+当前投资者正担忧中东冲突对广告行业短期前景的影响，以及人工智能带来的长期风险，阳狮就此拉开了全球广告机构板块财报季的序幕。
 
-3月以来，武汉海关共办理离境退税业务152笔，涉及金额365.22万元人民币，退税商品覆盖箱包、化妆品、电子产品等热门品类。
+公司重申全年业绩指引，预计内生净收入增速维持在4%至5%，并预测二季度增长将提速，称人工智能持续为业务发展提供助力。
 
-湖北省内拥有樱花、知音文化、三国文化等丰富的文化旅游资源，每年3月至6月是外籍游客来鄂旅游旺季，很多新加坡游客在去年就提前预订了今年的武汉赏花旅行团。
+阳狮表示，旗下所有核心区域市场均表现亮眼：美国市场内生净收入增长4.7%，欧洲市场增长3.9%，亚太地区增长5.9%。
 
-中青旅湖北国际旅行社有限公司副总经理史波接受中新社记者采访时说，今年武汉入境游市场持续向好，尤其是“樱花+科技”的新玩法受到外籍游客喜爱。
+但受伊朗局势冲突影响，体量较小的中东及非洲区域收入下滑5.1%。
 
-如乘坐武汉的光谷空轨、无人驾驶汽车赏樱花，在景区与人形机器人互动等。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 20:16 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 20:07 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 19:55 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 20:18 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 20:13 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 20:19 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 20:01 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 19:54 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 20:13 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 20:01 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 20:14 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 20:24 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 20:02 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 20:07 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 20:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 20:03 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 20:25 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 20:24 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 20:22 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 20:21 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 20:05 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 20:27 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 20:29 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 20:15 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 20:13 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 20:11 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 20:19 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 20:18 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 20:24 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:57 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/0031462.shtml)
-- 2026-06-29 20:13 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/2424595684.shtml)
-- 2026-06-29 20:12 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/911220.shtml)
-- 2026-06-29 20:05 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/9719229691.shtml)
-- 2026-06-29 20:08 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/1188955.shtml)
-- 2026-06-29 20:08 - [金鹰奖第二阶段投票明日开启](http://www.blog.minike.top/Article/details/84141568.shtml)
-- 2026-06-29 19:54 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/97051605.shtml)
-- 2026-06-29 19:59 - [大马同意延长马航370残骸搜寻工作](http://www.share.kurohicncr.top/Article/details/9134294.shtml)
-- 2026-06-29 20:17 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/0841363.shtml)
-- 2026-06-29 20:04 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/5718542.shtml)
-- 2026-06-29 20:07 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/304794.shtml)
-- 2026-06-29 19:58 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/123565.shtml)
-- 2026-06-29 20:09 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/159824578.shtml)
-- 2026-06-29 20:11 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/44679351499.shtml)
-- 2026-06-29 20:19 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/623387.shtml)
+- 2026-06-29 20:06 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/0335257176.shtml)
+- 2026-06-29 20:00 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/87830870596.shtml)
+- 2026-06-29 20:03 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/683093.shtml)
+- 2026-06-29 20:00 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/53625193218.shtml)
+- 2026-06-29 20:20 - [半导体和股市为何没让韩国人起飞](http://www.blog.kurohicncr.top/Article/details/246068806481.shtml)
+- 2026-06-29 20:21 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/22099672306.shtml)
+- 2026-06-29 20:29 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/10732712.shtml)
+- 2026-06-29 20:12 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/64260539.shtml)
+- 2026-06-29 20:05 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/5952878145.shtml)
+- 2026-06-29 20:04 - [大学专业未来如何洗牌](https://www.blog.minike.top/Article/details/994038714.shtml)
+- 2026-06-29 20:04 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/15022269278.shtml)
+- 2026-06-29 20:16 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/84930.shtml)
+- 2026-06-29 20:05 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/829101220.shtml)
+- 2026-06-29 20:09 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/67432830947.shtml)
+- 2026-06-29 20:02 - [东方风云榜](http://www.blog.minike.top/Article/details/5488456412.shtml)

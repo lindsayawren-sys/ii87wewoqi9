@@ -1,59 +1,56 @@
-# 广西桂林至越南河内国际航线首航
+# 亚马逊将收购全球星公司，斥资约116亿美元壮大低轨卫星业务Leo
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-【东盟专线】广西桂林至越南河内国际航线首航 中新社桂林4月7日电 (欧惠兰 莫伟雯 杨飏)4月7日17时13分，由北部湾航空执飞的GX8918国际航班抵达桂林两江国际机场，标志着越南河内—桂林国际航线首航成功。 据了解，该航线为济南—桂林—河内，由北部湾航空执飞，航班号为GX8917/8，使用A320机型飞行，计划每周飞行两班，班期为周二和周四。这是桂林机场首次通航越南河内。
+核心要点 亚马逊周二宣布，将以每股 90 美元的价格收购全球星公司，交易总价值约 115.7 亿美元。 此项交易将为亚马逊尚处于起步阶段的 Leo 卫星互联网业务提供有力支持，助力其与埃隆・马斯克旗下的 SpaceX 展开竞争。 全球星股价在早盘交易中涨10.3%，亚马逊股价上涨约 1%。 根据协议，亚马逊将收购全球星现有的卫星运营体系、基础设施及相关资产，其中包括部分获得全球
 
 ## 正文
 
-【东盟专线】广西桂林至越南河内国际航线首航 中新社桂林4月7日电 (欧惠兰 莫伟雯 杨飏)4月7日17时13分，由北部湾航空执飞的GX8918国际航班抵达桂林两江国际机场，标志着越南河内—桂林国际航线首航成功。
+核心要点 亚马逊周二宣布，将以每股 90 美元的价格收购全球星公司，交易总价值约 115.7 亿美元。
 
-据了解，该航线为济南—桂林—河内，由北部湾航空执飞，航班号为GX8917/8，使用A320机型飞行，计划每周飞行两班，班期为周二和周四。
+此项交易将为亚马逊尚处于起步阶段的 Leo 卫星互联网业务提供有力支持，助力其与埃隆・马斯克旗下的 SpaceX 展开竞争。
 
-这是桂林机场首次通航越南河内。
+全球星股价在早盘交易中涨10.3%，亚马逊股价上涨约 1%。
 
-当天，该航班落地桂林机场后，桂林市文旅部门、桂林机场组织了首航仪式。
+根据协议，亚马逊将收购全球星现有的卫星运营体系、基础设施及相关资产，其中包括部分获得全球授权的频谱牌照。
 
-桂林两江国际机场负责人介绍，4月9日，桂林机场将开通桂林至越南最大城市胡志明市的定期航班。
+全球星的新建卫星与现有卫星星座将与亚马逊的网络协同运行。
 
-随着2条至越南国际航线的开通，桂林出境航点将达到6个。
+亚马逊表示，此次收购将使其能够搭建自研的直连设备卫星系统，预计于 2028 年开始部署。
 
-(完)
+亚马逊设备与服务高级副总裁帕诺斯・帕奈在声明中表示：“将全球星成熟的专业能力与坚实基础，结合亚马逊以客户为中心的理念和创新实力，用户将能在更多地区享受到更快速、更稳定的服务，始终与重要的人和事保持连接。
+
+” 两家公司称，全球星股东可选择以每股换取 90 美元现金，或 0.3210 股亚马逊普通股。
 
 ## 相关推荐
 
-- 2026-06-29 20:00 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 20:00 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 20:06 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 20:18 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 20:07 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 20:13 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 20:10 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 20:13 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 19:54 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 20:04 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 20:00 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 20:13 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 20:11 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 20:05 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 20:12 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 20:04 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 20:13 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 20:18 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 20:13 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 20:19 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 20:05 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 20:07 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 20:11 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 20:25 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 20:17 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/617225579.shtml)
-- 2026-06-29 20:00 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/9810002707.shtml)
-- 2026-06-29 20:08 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/24048126.shtml)
-- 2026-06-29 19:55 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/9549089882.shtml)
-- 2026-06-29 20:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/89799598.shtml)
-- 2026-06-29 20:11 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/163458714863.shtml)
-- 2026-06-29 20:21 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/05848986325.shtml)
-- 2026-06-29 20:19 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/82569863.shtml)
-- 2026-06-29 19:54 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/545396077483.shtml)
-- 2026-06-29 20:13 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/91081.shtml)
-- 2026-06-29 20:22 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/76833.shtml)
-- 2026-06-29 19:58 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/266615297450.shtml)
-- 2026-06-29 20:14 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/26249635538.shtml)
-- 2026-06-29 20:06 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/14052391.shtml)
-- 2026-06-29 20:07 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/4141096.shtml)
+- 2026-06-29 20:19 - [急先锋](https://www.blog.kurohicncr.top/Article/details/9011769319.shtml)
+- 2026-06-29 20:29 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/15764.shtml)
+- 2026-06-29 20:13 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/8866395.shtml)
+- 2026-06-29 20:00 - [急先锋](https://www.share.kurohicncr.top/Article/details/859069.shtml)
+- 2026-06-29 20:02 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/192936.shtml)
+- 2026-06-29 20:27 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/28254669141.shtml)
+- 2026-06-29 20:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/2029007.shtml)
+- 2026-06-29 20:18 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/1491517035.shtml)
+- 2026-06-29 20:03 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/144642.shtml)
+- 2026-06-29 20:21 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/92925329399.shtml)
+- 2026-06-29 20:22 - [穆祉丞东方风云榜红毯](https://www.blog.minike.top/Article/details/8363122.shtml)
+- 2026-06-29 20:13 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/54364.shtml)
+- 2026-06-29 20:03 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/821080640305.shtml)
+- 2026-06-29 20:29 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/6639469.shtml)
+- 2026-06-29 20:28 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/518585158246.shtml)

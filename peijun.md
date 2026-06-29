@@ -1,61 +1,61 @@
-# Axios：美国和伊朗的谈判在过去24小时取得进展
+# 让老人颐养天年 “一站式”暖心服务阵地让民生温度在烟火气中接力传递
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-Axios援引一位美国官员、一位以色列官员以及另外两名了解谈判情况的知情人士报道称，美国和伊朗的谈判在过去24个小时取得进展，但在美国总统唐纳德·特朗普设定的美东时间晚8点最后期限前达成停火协议的希望似乎仍然渺茫。 据报道，一位美国官员称，白宫方面的判断已从“我们能否达成？”转变为“我们能否在今晚8点前达成？” 报道引述消息人士称，当前面临的主要挑战在于：一方面要满足伊朗关于美
+央视网消息：“民以食为天”。对农村老年人而言，一顿热乎、可口、安全的饭菜是晚年幸福感与安全感的重要支撑。随着人口老龄化加快，农村老龄化程度远高于城市，空巢、独居、失能老人逐年增多，“做饭难、吃饭难、吃得差”成为农村养老的突出痛点。破解这一民生难题，让农村老年人“食有所依、食有所安、食有所乐”是推进乡村振兴、完善农村养老服务体系的重要课题。老人“以菜换餐” 共享食堂吃饭无忧 一大
 
 ## 正文
 
-Axios援引一位美国官员、一位以色列官员以及另外两名了解谈判情况的知情人士报道称，美国和伊朗的谈判在过去24个小时取得进展，但在美国总统唐纳德·特朗普设定的美东时间晚8点最后期限前达成停火协议的希望似乎仍然渺茫。
+央视网消息：“民以食为天”。
 
-据报道，一位美国官员称，白宫方面的判断已从“我们能否达成？
+对农村老年人而言，一顿热乎、可口、安全的饭菜是晚年幸福感与安全感的重要支撑。
 
-”转变为“我们能否在今晚8点前达成？
+随着人口老龄化加快，农村老龄化程度远高于城市，空巢、独居、失能老人逐年增多，“做饭难、吃饭难、吃得差”成为农村养老的突出痛点。
 
-” 报道引述消息人士称，当前面临的主要挑战在于：一方面要满足伊朗关于美国和以色列不会在停火后重启战争的强有力保证的要求；另一方面，由于安全局势紧张，伊朗领导层的回应速度较慢。
+破解这一民生难题，让农村老年人“食有所依、食有所安、食有所乐”是推进乡村振兴、完善农村养老服务体系的重要课题。
 
-Axios报道称，伊朗周一通过调解方向美国提交了一份方案，报道引述一位美国官员和另一位知情人士称，虽然该方案与美国的立场不符，但白宫实际上认为这在一定程度上令人鼓舞；调解人据悉随后与伊朗方面共同修改并重新起草该方案。
+老人“以菜换餐” 共享食堂吃饭无忧 一大早，浙江省衢州江山市石门镇溪底村的几位村民，提着刚从地里采摘的新鲜蔬菜来到共享食堂，准备用菜换“饭钱”。
 
-报道称，主要讨论的选项是伊朗和美国双方采取一系列建立信任的措施，重点在于重新开放霍尔木兹海峡，以此换取结束战争的保证。
+鸡蛋、油麦菜、苋菜，这些村民自家产的农产品，共享食堂会按不低于市场价折现，充值进他们的就餐卡中。
 
-报道引述另一位消息人士称，还围绕由美国副总统万斯牵头的美国代表团与伊朗代表团进行面对面会晤的可能性进行了新的讨论。
+今年71岁的姜春亮在共享食堂就餐，每顿需4.5元。
 
-消息人士对Axios称，谈判预计将在未来数小时继续，直至特朗普的期限到期。
+通过“以菜换餐”，他只需将自家地里的蔬菜送到食堂就能抵扣饭钱。
 
 ## 相关推荐
 
-- 2026-06-29 20:22 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 19:55 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 20:14 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 20:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 20:21 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 20:05 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 20:05 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 20:07 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 20:04 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 20:16 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 20:05 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 20:22 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 20:01 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 20:00 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 20:16 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 20:14 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 20:02 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 20:04 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 20:04 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 20:29 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 20:08 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 20:22 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 20:23 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 20:07 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 20:04 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 20:19 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 20:05 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 20:28 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 20:07 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 20:29 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:09 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/8078099.shtml)
-- 2026-06-29 20:11 - [CORTIS 小牌大耍](http://www.share.minike.top/Article/details/137428.shtml)
-- 2026-06-29 20:19 - [郑钦文谈再战西尼亚科娃](http://www.blog.minike.top/Article/details/198005117.shtml)
-- 2026-06-29 20:03 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/3838241154.shtml)
-- 2026-06-29 20:01 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/192135.shtml)
-- 2026-06-29 19:57 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/4011505922.shtml)
-- 2026-06-29 19:54 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/76957288382.shtml)
-- 2026-06-29 20:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/69290254934.shtml)
-- 2026-06-29 20:06 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/47273.shtml)
-- 2026-06-29 20:05 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/562037257692.shtml)
-- 2026-06-29 19:55 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/148654786822.shtml)
-- 2026-06-29 20:02 - [TOP Prada](http://www.share.minike.top/Article/details/212082477472.shtml)
-- 2026-06-29 20:03 - [青春环游记第三季](https://www.share.minike.top/Article/details/896399086390.shtml)
-- 2026-06-29 20:03 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/2523956971.shtml)
-- 2026-06-29 20:19 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/27444702.shtml)
+- 2026-06-29 20:25 - [周生如故](http://www.blog.minike.top/Article/details/81832305417.shtml)
+- 2026-06-29 20:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/96658696.shtml)
+- 2026-06-29 20:11 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/6277464854.shtml)
+- 2026-06-29 20:14 - [高质量发展看新疆](https://www.blog.minike.top/Article/details/213876152530.shtml)
+- 2026-06-29 20:01 - [温网](https://www.share.minike.top/Article/details/456370.shtml)
+- 2026-06-29 20:16 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/05257879555.shtml)
+- 2026-06-29 20:16 - [天道](https://www.share.minike.top/Article/details/6400700.shtml)
+- 2026-06-29 20:22 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/85239739387.shtml)
+- 2026-06-29 20:08 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/3125005.shtml)
+- 2026-06-29 20:07 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/0362676.shtml)
+- 2026-06-29 20:06 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/9880789.shtml)
+- 2026-06-29 20:03 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/261098.shtml)
+- 2026-06-29 20:26 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/63504.shtml)
+- 2026-06-29 20:17 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/6486555.shtml)
+- 2026-06-29 20:03 - [金鹰奖第二阶段投票明日开启](https://www.share.minike.top/Article/details/93198.shtml)

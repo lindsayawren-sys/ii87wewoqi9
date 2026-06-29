@@ -1,51 +1,61 @@
-# 两高：从严惩治编造、故意传播涉民航飞行安全虚假恐怖信息犯罪
+# 韩国3月ICT出口额达435亿美元，同比增长逾一倍
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-中新网4月8日电 (记者 高萌)4月8日，最高人民法院、最高人民检察院发布《关于办理危害民航飞行安全刑事案件适用法律若干问题的解释》。《解释》明确，突出对编造、故意传播涉民航飞行安全虚假恐怖信息犯罪的从严惩治。部分行为人出于报复社会、勒索钱财、发泄私愤、无聊好奇等动机和目的，编造、故意传播诸如“飞机上有炸弹”等涉民航飞行安全虚假恐怖信息，严重干扰民航飞行安全和秩序，甚至造成一定
+韩国政府周二公布的数据显示，随着全球人工智能（AI）热潮推动半导体需求强劲增长，韩国3月份信息通信技术（ICT）产品出口额较上年同期增长超过一倍。 根据韩国科技信息通信部的数据，上月韩国ICT产品出口额达到435.1亿美元，高于去年同期的205.2亿美元，创历史同月最高。 进口额同比增长32.2%，达到161.5亿美元，贸易顺差达273.6亿美元。 韩国科技信息通信部在一份声明
 
 ## 正文
 
-中新网4月8日电 (记者 高萌)4月8日，最高人民法院、最高人民检察院发布《关于办理危害民航飞行安全刑事案件适用法律若干问题的解释》。
+韩国政府周二公布的数据显示，随着全球人工智能（AI）热潮推动半导体需求强劲增长，韩国3月份信息通信技术（ICT）产品出口额较上年同期增长超过一倍。
 
-《解释》明确，突出对编造、故意传播涉民航飞行安全虚假恐怖信息犯罪的从严惩治。
+根据韩国科技信息通信部的数据，上月韩国ICT产品出口额达到435.1亿美元，高于去年同期的205.2亿美元，创历史同月最高。
 
-部分行为人出于报复社会、勒索钱财、发泄私愤、无聊好奇等动机和目的，编造、故意传播诸如“飞机上有炸弹”等涉民航飞行安全虚假恐怖信息，严重干扰民航飞行安全和秩序，甚至造成一定范围内的社会恐慌。
+进口额同比增长32.2%，达到161.5亿美元，贸易顺差达273.6亿美元。
 
-行为人的行为影响民航航班、民用机场正常运行，或者致使公安、武警、消防救援、卫生检疫等部门采取应对措施的，应作犯罪处理；造成严重社会影响或者重大经济损失的，属于造成严重后果，处五年以上有期徒刑。
+韩国科技信息通信部在一份声明中表示：“上个月，ICT出口占韩国出口总额861.3亿美元的50.5%，再次巩固了该行业作为韩国经济核心增长引擎的地位。
+
+” 按产品划分，半导体出口额同比增长151%，从去年同期的130.6亿美元增至328.4亿美元，主要得益于全球人工智能数据中心强劲的需求。
+
+智能手机出口额在3月份同比增长57%，达到15.4亿美元，主要受新推出的高端机型销售强劲的推动。
+
+计算机及相关设备的出口额几乎增长了两倍，从去年同期的13.1亿美元增至35.9亿美元，这反映出人工智能数据中心对固态硬盘（SSD）的需求不断增长。
+
+相比之下，显示面板的出口额下降了9.3%，至14.9亿美元，主要原因是IT行业对有机发光二极管（OLED）产品的需求疲软。
 
 ## 相关推荐
 
-- 2026-06-29 19:58 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 20:02 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 20:07 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 19:55 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 20:09 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 20:06 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 19:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 20:15 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 20:02 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 20:12 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 20:11 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 19:59 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 20:06 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 20:21 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 20:07 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 20:10 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 20:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 20:12 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 20:04 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 20:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 20:19 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 20:09 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 20:02 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 20:05 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 20:01 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 20:14 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 20:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 20:09 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:22 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/11168381258.shtml)
-- 2026-06-29 20:08 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/3162601.shtml)
-- 2026-06-29 20:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/73292.shtml)
-- 2026-06-29 20:19 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/251368270.shtml)
-- 2026-06-29 20:01 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/937673.shtml)
-- 2026-06-29 20:19 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/10364202.shtml)
-- 2026-06-29 20:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/07714482.shtml)
-- 2026-06-29 19:58 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/76906340301.shtml)
-- 2026-06-29 19:57 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/775474.shtml)
-- 2026-06-29 20:16 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/54162.shtml)
-- 2026-06-29 20:19 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/05542.shtml)
-- 2026-06-29 20:13 - [世界杯1/16决赛对阵出炉](http://www.blog.minike.top/Article/details/8905687.shtml)
-- 2026-06-29 20:20 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/297916514.shtml)
-- 2026-06-29 20:09 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/064542025509.shtml)
-- 2026-06-29 20:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/98082.shtml)
+- 2026-06-29 20:07 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/899750406640.shtml)
+- 2026-06-29 20:04 - [周生如故](https://www.share.kurohicncr.top/Article/details/83531016.shtml)
+- 2026-06-29 20:03 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.minike.top/Article/details/3922407.shtml)
+- 2026-06-29 20:00 - [华工科技龙虎榜数据](https://www.blog.minike.top/Article/details/32226298368.shtml)
+- 2026-06-29 20:15 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/39157307.shtml)
+- 2026-06-29 20:06 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/01876.shtml)
+- 2026-06-29 20:23 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/0827540.shtml)
+- 2026-06-29 20:22 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/566379938.shtml)
+- 2026-06-29 20:15 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/601883.shtml)
+- 2026-06-29 20:26 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/879507039.shtml)
+- 2026-06-29 20:25 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/226171.shtml)
+- 2026-06-29 20:09 - [时光音乐会](http://www.blog.minike.top/Article/details/690238.shtml)
+- 2026-06-29 20:17 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/180322.shtml)
+- 2026-06-29 20:13 - [河南高院审委会原委员曲海滨被查](http://www.blog.minike.top/Article/details/39837.shtml)
+- 2026-06-29 20:12 - [叠纸](https://www.blog.kurohicncr.top/Article/details/58694816.shtml)

@@ -1,48 +1,51 @@
-# 特朗普说伊朗铀浓缩问题将“得到完美处理”
+# 美联储古尔斯比：美国消费者的韧性是美国经济的关键
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普7日在接受法新社采访时说，伊朗铀浓缩问题将“得到完美处理”。他还声称，美伊两周停火对美国而言是“彻底且完全的胜利”。据伊朗媒体报道，伊方已向美方提交10项停战条款，其中包括接受伊朗铀浓缩活动。 （新华社）责任编辑：朱赫楠
+芝加哥联邦储备银行总裁古尔斯比周一表示，原油期货市场正在消化这样的预期：与伊朗战争相关的油价飙升将是短暂的；只要这种情况持续，对美国经济的影响可能有限。 “只要消费者需求保持强劲，我认为经济增长也将保持强劲，“古尔斯比在接受采访时表示。”倘若这种情况持续——如果汽油价格在这样高的水平或更高水平维持更长时间——那么我们就必须重新评估这对消费者支出意味着什么；但如果情况如市场预期那
 
 ## 正文
 
-美国总统特朗普7日在接受法新社采访时说，伊朗铀浓缩问题将“得到完美处理”。
+芝加哥联邦储备银行总裁古尔斯比周一表示，原油期货市场正在消化这样的预期：与伊朗战争相关的油价飙升将是短暂的；只要这种情况持续，对美国经济的影响可能有限。
 
-他还声称，美伊两周停火对美国而言是“彻底且完全的胜利”。
+“只要消费者需求保持强劲，我认为经济增长也将保持强劲，“古尔斯比在接受采访时表示。
 
-据伊朗媒体报道，伊方已向美方提交10项停战条款，其中包括接受伊朗铀浓缩活动。
+”倘若这种情况持续——如果汽油价格在这样高的水平或更高水平维持更长时间——那么我们就必须重新评估这对消费者支出意味着什么；但如果情况如市场预期那样发展，那么这将只是暂时的。
 
-（新华社）责任编辑：朱赫楠
+”责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 20:00 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 20:19 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 20:05 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 19:55 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 20:22 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 19:58 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 19:54 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 20:13 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 20:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 20:21 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 20:03 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 20:12 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 20:09 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 20:12 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 20:21 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 20:26 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 20:09 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 20:00 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 20:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 20:21 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 20:21 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 20:27 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 20:08 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:03 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/404259982578.shtml)
-- 2026-06-29 20:01 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/860290598664.shtml)
-- 2026-06-29 20:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/67978.shtml)
-- 2026-06-29 20:05 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/9212828442.shtml)
-- 2026-06-29 20:19 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/05696169.shtml)
-- 2026-06-29 20:02 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/49229.shtml)
-- 2026-06-29 20:02 - [世界杯在中国观看最多的比赛](https://www.blog.kurohicncr.top/Article/details/37808625126.shtml)
-- 2026-06-29 20:07 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/2867217.shtml)
-- 2026-06-29 20:13 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/35043507.shtml)
-- 2026-06-29 20:05 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.kurohicncr.top/Article/details/866969972657.shtml)
-- 2026-06-29 20:14 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/560428258.shtml)
-- 2026-06-29 20:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/61932950.shtml)
-- 2026-06-29 20:05 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.minike.top/Article/details/60308394700.shtml)
-- 2026-06-29 20:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/2087372.shtml)
-- 2026-06-29 20:09 - [2026全国田径冠军赛江苏队4金收官](https://www.blog.kurohicncr.top/Article/details/09653384760.shtml)
+- 2026-06-29 20:29 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/54498.shtml)
+- 2026-06-29 20:20 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/0890443990.shtml)
+- 2026-06-29 20:25 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/03513.shtml)
+- 2026-06-29 20:22 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/4401426.shtml)
+- 2026-06-29 20:15 - [林逸向方筱然求婚了](http://www.blog.minike.top/Article/details/574403.shtml)
+- 2026-06-29 20:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/45124512.shtml)
+- 2026-06-29 20:03 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.kurohicncr.top/Article/details/29236461.shtml)
+- 2026-06-29 20:11 - [佛得角队长门德斯被控强奸](https://www.blog.minike.top/Article/details/51474154703.shtml)
+- 2026-06-29 20:09 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/951206368310.shtml)
+- 2026-06-29 20:12 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/87598797.shtml)
+- 2026-06-29 20:24 - [教育部高校学生资助热线7月1日开通](https://www.blog.minike.top/Article/details/61047875.shtml)
+- 2026-06-29 20:29 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/06297161.shtml)
+- 2026-06-29 20:10 - [东方风云榜](http://www.blog.minike.top/Article/details/512373360.shtml)
+- 2026-06-29 20:05 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/622400305.shtml)
+- 2026-06-29 20:05 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/20838.shtml)

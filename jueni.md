@@ -1,60 +1,58 @@
-# 特朗普“最后通牒”倒计时，海峡困局中全球能源走向“沸点”
+# 4月银行体系资金相对充裕 央行缩量续作6个月期买断式逆回购 市场利率处于低位
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-随着最后期限临近，市场正被迫重估能源危机对全球经济的侵蚀。 美国为伊朗设定的最后期限已进入“读秒”阶段。 当地时间4月6日，美国总统特朗普重申，他已将美东时间周二（4月7日）20时（即北京时间4月8日8时）设定为伊朗与华盛顿谈判的最后期限。他还要求将“重新开放霍尔木兹海峡”纳入停火协议。 他在发言中威胁称，一旦超过最后期限，在几小时内，伊朗将面临针对桥梁和发电厂等民用基础设施的
+财联社4月14日讯（记者 曹韵仪）今日，央行公告称为保持银行体系流动性充裕，2026年4月15日，中国人民银行将以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为6个月。 这是央行连续两个月缩量续作6个月期买断式逆回购，缩量规模与上月相同。同时，央行连续多个交易日在公开市场进行“地量”操作。业内人士表示，近期DR001已运行在1.2%—1.25%之间
 
 ## 正文
 
-随着最后期限临近，市场正被迫重估能源危机对全球经济的侵蚀。
+财联社4月14日讯（记者 曹韵仪）今日，央行公告称为保持银行体系流动性充裕，2026年4月15日，中国人民银行将以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为6个月。
 
-美国为伊朗设定的最后期限已进入“读秒”阶段。
+这是央行连续两个月缩量续作6个月期买断式逆回购，缩量规模与上月相同。
 
-当地时间4月6日，美国总统特朗普重申，他已将美东时间周二（4月7日）20时（即北京时间4月8日8时）设定为伊朗与华盛顿谈判的最后期限。
+同时，央行连续多个交易日在公开市场进行“地量”操作。
 
-他还要求将“重新开放霍尔木兹海峡”纳入停火协议。
+业内人士表示，近期DR001已运行在1.2%—1.25%之间，远低于政策利率，反映出市场流动性充裕。
 
-他在发言中威胁称，一旦超过最后期限，在几小时内，伊朗将面临针对桥梁和发电厂等民用基础设施的新一轮袭击，“伊朗的每一座桥梁都将被摧毁”，“伊朗的每一座发电厂都将停摆、燃烧、爆炸，且永远无法再次使用”。
+背后原因在于银行体系资金相对充裕，4月为季节性信贷增量“小月”，且季初阶段部分短贷可能到期，即存贷差可能阶段性扩大。
 
-据新华社援引美媒报道，调解方对伊朗在特朗普设定的最后期限前“屈服”并重新开放霍尔木兹海峡感到悲观，美伊达成停火协议“希望渐灭”。
+央行连日“地量”操作 买断式逆回购再次缩量 今日央行公告，4月15日将以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为6个月（183天），到期日为2026年10月15日（遇节假日顺延）。
 
-全球能源市场的神经仍然紧张。
+这是央行连续两个月缩量续作6个月期买断式逆回购，缩量规模与上月相同。
 
-当前，全球基准布伦特原油价格达到每桶108.31美元，过去一个月间上涨了15%；美国交易的WTI原油价格达到111.89美元/桶。
+由于此前4月3个月期买断式逆回购已缩量3000亿，意味着4月两个期限品种的买断式逆回购合计缩量4000亿，缩量规模较上月扩大1000亿。
 
 ## 相关推荐
 
-- 2026-06-29 20:14 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 20:13 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 19:55 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 20:04 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 20:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 20:00 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 20:06 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 20:22 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 19:56 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 20:10 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 20:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 20:14 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 20:22 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 20:04 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 20:28 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 20:01 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 20:12 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 20:13 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 20:24 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 20:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 20:07 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 20:08 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 20:10 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 20:20 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 20:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 20:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:54 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/016716893.shtml)
-- 2026-06-29 20:16 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/04397320304.shtml)
-- 2026-06-29 19:55 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/01070.shtml)
-- 2026-06-29 20:17 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/90387228.shtml)
-- 2026-06-29 20:08 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/96997.shtml)
-- 2026-06-29 20:01 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/484948311499.shtml)
-- 2026-06-29 20:11 - [大学专业未来如何洗牌](http://www.blog.minike.top/Article/details/84726333.shtml)
-- 2026-06-29 20:08 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/135024250.shtml)
-- 2026-06-29 20:01 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/0271918.shtml)
-- 2026-06-29 20:07 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/2719841.shtml)
-- 2026-06-29 20:20 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/85446429620.shtml)
-- 2026-06-29 19:59 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/72153.shtml)
-- 2026-06-29 19:57 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/997766020660.shtml)
-- 2026-06-29 20:00 - [美人鱼](http://www.blog.minike.top/Article/details/47854.shtml)
-- 2026-06-29 20:16 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/55978.shtml)
+- 2026-06-29 20:17 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/12753.shtml)
+- 2026-06-29 20:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/79847360.shtml)
+- 2026-06-29 20:08 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/02767320560.shtml)
+- 2026-06-29 20:09 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/67863.shtml)
+- 2026-06-29 20:20 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/6138580.shtml)
+- 2026-06-29 20:05 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/9926790486.shtml)
+- 2026-06-29 20:10 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/60214.shtml)
+- 2026-06-29 20:27 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/8446051.shtml)
+- 2026-06-29 20:30 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/332683.shtml)
+- 2026-06-29 20:23 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/176556699.shtml)
+- 2026-06-29 20:26 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/84418.shtml)
+- 2026-06-29 20:18 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/968200.shtml)
+- 2026-06-29 20:25 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/42402.shtml)
+- 2026-06-29 20:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/38228826.shtml)
+- 2026-06-29 20:15 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/314924.shtml)

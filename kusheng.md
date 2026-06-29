@@ -1,57 +1,57 @@
-# “家居零售业第一股”爆雷！巨亏240亿大塌方，卖家电售汽车搞餐饮求生
+# 灭火毯并非逃生装备！消防员教你如何安全使用
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-仍未有明显起色的房地产市场对下游行业产生的负面影响，似乎在今年出现了加速的迹象。与之直接相关的家居行业感受或许最为深刻。3月30日，在A股和H股两地上市的知名家居装饰及家具商场巨头美凯龙（红星美凯龙）（601828，SH；01528，HK）公布的2025年年报爆出大雷：归母净利润巨亏240亿元，不仅是连续第三年亏损，亏损金额更是较2024年暴增近六倍！不过，也许是此前早有预期，
+不少人家中都备有灭火毯，虽然平时被束之高阁，但万一发生油锅起火等险情则能马上派上用场，扑灭初期火灾。作为一种特殊材质的应急用品，我们应该怎么存放和使用它？很多人并不了解，近日就有人因不当使用灭火毯被扎伤。灭火毯含玻璃纤维 多人被扎伤 前不久，这段网友发布在社交平台的视频引起广泛关注。视频中的男孩是网友的儿子，手上脸上贴满了贴纸，原来他被玻璃纤维做的灭火毯扎伤，该网友在想办法帮他
 
 ## 正文
 
-仍未有明显起色的房地产市场对下游行业产生的负面影响，似乎在今年出现了加速的迹象。
+不少人家中都备有灭火毯，虽然平时被束之高阁，但万一发生油锅起火等险情则能马上派上用场，扑灭初期火灾。
 
-与之直接相关的家居行业感受或许最为深刻。
+作为一种特殊材质的应急用品，我们应该怎么存放和使用它？
 
-3月30日，在A股和H股两地上市的知名家居装饰及家具商场巨头美凯龙（红星美凯龙）（601828，SH；01528，HK）公布的2025年年报爆出大雷：归母净利润巨亏240亿元，不仅是连续第三年亏损，亏损金额更是较2024年暴增近六倍！
+很多人并不了解，近日就有人因不当使用灭火毯被扎伤。
 
-不过，也许是此前早有预期，股价已提前下跌。
+灭火毯含玻璃纤维 多人被扎伤 前不久，这段网友发布在社交平台的视频引起广泛关注。
 
-红星美凯龙A股及H股3月31日的股价均较为平稳，A股微涨0.41%，年内跌幅在10%左右；H股收跌1.56%，年内甚至还上涨超3%。
+视频中的男孩是网友的儿子，手上脸上贴满了贴纸，原来他被玻璃纤维做的灭火毯扎伤，该网友在想办法帮他去除。
 
-2015年，红星美凯龙以“中国家居零售业第一股”的身份在港交所主板上市，2018年在上交所主板上市，成为家居业首只A+H股。
+通过网友发布在社交平台的视频中可以看出，男孩先将灭火毯拿到床上平铺开，随后又将灭火毯拖到了地上，反复摆弄。
 
-业绩大“塌方”红星美凯龙2025年年报显示，实现收入人民币65.819亿元，相比2024年的人民币78.213亿元下降15.8%。
+可以看到，此时男孩就已经开始用手挠胳膊并摸了脸，之后男孩再次将灭火毯拿到了床上。
 
-毛利的同比下降幅度比较接近，为15.2%，从2024年的人民币49.87亿元下降到2025年的人民币42.297亿元。
+由于瘙痒，男孩多次抓挠胳膊，之后该网友发现灭火毯被放在床上，立刻将灭火毯收起。
 
 ## 相关推荐
 
-- 2026-06-29 20:19 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 20:07 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 20:00 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 20:23 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 20:09 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 20:01 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 19:58 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 19:55 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 20:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 20:21 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 20:05 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 20:01 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 20:07 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 20:21 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 20:07 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 20:02 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 20:26 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 20:09 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 20:15 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 20:21 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 20:06 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 20:05 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:55 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/514444796768.shtml)
-- 2026-06-29 20:14 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/04378488.shtml)
-- 2026-06-29 20:19 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/051590.shtml)
-- 2026-06-29 20:01 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/09014837.shtml)
-- 2026-06-29 20:14 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/011477905168.shtml)
-- 2026-06-29 19:59 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/6235794988.shtml)
-- 2026-06-29 19:57 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/004487846.shtml)
-- 2026-06-29 20:22 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/98093599717.shtml)
-- 2026-06-29 20:11 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/82820.shtml)
-- 2026-06-29 20:04 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/8398315.shtml)
-- 2026-06-29 20:05 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/260806092218.shtml)
-- 2026-06-29 20:10 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/38031684.shtml)
-- 2026-06-29 20:04 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/50025959802.shtml)
-- 2026-06-29 20:09 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/2585178.shtml)
-- 2026-06-29 20:23 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/95389.shtml)
+- 2026-06-29 20:16 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/1173504.shtml)
+- 2026-06-29 20:18 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/83872377491.shtml)
+- 2026-06-29 20:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/4648787.shtml)
+- 2026-06-29 20:17 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/1469560.shtml)
+- 2026-06-29 20:25 - [急先锋](http://www.blog.kurohicncr.top/Article/details/7000256.shtml)
+- 2026-06-29 20:22 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/956480045.shtml)
+- 2026-06-29 20:20 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/55579254685.shtml)
+- 2026-06-29 20:21 - [起风了](http://www.blog.kurohicncr.top/Article/details/72259998795.shtml)
+- 2026-06-29 20:03 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.kurohicncr.top/Article/details/900690453719.shtml)
+- 2026-06-29 20:19 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/4062090583.shtml)
+- 2026-06-29 20:23 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/08880.shtml)
+- 2026-06-29 20:09 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/277372128.shtml)
+- 2026-06-29 20:22 - [张杰我九岁就跟你了](https://www.blog.minike.top/Article/details/0650046.shtml)
+- 2026-06-29 20:01 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/461460023905.shtml)
+- 2026-06-29 20:19 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/707698601.shtml)

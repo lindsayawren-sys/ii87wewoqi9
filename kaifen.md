@@ -1,47 +1,53 @@
-# 伊朗媒体：特朗普作出让步 同意暂时停火两周
+# 直击香港创科展 | 机器人“神仙打架”！表演派vs实干派，谁才是整活之王？
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-新华社德黑兰4月8日电 伊朗塔斯尼姆通讯社8日报道说，美国总统特朗普作出让步，他在社交媒体上发文称，已收到伊朗提出的10点建议，他同意暂停对伊朗的轰炸和攻击，为期两周。（完）责任编辑：韦子蓉
+专题：2026香港国际科创展 香港国际创科展4月13日至4月16日在香港会议展览中心举行。在创科展上，天上飞的、地上跑的，人形的、非人形的，各式各样的机器人随处可见。表演派VS实干派，谁更能整活儿？新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。 责任编辑：李思阳
 
 ## 正文
 
-新华社德黑兰4月8日电 伊朗塔斯尼姆通讯社8日报道说，美国总统特朗普作出让步，他在社交媒体上发文称，已收到伊朗提出的10点建议，他同意暂停对伊朗的轰炸和攻击，为期两周。
+专题：2026香港国际科创展 香港国际创科展4月13日至4月16日在香港会议展览中心举行。
 
-（完）责任编辑：韦子蓉
+在创科展上，天上飞的、地上跑的，人形的、非人形的，各式各样的机器人随处可见。
+
+表演派VS实干派，谁更能整活儿？
+
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+
+责任编辑：李思阳
 
 ## 相关推荐
 
-- 2026-06-29 19:55 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 19:58 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 20:06 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 20:15 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 19:55 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 20:22 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 20:19 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 20:14 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 20:15 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 20:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 20:20 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 19:58 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 19:55 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 20:20 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 20:10 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 20:22 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 20:10 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 20:22 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 20:24 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 20:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 20:17 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 20:09 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 20:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 20:04 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 20:03 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 20:21 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:13 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/1329447.shtml)
-- 2026-06-29 20:14 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/3249056.shtml)
-- 2026-06-29 19:58 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/98408689.shtml)
-- 2026-06-29 20:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/04408885307.shtml)
-- 2026-06-29 19:55 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/9755380.shtml)
-- 2026-06-29 20:21 - [厨房装空调还是装冷烟机](https://www.share.minike.top/Article/details/2622935541.shtml)
-- 2026-06-29 20:22 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/390211924.shtml)
-- 2026-06-29 19:56 - [斗破苍穹](http://www.blog.minike.top/Article/details/618903591.shtml)
-- 2026-06-29 19:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/51218903.shtml)
-- 2026-06-29 20:09 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.kurohicncr.top/Article/details/0550456257.shtml)
-- 2026-06-29 20:16 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/41731499.shtml)
-- 2026-06-29 20:21 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/128802847992.shtml)
-- 2026-06-29 20:00 - [天道](https://www.blog.kurohicncr.top/Article/details/4489431037.shtml)
-- 2026-06-29 20:17 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/38583.shtml)
-- 2026-06-29 20:12 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/46807208.shtml)
+- 2026-06-29 20:19 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/124731.shtml)
+- 2026-06-29 20:28 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/638784313443.shtml)
+- 2026-06-29 20:25 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/06730037.shtml)
+- 2026-06-29 20:02 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/046011764.shtml)
+- 2026-06-29 20:17 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/05695.shtml)
+- 2026-06-29 20:26 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/09893349.shtml)
+- 2026-06-29 20:29 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/62303.shtml)
+- 2026-06-29 20:23 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/202228614.shtml)
+- 2026-06-29 20:06 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/10914281284.shtml)
+- 2026-06-29 20:24 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/759634267121.shtml)
+- 2026-06-29 20:25 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/30365.shtml)
+- 2026-06-29 20:15 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/9321652445.shtml)
+- 2026-06-29 20:24 - [天道](https://www.share.kurohicncr.top/Article/details/09763.shtml)
+- 2026-06-29 20:02 - [福建海警位金门附近海域常态执法巡查](http://www.blog.kurohicncr.top/Article/details/0956179729.shtml)
+- 2026-06-29 20:05 - [小众羞耻点是吃麻辣烫](http://www.share.minike.top/Article/details/6929141946.shtml)

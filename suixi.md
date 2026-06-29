@@ -1,60 +1,57 @@
-# 人类最远太空飞行纪录刷新 专家称飞得远不是最终目的
+# （乡村行·看振兴）“一地双收”加码农文旅融合 山西忻州激活“金色密码”
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月7日电 (记者 马帅莎)美国东部时间6日，正在进行的“阿耳忒弥斯2号”任务，打破半个多世纪前“阿波罗13号”任务创造的人类距离地球最远飞行纪录。受访专家表示，飞得远并非“阿耳忒弥斯2号”最终目的，验证载人地月往返技术与安全体系才是其核心任务。美国航空航天局(NASA)数据显示，“阿耳忒弥斯2号”任务飞至距离地球252756英里(约406771公里)的最远距离，较原
+中新网忻州4月15日电 (杨佩佩 陈文强)眼下，山西忻州忻府区已进入春耕备耕的忙碌时节。在忻州古城以南，仅一桥之隔的南关村，近百亩冬油菜田绿意铺展、黄花缀枝。“这是最新培育的强耐寒油菜新品种，也是首次在晋北地区大规模种植并成功越冬。”来自山西农业大学农业基因资源研究中心的胡奋山如是介绍。 2021年，胡奋山便将目光投向了忻定盆地的甜糯玉米耕地利用难题，作为全国甜糯玉米优质产区的
 
 ## 正文
 
-中新社北京4月7日电 (记者 马帅莎)美国东部时间6日，正在进行的“阿耳忒弥斯2号”任务，打破半个多世纪前“阿波罗13号”任务创造的人类距离地球最远飞行纪录。
+中新网忻州4月15日电 (杨佩佩 陈文强)眼下，山西忻州忻府区已进入春耕备耕的忙碌时节。
 
-受访专家表示，飞得远并非“阿耳忒弥斯2号”最终目的，验证载人地月往返技术与安全体系才是其核心任务。
+在忻州古城以南，仅一桥之隔的南关村，近百亩冬油菜田绿意铺展、黄花缀枝。
 
-美国航空航天局(NASA)数据显示，“阿耳忒弥斯2号”任务飞至距离地球252756英里(约406771公里)的最远距离，较原纪录超出约4101英里(约6600公里)。
+“这是最新培育的强耐寒油菜新品种，也是首次在晋北地区大规模种植并成功越冬。
 
-“阿波罗13号”和“阿耳忒弥斯2号”两次任务的共同之处，是均采用自由返回轨道。
+”来自山西农业大学农业基因资源研究中心的胡奋山如是介绍。
 
-航天专家称，地月转移轨道是人类航天器飞向月球的必经之路，自由返回轨道是其中一种特殊类型。
+2021年，胡奋山便将目光投向了忻定盆地的甜糯玉米耕地利用难题，作为全国甜糯玉米优质产区的忻定盆地广泛种植鲜食甜糯玉米，每年8月下旬采摘后由于积温不足和缺少科技成果支撑，导致后期采摘的甜糯玉米田难以利用而休闲过冬，造成光热水资源的巨大浪费。
 
-在这条轨道上，飞船可借助月球引力自动返回地球，无需额外推进。
+“如果能把这段空闲期充分利用起来，既能盘活土地资源，又能提高复种指数和提升土地综合效益，岂不是一举两得。
 
-这给飞船返回地球留出一条“后路”。
+”这个念头，成了胡奋山五年来深耕研究的初心。
 
-即便飞船动力系统出现问题，这条轨道也可以将飞船“甩”回地球，实现飞船“无动力返航”，极大提升任务容错率，可更好守护宇航员安全。
+五年间，胡奋山带领团队不断攻关，结合山西省种质资源库的优势，开展冬油菜籽品种强耐寒性的鉴定和新品种选育，成功选育出能够经受忻定盆地、晋西北高寒区冬季严寒考验的新品种，并研发出配套栽培技术，实现突破。
 
 ## 相关推荐
 
-- 2026-06-29 20:13 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 20:18 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 20:05 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 20:12 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 20:00 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 20:00 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 20:14 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 20:16 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 20:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 20:14 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 19:59 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 20:02 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 20:15 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 20:21 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 20:14 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 20:01 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 20:21 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 20:23 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 20:13 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 20:29 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 20:06 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 20:08 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 20:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 20:23 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 20:09 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:59 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/31143159.shtml)
-- 2026-06-29 20:16 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/22734212603.shtml)
-- 2026-06-29 20:04 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/518943955866.shtml)
-- 2026-06-29 20:02 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/14901398238.shtml)
-- 2026-06-29 19:58 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.share.kurohicncr.top/Article/details/65796.shtml)
-- 2026-06-29 20:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/00619132847.shtml)
-- 2026-06-29 20:23 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/2797901.shtml)
-- 2026-06-29 20:12 - [特朗普两大核心赌注将迎高院裁决](http://www.share.kurohicncr.top/Article/details/340383.shtml)
-- 2026-06-29 19:59 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/223170997512.shtml)
-- 2026-06-29 20:23 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/4551719.shtml)
-- 2026-06-29 20:02 - [世界杯预测史上最不吃压力之物](http://www.share.kurohicncr.top/Article/details/516929591.shtml)
-- 2026-06-29 20:07 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.blog.minike.top/Article/details/030625784.shtml)
-- 2026-06-29 20:02 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/712335561546.shtml)
-- 2026-06-29 20:07 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/99556.shtml)
-- 2026-06-29 20:19 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/361312537682.shtml)
+- 2026-06-29 20:14 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/009222835.shtml)
+- 2026-06-29 20:24 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/2761079234.shtml)
+- 2026-06-29 20:18 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/7332137.shtml)
+- 2026-06-29 20:20 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/90475.shtml)
+- 2026-06-29 20:24 - [一诺变着花样秀新驾照](https://www.share.kurohicncr.top/Article/details/609339.shtml)
+- 2026-06-29 20:19 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/351574.shtml)
+- 2026-06-29 20:18 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/1426311.shtml)
+- 2026-06-29 20:25 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/8122683586.shtml)
+- 2026-06-29 20:17 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/9647225.shtml)
+- 2026-06-29 20:23 - [官媒首曝六代机？大V解读](https://www.blog.kurohicncr.top/Article/details/381099779.shtml)
+- 2026-06-29 20:00 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.kurohicncr.top/Article/details/2754746591.shtml)
+- 2026-06-29 20:12 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/5444599345.shtml)
+- 2026-06-29 20:12 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/0561074.shtml)
+- 2026-06-29 20:06 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/72220035803.shtml)
+- 2026-06-29 20:01 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/80442898408.shtml)

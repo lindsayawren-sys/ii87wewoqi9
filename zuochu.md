@@ -1,59 +1,58 @@
-# 招银国际：下调长城汽车目标价至19港元 维持“买入”评级
+# 纪念“乒乓外交”友谊赛在沪举行 中美亲历者冀两国青年接续友谊
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-招银国际发布研报称，将长城汽车（02333）H股目标价从20港元降至19港元，同时下调A股目标价，二者均维持“买入”评级。 该行维持对长城汽车2026年149万台的总销售预测，但上调魏牌及出口销售预期，预计2026年净利润年增19%至118亿元人民币（下同）。2025年该公司第四季收入同比增16%至692亿元，创历史新高，较该行预期高9%。毛利率按季缩窄1.1个百分点至17.3
+中新网上海4月13日电 (记者 国璇 许婧)4月13日在上海体育大学中国乒乓球学院训练馆，中美青年进行了“乒乓外交”55周年纪念活动上海友谊赛。一旁认真观赛的美方亲历者朱迪·霍夫罗斯特想起了当年15岁的自己在中国打友谊赛的场景，她告诉中新网记者，希望有更多青年成为两国的友谊使者，将“乒乓外交”精神永远传承下去。 上海是中国乒乓球运动的发源地之一，有着深厚的乒乓文化底蕴。1971
 
 ## 正文
 
-招银国际发布研报称，将长城汽车（02333）H股目标价从20港元降至19港元，同时下调A股目标价，二者均维持“买入”评级。
+中新网上海4月13日电 (记者 国璇 许婧)4月13日在上海体育大学中国乒乓球学院训练馆，中美青年进行了“乒乓外交”55周年纪念活动上海友谊赛。
 
-该行维持对长城汽车2026年149万台的总销售预测，但上调魏牌及出口销售预期，预计2026年净利润年增19%至118亿元人民币（下同）。
+一旁认真观赛的美方亲历者朱迪·霍夫罗斯特想起了当年15岁的自己在中国打友谊赛的场景，她告诉中新网记者，希望有更多青年成为两国的友谊使者，将“乒乓外交”精神永远传承下去。
 
-2025年该公司第四季收入同比增16%至692亿元，创历史新高，较该行预期高9%。
+上海是中国乒乓球运动的发源地之一，有着深厚的乒乓文化底蕴。
 
-毛利率按季缩窄1.1个百分点至17.3%，较预期高0.2个百分点。
+1971年4月，美国乒乓球队访华，在访问了北京后到达上海，并与上海乒乓球队进行了友谊比赛。
 
-毛利率的超预期表现被销管研费用的增加所抵销。
+纪念“乒乓外交”55周年之际，中美年轻一代在上海再续“友谊第一、比赛第二”的“乒乓情缘”。
 
-最终，剔除政府补助、增值税返还和俄罗斯报废税返还后的核心净利润为4.07亿元，符合该行预期。
+美国乒乓球协会会员德文·德利昂早早输了比赛，不过这并未影响他的观赛热情。
 
-该公司的归元平台支援一车多动力，零件通用率接近85%。
+“‘小球转动大球’，这听起来是个很不可思议的故事，但体育的确有连接人们的独特力量。
 
-凭借新平台带来的成本优化，2026年魏牌的至少四款全新车型在定价上将或具竞争力。
+”他说，“当你和对方打球的时候，你们两人也在同时享受着乒乓球的乐趣，好像有一条纽带将你们连接成一个社群。
 
 ## 相关推荐
 
-- 2026-06-29 19:56 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 20:10 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 20:04 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 20:08 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 19:56 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 20:16 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 20:03 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 20:00 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 20:01 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 20:21 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 20:16 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 19:54 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 20:23 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 20:05 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 20:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 20:06 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 20:04 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 20:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 20:08 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 20:09 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 20:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 20:25 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 20:05 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 20:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 20:28 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:57 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/667622.shtml)
-- 2026-06-29 19:57 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/937165230.shtml)
-- 2026-06-29 20:04 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/089994589.shtml)
-- 2026-06-29 20:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/65409715821.shtml)
-- 2026-06-29 20:13 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/24635.shtml)
-- 2026-06-29 20:14 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/8022823844.shtml)
-- 2026-06-29 20:22 - [歼-15型舰载机为何被歼-15T替代](https://www.share.kurohicncr.top/Article/details/8062881114.shtml)
-- 2026-06-29 20:21 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/89880710.shtml)
-- 2026-06-29 20:07 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/9286093208.shtml)
-- 2026-06-29 20:15 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/74860.shtml)
-- 2026-06-29 20:07 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/913031558.shtml)
-- 2026-06-29 20:06 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/1542511083.shtml)
-- 2026-06-29 20:00 - [斗破苍穹](https://www.blog.minike.top/Article/details/571871490.shtml)
-- 2026-06-29 20:00 - [爱很美味](http://www.share.minike.top/Article/details/684622.shtml)
-- 2026-06-29 20:22 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/6189075157.shtml)
+- 2026-06-29 20:19 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/249876.shtml)
+- 2026-06-29 20:12 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/45956890010.shtml)
+- 2026-06-29 20:18 - [媒体评恋与深空用“引狼入室”台词](http://www.share.minike.top/Article/details/450389085272.shtml)
+- 2026-06-29 20:20 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/8590068.shtml)
+- 2026-06-29 20:12 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/2853456.shtml)
+- 2026-06-29 20:15 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/756597427167.shtml)
+- 2026-06-29 20:02 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/81219921108.shtml)
+- 2026-06-29 20:00 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/8979729.shtml)
+- 2026-06-29 20:21 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/42358344.shtml)
+- 2026-06-29 20:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/70088540.shtml)
+- 2026-06-29 20:06 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/553919588531.shtml)
+- 2026-06-29 20:08 - [逃狱兄弟](http://www.share.minike.top/Article/details/37290.shtml)
+- 2026-06-29 20:23 - [互助版模拟高考志愿填报](http://www.blog.kurohicncr.top/Article/details/57416425.shtml)
+- 2026-06-29 20:13 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/94815.shtml)
+- 2026-06-29 20:26 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/75298152.shtml)

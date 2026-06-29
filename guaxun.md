@@ -1,60 +1,61 @@
-# 海康威视辟谣“多人被调查”传闻，公司境外业务占比超三成
+# 10倍光伏牛股国晟科技，终止收购
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：南方都市报 4月7日，一则“海康威视（002415）总部300多人被带走调查”的传言迅速流传，受此消息影响，这家安防巨头盘中股价一度跌超1%。据媒体报道，有媒体记者以投资者身份致电海康威视，工作人员明确表示相关传言系谣言。午后海康威视跌幅有所收窄，收报30.20元，跌0.23%。南都湾财社记者也就此事
+记者丨刘雪莹 10倍光伏“妖股”国晟科技（维权）筹划近五个月的资产收购事项宣告终止。 今日晚间，国晟科技发布公告称，4月13日，公司召开第五届董事会第二十九次会议，审议通过了《关于终止收购铜陵市孚悦科技有限公司 100%股权的议案》，由于本次交易先决条件中的并购贷款未达成，公司决定终止收购。 国晟科技表示，截至公告披露日，公司未支付任何款项，本次交易项下标的股权未交割，公司不存
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+记者丨刘雪莹 10倍光伏“妖股”国晟科技（维权）筹划近五个月的资产收购事项宣告终止。
 
-来源：南方都市报 4月7日，一则“海康威视（002415）总部300多人被带走调查”的传言迅速流传，受此消息影响，这家安防巨头盘中股价一度跌超1%。
+今日晚间，国晟科技发布公告称，4月13日，公司召开第五届董事会第二十九次会议，审议通过了《关于终止收购铜陵市孚悦科技有限公司 100%股权的议案》，由于本次交易先决条件中的并购贷款未达成，公司决定终止收购。
 
-据媒体报道，有媒体记者以投资者身份致电海康威视，工作人员明确表示相关传言系谣言。
+国晟科技表示，截至公告披露日，公司未支付任何款项，本次交易项下标的股权未交割，公司不存在违约情形。
 
-午后海康威视跌幅有所收窄，收报30.20元，跌0.23%。
+终止本次收购不会对公司现有经营业绩及财务状况产生不利影响。
 
-南都湾财社记者也就此事致电海康威视，相关负责人向记者确认相关传言系谣言，并表示相关工作人员均有正常上班。
+此前，公司于2025年11月25日召开第五届董事会第二十七次会议，审议通过了《关于收购铜陵市孚悦科技有限公司100%股权的议案》，公司拟以24060万元受让铜陵正豪科技有限公司、林琴合计持有的铜陵市孚悦科技有限公司（简称“孚悦科技”）100%股权。
 
-海康威视成立于2001年，2010年5月挂牌上市，被认为是全球最大的视频监控设备制造商。
+2026年1月15日，本次交易先决条件中的并购贷款办理完成时间由2026年1月15日延长至2026年4月15日。
 
-而在近日，一则网传“小作文”称，因牵涉近期地缘事件，“海康威视总部300多人被带走调查”。
+公开资料显示，孚悦科技成立于2024年6月，是一家从事高精密度新型锂电池外壳材料的生产企业，主要产品为动力电池铝壳等结构件，下游客户涵盖多家知名新能源电池厂商，包括多氟多新能源科技有限公司、郑州比克电池有限公司、鹏辉能源等。
 
-南都湾财社记者就相关传闻向海康威视求证，相关工作人员表示传闻不实，并表示经核实，传闻所涉高管、技术人员今日均有正常上班。
+二级市场上，国晟科技表现亮眼。
 
 ## 相关推荐
 
-- 2026-06-29 19:54 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 20:13 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 20:18 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 20:19 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 20:04 - [高质量发展看新疆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 20:04 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 20:15 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 19:59 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 20:20 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 19:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 20:06 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 20:00 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 20:05 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 20:19 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 20:16 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 20:22 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 20:05 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 20:05 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 20:14 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 20:25 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 20:14 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 20:19 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 20:10 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 20:23 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 20:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 20:23 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 20:11 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 20:08 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 20:26 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:00 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/50126641034.shtml)
-- 2026-06-29 20:09 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/956335193970.shtml)
-- 2026-06-29 20:10 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/9709552.shtml)
-- 2026-06-29 20:13 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/71727831.shtml)
-- 2026-06-29 20:20 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/78642761999.shtml)
-- 2026-06-29 20:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/648789769.shtml)
-- 2026-06-29 20:12 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/990573922.shtml)
-- 2026-06-29 20:10 - [教育部高校学生资助热线7月1日开通](http://www.blog.kurohicncr.top/Article/details/66727.shtml)
-- 2026-06-29 20:17 - [赵今麦时隔五年再演李诗情](http://www.share.kurohicncr.top/Article/details/03257.shtml)
-- 2026-06-29 20:09 - [斗破苍穹](https://www.share.minike.top/Article/details/333106654.shtml)
-- 2026-06-29 20:13 - [朱雀三号重复使用遥二运载火箭新进展](http://www.share.kurohicncr.top/Article/details/0934718.shtml)
-- 2026-06-29 20:09 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/23954975522.shtml)
-- 2026-06-29 20:04 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/673841082.shtml)
-- 2026-06-29 19:59 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/67552.shtml)
-- 2026-06-29 20:02 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/245913.shtml)
+- 2026-06-29 20:14 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/054812257784.shtml)
+- 2026-06-29 20:23 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/4159636.shtml)
+- 2026-06-29 20:08 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/23846.shtml)
+- 2026-06-29 20:02 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/85095381085.shtml)
+- 2026-06-29 20:02 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/725946628691.shtml)
+- 2026-06-29 20:03 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/013040219909.shtml)
+- 2026-06-29 20:27 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/735925314.shtml)
+- 2026-06-29 20:08 - [歼-15型舰载机为何被歼-15T替代](http://www.blog.minike.top/Article/details/35208.shtml)
+- 2026-06-29 20:14 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/25095.shtml)
+- 2026-06-29 20:00 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/32160.shtml)
+- 2026-06-29 20:24 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/002177579283.shtml)
+- 2026-06-29 20:00 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/603027828979.shtml)
+- 2026-06-29 20:04 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/441991192.shtml)
+- 2026-06-29 20:04 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.kurohicncr.top/Article/details/813165896.shtml)
+- 2026-06-29 20:07 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/27827756181.shtml)

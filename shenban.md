@@ -1,61 +1,58 @@
-# 操盘必读：影响股市利好或利空消息_2026年4月1日_财经新闻
+# 伊朗官员：特朗普“摧毁”伊朗文明的言论是个“笑话”
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-影响股市利好与利空消息 宏观新闻 1、中国和巴基斯坦提出关于恢复海湾和中东地区和平稳定的五点倡议：一、立即停止敌对行动；二、尽快开启和谈；三、确保非军事目标安全；四、确保航道安全；五、确保联合国宪章的首要地位。 2、中国人民银行货币政策委员会召开2026年第一季度例会。会议提出，建议发挥增量政策和存量政策集成效应，综合运用多种工具，加强货币政策调控。会议还提出，要继续实施适度宽
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰4月14日电（记者沙达提陈霄）伊朗内政部副部长阿里·泽尼万德13日表示，美国总统特朗普关于“摧毁”伊朗文明的言论是个“笑话”，并称“那些不了解伊朗文明的人无法领略其力量”。 泽尼万德是当天在伊朗首都德黑兰举行的新闻发布会上作出上述表示的。他同时说，“敌人”迄今未能通过边境对伊朗造成伤害。 泽尼万
 
 ## 正文
 
-影响股市利好与利空消息 宏观新闻 1、中国和巴基斯坦提出关于恢复海湾和中东地区和平稳定的五点倡议：一、立即停止敌对行动；二、尽快开启和谈；三、确保非军事目标安全；四、确保航道安全；五、确保联合国宪章的首要地位。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-2、中国人民银行货币政策委员会召开2026年第一季度例会。
+新华社德黑兰4月14日电（记者沙达提陈霄）伊朗内政部副部长阿里·泽尼万德13日表示，美国总统特朗普关于“摧毁”伊朗文明的言论是个“笑话”，并称“那些不了解伊朗文明的人无法领略其力量”。
 
-会议提出，建议发挥增量政策和存量政策集成效应，综合运用多种工具，加强货币政策调控。
+泽尼万德是当天在伊朗首都德黑兰举行的新闻发布会上作出上述表示的。
 
-会议还提出，要继续实施适度宽松的货币政策，加大逆周期和跨周期调节力度，更好发挥货币政策工具的总量和结构双重功能，加强货币财政政策协同配合，促进经济稳定增长和物价合理回升。
+他同时说，“敌人”迄今未能通过边境对伊朗造成伤害。
 
-3、外交部发言人毛宁31日在例行记者会上答问时说，经同有关方面协调，近日中方有三艘船舶过航霍尔木兹海峡，我们对有关方面提供的协助表示感谢。
+泽尼万德说，伊朗在西北部和东南部分别设立了指挥部，武装部队正以“绝对优势”监控边境每一个行动。
 
-霍尔木兹海峡及其附近水域是重要的国际货物和能源贸易通道，中方呼吁尽快停火止战，恢复海湾地区和平稳定。
+特朗普7日在社交媒体发文威胁伊朗称：“今晚，整个文明将消亡。
 
-4、财政部数据显示，1-2月，全国国有及国有控股企业营业总收入125655.0亿元，同比增长0.2%；利润总额6266.2亿元，同比下降2.0%。
+我不愿这样的事情发生，但它或许会发生。
 
-2月末，国有企业资产负债率65.4%，同比上升0.5个百分点。
+”（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 20:16 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 20:20 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 20:18 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 20:23 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 20:14 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-29 20:18 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 20:09 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 20:03 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 20:14 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 20:13 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 20:03 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 20:20 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 20:16 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 20:08 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 20:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 20:10 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 20:00 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 20:24 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 20:17 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 20:05 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 20:29 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 20:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 20:28 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 20:01 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 20:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 20:06 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 20:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:05 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/49555657983.shtml)
-- 2026-06-29 20:14 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/6221894.shtml)
-- 2026-06-29 20:01 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/874761771300.shtml)
-- 2026-06-29 20:12 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/28178604769.shtml)
-- 2026-06-29 19:55 - [东方风云榜](https://www.blog.minike.top/Article/details/607570.shtml)
-- 2026-06-29 20:09 - [记者暗访养老机构消防安全](https://www.share.minike.top/Article/details/59651831.shtml)
-- 2026-06-29 20:01 - [官方通报一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/67568922726.shtml)
-- 2026-06-29 20:15 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/34048220.shtml)
-- 2026-06-29 20:03 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/48642.shtml)
-- 2026-06-29 20:03 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/698600.shtml)
-- 2026-06-29 20:11 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/838228748.shtml)
-- 2026-06-29 20:05 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/1331766957.shtml)
-- 2026-06-29 20:22 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/197150.shtml)
-- 2026-06-29 20:16 - [金鹰奖第二阶段投票明日开启](http://www.blog.minike.top/Article/details/5113452.shtml)
-- 2026-06-29 19:57 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/90527184.shtml)
+- 2026-06-29 20:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/1062616.shtml)
+- 2026-06-29 20:06 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.minike.top/Article/details/472463621676.shtml)
+- 2026-06-29 20:14 - [起风了](https://www.blog.minike.top/Article/details/23284571450.shtml)
+- 2026-06-29 20:09 - [恋与深空致歉](http://www.share.minike.top/Article/details/0563530585.shtml)
+- 2026-06-29 20:15 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/55891.shtml)
+- 2026-06-29 20:18 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/80414243354.shtml)
+- 2026-06-29 20:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/8543273.shtml)
+- 2026-06-29 20:00 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.minike.top/Article/details/870676582449.shtml)
+- 2026-06-29 20:26 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.kurohicncr.top/Article/details/66053350.shtml)
+- 2026-06-29 20:26 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/165953.shtml)
+- 2026-06-29 20:16 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.kurohicncr.top/Article/details/6298122728.shtml)
+- 2026-06-29 20:24 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/1205922.shtml)
+- 2026-06-29 20:24 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/9983234174.shtml)
+- 2026-06-29 20:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/848062824.shtml)
+- 2026-06-29 20:28 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/50857701819.shtml)

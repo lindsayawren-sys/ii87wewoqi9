@@ -1,59 +1,61 @@
-# 中信建投期货：3月31日黑色系早报
+# 香港交易所推出两只科技指数 易方达香港获授权
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-钢材早报：产业格局弱稳，期钢震荡运行 市场信息： 1、 美方正在与伊朗方面进行严肃磋商，以结束在伊朗的军事行动。特朗普威胁称，若短期内无法达成协议，“彻底摧毁伊朗所有发电厂、油井及哈尔克岛”。伊朗官员称若发电设施遭袭，伊方将给整个地区断电。 2、 乘联分会：3月1-22日，全国乘用车市场零售92.0万辆，同比去年3月同期下降16%，较上月同期增长19%；今年以来累计零售349.
+4月13日，香港交易及结算所有限公司（以下简称“香港交易所”）推出两只科技类指数，分别是香港交易所韩国交易所半导体指数、香港交易所科技及美国科技100指数，并宣布已与易方达资产管理（香港）有限公司（以下简称“易方达香港”）等资产管理机构签订授权协议。 随着越来越多不同领域的科技公司选择在香港市场上市，投资者对相关金融产品的需求日益多元。此次推出的两只指数旨在助力投资者布局全球及
 
 ## 正文
 
-钢材早报：产业格局弱稳，期钢震荡运行 市场信息： 1、 美方正在与伊朗方面进行严肃磋商，以结束在伊朗的军事行动。
+4月13日，香港交易及结算所有限公司（以下简称“香港交易所”）推出两只科技类指数，分别是香港交易所韩国交易所半导体指数、香港交易所科技及美国科技100指数，并宣布已与易方达资产管理（香港）有限公司（以下简称“易方达香港”）等资产管理机构签订授权协议。
 
-特朗普威胁称，若短期内无法达成协议，“彻底摧毁伊朗所有发电厂、油井及哈尔克岛”。
+随着越来越多不同领域的科技公司选择在香港市场上市，投资者对相关金融产品的需求日益多元。
 
-伊朗官员称若发电设施遭袭，伊方将给整个地区断电。
+此次推出的两只指数旨在助力投资者布局全球及区域科技领域的投资主题，提供更广泛的跨市场投资机遇，同时推动市场开发更多ETF纳入南向ETF通，为内地投资者提供更丰富的跨市场投资选择。
 
-2、 乘联分会：3月1-22日，全国乘用车市场零售92.0万辆，同比去年3月同期下降16%，较上月同期增长19%；今年以来累计零售349.8万辆，同比下降18%。
+相关ETF产品待获批后，预计将在香港市场推出。
 
-3、 奥维云网最新发布的排产数据显示，2026年4月国内空调总排产量同比下滑9.4%，其中内销排产同比降幅达到6.8%，外销也在多重因素影响下同比下滑12.6%。
+具体来看，香港交易所韩国交易所半导体指数追踪符合港股通资格的香港上市半导体公司，以及韩国交易所半导体15指数所有成份股的表现；香港交易所科技及美国科技100指数追踪香港交易所科技100指数所有成份股以及在纳斯达克上市的100家市值最高的科技公司（包括美股七大科技巨头）的表现。
 
-4、 交通运输部：1-2月，我国公路水路交通固定资产投资2729.28亿元，同比下降3.1%。
+两只指数中，符合港股通资格的香港上市公司占约60%、海外上市公司占约40%。
 
-5、 3月30日，全国主港铁矿石成交59.10万吨，环比减11.1%；237家主流贸易商建筑钢材成交10.42万吨，环比增10.4%。
+香港交易所集团行政总裁陈翊庭表示，“我们很高兴宣布推出两项全新指数，进一步丰富香港交易所的指数产品，致力实现我们构建交易所主导的指数生态圈，体现对推动产品创新和市场发展的长远承诺。
 
-6、 上周，247 家钢厂高炉开工率81.03%，环比增加1.25个百分点；钢厂盈利率43.29%，环比增加0.87 个百分点；日均铁水产量231.09万吨，环比增加2.94万吨。
+本次扩展涵盖自营及联合冠名的新基准指数，并着重把握科技发展带来的机遇，旨在促进指数挂钩产品多元化，加强市场参与度，从而提升集资和二级市场之流动性与活力。
 
 ## 相关推荐
 
-- 2026-06-29 20:04 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 20:14 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 20:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 20:20 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 20:19 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 20:19 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 19:58 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 20:19 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 20:00 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 20:02 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 20:23 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 20:09 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 20:04 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 20:27 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 20:07 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 20:24 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-29 20:15 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 20:11 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 20:03 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 20:19 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 20:27 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 20:22 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 20:20 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 20:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 20:09 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 20:01 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 20:13 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 20:06 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:09 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/30395590700.shtml)
-- 2026-06-29 19:58 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/43241.shtml)
-- 2026-06-29 20:17 - [郑钦文谈再战西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/6847857.shtml)
-- 2026-06-29 20:18 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/16565538.shtml)
-- 2026-06-29 20:05 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/9526060.shtml)
-- 2026-06-29 20:06 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/5935186.shtml)
-- 2026-06-29 20:22 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/45141728286.shtml)
-- 2026-06-29 20:04 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/91173379694.shtml)
-- 2026-06-29 20:07 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/02598240.shtml)
-- 2026-06-29 20:01 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/158984395.shtml)
-- 2026-06-29 20:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/7243989146.shtml)
-- 2026-06-29 20:03 - [当家电外通风口出现鸟窝](http://www.share.minike.top/Article/details/306945705.shtml)
-- 2026-06-29 20:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/17538.shtml)
-- 2026-06-29 20:13 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.minike.top/Article/details/72846.shtml)
-- 2026-06-29 20:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/87081493.shtml)
+- 2026-06-29 20:22 - [明星大侦探第四季](https://www.share.minike.top/Article/details/4759469.shtml)
+- 2026-06-29 20:24 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/284444.shtml)
+- 2026-06-29 20:18 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/866287.shtml)
+- 2026-06-29 20:28 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/1541124.shtml)
+- 2026-06-29 20:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/754828.shtml)
+- 2026-06-29 20:03 - [扩军害了世界杯吗](https://www.blog.kurohicncr.top/Article/details/25806458037.shtml)
+- 2026-06-29 20:02 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/39133.shtml)
+- 2026-06-29 20:09 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/911521.shtml)
+- 2026-06-29 20:02 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/148149.shtml)
+- 2026-06-29 20:22 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/9374194.shtml)
+- 2026-06-29 20:10 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/62064470398.shtml)
+- 2026-06-29 20:22 - [C罗10球7球对垫底队](http://www.share.minike.top/Article/details/63339754182.shtml)
+- 2026-06-29 20:06 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/553638822.shtml)
+- 2026-06-29 20:25 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/7493021.shtml)
+- 2026-06-29 20:23 - [新官上任三把火](https://www.blog.minike.top/Article/details/2011797992.shtml)

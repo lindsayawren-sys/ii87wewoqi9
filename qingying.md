@@ -1,60 +1,51 @@
-# 特朗普宣布停火后 油价下跌 股市上涨
+# 中船防务盘初涨逾8% 预期一季度归母净利同比增加95.16%至133.11%
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普与伊朗达成为期两周的停火协议后，油价周二暴跌，市场燃起更多油轮有望很快通过关键的霍尔木兹海峡的希望。 但分析师警告称，仍存在诸多疑问，包括这条全球约20%石油运输必经的海峡事实上的封锁状态将如何改变，以及此次停火能否带来战争的长期终结。 美国原油期货盘后跌幅超15%，跌至每桶95美元以下——这是大幅下跌，但仍远高于战争爆发前2月27日的结算价67.02美元。全球基
+中船防务（00317）发盈喜后高开逾8%，截至发稿，股价上涨4.97%，现报14.36港元，成交额2657.55万港元。 4月13日，中船防务发布公告，公司预计2026年第一季度实现归属于母公司所有者的净利润人民币3.6亿元至4.3亿元，同比增加95.16%至133.11%。 预计2026年第一季度实现归属于母公司所有者的扣除非经常性损益的净利润人民币3.3亿元至3.9亿元，同
 
 ## 正文
 
-美国总统特朗普与伊朗达成为期两周的停火协议后，油价周二暴跌，市场燃起更多油轮有望很快通过关键的霍尔木兹海峡的希望。
+中船防务（00317）发盈喜后高开逾8%，截至发稿，股价上涨4.97%，现报14.36港元，成交额2657.55万港元。
 
-但分析师警告称，仍存在诸多疑问，包括这条全球约20%石油运输必经的海峡事实上的封锁状态将如何改变，以及此次停火能否带来战争的长期终结。
+4月13日，中船防务发布公告，公司预计2026年第一季度实现归属于母公司所有者的净利润人民币3.6亿元至4.3亿元，同比增加95.16%至133.11%。
 
-美国原油期货盘后跌幅超15%，跌至每桶95美元以下——这是大幅下跌，但仍远高于战争爆发前2月27日的结算价67.02美元。
+预计2026年第一季度实现归属于母公司所有者的扣除非经常性损益的净利润人民币3.3亿元至3.9亿元，同比增加85.44%至119.16%。
 
-全球基准布伦特原油期货下跌13.75%，至94.68美元。
+报告期内，公司把握船舶行业发展机遇，订单承接态势良好，产品结构不断优化；持续深化精益生产管理，主建船型建造周期进一步压降，推动营业收入稳步增长，产品毛利同比增加；公司联营企业经营业绩显著提升，确认投资收益同比大幅增加。
 
-与此同时，美国股指期货与亚洲市场大幅走高。
-
-盘后交易中，道琼斯期货暴涨超1000点，涨幅约2.2%；标普500期货上涨2.4%；纳斯达克期货涨幅约3%。
-
-周三上午，截至当地时间10点41分，日本基准股指日经225指数飙升4.9%，韩国综合股价指数上涨5.7%，中国香港恒生指数上涨2.8%。
-
-“市场一直迫切期待利好消息，但霍尔木兹海峡能否全面开放仍有待观察，”Rapidan能源集团创始人兼总裁鲍勃・麦克纳利对美国有线电视新闻网表示，“这是问题的核心，到目前为止，美伊双方在这一问题上似乎各说各话。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:19 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 20:01 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 20:09 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 20:09 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 20:22 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 20:02 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 19:57 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-29 19:58 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 20:02 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 20:08 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 20:21 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 20:00 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 20:21 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 19:55 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 20:26 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 20:08 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 20:11 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 20:23 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 20:09 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 20:15 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 20:16 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 20:05 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 20:14 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 20:04 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 20:17 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:59 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/82226670.shtml)
-- 2026-06-29 20:19 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/48334952832.shtml)
-- 2026-06-29 19:59 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/149161384736.shtml)
-- 2026-06-29 20:02 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/12557.shtml)
-- 2026-06-29 20:01 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/19708.shtml)
-- 2026-06-29 20:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/46347155998.shtml)
-- 2026-06-29 20:00 - [爱很美味](https://www.share.kurohicncr.top/Article/details/6242346.shtml)
-- 2026-06-29 20:04 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/50017744652.shtml)
-- 2026-06-29 20:12 - [锐评白玉兰提名片段](https://www.blog.minike.top/Article/details/8075077.shtml)
-- 2026-06-29 20:01 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.kurohicncr.top/Article/details/51623809.shtml)
-- 2026-06-29 19:58 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/043421233.shtml)
-- 2026-06-29 20:07 - [法生态部长反对装空调却自己吹空调](http://www.blog.minike.top/Article/details/727138.shtml)
-- 2026-06-29 20:19 - [世界杯在中国观看最多的比赛](http://www.blog.kurohicncr.top/Article/details/6184133785.shtml)
-- 2026-06-29 20:01 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/908938895.shtml)
-- 2026-06-29 20:01 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/3748880.shtml)
+- 2026-06-29 20:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/911804.shtml)
+- 2026-06-29 20:25 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/425871170698.shtml)
+- 2026-06-29 20:17 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/806457.shtml)
+- 2026-06-29 20:18 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/92938003.shtml)
+- 2026-06-29 20:20 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/20499300338.shtml)
+- 2026-06-29 20:23 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/1364676752.shtml)
+- 2026-06-29 20:07 - [网友晒14年前支教影像等来学生评论](https://www.blog.kurohicncr.top/Article/details/9800729.shtml)
+- 2026-06-29 20:09 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/35229381.shtml)
+- 2026-06-29 20:27 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/768750379.shtml)
+- 2026-06-29 20:26 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/802720149.shtml)
+- 2026-06-29 20:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/5728516.shtml)
+- 2026-06-29 20:09 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/755841306654.shtml)
+- 2026-06-29 20:18 - [大马同意延长马航370残骸搜寻工作](http://www.blog.minike.top/Article/details/62361583499.shtml)
+- 2026-06-29 20:00 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/1200640.shtml)
+- 2026-06-29 20:09 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.minike.top/Article/details/72524995775.shtml)

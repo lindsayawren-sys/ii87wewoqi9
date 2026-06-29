@@ -1,49 +1,58 @@
-# 伊拉克民航局宣布该国领空及机场将于今日重新开放
+# 旧笔记换新篇，带兵人放下“小我”扎根兵心
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-伊拉克民航局周三宣布，该国领空及机场将在战争爆发后关闭至今，于今日重新开放。此次冲突已严重影响整个中东地区的民航运输，多个国家均对民用航班实施了空域限制或关闭措施。责任编辑：郭明煜
+旧时飞行训练笔记，如今变成兵情日记—— 指导员的转变，战士也看在眼里 -蒋进赵阳韩腾飞 “班长，指导员咋有一个带战机标志的本子呢？”上个月的一天傍晚，第82集团军某旅某连罗指导员正和一名战士在连队楼前拉家常，不时还掏出一个藏青色的旧本子，在上面快速记几笔。刚下连的新兵姚博文从旁边路过时看到本子封皮上有一个战机的标志，回到班里便好奇地问起了班长汪志豪。 汪志豪告诉姚博文：“咱们指
 
 ## 正文
 
-伊拉克民航局周三宣布，该国领空及机场将在战争爆发后关闭至今，于今日重新开放。
+旧时飞行训练笔记，如今变成兵情日记—— 指导员的转变，战士也看在眼里 -蒋进赵阳韩腾飞 “班长，指导员咋有一个带战机标志的本子呢？
 
-此次冲突已严重影响整个中东地区的民航运输，多个国家均对民用航班实施了空域限制或关闭措施。
+”上个月的一天傍晚，第82集团军某旅某连罗指导员正和一名战士在连队楼前拉家常，不时还掏出一个藏青色的旧本子，在上面快速记几笔。
 
-责任编辑：郭明煜
+刚下连的新兵姚博文从旁边路过时看到本子封皮上有一个战机的标志，回到班里便好奇地问起了班长汪志豪。
+
+汪志豪告诉姚博文：“咱们指导员当过飞行员！
+
+那本子是他当飞行员时的训练笔记。
+
+不过现在，记的是咱们连的兵情日记。
+
+” 一向对飞机感兴趣的姚博文瞪大了眼：“来头不小哩，拿来记我们的小事，可真舍得！
+
+” “那本笔记指导员也珍视得很，刚来时谁都碰不得！
 
 ## 相关推荐
 
-- 2026-06-29 20:02 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 20:02 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 20:14 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 19:58 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 20:17 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 19:56 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 20:22 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 20:17 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 20:21 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 20:18 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 20:14 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-29 20:17 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 20:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 20:00 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 20:19 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 20:02 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 20:22 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 20:04 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-29 20:00 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 20:21 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 20:02 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 20:15 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 20:14 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 20:18 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 20:24 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:12 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/6153861.shtml)
-- 2026-06-29 20:05 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/304982835.shtml)
-- 2026-06-29 20:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/99216.shtml)
-- 2026-06-29 20:05 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/46122539409.shtml)
-- 2026-06-29 20:21 - [天气热脾气都变差了](http://www.blog.minike.top/Article/details/964229278.shtml)
-- 2026-06-29 20:00 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/008062511760.shtml)
-- 2026-06-29 20:03 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/53364.shtml)
-- 2026-06-29 20:13 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/75107.shtml)
-- 2026-06-29 19:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/97060.shtml)
-- 2026-06-29 20:12 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/71101117.shtml)
-- 2026-06-29 20:22 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/3442894.shtml)
-- 2026-06-29 20:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/04148.shtml)
-- 2026-06-29 20:18 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/563110067.shtml)
-- 2026-06-29 19:57 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/993002.shtml)
-- 2026-06-29 20:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/6977900.shtml)
+- 2026-06-29 20:10 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/64087.shtml)
+- 2026-06-29 20:05 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/605653.shtml)
+- 2026-06-29 20:09 - [天气热脾气都变差了](https://www.blog.minike.top/Article/details/0570422.shtml)
+- 2026-06-29 20:25 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/760315819.shtml)
+- 2026-06-29 20:10 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/4870559.shtml)
+- 2026-06-29 20:28 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/125729.shtml)
+- 2026-06-29 20:15 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/743663018.shtml)
+- 2026-06-29 20:13 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/034990.shtml)
+- 2026-06-29 20:17 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/52961.shtml)
+- 2026-06-29 20:14 - [半导体和股市为何没让韩国人起飞](http://www.share.minike.top/Article/details/934500328073.shtml)
+- 2026-06-29 20:19 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/24546.shtml)
+- 2026-06-29 20:03 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/806294.shtml)
+- 2026-06-29 20:13 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/30228039.shtml)
+- 2026-06-29 20:21 - [福建海警位金门附近海域常态执法巡查](http://www.share.minike.top/Article/details/51996051.shtml)
+- 2026-06-29 20:22 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.kurohicncr.top/Article/details/35376060.shtml)

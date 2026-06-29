@@ -1,61 +1,58 @@
-# 郑丽文率团抵达大陆开始参访行程
+# 市场寄望伊朗和平谈判重启，欧洲股市上涨
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-中新社南京4月7日电 应中共中央和习近平总书记邀请，中国国民党主席郑丽文7日率国民党访问团经上海抵达南京，开始大陆参访行程。 郑丽文抵达南京后表示，感谢习近平总书记，感谢大陆方面热情接待。此访是为了维护台海和平，增进人民福祉，意义重大。中国国民党将坚持“九二共识”、反对“台独”，继续发挥推动两岸关系和平发展的重要作用。 中共中央台办主任宋涛到上海迎接郑丽文一行。宋涛表示，欢迎郑
+2026 年 4 月 13 日，纽约证券交易所内，交易员正在早盘时段工作。此前，美国总统特朗普在与伊朗谈判失败后，下令美国封锁霍尔木兹海峡，推动油价重返每桶 100 美元上方，导致股市低开。 周二，尽管美国对伊朗港口的封锁已生效，但市场对美伊和平谈判有望重启抱有期待，欧洲股市开盘走高。 开盘后不久，欧洲斯托克 600 指数上涨 0.7%，多数板块飘红。英国富时 100 指数开盘
 
 ## 正文
 
-中新社南京4月7日电 应中共中央和习近平总书记邀请，中国国民党主席郑丽文7日率国民党访问团经上海抵达南京，开始大陆参访行程。
+2026 年 4 月 13 日，纽约证券交易所内，交易员正在早盘时段工作。
 
-郑丽文抵达南京后表示，感谢习近平总书记，感谢大陆方面热情接待。
+此前，美国总统特朗普在与伊朗谈判失败后，下令美国封锁霍尔木兹海峡，推动油价重返每桶 100 美元上方，导致股市低开。
 
-此访是为了维护台海和平，增进人民福祉，意义重大。
+周二，尽管美国对伊朗港口的封锁已生效，但市场对美伊和平谈判有望重启抱有期待，欧洲股市开盘走高。
 
-中国国民党将坚持“九二共识”、反对“台独”，继续发挥推动两岸关系和平发展的重要作用。
+开盘后不久，欧洲斯托克 600 指数上涨 0.7%，多数板块飘红。
 
-中共中央台办主任宋涛到上海迎接郑丽文一行。
+英国富时 100 指数开盘上涨 0.3%，德国 DAX 指数上涨 1.1%，法国 CAC 40 指数早盘上涨 0.6%。
 
-宋涛表示，欢迎郑主席率团来访。
+美国军方于周一开始封锁伊朗港口，此举可能在未来数月进一步收紧全球石油供应。
 
-相信郑主席此行，会亲身感受到祖国大陆在习近平总书记和中国共产党领导下取得的巨大发展成就，充分感受到大陆同胞对台湾同胞的深情厚谊，会得到两岸同胞的高度肯定和支持。
+但有迹象显示，尽管实施封锁，和平谈判仍可能继续，国际油价隔夜下跌。
 
-两党要以民族利益为重、以同胞福祉为念，携手推动两岸关系和平发展，共创中华民族伟大复兴。
+美国副总统 JD・万斯周一表示，上周末的谈判未能取得突破，美伊和平努力的下一步取决于伊朗。
 
 ## 相关推荐
 
-- 2026-06-29 20:14 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 20:09 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 19:55 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 20:18 - [欧洲极端高温如何影响家电股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 20:00 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 20:03 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 20:03 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 20:05 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 19:56 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 20:08 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 20:03 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 20:19 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 19:58 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 20:17 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 19:56 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 20:17 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 20:28 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 20:13 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 20:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 20:07 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 20:21 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 20:28 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 20:17 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 20:24 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 20:17 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 20:27 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 20:15 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:56 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/5110633.shtml)
-- 2026-06-29 20:14 - [Ella回应SHE何时合体](http://www.blog.kurohicncr.top/Article/details/1522117960.shtml)
-- 2026-06-29 20:05 - [高质量发展看新疆](http://www.blog.kurohicncr.top/Article/details/002147764.shtml)
-- 2026-06-29 20:12 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/034522.shtml)
-- 2026-06-29 20:05 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/634527147.shtml)
-- 2026-06-29 20:12 - [金鹰奖第二阶段投票明日开启](http://www.share.minike.top/Article/details/97147432.shtml)
-- 2026-06-29 19:54 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/68967.shtml)
-- 2026-06-29 19:55 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/59317932099.shtml)
-- 2026-06-29 19:56 - [欧洲极端高温如何影响家电股](http://www.share.minike.top/Article/details/2410062.shtml)
-- 2026-06-29 20:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/623947922.shtml)
-- 2026-06-29 20:22 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/80822638065.shtml)
-- 2026-06-29 20:13 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/631291.shtml)
-- 2026-06-29 20:09 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/4202195.shtml)
-- 2026-06-29 20:18 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/66073.shtml)
-- 2026-06-29 20:15 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/285396043.shtml)
+- 2026-06-29 20:22 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/9086595661.shtml)
+- 2026-06-29 20:13 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/63280.shtml)
+- 2026-06-29 20:01 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/0483092079.shtml)
+- 2026-06-29 20:23 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/9284124371.shtml)
+- 2026-06-29 20:00 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/995535288.shtml)
+- 2026-06-29 20:27 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/22533755952.shtml)
+- 2026-06-29 20:26 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/85012844913.shtml)
+- 2026-06-29 20:08 - [爱很美味](http://www.share.kurohicncr.top/Article/details/9217194209.shtml)
+- 2026-06-29 20:20 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/97637472261.shtml)
+- 2026-06-29 20:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/8506187115.shtml)
+- 2026-06-29 20:25 - [官媒首曝六代机？大V解读](https://www.share.kurohicncr.top/Article/details/814813859.shtml)
+- 2026-06-29 20:29 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/627913556713.shtml)
+- 2026-06-29 20:06 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/96242635.shtml)
+- 2026-06-29 20:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/71039.shtml)
+- 2026-06-29 20:12 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/128946507950.shtml)

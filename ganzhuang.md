@@ -1,61 +1,58 @@
-# 820亿美元出逃！美伊开战一月多国狂抛美债
+# “村播小院”：写入云南省政府工作报告的助农样板
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-金十数据 伊朗战争爆发后，多国央行大举抛售美债以支付高价原油、支撑本币，纽约联储托管的美债规模锐减至2.7万亿美元，创下2012年以来最低水平。 伊朗战争爆发后，多国为支撑本国经济与货币纷纷抛售美国国债，外国央行在纽约联储的美债持仓已降至2012年以来最低水平。 美联储数据显示，自2月25日以来，各国官方机构（主要为央行，也包括政府及国际机构）在纽约联储托管的美债规模减少820
+“村播小院”项目先后获得中共中央统战部“全国新阶层人士统战工作实践创新基地‘精品工程’优秀案例”、商务部“2025年全国农村电商典型案例”。2026年初，“村播小院”模式被写入云南省政府工作报告，成为全省推广的“助农样板”。 视频：云南“村播小院”：从田间到云端 探路乡村振兴新样板来源：中国新闻网 2026年春节假期刚结束，云南省昆明市五华区“村播小院”一派繁忙景象，主播们正准
 
 ## 正文
 
-金十数据 伊朗战争爆发后，多国央行大举抛售美债以支付高价原油、支撑本币，纽约联储托管的美债规模锐减至2.7万亿美元，创下2012年以来最低水平。
+“村播小院”项目先后获得中共中央统战部“全国新阶层人士统战工作实践创新基地‘精品工程’优秀案例”、商务部“2025年全国农村电商典型案例”。
 
-伊朗战争爆发后，多国为支撑本国经济与货币纷纷抛售美国国债，外国央行在纽约联储的美债持仓已降至2012年以来最低水平。
+2026年初，“村播小院”模式被写入云南省政府工作报告，成为全省推广的“助农样板”。
 
-美联储数据显示，自2月25日以来，各国官方机构（主要为央行，也包括政府及国际机构）在纽约联储托管的美债规模减少820亿美元，至2.7万亿美元。
+视频：云南“村播小院”：从田间到云端 探路乡村振兴新样板来源：中国新闻网 2026年春节假期刚结束，云南省昆明市五华区“村播小院”一派繁忙景象，主播们正准备上架酱菜、粳米、干香菇等特色年货，为千家万户餐桌添一抹地道云南“滋味”。
 
-外国央行在纽约联储托管的美债规模下降 开战一个月来的这一减持趋势凸显：伊朗封锁霍尔木兹海峡引发能源价格暴涨，严重冲击石油进口国财政，同时美元全面走强。
+作为云南省首个挂牌运营的“村播小院”，过去一年，这里已成为中国乡村振兴知名“打卡地”——先后迎来20余个国家和地区的1万余名参访者。
 
-与此同时，多国央行已入场汇市干预护盘，这一操作通常需要抛售美元。
+以此为起点，全省建立了8个村播小院，累计销售额5718万元，培养村播千余人，辐射带动4.8万余名群众增收。
 
-美国银行利率策略师梅根・斯威伯（Meghan Swiber）表示：“外国官方部门正在抛售美债。
+“村播小院”项目先后获得中共中央统战部“全国新阶层人士统战工作实践创新基地‘精品工程’优秀案例”、商务部“2025年全国农村电商典型案例”。
 
-” 美国外交关系委员会高级研究员布拉德・塞策（Brad Setser）长期研究外国美债持仓，他指出，土耳其、印度、泰国等石油进口国为支付以美元计价的高价原油，大概率是主要抛售方。
+2026年初，“村播小院”模式被写入云南省政府工作报告，成为全省推广的“助农样板”。
 
-官方数据显示，自2月27日美以袭击伊朗前一日起，土耳其央行已从外汇储备中抛售220亿美元外国政府债券，塞策称其中相当一部分可能为美债。
+把直播间“搬进”农村 “村播小院”的诞生，源自云南傈僳族青年孙立刚多年的探索与创新，他现任云南省新的社会阶层人士联谊会乡村振兴服务团团长。
 
 ## 相关推荐
 
-- 2026-06-29 20:05 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 20:02 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 20:16 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 20:01 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 20:21 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 19:54 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 20:01 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 19:55 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 20:11 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 20:17 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 19:54 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 20:11 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 19:59 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 20:19 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 20:12 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 20:24 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 20:24 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-29 20:18 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 20:26 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 20:14 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 20:03 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 20:21 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 20:15 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 20:21 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 20:03 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 20:18 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 20:13 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:15 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/19841025846.shtml)
-- 2026-06-29 20:02 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/26774985751.shtml)
-- 2026-06-29 20:01 - [温网](https://www.blog.minike.top/Article/details/2273436.shtml)
-- 2026-06-29 20:20 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/859261596.shtml)
-- 2026-06-29 20:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/99902975.shtml)
-- 2026-06-29 20:00 - [一生一世](https://www.share.minike.top/Article/details/672785.shtml)
-- 2026-06-29 20:10 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/33508.shtml)
-- 2026-06-29 20:06 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.minike.top/Article/details/563629476099.shtml)
-- 2026-06-29 20:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/964271.shtml)
-- 2026-06-29 20:02 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/27332758161.shtml)
-- 2026-06-29 19:55 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/7396129.shtml)
-- 2026-06-29 20:02 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/4251401979.shtml)
-- 2026-06-29 20:02 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/004627157.shtml)
-- 2026-06-29 20:10 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/397593082072.shtml)
-- 2026-06-29 20:06 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/0049178280.shtml)
+- 2026-06-29 20:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/57192122928.shtml)
+- 2026-06-29 20:01 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/0635002850.shtml)
+- 2026-06-29 20:08 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/443818321587.shtml)
+- 2026-06-29 20:24 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/7819823754.shtml)
+- 2026-06-29 20:25 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/456484004292.shtml)
+- 2026-06-29 20:10 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/2884444.shtml)
+- 2026-06-29 20:05 - [TTG KSG](http://www.blog.minike.top/Article/details/60839499.shtml)
+- 2026-06-29 20:13 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.kurohicncr.top/Article/details/6304497119.shtml)
+- 2026-06-29 20:05 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/34775775014.shtml)
+- 2026-06-29 20:20 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/69641351.shtml)
+- 2026-06-29 20:22 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/827406.shtml)
+- 2026-06-29 20:22 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/7024886951.shtml)
+- 2026-06-29 20:04 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/68426542.shtml)
+- 2026-06-29 20:06 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/50018.shtml)
+- 2026-06-29 20:26 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/71166288.shtml)

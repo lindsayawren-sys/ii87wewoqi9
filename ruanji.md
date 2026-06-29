@@ -1,58 +1,59 @@
-# 浦发银行董事长张为忠：致力打造“全链、全息、全链条”科技体系，让科技属性更明显
+# 对话庞伯特张海波：上海体育大学走出的"AI教练"如何破圈？
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-3月31日金融一线消息，浦发银行今日召开2025年度业绩说明会。 浦发银行党委书记、董事长张为忠重点介绍了浦发银行的数智化战略，并指出，数智化是核心。 他表示，我们希望让浦发的科技属性更加鲜明。我们打造的数智化，是一个全息、全员、全链条的科技体系。过去的三年，全行科技投入达到了217.5亿元，并且逐年增加。实际上，我们科技和业务的叠加与融合进展非常快，很多业务部门的工作人员在业
+界面新闻记者 | 李家琦 界面新闻编辑 | 文姝琪 在不到半年时间里，一家名为庞伯特的上海发球机器人公司，连续完成了三轮累计近两亿元的A轮系列融资，神骐资本、明势创投、蓝驰创投、锦秋基金、华创资本等头部机构集体加注，高鹄资本担任财务顾问。 界面新闻记者从创始人张海波处独家获悉，公司已拥有超30万全球用户，UGC训练球路超100万条，设备累计发球超20亿次，其海外收入占比在今年首
 
 ## 正文
 
-3月31日金融一线消息，浦发银行今日召开2025年度业绩说明会。
+界面新闻记者 | 李家琦 界面新闻编辑 | 文姝琪 在不到半年时间里，一家名为庞伯特的上海发球机器人公司，连续完成了三轮累计近两亿元的A轮系列融资，神骐资本、明势创投、蓝驰创投、锦秋基金、华创资本等头部机构集体加注，高鹄资本担任财务顾问。
 
-浦发银行党委书记、董事长张为忠重点介绍了浦发银行的数智化战略，并指出，数智化是核心。
+界面新闻记者从创始人张海波处独家获悉，公司已拥有超30万全球用户，UGC训练球路超100万条，设备累计发球超20亿次，其海外收入占比在今年首次超过国内，2024年黑五期间单月销售额突破2000万元。
 
-他表示，我们希望让浦发的科技属性更加鲜明。
+此外庞伯特仍有数亿元的融资计划用于品牌拓展与技术投入。
 
-我们打造的数智化，是一个全息、全员、全链条的科技体系。
+4月13日，在上海发布会现场，张海波接受了界面新闻等媒体的采访。
 
-过去的三年，全行科技投入达到了217.5亿元，并且逐年增加。
+“那是一台要打败人的机器，”张海波对界面新闻回忆到，“但用户并不需要一台能击败自己的设备。
 
-实际上，我们科技和业务的叠加与融合进展非常快，很多业务部门的工作人员在业务水平提高的基础上，科技水平也在快速提高，复合型人才越来越多。
+” 张海波并非运动员出身，而是扎根上海逾十年的工程师。
 
-去年，我们还引进了900多名紧缺科技人才，建立了覆盖全行26个部门200余人的架构师队伍。
+“很多人问我是不是运动员出身，其实我不是，”张海波回忆，“但我们与上海体育大学的合作，让我们从诞生之初就具备了专业体育的基因。
 
-这些都可以看出，无论从费用投入、人力资源匹配，还是从体系建构上，浦发银行都在全面发力。
+” 2014年至2019年的漫长孵化期里，张海波走访了从国家队到街头球馆的各类运动人群。
 
 ## 相关推荐
 
-- 2026-06-29 20:20 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 20:22 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 19:58 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 20:06 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 20:08 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 20:14 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 20:23 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 20:20 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 20:15 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 20:07 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-29 20:17 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 20:15 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 20:26 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 20:09 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 20:11 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 20:26 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 20:02 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 20:21 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 20:18 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 20:22 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 20:11 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 20:02 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 20:02 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 20:02 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 20:02 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:56 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/394128852.shtml)
-- 2026-06-29 20:03 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/341948.shtml)
-- 2026-06-29 20:10 - [教育部高校学生资助热线7月1日开通](https://www.blog.kurohicncr.top/Article/details/6801789.shtml)
-- 2026-06-29 20:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/59337604943.shtml)
-- 2026-06-29 19:56 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/896767569873.shtml)
-- 2026-06-29 20:07 - [北京发布地质灾害气象风险蓝色预警](http://www.share.minike.top/Article/details/4981912.shtml)
-- 2026-06-29 20:17 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/66677.shtml)
-- 2026-06-29 20:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/295268789.shtml)
-- 2026-06-29 19:57 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/27398.shtml)
-- 2026-06-29 20:11 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/45675123137.shtml)
-- 2026-06-29 20:11 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/301177.shtml)
-- 2026-06-29 20:14 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.kurohicncr.top/Article/details/46447139308.shtml)
-- 2026-06-29 19:59 - [乔家的儿女](http://www.share.minike.top/Article/details/307109408957.shtml)
-- 2026-06-29 19:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/500343.shtml)
-- 2026-06-29 19:55 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/779660.shtml)
+- 2026-06-29 20:16 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/39038375146.shtml)
+- 2026-06-29 20:02 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/036996088.shtml)
+- 2026-06-29 20:00 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/54660266.shtml)
+- 2026-06-29 20:10 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/8980067939.shtml)
+- 2026-06-29 20:24 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/95442450.shtml)
+- 2026-06-29 20:22 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/126104457.shtml)
+- 2026-06-29 20:00 - [章若楠包场白敬亭特立独行](https://www.blog.kurohicncr.top/Article/details/57610.shtml)
+- 2026-06-29 20:14 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/610209228258.shtml)
+- 2026-06-29 20:06 - [韩国队主帅遭极端网友死亡威胁](https://www.share.minike.top/Article/details/05697.shtml)
+- 2026-06-29 20:09 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/668716.shtml)
+- 2026-06-29 20:28 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/0587167764.shtml)
+- 2026-06-29 20:29 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/7970213026.shtml)
+- 2026-06-29 20:16 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/060243.shtml)
+- 2026-06-29 20:16 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/21243534.shtml)
+- 2026-06-29 20:14 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/10087.shtml)

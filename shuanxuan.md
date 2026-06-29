@@ -1,45 +1,60 @@
-# 伊朗最后期限临近 全球股市涨跌互现
+# 中德学生合作烫样研究纪实展用“立体拆解”复现烫样内部构建
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-在美国总统特朗普就伊朗重开霍尔木兹海峡设定的最后期限到来之前，全球股市涨跌互现，油价波动，三星电子的业绩展望曾短暂提振了市场情绪。责任编辑：张俊 SF065
+中新网北京4月14日电 (记者 应妮)“对话·复现·传承——中德学生合作烫样研究纪实展”正在文化和旅游部恭王府博物馆举行。展览系统梳理清华大学、柏林工业大学两校建筑学院师生围绕烫样开展的记录、研究、检测与复制工作。 “烫样”是清代对纸质建筑模型的称谓，以纸板、秫秸、木头等轻质材料经剪裁、熨烫、粘合而成，也正因制作时有些部位需用烙铁熨烫成型而得名。留存至今的烫样，不仅是清代建筑发
 
 ## 正文
 
-在美国总统特朗普就伊朗重开霍尔木兹海峡设定的最后期限到来之前，全球股市涨跌互现，油价波动，三星电子的业绩展望曾短暂提振了市场情绪。
+中新网北京4月14日电 (记者 应妮)“对话·复现·传承——中德学生合作烫样研究纪实展”正在文化和旅游部恭王府博物馆举行。
 
-责任编辑：张俊 SF065
+展览系统梳理清华大学、柏林工业大学两校建筑学院师生围绕烫样开展的记录、研究、检测与复制工作。
+
+“烫样”是清代对纸质建筑模型的称谓，以纸板、秫秸、木头等轻质材料经剪裁、熨烫、粘合而成，也正因制作时有些部位需用烙铁熨烫成型而得名。
+
+留存至今的烫样，不仅是清代建筑发展水平、建筑艺术与营造技术独特而生动的反映，更是古建筑保护、研究、修缮与复原的珍贵实物资料。
+
+2025年，恭王府博物馆与故宫博物院联合主办“始作以成——从烫样说起”展，深入解读烫样“见微知著”的文化内涵。
+
+此次展览作为“始作以成”展的延伸，将视角转向烫样本体的科学研究，聚焦烫样的构造及传统烫样制作技艺复原，从“怎么看”“怎么想”“谁来做”“如何做”等角度，在记录、研究、检测之余，中外青年还合力动手复制烫样，和中国古人在指尖共情。
+
+自2021年起，清华大学建筑学院持续与德国柏林工业大学建筑学院师生合作，推进“中国古代烫样之传承与物质文化研究”课题，共同对柏林民族学博物馆藏清惠陵地宫烫样等中国清代烫样开展跨国研究和复原实践。
+
+此次展览亮点之一是注重学术成果的科普转化，运用中德师生创作的漫画、插画等作品辅助阐释，并以“立体拆解”的形式，展示由柏林工业大学学生制作的清惠陵地宫烫样复制品，使观众一览其构件组成与内部结构。
 
 ## 相关推荐
 
-- 2026-06-29 19:55 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 19:59 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 20:12 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 20:17 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 20:06 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 20:19 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 19:54 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 20:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 20:14 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 20:21 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 20:14 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 20:25 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 20:26 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 20:26 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 20:23 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 20:25 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 20:18 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 20:06 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 20:23 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 20:12 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 20:13 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 20:21 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 20:23 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 20:22 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 20:25 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:00 - [扬名立万](http://www.share.kurohicncr.top/Article/details/60334961158.shtml)
-- 2026-06-29 20:12 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/81036.shtml)
-- 2026-06-29 20:06 - [东方风云榜](http://www.blog.minike.top/Article/details/701598307496.shtml)
-- 2026-06-29 20:03 - [黄金也扛不住了](https://www.share.minike.top/Article/details/675232.shtml)
-- 2026-06-29 20:21 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/894427.shtml)
-- 2026-06-29 19:59 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/3398563222.shtml)
-- 2026-06-29 20:20 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/155757.shtml)
-- 2026-06-29 20:02 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/8223881657.shtml)
-- 2026-06-29 20:04 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/152120.shtml)
-- 2026-06-29 20:14 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/33109831.shtml)
-- 2026-06-29 20:09 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/5983986.shtml)
-- 2026-06-29 20:01 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/61570763.shtml)
-- 2026-06-29 20:22 - [夫妻生活太无聊，所以我……](https://www.share.minike.top/Article/details/4953144.shtml)
-- 2026-06-29 20:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/014900.shtml)
-- 2026-06-29 20:08 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/52255.shtml)
+- 2026-06-29 20:05 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/25044.shtml)
+- 2026-06-29 20:28 - [世界杯1/16决赛对阵出炉](https://www.blog.kurohicncr.top/Article/details/69329.shtml)
+- 2026-06-29 20:13 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/892154.shtml)
+- 2026-06-29 20:20 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/390739.shtml)
+- 2026-06-29 20:25 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/4592011.shtml)
+- 2026-06-29 20:12 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.minike.top/Article/details/19222871351.shtml)
+- 2026-06-29 20:08 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/75136.shtml)
+- 2026-06-29 20:27 - [青春环游记第三季](https://www.share.minike.top/Article/details/253569.shtml)
+- 2026-06-29 20:11 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/90869619407.shtml)
+- 2026-06-29 20:25 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/1333123.shtml)
+- 2026-06-29 20:02 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/279119231.shtml)
+- 2026-06-29 20:06 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/34899.shtml)
+- 2026-06-29 20:23 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/8455623651.shtml)
+- 2026-06-29 20:17 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/16816.shtml)
+- 2026-06-29 20:21 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/415155.shtml)

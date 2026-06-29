@@ -1,61 +1,59 @@
-# 2025年营收、净利“双降”，光大银行副行长刘彦结合内外部环境分析影响因素
+# 中信建投期货：4月14日能化早报
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-3月31日金融一线消息，光大银行今日召开2025年度业绩说明会。对于2025年光大银行营收和净利润均负增长的情况，副行长、首席财务官刘彦从内外部环境分析如下原因：近年来，在LPR利率下调、减费让利等政策背景下，银行业面临净息差收窄、中间收入下降等经营压力，营收增速普遍放缓。 从银行内部情况来看，刘彦进一步表示，2025年营收出现负增长主要受以下几方面因素影响：一是净息差有所收窄
+橡胶：风险仍存 周一，国产全乳胶16650/吨，环比上日持平；泰国20号混合胶15900元/吨，环比上日持平。 原料端：泰国宋干节假期，原料市场休市；云南胶水报收16.0元/公斤，环比上日持平；海南胶水报收15.8元/公斤，环比上日上涨0.3元/公斤。 截至2026年4月12日，青岛地区天胶保税和一般贸易合计库存量71.44万吨，环比上期增加1.43万吨，增幅2.05%。保税区
 
 ## 正文
 
-3月31日金融一线消息，光大银行今日召开2025年度业绩说明会。
+橡胶：风险仍存 周一，国产全乳胶16650/吨，环比上日持平；泰国20号混合胶15900元/吨，环比上日持平。
 
-对于2025年光大银行营收和净利润均负增长的情况，副行长、首席财务官刘彦从内外部环境分析如下原因：近年来，在LPR利率下调、减费让利等政策背景下，银行业面临净息差收窄、中间收入下降等经营压力，营收增速普遍放缓。
+原料端：泰国宋干节假期，原料市场休市；云南胶水报收16.0元/公斤，环比上日持平；海南胶水报收15.8元/公斤，环比上日上涨0.3元/公斤。
 
-从银行内部情况来看，刘彦进一步表示，2025年营收出现负增长主要受以下几方面因素影响：一是净息差有所收窄。
+截至2026年4月12日，青岛地区天胶保税和一般贸易合计库存量71.44万吨，环比上期增加1.43万吨，增幅2.05%。
 
-2024年以来LPR利率下调，叠加存量房贷利率调整，2025年我行贷款端收益率受到影响，而存款利率下行节奏慢于贷款，净息差同比有所收窄，制约了利息收入增长。
+保税区库存12.51万吨，增幅2.49%；一般贸易库存58.92万吨，增幅1.96%。
 
-二是其他收入阶段性下降。
+青岛天然橡胶样本保税仓库入率减少1.43个百分点，出库率减少3.74个百分点；一般贸易仓库入库率减少1.39百分点，出库率减少2.25个百分点。
 
-2024年债券市场利率较大幅度下行，我行投资类资产估值浮盈基数较高，但2025年债券市场利率整体上行，我行投资类资产估值形成一定的浮亏，导致其他收入有所下降。
+观点：近期偏北产区（泰国东北部、越南、国内云南海南）迎来持续的高温天气，国内产区暂停开割，科特迪瓦与印尼南部未出现明显少雨天气，目前出现比较明显干旱的产区占比全球产量的比例大约30%（泰国东北15%，越南9%，国内6%），集中在主产浅色胶与乳胶的产区。
 
-三是统筹发展和安全。
+需求端，国内下游轮胎企业随着成品库存的堆积，生产有所下滑，短期下游生产需求阶段性放缓。
 
-我行加大相关业务风险化解和经营转型力度，信用卡息费收入阶段性承压，对全行息费收入增长产生一定影响。
+由于天气出现异常的产区范围并不算大，在需求侧未有相对持续的增长前，平衡表的矛盾或并不出突出，RU&NR冲高回落，短期或仍呈现震荡。
 
 ## 相关推荐
 
-- 2026-06-29 20:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 20:05 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 20:09 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 19:57 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 20:07 - [欧洲极端高温如何影响家电股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 20:02 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 20:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 20:13 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 20:19 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 20:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 20:14 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 20:16 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 19:56 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 20:11 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 20:09 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 20:23 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 20:26 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 20:25 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 20:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 20:26 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 20:21 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 20:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 20:03 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 20:03 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 20:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 20:03 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 20:00 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 20:29 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:14 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/665317759.shtml)
-- 2026-06-29 20:09 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/019624738.shtml)
-- 2026-06-29 20:22 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/5169338.shtml)
-- 2026-06-29 20:04 - [委内瑞拉发生余震](http://www.blog.minike.top/Article/details/74682263.shtml)
-- 2026-06-29 20:13 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/847733592.shtml)
-- 2026-06-29 20:03 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.kurohicncr.top/Article/details/902738.shtml)
-- 2026-06-29 20:05 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/34303103628.shtml)
-- 2026-06-29 20:12 - [女生每天戴耳机18小时突发耳聋](https://www.share.kurohicncr.top/Article/details/72403231.shtml)
-- 2026-06-29 20:10 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/90064817.shtml)
-- 2026-06-29 20:07 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.kurohicncr.top/Article/details/22701477515.shtml)
-- 2026-06-29 19:56 - [千与千寻](https://www.share.minike.top/Article/details/439184118252.shtml)
-- 2026-06-29 20:23 - [伊朗足球队将启程回国](https://www.share.minike.top/Article/details/26383078538.shtml)
-- 2026-06-29 20:21 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/33191.shtml)
-- 2026-06-29 19:58 - [温网](http://www.blog.kurohicncr.top/Article/details/093553139881.shtml)
-- 2026-06-29 20:16 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/96211.shtml)
+- 2026-06-29 20:12 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/143973976514.shtml)
+- 2026-06-29 20:24 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/402363.shtml)
+- 2026-06-29 20:19 - [爱奇艺抬高国剧新标尺](http://www.blog.minike.top/Article/details/580264904.shtml)
+- 2026-06-29 20:22 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/1475373.shtml)
+- 2026-06-29 20:04 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/749264537.shtml)
+- 2026-06-29 20:07 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/594630917710.shtml)
+- 2026-06-29 20:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/738968.shtml)
+- 2026-06-29 20:05 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/1935558924.shtml)
+- 2026-06-29 20:02 - [记者暗访养老机构消防安全](http://www.blog.minike.top/Article/details/82428059.shtml)
+- 2026-06-29 20:25 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.minike.top/Article/details/29436851565.shtml)
+- 2026-06-29 20:22 - [逃狱兄弟](http://www.share.minike.top/Article/details/425360.shtml)
+- 2026-06-29 20:18 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/3047803224.shtml)
+- 2026-06-29 20:26 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/766552.shtml)
+- 2026-06-29 20:22 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/275208046688.shtml)
+- 2026-06-29 20:25 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/0269982498.shtml)

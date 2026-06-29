@@ -1,47 +1,56 @@
-# 安徽黟县：古村春景美如画
+# 光大期货：4月14日有色金属日报
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月08日 14:37 来源：中国新闻网 4月7日，安徽省黄山市黟县卢村，晨雾如纱漫过黛瓦白墙的古村落，白墙黛瓦的徽派民居错落有致，与金黄的油菜花田、蜿蜒的溪流、朦胧的远山相融共生，在晨光中晕染出绝美的江南春色。作者：王江 责任编辑：【魏聪聪】
+铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价联袂走高，沪铜主力突破10万元/吨关口，国内精炼铜现货进口窗口再度关闭。宏观方面，国际能源署（IEA）、国际货币基金组织（IMF）及世界银行集团负责人昨日发表联合声明，称中东战争的冲击“规模巨大、波及全球、高度不对称”，对能源进口国、尤其是低收入国家冲击明显。地缘政治方面，虽然美伊谈判
 
 ## 正文
 
-发布时间：2026年04月08日 14:37 来源：中国新闻网 4月7日，安徽省黄山市黟县卢村，晨雾如纱漫过黛瓦白墙的古村落，白墙黛瓦的徽派民居错落有致，与金黄的油菜花田、蜿蜒的溪流、朦胧的远山相融共生，在晨光中晕染出绝美的江南春色。
+铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价联袂走高，沪铜主力突破10万元/吨关口，国内精炼铜现货进口窗口再度关闭。
 
-作者：王江 责任编辑：【魏聪聪】
+宏观方面，国际能源署（IEA）、国际货币基金组织（IMF）及世界银行集团负责人昨日发表联合声明，称中东战争的冲击“规模巨大、波及全球、高度不对称”，对能源进口国、尤其是低收入国家冲击明显。
+
+地缘政治方面，虽然美伊谈判未能取得任何进展，但双方谈判的大门并未关闭，预计将进入边打边谈的情形，以总理昨日表示与伊朗的停火可能很快结束。
+
+国内方面，3月末，M2余额353.86万亿元，同比增长8.5%；M1余额119.32万亿元，同比增长5.1%。
+
+库存方面，LME库存增加6400吨至399150吨；Comex库存下降38吨至532037吨；SHFE铜仓单下降8224吨至165352吨，保税区库存增加75吨至11593吨。
+
+需求方面，下游补库意愿上升，推动社会库存快速去化。
+
+美伊停火协议虽已破裂，但谈判窗口并未完全关闭，市场对极端冲突升级的担忧较前期有所降温。
+
+另外，随着国内限制硫酸出口消息出台，市场开始关注全球硫酸短缺问题，或引起铜等相关金属的供应扰动。
 
 ## 相关推荐
 
-- 2026-06-29 19:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 20:03 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 20:04 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 19:54 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 20:01 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 19:54 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 20:15 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 20:02 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 20:03 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 20:23 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-29 20:05 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 19:59 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 20:05 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 20:20 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 20:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 20:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 20:07 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 20:24 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 20:02 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 20:20 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 20:07 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 20:18 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 20:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:00 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/650341640.shtml)
-- 2026-06-29 20:01 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.minike.top/Article/details/262632471.shtml)
-- 2026-06-29 20:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/58794.shtml)
-- 2026-06-29 19:56 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/381247988238.shtml)
-- 2026-06-29 19:57 - [请回答王牌2019](https://www.blog.minike.top/Article/details/23225841.shtml)
-- 2026-06-29 20:13 - [海口塔吊事故处罚结果公布](http://www.blog.minike.top/Article/details/04988590.shtml)
-- 2026-06-29 20:01 - [TOP Prada](https://www.blog.minike.top/Article/details/5227615317.shtml)
-- 2026-06-29 20:22 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/458525.shtml)
-- 2026-06-29 20:15 - [郑钦文谈再战西尼亚科娃](http://www.share.kurohicncr.top/Article/details/441398.shtml)
-- 2026-06-29 19:59 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/4032370.shtml)
-- 2026-06-29 20:16 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/65170432.shtml)
-- 2026-06-29 20:19 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/22876662896.shtml)
-- 2026-06-29 20:02 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/6773912982.shtml)
-- 2026-06-29 20:16 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/73781925412.shtml)
-- 2026-06-29 20:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/444704530847.shtml)
+- 2026-06-29 20:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/9054264.shtml)
+- 2026-06-29 20:21 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/657242144431.shtml)
+- 2026-06-29 20:15 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/041482.shtml)
+- 2026-06-29 20:15 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/232512558.shtml)
+- 2026-06-29 20:25 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/5763785065.shtml)
+- 2026-06-29 20:05 - [伊朗足球队将启程回国](http://www.share.minike.top/Article/details/884296215.shtml)
+- 2026-06-29 20:03 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/64810.shtml)
+- 2026-06-29 20:28 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/12449250.shtml)
+- 2026-06-29 20:04 - [一诺变着花样秀新驾照](https://www.share.kurohicncr.top/Article/details/11841610916.shtml)
+- 2026-06-29 20:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/716169543210.shtml)
+- 2026-06-29 20:09 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/3503709.shtml)
+- 2026-06-29 20:05 - [本届世界杯已有5人涉性侵风波](https://www.blog.kurohicncr.top/Article/details/690562180.shtml)
+- 2026-06-29 20:09 - [TTG KSG](https://www.share.minike.top/Article/details/610312103.shtml)
+- 2026-06-29 20:12 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/71409103862.shtml)
+- 2026-06-29 20:02 - [郑钦文谈再战西尼亚科娃](https://www.share.minike.top/Article/details/84783237424.shtml)

@@ -1,60 +1,53 @@
-# 美国股市：标普抹去盘中跌幅 市场期待外交途径解决中东冲突
+# 福建厦门推出“首来台胞厦门服务包” 国台办：欢迎越来越多台湾同胞前来厦门
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-投资者对通过外交途径结束中东战争的希望推动美股抹去跌幅，收盘略微走高。 在动荡不安的华尔街交易日接近尾声之际，巴基斯坦敦促美国将最后期限延长两周，并要求德黑兰在此期间开放霍尔木兹海峡，市场从中获得了一定程度的慰藉。标普500指数抹去了1.2%的跌幅，收涨0.1%；纳斯达克100指数几无变动，美国原油在结算后交易中下跌。 个股方面，博通股价收涨6.21%，此前该芯片制造商宣布与谷
+中新网4月15日电 4月15日，国务院台办举行例行新闻发布会。近期，福建厦门市推出“首来台胞厦门服务包”，备受台胞台青关注，国台办发言人陈斌华在会上对此介绍相关情况。 陈斌华表示，为积极探索海峡两岸融合发展新路，全力打造台胞台企登陆第一家园“第一站”，福建厦门近期创新推出“首来台胞厦门服务包”，包括为首来台胞提供7个自然日内免费乘坐厦门市内公交、地铁、BRT及鼓浪屿游客航线；免
 
 ## 正文
 
-投资者对通过外交途径结束中东战争的希望推动美股抹去跌幅，收盘略微走高。
+中新网4月15日电 4月15日，国务院台办举行例行新闻发布会。
 
-在动荡不安的华尔街交易日接近尾声之际，巴基斯坦敦促美国将最后期限延长两周，并要求德黑兰在此期间开放霍尔木兹海峡，市场从中获得了一定程度的慰藉。
+近期，福建厦门市推出“首来台胞厦门服务包”，备受台胞台青关注，国台办发言人陈斌华在会上对此介绍相关情况。
 
-标普500指数抹去了1.2%的跌幅，收涨0.1%；纳斯达克100指数几无变动，美国原油在结算后交易中下跌。
+陈斌华表示，为积极探索海峡两岸融合发展新路，全力打造台胞台企登陆第一家园“第一站”，福建厦门近期创新推出“首来台胞厦门服务包”，包括为首来台胞提供7个自然日内免费乘坐厦门市内公交、地铁、BRT及鼓浪屿游客航线；免费游览包括鼓浪屿、海上看金门等15个景区及旅游项目；享有在26家厦门国企酒店住宿折扣优惠等3项服务举措。
 
-个股方面，博通股价收涨6.21%，此前该芯片制造商宣布与谷歌达成长期协议，共同开发并供应张量处理单元（TPU）。
+“服务包”采取首来台胞“来厦即领、即领即用”的发放模式，入境厦门时可前往五通客运码头旁的“近便利”台胞服务专区，或高崎国际机场T3航站楼入境大厅的“境外来宾一站式综合服务中心”领取。
 
-与此同时，加州安大略市金佰利一处配送中心发生大火。
-
-Piper Sandler分析师Michael Lavery表示，该事件将为公司运营带来“不确定性”，并可能造成“扰动”。
-
-受此影响，金佰利股价下跌4.06%。
-
-苹果股价收跌约2.1%，此前彭博报道称该公司折叠屏iPhone仍有望于9月发布，推动股价收窄跌幅。
+欢迎越来越多的台湾同胞前来厦门旅游观光、交流体验。
 
 ## 相关推荐
 
-- 2026-06-29 19:55 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 19:54 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 20:18 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 20:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 20:16 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 19:54 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 20:19 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 19:55 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 20:17 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 20:19 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 20:04 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 20:04 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 20:03 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 20:04 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 20:11 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 20:19 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 20:27 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 20:00 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 20:13 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 20:14 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 20:01 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 20:11 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 20:19 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 20:09 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 20:16 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 20:08 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 20:22 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:12 - [铜价上涨 日本住宅水表失窃严重](https://www.share.kurohicncr.top/Article/details/0986097.shtml)
-- 2026-06-29 20:08 - [教育部高校学生资助热线7月1日开通](http://www.blog.minike.top/Article/details/805371564.shtml)
-- 2026-06-29 20:08 - [TOP Prada](http://www.blog.minike.top/Article/details/185362048373.shtml)
-- 2026-06-29 20:13 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/289679.shtml)
-- 2026-06-29 20:14 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.kurohicncr.top/Article/details/396259792.shtml)
-- 2026-06-29 20:10 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/624712954.shtml)
-- 2026-06-29 20:11 - [美人鱼](http://www.share.kurohicncr.top/Article/details/25726836.shtml)
-- 2026-06-29 20:09 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/967439757326.shtml)
-- 2026-06-29 20:17 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/4952176.shtml)
-- 2026-06-29 20:18 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/308248544422.shtml)
-- 2026-06-29 20:15 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/609742251020.shtml)
-- 2026-06-29 20:18 - [C罗10球7球对垫底队](http://www.share.minike.top/Article/details/96304637552.shtml)
-- 2026-06-29 20:18 - [委内瑞拉发生余震](https://www.blog.minike.top/Article/details/783805060089.shtml)
-- 2026-06-29 20:06 - [起风了](https://www.share.minike.top/Article/details/736776857.shtml)
-- 2026-06-29 20:07 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/83426430.shtml)
+- 2026-06-29 20:05 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/7630319.shtml)
+- 2026-06-29 20:18 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/91814331.shtml)
+- 2026-06-29 20:07 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/52797.shtml)
+- 2026-06-29 20:11 - [女心理师](https://www.share.kurohicncr.top/Article/details/69931.shtml)
+- 2026-06-29 20:13 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/6453396242.shtml)
+- 2026-06-29 20:13 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/7950725247.shtml)
+- 2026-06-29 20:26 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/9778514199.shtml)
+- 2026-06-29 20:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/925050131332.shtml)
+- 2026-06-29 20:27 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/2653893126.shtml)
+- 2026-06-29 20:02 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/411425.shtml)
+- 2026-06-29 20:23 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/5638244027.shtml)
+- 2026-06-29 20:14 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/9626765270.shtml)
+- 2026-06-29 20:20 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/7039042.shtml)
+- 2026-06-29 20:01 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/27287.shtml)
+- 2026-06-29 20:14 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/3987350800.shtml)

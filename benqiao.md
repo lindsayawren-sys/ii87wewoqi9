@@ -1,48 +1,57 @@
-# 美银证券：降比亚迪电子目标价至31.5港元 维持“中性”评级
+# 英国加息预期升温叠加日元承压，GBP/JPY反弹逼近215关口并创2008年以来新高
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-美银证券发布研报称，比亚迪电子（00285）去年下半年业绩逊预期，纯利同比下跌35%至18亿元人民币，较该行及市场预测分别低34%及37%。收入则大致符合预期，但毛利率较该行及市场预测低1.6及1.8个百分点。该行下调比亚迪电子2026及2027年盈利预测20%至21%，以反映消费电子业务毛利率受压，目标价由38港元降至31.5港元，相当预测今年市盈率14倍，维持中性评级。责任
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：汇通财经 GBP/JPY在周二欧洲时段明显走强，汇价自盘中跌破215.00关口后迅速反弹，并重新逼近近阶段高点，接近2008年以来最高水平。这一走势延续了过去两周的强劲上涨趋势，反映出英镑与日元之间基本面分化正在加剧。 从宏观层面来看，尽管中东局势仍存在不确定性，但市场对日本货币政策收紧的预期正在升温
 
 ## 正文
 
-美银证券发布研报称，比亚迪电子（00285）去年下半年业绩逊预期，纯利同比下跌35%至18亿元人民币，较该行及市场预测分别低34%及37%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-收入则大致符合预期，但毛利率较该行及市场预测低1.6及1.8个百分点。
+来源：汇通财经 GBP/JPY在周二欧洲时段明显走强，汇价自盘中跌破215.00关口后迅速反弹，并重新逼近近阶段高点，接近2008年以来最高水平。
 
-该行下调比亚迪电子2026及2027年盈利预测20%至21%，以反映消费电子业务毛利率受压，目标价由38港元降至31.5港元，相当预测今年市盈率14倍，维持中性评级。
+这一走势延续了过去两周的强劲上涨趋势，反映出英镑与日元之间基本面分化正在加剧。
 
-责任编辑：史丽君
+从宏观层面来看，尽管中东局势仍存在不确定性，但市场对日本货币政策收紧的预期正在升温。
+
+投资者预计Bank of Japan可能在4月会议上进一步加息，同时也存在日本当局可能干预汇市以支撑日元的预期。
+
+这些因素在一定程度上为日元提供支撑，并对GBP/JPY构成阶段性压制。
+
+然而，日元的反弹力度明显受限。
+
+由于日本高度依赖中东能源进口，霍尔木兹海峡局势的不稳定持续推升能源成本预期，令市场担忧日本经济将面临更大压力。
 
 ## 相关推荐
 
-- 2026-06-29 20:08 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 20:20 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 20:22 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 20:16 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 20:10 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 20:11 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 20:19 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 20:12 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 20:20 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 19:56 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 20:28 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 20:17 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 20:07 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 20:22 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 20:15 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 20:28 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 20:08 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 20:09 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 20:09 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 20:24 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 20:07 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:07 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/9057453.shtml)
-- 2026-06-29 20:23 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/0656299070.shtml)
-- 2026-06-29 20:01 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/3616976.shtml)
-- 2026-06-29 20:19 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/748205937860.shtml)
-- 2026-06-29 19:56 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/21942421.shtml)
-- 2026-06-29 20:02 - [主力抛售电子和通信板块](https://www.share.minike.top/Article/details/04046.shtml)
-- 2026-06-29 20:22 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/8792143.shtml)
-- 2026-06-29 20:04 - [刘冰任河南南阳市代市长](https://www.blog.minike.top/Article/details/143288.shtml)
-- 2026-06-29 20:16 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/91460852118.shtml)
-- 2026-06-29 20:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/97309369.shtml)
-- 2026-06-29 20:09 - [送你一朵小红花](https://www.share.minike.top/Article/details/44304.shtml)
-- 2026-06-29 20:13 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.kurohicncr.top/Article/details/09727.shtml)
-- 2026-06-29 20:23 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/8167957.shtml)
-- 2026-06-29 20:13 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/9493361714.shtml)
-- 2026-06-29 20:04 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/967997004183.shtml)
+- 2026-06-29 20:16 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/394162.shtml)
+- 2026-06-29 20:26 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/08207479.shtml)
+- 2026-06-29 20:19 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/9079391.shtml)
+- 2026-06-29 20:20 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/78410486.shtml)
+- 2026-06-29 20:24 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/6279200.shtml)
+- 2026-06-29 20:26 - [滚石点名酒店员工说有急救培训](http://www.share.kurohicncr.top/Article/details/810686861.shtml)
+- 2026-06-29 20:27 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/165315417276.shtml)
+- 2026-06-29 20:13 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/251293568817.shtml)
+- 2026-06-29 20:27 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/25587962.shtml)
+- 2026-06-29 20:04 - [我们的少年时代2](https://www.blog.minike.top/Article/details/6217979580.shtml)
+- 2026-06-29 20:27 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/265228470610.shtml)
+- 2026-06-29 20:10 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/5616295.shtml)
+- 2026-06-29 20:06 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/208970.shtml)
+- 2026-06-29 20:18 - [铜价上涨 日本住宅水表失窃严重](https://www.share.kurohicncr.top/Article/details/5133724238.shtml)
+- 2026-06-29 20:07 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/694595137.shtml)

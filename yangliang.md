@@ -1,60 +1,58 @@
-# 两高：依法从严惩处涉民航飞行安全违法犯罪
+# 王毅：当前停火局面十分脆弱，地区局势处于关键转折阶段
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-中新网北京4月8日电(记者 高萌)安全是飞行的生命线。4月8日，最高人民法院、最高人民检察院发布《关于办理危害民航飞行安全刑事案件适用法律若干问题的解释》，并发布一批典型案例。最高法介绍，对涉民航飞行安全违法犯罪，《解释》坚持依法从严惩处总体原则。 最高法介绍，《解释》通篇贯彻了从严惩处的总体原则，降低了编造、故意传播虚假恐怖信息罪的入罪标准，并增加了加重处罚具体规定；增加列举
+中新社北京4月13日电 4月13日，中共中央政治局委员、外交部长王毅同巴基斯坦副总理兼外长达尔通电话。 达尔全面介绍了巴方斡旋伊朗与美国接谈情况，感谢中方促和努力，愿同中方密切沟通协作，共同为实现地区和平发挥积极作用。 王毅重申中方原则立场，赞赏巴方促成美伊临时停火并主办伊斯兰堡会谈，发挥了公正平衡的斡旋作用。王毅表示，当前停火局面十分脆弱，地区局势处于关键转折阶段。当务之急是
 
 ## 正文
 
-中新网北京4月8日电(记者 高萌)安全是飞行的生命线。
+中新社北京4月13日电 4月13日，中共中央政治局委员、外交部长王毅同巴基斯坦副总理兼外长达尔通电话。
 
-4月8日，最高人民法院、最高人民检察院发布《关于办理危害民航飞行安全刑事案件适用法律若干问题的解释》，并发布一批典型案例。
+达尔全面介绍了巴方斡旋伊朗与美国接谈情况，感谢中方促和努力，愿同中方密切沟通协作，共同为实现地区和平发挥积极作用。
 
-最高法介绍，对涉民航飞行安全违法犯罪，《解释》坚持依法从严惩处总体原则。
+王毅重申中方原则立场，赞赏巴方促成美伊临时停火并主办伊斯兰堡会谈，发挥了公正平衡的斡旋作用。
 
-最高法介绍，《解释》通篇贯彻了从严惩处的总体原则，降低了编造、故意传播虚假恐怖信息罪的入罪标准，并增加了加重处罚具体规定；增加列举了暴力危及飞行安全罪中“危及飞行安全”的具体情形；明确了相关犯罪的数罪并罚和从一重罪处罚原则。
+王毅表示，当前停火局面十分脆弱，地区局势处于关键转折阶段。
 
-《解释》明确，依法惩治违规开启民航飞机舱门、在民航飞机机舱内打架斗殴等常见“机闹”犯罪行为，明确了上述行为适用的罪名和定罪条件。
+当务之急是全力避免战端重启，保持来之不易停火势头。
 
-例如，《解释》规定，并非所有的违规开启民航飞机舱门的行为都构成刑事犯罪，只有在民航飞机处于依靠自身动力移动期间或者空中飞行期间违规开启舱门、足以引发危害公共安全危险的情况下，才能以以危险方法危害公共安全罪定罪处罚。
+国际社会应继续加大劝和促谈努力，旗帜鲜明反对任何破坏停火、升级对抗的行径。
 
-同时，《解释》还特别明确，对民航乘务员使用暴力的行为可能构成暴力危及飞行安全罪。
+中国和巴基斯坦关于恢复海湾和中东地区和平稳定的五点倡议，体现了国际社会促和共识，仍可成为解决问题的努力方向。
 
-《解释》还突出对编造、故意传播涉民航飞行安全虚假恐怖信息犯罪的从严惩治，规定行为人的行为影响民航航班、民用机场正常运行，或者致使公安、武警、消防救援、卫生检疫等部门采取应对措施的，应作犯罪处理；造成严重社会影响或者重大经济损失的，属于造成严重后果，处五年以上有期徒刑。
+中方乐见巴方发挥更大作用，愿同包括巴方在内国际社会一道，继续为早日恢复中东地区和平稳定作出积极贡献。
 
 ## 相关推荐
 
-- 2026-06-29 20:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 20:12 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 20:10 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 20:10 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 20:17 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 20:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 20:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 20:20 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 20:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 20:21 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 19:57 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 20:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 19:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 20:23 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 20:05 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 20:19 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 20:29 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 20:07 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 20:13 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 20:17 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 20:20 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 20:02 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 20:00 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 20:13 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 20:05 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 20:19 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:22 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/771147936121.shtml)
-- 2026-06-29 20:22 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/32158539.shtml)
-- 2026-06-29 19:55 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/178379640.shtml)
-- 2026-06-29 20:06 - [斛珠夫人](https://www.share.minike.top/Article/details/18509772.shtml)
-- 2026-06-29 20:12 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/30544184.shtml)
-- 2026-06-29 20:20 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/580284.shtml)
-- 2026-06-29 20:10 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/492430368044.shtml)
-- 2026-06-29 20:22 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/13568292359.shtml)
-- 2026-06-29 20:17 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/4971543276.shtml)
-- 2026-06-29 20:22 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/475964.shtml)
-- 2026-06-29 20:02 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/75443583.shtml)
-- 2026-06-29 20:18 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/46773641.shtml)
-- 2026-06-29 19:56 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/813283691.shtml)
-- 2026-06-29 19:56 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.kurohicncr.top/Article/details/035566.shtml)
-- 2026-06-29 20:18 - [东方风云榜](http://www.blog.minike.top/Article/details/722658371798.shtml)
+- 2026-06-29 20:27 - [林逸向方筱然求婚了](https://www.share.kurohicncr.top/Article/details/9181143.shtml)
+- 2026-06-29 20:29 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/0232443420.shtml)
+- 2026-06-29 20:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/107628.shtml)
+- 2026-06-29 20:26 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/694189.shtml)
+- 2026-06-29 20:28 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/125215288829.shtml)
+- 2026-06-29 20:24 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/47513.shtml)
+- 2026-06-29 20:23 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/22272249219.shtml)
+- 2026-06-29 20:29 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/16643939597.shtml)
+- 2026-06-29 20:17 - [郑钦文谈再战西尼亚科娃](https://www.blog.minike.top/Article/details/4494226404.shtml)
+- 2026-06-29 20:15 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/00846.shtml)
+- 2026-06-29 20:25 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/9628197.shtml)
+- 2026-06-29 20:01 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/48487220.shtml)
+- 2026-06-29 20:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/6607375.shtml)
+- 2026-06-29 20:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/9765361767.shtml)
+- 2026-06-29 20:22 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/39526264844.shtml)

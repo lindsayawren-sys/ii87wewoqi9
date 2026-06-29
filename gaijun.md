@@ -1,55 +1,51 @@
-# 国富氢能早盘涨超10% 公司中标摩洛哥制氢项目并签约国内加氢站订单
+# “同志加兄弟”：50秒速览中国越南友谊为何历久弥新？
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-国富氢能（02582）早盘涨超10%，截至发稿，股价上涨10.07%，现报26.46港元，成交额4430.78万港元。 国富氢能发布公告，于2026年4月6日，本公司与本公司联营公司GFHydrogenAfricaSarl订立销售协议（销售协议A），内容有关提供20MW制氢系统，对价为620万美元。于2026年3月30日，本公司与独立第三方广东云韬氢能科技有限公司（云韬）订立销
+发布时间：2026年04月14日 15:36 来源：中国新闻网 越共中央总书记、国家主席苏林4月14日上午开始对中国进行为期四天的国事访问。抵达北京后，他随即乘高铁前往雄安新区参访。中越两国山水相连，传统友谊源远流长。50秒，带您了解中越“同志加兄弟”的深厚友谊。 责任编辑：【孟湘君】
 
 ## 正文
 
-国富氢能（02582）早盘涨超10%，截至发稿，股价上涨10.07%，现报26.46港元，成交额4430.78万港元。
+发布时间：2026年04月14日 15:36 来源：中国新闻网 越共中央总书记、国家主席苏林4月14日上午开始对中国进行为期四天的国事访问。
 
-国富氢能发布公告，于2026年4月6日，本公司与本公司联营公司GFHydrogenAfricaSarl订立销售协议（销售协议A），内容有关提供20MW制氢系统，对价为620万美元。
+抵达北京后，他随即乘高铁前往雄安新区参访。
 
-于2026年3月30日，本公司与独立第三方广东云韬氢能科技有限公司（云韬）订立销售协议（销售协议B，连同销售协议A，统称“该等销售协议”），内容有关提供不少于五座加氢站及相关安装服务，对价为人民币3205万元。
+中越两国山水相连，传统友谊源远流长。
 
-摩洛哥为非洲绿色氢能最重要的市场，对本集团的国际布局具有重大意义。
+50秒，带您了解中越“同志加兄弟”的深厚友谊。
 
-于签署销售协议A之前，本公司已作为首家中国制造商向摩洛哥交付一套用于科研与教学用途的制氢系统，并获当地市场认可。
-
-通过订立销售协议B，本公司与云韬将长三角的装备制造能力与珠三角的政策支持与终端市场进行对接，有助于推动两大氢能产业集聚区的跨区域协同发展，助力粤港澳大湾区氢走廊的蓬勃发展。
-
-责任编辑：卢昱君
+责任编辑：【孟湘君】
 
 ## 相关推荐
 
-- 2026-06-29 20:22 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 20:19 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 20:16 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 20:08 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 20:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 20:05 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 20:18 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 20:02 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 19:56 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 20:13 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 20:09 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 20:23 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 20:09 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 20:22 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 20:16 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 20:17 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 20:16 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 20:01 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 20:25 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 20:14 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 20:01 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 20:00 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:00 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/06274373.shtml)
-- 2026-06-29 20:22 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/8446804219.shtml)
-- 2026-06-29 19:59 - [天气热脾气都变差了](https://www.share.minike.top/Article/details/182835490.shtml)
-- 2026-06-29 20:20 - [CORTIS 小牌大耍](https://www.blog.kurohicncr.top/Article/details/8333477.shtml)
-- 2026-06-29 20:04 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/114140.shtml)
-- 2026-06-29 20:09 - [金刚川](http://www.blog.minike.top/Article/details/743062767536.shtml)
-- 2026-06-29 20:05 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/664963367.shtml)
-- 2026-06-29 20:04 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/82525203303.shtml)
-- 2026-06-29 20:13 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/6057475371.shtml)
-- 2026-06-29 20:19 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/44004.shtml)
-- 2026-06-29 20:13 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/696243682.shtml)
-- 2026-06-29 20:14 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/88803.shtml)
-- 2026-06-29 20:18 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/92277216808.shtml)
-- 2026-06-29 19:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/5121700.shtml)
-- 2026-06-29 19:56 - [温网](https://www.blog.minike.top/Article/details/606158.shtml)
+- 2026-06-29 20:14 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/805663.shtml)
+- 2026-06-29 20:08 - [普京建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/69858376678.shtml)
+- 2026-06-29 20:05 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/438014.shtml)
+- 2026-06-29 20:05 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/0415097245.shtml)
+- 2026-06-29 20:10 - [斛珠夫人](https://www.blog.minike.top/Article/details/25938639.shtml)
+- 2026-06-29 20:22 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/249111190156.shtml)
+- 2026-06-29 20:25 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/68805.shtml)
+- 2026-06-29 20:25 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/2757486.shtml)
+- 2026-06-29 20:26 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/52953693.shtml)
+- 2026-06-29 20:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/973855862490.shtml)
+- 2026-06-29 20:15 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/63526086.shtml)
+- 2026-06-29 20:29 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/2230273.shtml)
+- 2026-06-29 20:09 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/6780069.shtml)
+- 2026-06-29 20:12 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/60781265460.shtml)
+- 2026-06-29 20:01 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/1274755.shtml)

@@ -1,54 +1,60 @@
-# 特朗普称伊朗无需达成协议 美国也会撤出
+# 九岭锂业冲A折戟！谁还卡在IPO“问询关”
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普表示，伊朗无需达成协议，美国也会停止在该国的军事行动。 特朗普在白宫回答记者提问时作出上述表态。 “无论是否达成协议，我们都会撤出，”特朗普表示。 特朗普还表示，当伊朗无法拥有核武器时，美国将撤出。 他表示，达成协议仍有可能，因为伊朗希望达成协议。责任编辑：丁文武
+来源：资本秘闻 在问询阶段“排队”约三年时间后，江西九岭锂业股份有限公司（以下简称“九岭锂业”）冲A进程于近日宣告终止。上交所官网显示，公司已撤回主板IPO申请。北京商报记者注意到，在当前沪深交易所IPO审核明显提速的背景下，仍有部分企业已在问询阶段停滞较长时间。经梳理，截至目前，沪深交易所共有10家企业在2025年前就已进入问询阶段，但至今未能等到上会机会。其中，海康机器、环
 
 ## 正文
 
-美国总统特朗普表示，伊朗无需达成协议，美国也会停止在该国的军事行动。
+来源：资本秘闻 在问询阶段“排队”约三年时间后，江西九岭锂业股份有限公司（以下简称“九岭锂业”）冲A进程于近日宣告终止。
 
-特朗普在白宫回答记者提问时作出上述表态。
+上交所官网显示，公司已撤回主板IPO申请。
 
-“无论是否达成协议，我们都会撤出，”特朗普表示。
+北京商报记者注意到，在当前沪深交易所IPO审核明显提速的背景下，仍有部分企业已在问询阶段停滞较长时间。
 
-特朗普还表示，当伊朗无法拥有核武器时，美国将撤出。
+经梳理，截至目前，沪深交易所共有10家企业在2025年前就已进入问询阶段，但至今未能等到上会机会。
 
-他表示，达成协议仍有可能，因为伊朗希望达成协议。
+其中，海康机器、环动科技两宗IPO均涉及“A拆A”。
 
-责任编辑：丁文武
+问询历时三年后撤单 九岭锂业冲A进程告败。
+
+近日，上交所官网显示，因公司及保荐人撤回发行上市申请，根据有关规定，终止公司发行上市审核。
+
+从冲击上市进程来看，九岭锂业主板IPO于2023年2月28日获得上交所受理，随后于同年3月26日进入问询阶段。
 
 ## 相关推荐
 
-- 2026-06-29 20:22 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 20:18 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 19:55 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 20:05 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 19:58 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 20:01 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 20:01 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 20:12 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 19:55 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 20:21 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 20:16 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 19:58 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 20:07 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 20:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 20:02 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 20:04 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 20:11 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 20:01 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 20:10 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 20:24 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 20:05 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 20:07 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 20:14 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 20:08 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 20:19 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 20:01 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:16 - [叠纸](https://www.share.kurohicncr.top/Article/details/430360289.shtml)
-- 2026-06-29 20:23 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/74056130574.shtml)
-- 2026-06-29 20:09 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/74067901.shtml)
-- 2026-06-29 20:01 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.minike.top/Article/details/88497.shtml)
-- 2026-06-29 19:55 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/30986.shtml)
-- 2026-06-29 20:17 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/32261.shtml)
-- 2026-06-29 20:05 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/525545767030.shtml)
-- 2026-06-29 20:20 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/440801512.shtml)
-- 2026-06-29 19:57 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/977639511705.shtml)
-- 2026-06-29 20:23 - [叠纸](http://www.blog.minike.top/Article/details/6891924.shtml)
-- 2026-06-29 20:03 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/455512590778.shtml)
-- 2026-06-29 20:16 - [沙丘](https://www.blog.kurohicncr.top/Article/details/834728969.shtml)
-- 2026-06-29 20:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/316176023.shtml)
-- 2026-06-29 20:22 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/66401786244.shtml)
-- 2026-06-29 20:01 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/282081579.shtml)
+- 2026-06-29 20:15 - [《贺子珍》](http://www.share.minike.top/Article/details/4975853977.shtml)
+- 2026-06-29 20:08 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/74211938.shtml)
+- 2026-06-29 20:10 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/2855413772.shtml)
+- 2026-06-29 20:29 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/7134302.shtml)
+- 2026-06-29 20:24 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/07743802379.shtml)
+- 2026-06-29 20:00 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/13237.shtml)
+- 2026-06-29 20:19 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/60312.shtml)
+- 2026-06-29 20:18 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/919333256520.shtml)
+- 2026-06-29 20:10 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/21150270663.shtml)
+- 2026-06-29 20:11 - [扬名立万](http://www.share.kurohicncr.top/Article/details/8150594764.shtml)
+- 2026-06-29 20:15 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/732393238.shtml)
+- 2026-06-29 20:16 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.minike.top/Article/details/355055606344.shtml)
+- 2026-06-29 20:13 - [恋与深空7天掉粉超50万](http://www.share.kurohicncr.top/Article/details/40936.shtml)
+- 2026-06-29 20:01 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/898240.shtml)
+- 2026-06-29 20:13 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/40142058.shtml)

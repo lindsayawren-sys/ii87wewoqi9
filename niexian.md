@@ -1,57 +1,61 @@
-# 2026年一季度创新药BD交易突破600亿美元！恒生创新药ETF华泰柏瑞（520500）成交额显著放量
+# “中国牡丹画第一人”邵仲节近70幅画作亮相太原
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-在A股市场震荡分化、科技与成长板块持续调整的背景下，具备政策红利与业绩拐点的创新药板块吸引力显著提升，创新药概念逆势崛起，成为当前市场瞩目的核心主线之一。今日（26/3/31）早盘，创新药板块延续回暖态势，相关ETF交投火热。 Wind数据显示，当前全市场仅有的跟踪恒生创新药指数的ETF产品——恒生创新药ETF华泰柏瑞（520500）成交额近期显著放量。截至最新（26/3/30
+中新网太原4月14日电 (记者 范丽芳 胡健)在“中国牡丹画第一人”邵仲节诞辰百年之际，“国色天香百年风华——邵仲节先生百年诞辰纪念展”于4月14日在山西省太原市博物馆开展，共展出邵仲节各时期代表作近70幅。 邵仲节(1926年——2023年)，生于山西夏县、艺成巴蜀，深耕画坛八十余载，自幼习画，专攻写意花鸟，尤以牡丹题材享誉海内外，有“牡丹之王”“邵牡丹”之美誉。他在继承传统
 
 ## 正文
 
-在A股市场震荡分化、科技与成长板块持续调整的背景下，具备政策红利与业绩拐点的创新药板块吸引力显著提升，创新药概念逆势崛起，成为当前市场瞩目的核心主线之一。
+中新网太原4月14日电 (记者 范丽芳 胡健)在“中国牡丹画第一人”邵仲节诞辰百年之际，“国色天香百年风华——邵仲节先生百年诞辰纪念展”于4月14日在山西省太原市博物馆开展，共展出邵仲节各时期代表作近70幅。
 
-今日（26/3/31）早盘，创新药板块延续回暖态势，相关ETF交投火热。
+邵仲节(1926年——2023年)，生于山西夏县、艺成巴蜀，深耕画坛八十余载，自幼习画，专攻写意花鸟，尤以牡丹题材享誉海内外，有“牡丹之王”“邵牡丹”之美誉。
 
-Wind数据显示，当前全市场仅有的跟踪恒生创新药指数的ETF产品——恒生创新药ETF华泰柏瑞（520500）成交额近期显著放量。
+他在继承传统写意精神的基础上，开创“重彩牡丹”风格，其笔下牡丹色彩浓丽、构图宏大、刚柔相济，形成典雅秀婉、雅俗共赏的艺术风格。
 
-截至最新（26/3/30），该ETF近2个交易日成交额分别达到14亿元与17亿元，而2026年以来日均成交额为5.6亿元，放量趋势明显。
+展览现场，邵仲节的牡丹画作搭配清代牡丹主题青花文物，古今相映、雅韵共生，人们三五成群，近距离观摩。
 
-今年2月底以来累计资金净流入1.46亿元，最新规模攀升至21.56亿元，创下历史新高。
+本次展览以时间为轴，分“筑基三晋·墨润巴蜀”“蓉城绽彩·风格自立”“盛世华容·笔墨巅峰”三大单元，对应其艺术生涯的萌发、确立与巅峰三个重要阶段。
 
-对外授权（BD）交易的爆发式增长成为本轮行情的直接催化剂。
+历史上，文人墨客竞相歌咏牡丹，白居易的“花开花落二十日，一城之人皆若狂”和刘禹锡的“唯有牡丹真国色，花开时节动京城”，记录民间观花盛况；汤显祖的《牡丹亭》更是让牡丹意象愈加深入市井。
 
-2026年3月28日，据国家药监局发布信息显示，2026年一季度我国创新药BD交易总额已突破600亿美元，接近2025年全年总额的一半；交易数量达53件，首付款超33亿美元，规模与增速均创历史同期新高。
+其形象亦贯穿绘画、瓷器、织绣诸域，成为一脉独立的文化传统。
 
-政策红利持续释放。
+邵仲节的女儿介绍，其父既师承前人，又刻意创新，追求神形兼备；在绘画技术上，以大幅画作展现国花的蓬勃气势，让牡丹有了更丰富的表现形式和更深的精神内涵，形成独树一帜的“邵氏牡丹画法”。
 
 ## 相关推荐
 
-- 2026-06-29 20:22 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 20:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 20:12 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 20:00 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 20:00 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 20:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 20:16 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 20:12 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 20:01 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 20:06 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 20:13 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 20:16 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 20:10 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 20:06 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 20:02 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 20:28 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 20:06 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 20:26 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 20:14 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 20:17 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 20:04 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 20:07 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 20:22 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 20:10 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 20:14 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 20:24 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:04 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/990251.shtml)
-- 2026-06-29 19:59 - [一见倾心](https://www.share.minike.top/Article/details/37293751613.shtml)
-- 2026-06-29 20:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/36405869.shtml)
-- 2026-06-29 20:09 - [无畏为自己的猫正名了](http://www.share.minike.top/Article/details/4172275.shtml)
-- 2026-06-29 19:57 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/170801.shtml)
-- 2026-06-29 20:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/19328343966.shtml)
-- 2026-06-29 20:10 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/9200761935.shtml)
-- 2026-06-29 20:14 - [王楚钦称抽签结果出来心情不好](https://www.share.kurohicncr.top/Article/details/43790335.shtml)
-- 2026-06-29 20:05 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/19985691.shtml)
-- 2026-06-29 20:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/5781457.shtml)
-- 2026-06-29 20:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/935346.shtml)
-- 2026-06-29 19:57 - [大马同意延长马航370残骸搜寻工作](http://www.share.kurohicncr.top/Article/details/39802909.shtml)
-- 2026-06-29 20:02 - [委内瑞拉发生余震](https://www.blog.minike.top/Article/details/9423046870.shtml)
-- 2026-06-29 20:07 - [林逸向方筱然求婚了](http://www.share.kurohicncr.top/Article/details/62136411634.shtml)
-- 2026-06-29 19:54 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/19232555135.shtml)
+- 2026-06-29 20:28 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/1014589823.shtml)
+- 2026-06-29 20:27 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/71679727.shtml)
+- 2026-06-29 20:09 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/344082.shtml)
+- 2026-06-29 20:29 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/66842641116.shtml)
+- 2026-06-29 20:19 - [AG 宫斗](https://www.share.minike.top/Article/details/575251179.shtml)
+- 2026-06-29 20:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/14195786198.shtml)
+- 2026-06-29 20:23 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/90079174027.shtml)
+- 2026-06-29 20:14 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/834035285.shtml)
+- 2026-06-29 20:12 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/253160882791.shtml)
+- 2026-06-29 20:24 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/956667598008.shtml)
+- 2026-06-29 20:15 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/01217564.shtml)
+- 2026-06-29 20:21 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/094750084621.shtml)
+- 2026-06-29 20:21 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/78635404.shtml)
+- 2026-06-29 20:09 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/39602739600.shtml)
+- 2026-06-29 20:11 - [《新闻联播》正在直播](https://www.blog.kurohicncr.top/Article/details/10510110.shtml)

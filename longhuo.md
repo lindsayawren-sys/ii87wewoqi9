@@ -1,44 +1,51 @@
-# 中国紫檀博物馆内，陈丽华女士相关展品停留在了2025年9月
+# 美国能源部长：在霍尔木兹海峡恢复实质规模通航前，油价可能继续上涨
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月07日 16:52 来源：中国新闻网 中新网在现场|4月7日，中国紫檀博物馆馆长陈丽华女士讣告发出后，中新网在中国紫檀博物馆内注意到陈丽华女士相关展品停留在了2025年9月，是其与蒙古国总统的夫人的合影和对方的留言册。 责任编辑：【张楠】
+美国能源部长赖特周一表示，在霍尔木兹海峡恢复“实质规模”的船舶通行前，油价可能会继续上涨；预计未来几周将出现这种情况。 赖特在华盛顿的Semafor世界经济论坛上表示，尽管他此前曾表示油价可能很快回落，但在霍尔木兹海峡航运恢复实质流量前，油价很可能维持高位甚至继续上涨。责任编辑：李桐
 
 ## 正文
 
-发布时间：2026年04月07日 16:52 来源：中国新闻网 中新网在现场|4月7日，中国紫檀博物馆馆长陈丽华女士讣告发出后，中新网在中国紫檀博物馆内注意到陈丽华女士相关展品停留在了2025年9月，是其与蒙古国总统的夫人的合影和对方的留言册。
+美国能源部长赖特周一表示，在霍尔木兹海峡恢复“实质规模”的船舶通行前，油价可能会继续上涨；预计未来几周将出现这种情况。
 
-责任编辑：【张楠】
+赖特在华盛顿的Semafor世界经济论坛上表示，尽管他此前曾表示油价可能很快回落，但在霍尔木兹海峡航运恢复实质流量前，油价很可能维持高位甚至继续上涨。
+
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 19:59 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 20:02 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 20:04 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 20:17 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 20:06 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 19:56 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 20:08 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 19:58 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 20:13 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 20:03 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 20:20 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 20:12 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 20:08 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 20:01 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 20:29 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 20:09 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 20:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 20:21 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 20:13 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 20:27 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 20:02 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 20:28 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 20:28 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 20:29 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 20:15 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:10 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/66660923.shtml)
-- 2026-06-29 20:06 - [医药生物行业今日涨5.91%](https://www.share.minike.top/Article/details/95215724.shtml)
-- 2026-06-29 19:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/86211380.shtml)
-- 2026-06-29 20:04 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/545820.shtml)
-- 2026-06-29 20:09 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/8056445928.shtml)
-- 2026-06-29 20:07 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/59781996.shtml)
-- 2026-06-29 20:13 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/70228080.shtml)
-- 2026-06-29 20:03 - [C罗10球7球对垫底队](https://www.share.minike.top/Article/details/6701413.shtml)
-- 2026-06-29 20:03 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/56273.shtml)
-- 2026-06-29 19:58 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/338033088.shtml)
-- 2026-06-29 20:13 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/83209597632.shtml)
-- 2026-06-29 20:05 - [毒液2](https://www.share.kurohicncr.top/Article/details/75154698216.shtml)
-- 2026-06-29 20:17 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.kurohicncr.top/Article/details/5339655999.shtml)
-- 2026-06-29 20:10 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/791462.shtml)
-- 2026-06-29 20:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/985876810.shtml)
+- 2026-06-29 20:14 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/6737039892.shtml)
+- 2026-06-29 20:15 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.minike.top/Article/details/190258772.shtml)
+- 2026-06-29 20:08 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/5461818101.shtml)
+- 2026-06-29 20:11 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/82540.shtml)
+- 2026-06-29 20:10 - [一见倾心](https://www.blog.minike.top/Article/details/507889.shtml)
+- 2026-06-29 20:02 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.kurohicncr.top/Article/details/526093707034.shtml)
+- 2026-06-29 20:08 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/5349281.shtml)
+- 2026-06-29 20:17 - [MG总经理直播被冲](http://www.blog.kurohicncr.top/Article/details/623885515.shtml)
+- 2026-06-29 20:20 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/400530.shtml)
+- 2026-06-29 20:04 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/840373.shtml)
+- 2026-06-29 20:23 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/1049642640.shtml)
+- 2026-06-29 20:17 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.minike.top/Article/details/36431.shtml)
+- 2026-06-29 20:13 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/94685655.shtml)
+- 2026-06-29 20:02 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/22135.shtml)
+- 2026-06-29 20:09 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/6696205.shtml)

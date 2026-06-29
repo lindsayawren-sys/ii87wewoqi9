@@ -1,56 +1,57 @@
-# 最后期限将至！特朗普威胁伊朗：“今晚，整个文明将消亡。”
+# 帝国烟草预计调整后营业利润上升
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！特朗普威胁伊朗：“整个文明将消亡” 新华社华盛顿4月7日电 美国总统特朗普7日在社交媒体上发文威胁伊朗称，“今晚，整个文明将消亡”。 特朗普写道：“我不愿这样的事情发生，但它或许会发生。” 美副总统万斯：战争将很快结束 央视新闻客户端消息，当地时间7日，美国副总统万斯到访匈牙利首都布达佩斯，并与匈牙利总理欧
+专题：聚焦美股2026年第一季度财报 2025 财年上半年实现调整后营业利润 22.3 亿美元 帝国烟草表示，得益于烟草产品定价坚挺以及电子烟、加热烟草和口服尼古丁产品的收入增长，公司预计 2026 财年上半年调整后营业利润将有所上升。 这家在伦敦上市的烟草企业旗下拥有大卫杜夫、高卢、JPS 等品牌，公司称，在截至 9 月 30 日的财年中，下半年增长有望进一步提速。 帝国烟草
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：聚焦美股2026年第一季度财报 2025 财年上半年实现调整后营业利润 22.3 亿美元 帝国烟草表示，得益于烟草产品定价坚挺以及电子烟、加热烟草和口服尼古丁产品的收入增长，公司预计 2026 财年上半年调整后营业利润将有所上升。
 
-特朗普威胁伊朗：“整个文明将消亡” 新华社华盛顿4月7日电 美国总统特朗普7日在社交媒体上发文威胁伊朗称，“今晚，整个文明将消亡”。
+这家在伦敦上市的烟草企业旗下拥有大卫杜夫、高卢、JPS 等品牌，公司称，在截至 9 月 30 日的财年中，下半年增长有望进一步提速。
 
-特朗普写道：“我不愿这样的事情发生，但它或许会发生。
+帝国烟草表示，上半年在欧洲、非洲、亚洲市场表现强劲，抵消了美国、澳大利亚市场以及旗下控股多数股权的分销公司 Logista 业绩疲软带来的影响。
 
-” 美副总统万斯：战争将很快结束 央视新闻客户端消息，当地时间7日，美国副总统万斯到访匈牙利首都布达佩斯，并与匈牙利总理欧尔班举行联合新闻发布会。
+2025 财年上半年，公司实现调整后营业利润 16.5 亿英镑（合 22.3 亿美元）。
 
-万斯表示，美以已完成伊朗战争的军事目的，战争将很快结束，将举行相应谈判。
+公司预计，本财年上半年，烟草业务板块与下一代产品（包含电子烟、加热烟草及口服尼古丁品类）的净收入均将实现低个位数增长。
 
-“最后期限”将至，美伊还能谈妥吗 新华社北京4月7日电 美国总统特朗普6日声称，如果伊朗未能在美东时间7日20时（北京时间8日8时）前“开放”霍尔木兹海峡，美国将发动一场4小时的空袭，炸毁伊朗所有桥梁和发电站。
+帝国烟草重申了本财年业绩指引。
 
-分析人士认为，美伊目前的间接“谈和”存在一大关键分歧、两项核心矛盾和一个“不安的搅局者”，达成协议前景不乐观。
+公司表示，尽管目前中东冲突尚未对业务造成实质性影响，但下半年潜在的后续影响仍存在不确定性。
 
-一大关键分歧：临时停火还是结束战争 观察人士分析，美伊之间涉及停火协议的一大关键分歧在于，是“临时性停火”还是“永久结束战争”。
+2026 财年，公司预计调整后营业利润将在去年 39.9 亿英镑的基础上增长 3% 至 5%。
 
 ## 相关推荐
 
-- 2026-06-29 20:00 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 19:59 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 20:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 20:09 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 19:55 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 20:09 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 20:14 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 19:57 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 19:54 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 20:19 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 20:19 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 20:12 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 20:18 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 20:24 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 20:21 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 20:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 20:00 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 20:03 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 20:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 20:26 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 20:17 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:07 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/7764574121.shtml)
-- 2026-06-29 20:07 - [温网](https://www.blog.kurohicncr.top/Article/details/91184.shtml)
-- 2026-06-29 19:56 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/0834639.shtml)
-- 2026-06-29 20:07 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.minike.top/Article/details/4086448.shtml)
-- 2026-06-29 20:07 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/955086361538.shtml)
-- 2026-06-29 20:13 - [欧洲极端高温如何影响家电股](https://www.blog.kurohicncr.top/Article/details/0661081.shtml)
-- 2026-06-29 20:20 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/77950852597.shtml)
-- 2026-06-29 20:11 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/82207486971.shtml)
-- 2026-06-29 20:12 - [官方通报一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/61570116013.shtml)
-- 2026-06-29 19:54 - [送你一朵小红花](http://www.share.minike.top/Article/details/6632553.shtml)
-- 2026-06-29 20:07 - [扩军害了世界杯吗](http://www.share.kurohicncr.top/Article/details/149264.shtml)
-- 2026-06-29 20:10 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/302833.shtml)
-- 2026-06-29 20:08 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/8987333.shtml)
-- 2026-06-29 20:14 - [夫妻生活太无聊，所以我……](https://www.share.kurohicncr.top/Article/details/501366.shtml)
-- 2026-06-29 20:22 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/627568.shtml)
+- 2026-06-29 20:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/334881669.shtml)
+- 2026-06-29 20:08 - [毒液2](http://www.blog.kurohicncr.top/Article/details/4949760919.shtml)
+- 2026-06-29 20:12 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/17587162431.shtml)
+- 2026-06-29 20:00 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/3697740.shtml)
+- 2026-06-29 20:06 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/96828735.shtml)
+- 2026-06-29 20:17 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/666452.shtml)
+- 2026-06-29 20:20 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/860340.shtml)
+- 2026-06-29 20:09 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/3709024.shtml)
+- 2026-06-29 20:01 - [金刚川](http://www.blog.kurohicncr.top/Article/details/838754830.shtml)
+- 2026-06-29 20:21 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/52328978.shtml)
+- 2026-06-29 20:05 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/067602.shtml)
+- 2026-06-29 20:01 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/74474311.shtml)
+- 2026-06-29 20:12 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.minike.top/Article/details/0108019.shtml)
+- 2026-06-29 20:09 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/28136717555.shtml)
+- 2026-06-29 20:03 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/12090489996.shtml)

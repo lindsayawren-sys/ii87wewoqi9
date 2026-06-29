@@ -1,57 +1,56 @@
-# 美国汽油均价突破每加仑4美元 创2022年以来新高
+# 600267，直线拉涨停！
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-要点 美国汽油价格三年多来首次突破每加仑 4 美元，中东冲突引发的石油供应震荡正迅速推高美国家庭的出行成本。 美国汽车协会（AAA）数据显示，全美汽油均价已达每加仑 4.018 美元，为 2022 年 8 月俄乌冲突冲击能源市场以来的最高水平。自 2 月下旬美以对伊朗采取军事行动后，汽油价格涨幅已超 30%。 美国环保署署长李・泽尔丁上周在休斯敦标普全球 CERAWeek 能源
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】A股三大指数涨跌不一，GPU板块强势走高，医药板块多股涨停 中国基金报记者 李智 4月15日上午，A股三大指数集体高开，创业板指盘中刷新十年新高，随后震荡调整。截至午间收盘，沪指涨0.37%，深成指跌0.25%，创业板指跌0.23%，科创综指涨1.47%。 从板块上看，GPU板块强
 
 ## 正文
 
-要点 美国汽油价格三年多来首次突破每加仑 4 美元，中东冲突引发的石油供应震荡正迅速推高美国家庭的出行成本。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-美国汽车协会（AAA）数据显示，全美汽油均价已达每加仑 4.018 美元，为 2022 年 8 月俄乌冲突冲击能源市场以来的最高水平。
+来源：中国基金报 【导读】A股三大指数涨跌不一，GPU板块强势走高，医药板块多股涨停 中国基金报记者 李智 4月15日上午，A股三大指数集体高开，创业板指盘中刷新十年新高，随后震荡调整。
 
-自 2 月下旬美以对伊朗采取军事行动后，汽油价格涨幅已超 30%。
+截至午间收盘，沪指涨0.37%，深成指跌0.25%，创业板指跌0.23%，科创综指涨1.47%。
 
-美国环保署署长李・泽尔丁上周在休斯敦标普全球 CERAWeek 能源大会上对记者表示：“我们预计美国燃油供应可能出现中断。
+从板块上看，GPU板块强势走高，医药、航空、半导体板块表现活跃；油气、煤炭、锂电等方向跌幅居前。
 
-” 为缓解价格压力，环保署正临时放宽部分监管规定以增加汽油供应。
+港股方面，恒生科技指数涨1.84%，京东集团、百度集团、携程集团涨幅居前。
 
-副总统 JD・万斯对消费者表示，未来几周汽油价格将面临 “艰难局面”。
+算力芯片股震荡拉升 消费电子板块表现活跃 GPU板块强势走高，算力芯片股震荡拉升，沐曦股份涨超13%，摩尔线程涨逾6%，寒武纪盘中一度涨超6%，成交额达111亿元。
 
-他承诺此次价格暴涨只是暂时现象，战争结束后油价便会回落。
+此外，中芯国际、海光信息、芯原股份等跟涨。
 
-3 月 18 日，万斯在密歇根州奥本山的一场活动中称：“我们意识到了问题所在，也正在尽一切努力解决问题。
+消费电子板块表现活跃，折叠屏概念股异动拉升，奥尼电子20cm涨停，福蓉科技（维权）涨停，四川长虹、海菲曼、海信视像等冲高。
 
 ## 相关推荐
 
-- 2026-06-29 20:11 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 19:55 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 19:58 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 20:12 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 19:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 20:16 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 20:17 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 20:03 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 19:54 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 19:54 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 20:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 20:10 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 20:05 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 20:18 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 20:05 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 20:05 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 20:14 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 20:22 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 20:26 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 20:02 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 20:12 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:20 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/46375509257.shtml)
-- 2026-06-29 20:05 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/236700356854.shtml)
-- 2026-06-29 20:01 - [Ella回应SHE何时合体](https://www.blog.minike.top/Article/details/678881.shtml)
-- 2026-06-29 20:01 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.kurohicncr.top/Article/details/22067095462.shtml)
-- 2026-06-29 19:55 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/5337392752.shtml)
-- 2026-06-29 20:23 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/849434104395.shtml)
-- 2026-06-29 20:09 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/755263.shtml)
-- 2026-06-29 20:00 - [流金岁月](http://www.share.minike.top/Article/details/1080342.shtml)
-- 2026-06-29 19:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/740998.shtml)
-- 2026-06-29 20:18 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/2033554.shtml)
-- 2026-06-29 19:55 - [德国医生在没有空调的手术室工作](http://www.blog.minike.top/Article/details/5134392.shtml)
-- 2026-06-29 20:08 - [Ella回应SHE何时合体](https://www.share.kurohicncr.top/Article/details/9723506.shtml)
-- 2026-06-29 20:24 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/76857950720.shtml)
-- 2026-06-29 20:05 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/3128931808.shtml)
-- 2026-06-29 20:07 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/995738.shtml)
+- 2026-06-29 20:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/5981614.shtml)
+- 2026-06-29 20:14 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/392294813099.shtml)
+- 2026-06-29 20:23 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/221467124147.shtml)
+- 2026-06-29 20:10 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/65896116.shtml)
+- 2026-06-29 20:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/06358089412.shtml)
+- 2026-06-29 20:24 - [法生态部长反对装空调却自己吹空调](https://www.blog.kurohicncr.top/Article/details/830637.shtml)
+- 2026-06-29 20:04 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/3244637511.shtml)
+- 2026-06-29 20:16 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/27600036.shtml)
+- 2026-06-29 20:23 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/33211.shtml)
+- 2026-06-29 20:17 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/711014.shtml)
+- 2026-06-29 20:27 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/849507420637.shtml)
+- 2026-06-29 20:27 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/89267.shtml)
+- 2026-06-29 20:23 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/30563.shtml)
+- 2026-06-29 20:02 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/46296152.shtml)
+- 2026-06-29 20:29 - [网友晒14年前支教影像等来学生评论](https://www.share.minike.top/Article/details/5943019.shtml)

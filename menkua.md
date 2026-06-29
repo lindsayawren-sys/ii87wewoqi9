@@ -1,58 +1,60 @@
-# 免费领养变“猫贷”？下单前先用这个功能“瞄一眼”，避开新型消费陷阱
+# 重庆海关技术中心2026年第一批固体废物属性鉴别服务采购项目征求报价公告
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-最近，“免费领养猫咪”的帖子在社交平台上随处可见。发帖人往往声称“因个人原因无法继续饲养”，为猫咪寻找新家，言辞恳切，照片里的小猫更是萌化人心。然而，当你满怀爱心地联系对方，却被引导至线下门店时，可能会发现事情没那么简单——所谓的“免费领养”，实际上是一份长达24个月的“猫贷”合同。 爱心背后的“猫贷”套路 据媒体报道，不少消费者陷入了这种新型消费陷阱。商家打着“防止弃养”的旗
+一、项目基本情况 项目名称：重庆海关技术中心2026年第一批固体废物属性鉴别服务采购项目； 预算金额：88000元。 项目需求：技术中心2026年第一批固体废物属性鉴别服务，具体要求详见第五章“项目需求书”。合同履约期限：详见第五章“项目需求书”。 本项目不接受联合体投标。 二、★供应商资格要求 1、满足《中华人民共和国政府采购法》第二十二条规定； 2、特定资格条件：属于《关于
 
 ## 正文
 
-最近，“免费领养猫咪”的帖子在社交平台上随处可见。
+一、项目基本情况 项目名称：重庆海关技术中心2026年第一批固体废物属性鉴别服务采购项目； 预算金额：88000元。
 
-发帖人往往声称“因个人原因无法继续饲养”，为猫咪寻找新家，言辞恳切，照片里的小猫更是萌化人心。
+项目需求：技术中心2026年第一批固体废物属性鉴别服务，具体要求详见第五章“项目需求书”。
 
-然而，当你满怀爱心地联系对方，却被引导至线下门店时，可能会发现事情没那么简单——所谓的“免费领养”，实际上是一份长达24个月的“猫贷”合同。
+合同履约期限：详见第五章“项目需求书”。
 
-爱心背后的“猫贷”套路 据媒体报道，不少消费者陷入了这种新型消费陷阱。
+本项目不接受联合体投标。
 
-商家打着“防止弃养”的旗号，要求领养人绑定银行卡，每月自动扣款数百元，用于在指定商城购买宠物用品。
+二、★供应商资格要求 1、满足《中华人民共和国政府采购法》第二十二条规定； 2、特定资格条件：属于《关于推荐固体废物属性鉴别机构的通知》(环土壤函\[2017\]287号 )推荐机构或具备中国合格评定国家委员会授予的固废鉴别资质，提供相关佐证材料并加盖投标人公章； 3、落实政府采购政策需满足的资格要求：落实中小微企业、监狱企业、残疾人福利性单位采购优惠政策； 4、征求报价日通过“信用中国”网站查询，未被列入“失信被执行人、重大税收违法案件当事人名单、政府采购严重违法失信行为记录”名单的； 5、本项目不允许转包。
 
-有消费者领养小猫不到四个月，猫咪因病死亡，却依然要按时支付剩余分期款项。
+三、征求报价文件的获取 获取时间：2026年4月14日起至提交响应文件截止时间前； 获取方式：在重庆海关互联网官方网站自行下载本项目的征求报价文件、答疑、补遗等与本项目有关的所有资料，并随时关注本项目相关修改或补充内容。
 
-更令人气愤的是，当消费者想要解约时，商家不仅无法提供猫咪领养时的健康证明，还以“合同义务”为由拒绝终止扣款 。
+无论供应商下载与否，采购人都视为供应商已收到以上资料并全部知晓有关征求报价采购过程和事宜，由此产生的一切后果由供应商自负； 售价：无。
 
-这其实就是利用人们的爱心和同情心，通过“免费”作为诱饵，将一次性消费变成了长期的分期付款。
+四、响应文件的递交 1、响应文件的递交 凡有意参加的供应商，请于2024年4月17日14：30(北京时间)前，采取邮寄方式，将响应文件送达采购人，文件包括一正一副响应文件，并在封面右上角注明。
 
 ## 相关推荐
 
-- 2026-06-29 19:56 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 20:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 19:54 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 20:15 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 20:12 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 19:54 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 20:22 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 20:19 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 20:10 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 19:59 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 20:09 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 20:04 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 20:19 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 20:17 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 20:26 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 20:13 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 20:23 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 20:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 20:08 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 20:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 20:27 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 20:13 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 20:16 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 20:05 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 20:21 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 20:13 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:10 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/445608.shtml)
-- 2026-06-29 20:00 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/699525.shtml)
-- 2026-06-29 20:21 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.minike.top/Article/details/326419.shtml)
-- 2026-06-29 20:17 - [LPL第三赛段赛制公布](http://www.share.kurohicncr.top/Article/details/05428.shtml)
-- 2026-06-29 20:11 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/28452995371.shtml)
-- 2026-06-29 20:10 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/54538227417.shtml)
-- 2026-06-29 20:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/432025217.shtml)
-- 2026-06-29 20:22 - [回顾世界杯争议事件](http://www.blog.minike.top/Article/details/32422465.shtml)
-- 2026-06-29 19:59 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/51952622.shtml)
-- 2026-06-29 19:59 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/77143521759.shtml)
-- 2026-06-29 20:10 - [王俊凯命名方式](http://www.share.kurohicncr.top/Article/details/48254577158.shtml)
-- 2026-06-29 20:22 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/7156411.shtml)
-- 2026-06-29 19:55 - [美人鱼](http://www.share.kurohicncr.top/Article/details/09208406.shtml)
-- 2026-06-29 20:22 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/837374771500.shtml)
-- 2026-06-29 20:06 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/853551.shtml)
+- 2026-06-29 20:27 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/1113953250.shtml)
+- 2026-06-29 20:15 - [起风了](https://www.blog.minike.top/Article/details/87612.shtml)
+- 2026-06-29 20:13 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/9643341.shtml)
+- 2026-06-29 20:27 - [极限挑战第一季](http://www.share.minike.top/Article/details/56644427412.shtml)
+- 2026-06-29 20:22 - [大马同意延长马航370残骸搜寻工作](https://www.blog.minike.top/Article/details/7646418259.shtml)
+- 2026-06-29 20:26 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/628203.shtml)
+- 2026-06-29 20:02 - [葛军透露高考出题思路](http://www.share.minike.top/Article/details/636861.shtml)
+- 2026-06-29 20:18 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/241615355.shtml)
+- 2026-06-29 20:29 - [王楚钦开门红](http://www.blog.minike.top/Article/details/220700.shtml)
+- 2026-06-29 20:06 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/5489339.shtml)
+- 2026-06-29 20:20 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/17195.shtml)
+- 2026-06-29 20:07 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/534798513.shtml)
+- 2026-06-29 20:29 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/976843.shtml)
+- 2026-06-29 20:09 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/613233538.shtml)
+- 2026-06-29 20:19 - [金牌调解](http://www.share.minike.top/Article/details/39423603.shtml)

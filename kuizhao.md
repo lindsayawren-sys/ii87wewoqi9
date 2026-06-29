@@ -1,56 +1,53 @@
-# Stellantis正与中国零跑汽车深入洽谈合作开发欧宝纯电动车
+# 韩国3月份汽车出口额同比增长2.2%，对中东出口暴跌40.8%
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-三位消息人士透露，Stellantis 集团正与零跑汽车展开深入谈判，拟合作开发一款欧宝（Opel）品牌纯电动 SUV。新车将采用这家中国车企的技术，在 Stellantis 位于西班牙的萨拉戈萨工厂生产。 若该协议最终敲定，将帮助 Stellantis 降低全新电动车型的研发成本、缩短研发周期。这家法意合资车企正将重心转向油电混动汽车。今年早些时候，该集团宣布因缩减电动车业务
+韩国产业通商资源部周三公布的数据显示，受混合动力汽车强劲需求的推动，韩国3月份汽车出口额同比增长2.2%，达到63.7亿美元，为历史同月第二高水平。 其中，混合动力汽车的出口额同比增长79%，是3月份出口增长的主要推动力。 数据显示，按出口目的地划分，对欧盟的出口额增长了33%，但对亚洲和中东的出口额分别下降了38.4%和40.8%，部分原因是受美伊冲突的影响。 今年1-3月份
 
 ## 正文
 
-三位消息人士透露，Stellantis 集团正与零跑汽车展开深入谈判，拟合作开发一款欧宝（Opel）品牌纯电动 SUV。
+韩国产业通商资源部周三公布的数据显示，受混合动力汽车强劲需求的推动，韩国3月份汽车出口额同比增长2.2%，达到63.7亿美元，为历史同月第二高水平。
 
-新车将采用这家中国车企的技术，在 Stellantis 位于西班牙的萨拉戈萨工厂生产。
+其中，混合动力汽车的出口额同比增长79%，是3月份出口增长的主要推动力。
 
-若该协议最终敲定，将帮助 Stellantis 降低全新电动车型的研发成本、缩短研发周期。
+数据显示，按出口目的地划分，对欧盟的出口额增长了33%，但对亚洲和中东的出口额分别下降了38.4%和40.8%，部分原因是受美伊冲突的影响。
 
-这家法意合资车企正将重心转向油电混动汽车。
+今年1-3月份，韩国汽车出口总额为172亿美元，同比下降0.2%。
 
-今年早些时候，该集团宣布因缩减电动车业务规划，计提 250 亿美元资产减值。
+上个月韩国国内共售出164，813辆汽车，同比增长10.2%。
 
-此举同时意在抵御比亚迪等中国品牌在欧洲市场的竞争，并提升其欧洲工厂的产能利用率。
-
-Stellantis 首席执行官安东尼奥・菲洛萨于去年 6 月上任，将于 5 月 21 日公布全新长期业务规划。
-
-Stellantis 于 2023 年收购零跑汽车约五分之一股份后，双方建立合作关系，并共同成立零跑国际合资公司，负责零跑汽车在海外市场的销售与生产。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 20:01 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 20:07 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 20:16 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 20:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 19:55 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 19:54 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 20:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 20:00 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 20:19 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 20:04 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 20:21 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 20:14 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 20:28 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 20:09 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 20:24 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 20:24 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 20:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 20:11 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 20:29 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 20:25 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 20:20 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:57 - [第一炉香](https://www.blog.minike.top/Article/details/2055994.shtml)
-- 2026-06-29 20:06 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/371897221.shtml)
-- 2026-06-29 20:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/3474205.shtml)
-- 2026-06-29 20:21 - [AG 宫斗](http://www.share.minike.top/Article/details/308912705036.shtml)
-- 2026-06-29 20:21 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/354422862.shtml)
-- 2026-06-29 20:11 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/19675079168.shtml)
-- 2026-06-29 20:05 - [法生态部长反对装空调却自己吹空调](http://www.blog.minike.top/Article/details/98532.shtml)
-- 2026-06-29 20:00 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/2205957440.shtml)
-- 2026-06-29 20:00 - [扫黑风暴](https://www.blog.minike.top/Article/details/663561047.shtml)
-- 2026-06-29 20:01 - [河南高院审委会原委员曲海滨被查](https://www.blog.minike.top/Article/details/61501.shtml)
-- 2026-06-29 20:01 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/80334889598.shtml)
-- 2026-06-29 20:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/007571.shtml)
-- 2026-06-29 20:17 - [中方向委方追加1亿元援助](http://www.share.kurohicncr.top/Article/details/67108275.shtml)
-- 2026-06-29 20:10 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/96520245.shtml)
-- 2026-06-29 20:03 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/7334124.shtml)
+- 2026-06-29 20:27 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/042097.shtml)
+- 2026-06-29 20:14 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/462633.shtml)
+- 2026-06-29 20:20 - [王楚钦称抽签结果出来心情不好](https://www.share.kurohicncr.top/Article/details/3844476748.shtml)
+- 2026-06-29 20:16 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/19292630.shtml)
+- 2026-06-29 20:12 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/3791789.shtml)
+- 2026-06-29 20:21 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/370509299182.shtml)
+- 2026-06-29 20:20 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/10403.shtml)
+- 2026-06-29 20:19 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/850503000.shtml)
+- 2026-06-29 20:00 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/13168015605.shtml)
+- 2026-06-29 20:20 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/97786136.shtml)
+- 2026-06-29 20:08 - [东宫女主是不是顶级恋爱脑](http://www.blog.kurohicncr.top/Article/details/358334.shtml)
+- 2026-06-29 20:27 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/966671297.shtml)
+- 2026-06-29 20:17 - [无畏为自己的猫正名了](https://www.blog.minike.top/Article/details/77812.shtml)
+- 2026-06-29 20:07 - [医药生物行业今日涨5.91%](https://www.share.kurohicncr.top/Article/details/446296025.shtml)
+- 2026-06-29 20:11 - [本届世界杯已有5人涉性侵风波](https://www.blog.kurohicncr.top/Article/details/7341002141.shtml)

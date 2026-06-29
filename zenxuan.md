@@ -1,56 +1,47 @@
-# 一部电影亏掉全部利润 果麦文化上市以来首度亏损
+# 拾光纪·习近平会见西班牙首相，这三个关键词值得关注
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-2026年3月30日晚间，果麦文化传媒股份有限公司（301052.SZ）发布了2025年年度报告，交出了一份令市场倍感意外的成绩单。公司在2025年实现营业收入6.41亿元，同比增长10.11%，在整体图书零售市场码洋同比下降2.24%的行业寒冷冬中实现了逆势增长。 然而，这却是果麦文化自2021年上市以来首次出现年度亏损，归母净利润亏损208.11万元，同比大幅下滑105.1
+发布时间：2026年04月14日 21:33 来源：人民日报客户端 责任编辑：【韦俊龙】
 
 ## 正文
 
-2026年3月30日晚间，果麦文化传媒股份有限公司（301052.SZ）发布了2025年年度报告，交出了一份令市场倍感意外的成绩单。
-
-公司在2025年实现营业收入6.41亿元，同比增长10.11%，在整体图书零售市场码洋同比下降2.24%的行业寒冷冬中实现了逆势增长。
-
-然而，这却是果麦文化自2021年上市以来首次出现年度亏损，归母净利润亏损208.11万元，同比大幅下滑105.10%，而扣除非经常性损益后的净利润亏损更为惨烈，高达3522.43万元，同比暴跌196.35%。
-
-利润坍塌的“罪魁祸首”：一部电影亏掉全部利润 果麦文化上市以来首次亏损的核心导火索，并非主业疲软，而是跨界电影投资的一次重大失误。
-
-2025年10月，公司主投主控的动画电影《三国的星空第一部》上映后票房严重不及预期，导致投入的电影制作成本无法收回，全年电影业务确认亏损高达4360万元。
-
-这一数字意味着什么？
-
-2024年果麦文化全年的归母净利润不过4083万元。
-
-一部电影的投资失利，几乎直接吞噬了公司当年主业所创造的绝大部分利润。
+发布时间：2026年04月14日 21:33 来源：人民日报客户端 责任编辑：【韦俊龙】
 
 ## 相关推荐
 
-- 2026-06-29 20:08 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 20:20 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 19:55 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 19:54 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 20:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 20:05 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 20:11 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 19:57 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 20:04 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 20:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 20:25 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 20:03 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 20:18 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 20:16 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 20:28 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 20:25 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 20:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 20:16 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 20:09 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 20:24 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 20:22 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 20:23 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 20:07 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 20:28 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 20:20 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:56 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/70192147.shtml)
-- 2026-06-29 20:14 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/542357810214.shtml)
-- 2026-06-29 19:57 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/701415877539.shtml)
-- 2026-06-29 20:21 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/825078.shtml)
-- 2026-06-29 20:16 - [滚石点名酒店员工说有急救培训](https://www.share.kurohicncr.top/Article/details/04615.shtml)
-- 2026-06-29 20:03 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/33341.shtml)
-- 2026-06-29 20:16 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/47582379.shtml)
-- 2026-06-29 20:20 - [美人鱼](http://www.blog.minike.top/Article/details/995630401534.shtml)
-- 2026-06-29 20:04 - [天道](https://www.blog.minike.top/Article/details/072701.shtml)
-- 2026-06-29 20:06 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/41184.shtml)
-- 2026-06-29 20:23 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/52285986970.shtml)
-- 2026-06-29 19:58 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/457045.shtml)
-- 2026-06-29 19:54 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/028231.shtml)
-- 2026-06-29 20:20 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/87790125.shtml)
-- 2026-06-29 20:20 - [LPL第三赛段赛制公布](https://www.blog.kurohicncr.top/Article/details/580050020670.shtml)
+- 2026-06-29 20:27 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/133589357.shtml)
+- 2026-06-29 20:17 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/79595.shtml)
+- 2026-06-29 20:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/546903.shtml)
+- 2026-06-29 20:12 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/53628495.shtml)
+- 2026-06-29 20:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/669311314353.shtml)
+- 2026-06-29 20:20 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/7544336.shtml)
+- 2026-06-29 20:13 - [宜宾地震已转移安置225人](https://www.blog.minike.top/Article/details/324531491.shtml)
+- 2026-06-29 20:11 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/524359131186.shtml)
+- 2026-06-29 20:24 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/69725.shtml)
+- 2026-06-29 20:07 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/910057326.shtml)
+- 2026-06-29 20:24 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/03400211.shtml)
+- 2026-06-29 20:21 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/22179.shtml)
+- 2026-06-29 20:16 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/133938527.shtml)
+- 2026-06-29 20:02 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/690350297.shtml)
+- 2026-06-29 20:05 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/067538579952.shtml)

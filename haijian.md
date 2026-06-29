@@ -1,56 +1,59 @@
-# 迎接第六届消博会 海口城市综合保障工作全面就绪
+# *ST万方锁定“市值退市”，投资者维权征集中
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-中新网海口4月7日电 (张月和)第六届中国国际消费品博览会(简称“消博会”)是展示海南自贸港省会城市形象、激发消费活力、扩大对外开放的重要平台。海口市人民政府副秘书长郑海龙7日表示，海口市聚焦服务精细化、氛围特色化、保障高效化，全力推进城市综合保障各项工作，目前已全面就绪，进入优化提升与全要素实战演练阶段。第六届中国国际消费品博览会城市综合保障新闻发布会7日在海口举行。郑海龙会
+登录新浪财经APP 搜索【信披】查看更多考评等级 一、被交易所终止上市 4月13日盘后，*ST万方（维权）（000638）发布公告称，截至2026年4月13日，公司股票已连续20个交易日收盘总市值均低于5亿元，已触及终止上市的情形。当天，公司收到深交所下发的《终止上市事先告知书》，拟决定终止公司股票上市交易。 然而在退市危机爆发之前，该公司早已深陷财务造假与信披违规的泥潭，且已
 
 ## 正文
 
-中新网海口4月7日电 (张月和)第六届中国国际消费品博览会(简称“消博会”)是展示海南自贸港省会城市形象、激发消费活力、扩大对外开放的重要平台。
+登录新浪财经APP 搜索【信披】查看更多考评等级 一、被交易所终止上市 4月13日盘后，*ST万方（维权）（000638）发布公告称，截至2026年4月13日，公司股票已连续20个交易日收盘总市值均低于5亿元，已触及终止上市的情形。
 
-海口市人民政府副秘书长郑海龙7日表示，海口市聚焦服务精细化、氛围特色化、保障高效化，全力推进城市综合保障各项工作，目前已全面就绪，进入优化提升与全要素实战演练阶段。
+当天，公司收到深交所下发的《终止上市事先告知书》，拟决定终止公司股票上市交易。
 
-第六届中国国际消费品博览会城市综合保障新闻发布会7日在海口举行。
+然而在退市危机爆发之前，该公司早已深陷财务造假与信披违规的泥潭，且已被中国证监会立案调查。
 
-郑海龙会上介绍，海口以精准化、国际化标准，全面提升交通出行、餐饮住宿与城市服务水平，为参会嘉宾提供舒心便捷的体验。
+对于涉及其中的投资者而言，参与索赔或是挽回损失的唯一途径。
 
-交通出行方面，海口加密19条途经会展中心、免税城的公交线路班次，开通7条消博会专线、4条免费接驳线，高效衔接机场、高铁站、酒店、商圈与展会场馆。
+值得注意的是，因交易类强制退市（市值退市）而终止上市的股票不进入退市整理期。
 
-对场馆周边3公里出租车运力实施动态监测调度，储备30辆应急公交与2辆救援车辆，安排志愿者现场引导，确保客流疏运高效顺畅。
+虽然公司退市尘埃落定，但“退市”不等于“免责”。
 
-公交车、出租车、网约车全部使用清洁能源，倡导绿色出行。
+即便公司股票从主板摘牌，只要其违规事实成立，上市公司本身及其相关责任人仍需对投资者的损失进行赔偿。
 
-餐饮住宿方面，海口组织酒店、餐饮、零售行业从业者开展专项服务培训，强化服务标准、食品安全与应急处置能力。
+二、信披违规已被立案 除了经营不善导致的财务指标恶化，*ST万方更大的问题在于其信息披露的违法违规。
 
 ## 相关推荐
 
-- 2026-06-29 20:02 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 20:11 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 20:07 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 19:59 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 19:58 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 20:10 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 20:03 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 20:03 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 20:08 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 20:17 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 20:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 20:24 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 20:08 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 20:25 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 20:04 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 20:08 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 20:02 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 20:22 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 20:11 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 20:24 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 20:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 20:24 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 20:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:59 - [一诺变着花样秀新驾照](http://www.share.kurohicncr.top/Article/details/5579799.shtml)
-- 2026-06-29 20:04 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/992438.shtml)
-- 2026-06-29 20:17 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/93713.shtml)
-- 2026-06-29 19:54 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/5212994501.shtml)
-- 2026-06-29 20:00 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/503934853724.shtml)
-- 2026-06-29 20:22 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/401874333327.shtml)
-- 2026-06-29 20:00 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.minike.top/Article/details/4994031.shtml)
-- 2026-06-29 20:20 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/48791.shtml)
-- 2026-06-29 20:19 - [外交部谈对日出口管制措施](https://www.blog.kurohicncr.top/Article/details/77779253346.shtml)
-- 2026-06-29 20:19 - [一诺变着花样秀新驾照](https://www.share.minike.top/Article/details/424730094.shtml)
-- 2026-06-29 20:13 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/277763914556.shtml)
-- 2026-06-29 20:21 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/68037876.shtml)
-- 2026-06-29 20:00 - [厨房装空调还是装冷烟机](http://www.blog.minike.top/Article/details/320204.shtml)
-- 2026-06-29 20:22 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/821365.shtml)
-- 2026-06-29 20:01 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.kurohicncr.top/Article/details/84095.shtml)
+- 2026-06-29 20:23 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.minike.top/Article/details/88861.shtml)
+- 2026-06-29 20:22 - [极限挑战第一季](http://www.blog.minike.top/Article/details/175291612.shtml)
+- 2026-06-29 20:21 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/890358818.shtml)
+- 2026-06-29 20:29 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/41400.shtml)
+- 2026-06-29 20:15 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/14714873524.shtml)
+- 2026-06-29 20:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/88688878.shtml)
+- 2026-06-29 20:01 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/647367069306.shtml)
+- 2026-06-29 20:29 - [无畏为自己的猫正名了](https://www.blog.minike.top/Article/details/7952266.shtml)
+- 2026-06-29 20:23 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/3957411.shtml)
+- 2026-06-29 20:24 - [急先锋](https://www.blog.kurohicncr.top/Article/details/748821483.shtml)
+- 2026-06-29 20:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/397364.shtml)
+- 2026-06-29 20:25 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/971511373.shtml)
+- 2026-06-29 20:13 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/12341024216.shtml)
+- 2026-06-29 20:21 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/19540281203.shtml)
+- 2026-06-29 20:02 - [北京发布地质灾害气象风险蓝色预警](https://www.share.minike.top/Article/details/248775788.shtml)

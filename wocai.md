@@ -1,57 +1,59 @@
-# 埃及与塞浦路斯签署新合作框架 深化天然气合作关系
+# 王石律师：启动法律追责程序
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-埃及与塞浦路斯周一在2026年埃及能源展上签署了天然气合作框架协议。 塞浦路斯总统府发言人表示，这份不具约束力的协议将成为两国进一步谈判开发利用塞浦路斯油气储备相关协议的基础。 另一位塞浦路斯政府官员补充称，该协议将使两国能够就塞浦路斯克罗诺斯和阿芙洛狄特海上气田向埃及或埃及国有企业出售天然气进行谈判。 塞浦路斯官员表示，他们可能从2027年或2028年开始从克罗诺斯气田开采天
+来源：中国基金报 【导读】王石方发布律师声明，宣布启动法律追责程序 中国基金报记者 晨曦 综合整理 刚刚，王石方面律师声明来了！ 4月14日，微博用户“周兆成律师”发布微博称，周兆成律师就王石先生遭“网络造谣”发布律师声明。 律师声明显示，北京安剑律师事务所依法接受王石（委托人）独家全权委托，特指派周兆成律师，就近期网络上针对委托人的恶意造谣、诽谤等侵权行为，发布律师声明，澄清
 
 ## 正文
 
-埃及与塞浦路斯周一在2026年埃及能源展上签署了天然气合作框架协议。
+来源：中国基金报 【导读】王石方发布律师声明，宣布启动法律追责程序 中国基金报记者 晨曦 综合整理 刚刚，王石方面律师声明来了！
 
-塞浦路斯总统府发言人表示，这份不具约束力的协议将成为两国进一步谈判开发利用塞浦路斯油气储备相关协议的基础。
+4月14日，微博用户“周兆成律师”发布微博称，周兆成律师就王石先生遭“网络造谣”发布律师声明。
 
-另一位塞浦路斯政府官员补充称，该协议将使两国能够就塞浦路斯克罗诺斯和阿芙洛狄特海上气田向埃及或埃及国有企业出售天然气进行谈判。
+律师声明显示，北京安剑律师事务所依法接受王石（委托人）独家全权委托，特指派周兆成律师，就近期网络上针对委托人的恶意造谣、诽谤等侵权行为，发布律师声明，澄清事实、以正视听、严正追责。
 
-塞浦路斯官员表示，他们可能从2027年或2028年开始从克罗诺斯气田开采天然气。
+2026年4月12日，个别网络用户在社交平台，在无任何事实依据、无任何官方信源、无任何证据支撑的情况下，公然发布“王石被抓”的虚假信息。
 
-去年，埃及与塞浦路斯签署协议，允许将塞浦路斯海上气田的天然气出口至埃及进行液化处理，再重新出口至欧洲。
+该谣言迅速在全网扩散、引发跟风炒作与恶意解读，相关话题登上热搜，引发广泛的社会误解，已经严重侵害委托人名誉权，造成极其恶劣的网络影响。
 
-两国均希望借此加强东地中海作为能源枢纽的地位。
+周兆成律师澄清三点核心事实： 第一，“王石被抓”纯属恶意捏造的谎言。
 
-埃及正承受着伊朗战争的溢出效应，尤其是在能源领域，因为该国依赖进口燃料。
+截至本声明发布，王石人身自由不受任何限制，工作生活秩序井然，不存在任何被司法机关采取强制措施的情形。
 
-随着中东地区油气生产和贸易的中断，相关成本已急剧膨胀。
+第二，王石早在2017年6月就已卸任万科董事会主席，不再参与公司日常经营管理，将万科经营状况与其个人强行绑定、编造追责传言，纯属主观臆断、恶意抹黑。
 
 ## 相关推荐
 
-- 2026-06-29 20:14 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 20:14 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 20:15 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 20:21 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 20:21 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 20:23 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 20:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 20:18 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 20:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 20:04 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 20:19 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 20:00 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 20:01 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 20:02 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 20:21 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 20:11 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 20:17 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 20:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 20:05 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 20:13 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 20:14 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 20:00 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 20:26 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 20:15 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:05 - [世界杯1/16决赛对阵出炉](http://www.share.minike.top/Article/details/9009954490.shtml)
-- 2026-06-29 20:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/24750041.shtml)
-- 2026-06-29 20:19 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/15406602000.shtml)
-- 2026-06-29 20:09 - [急先锋](https://www.share.kurohicncr.top/Article/details/505645349831.shtml)
-- 2026-06-29 20:08 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/5403381.shtml)
-- 2026-06-29 20:21 - [官媒首曝六代机？大V解读](https://www.share.kurohicncr.top/Article/details/17439.shtml)
-- 2026-06-29 20:03 - [一诺变着花样秀新驾照](http://www.blog.kurohicncr.top/Article/details/86050.shtml)
-- 2026-06-29 20:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/274903.shtml)
-- 2026-06-29 20:16 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/29472636464.shtml)
-- 2026-06-29 19:56 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/030378423145.shtml)
-- 2026-06-29 20:21 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/686346385.shtml)
-- 2026-06-29 19:57 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/440626.shtml)
-- 2026-06-29 20:05 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/32857602900.shtml)
-- 2026-06-29 20:17 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/191323.shtml)
-- 2026-06-29 20:22 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/48837.shtml)
+- 2026-06-29 20:16 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/9194386.shtml)
+- 2026-06-29 20:22 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/33620024.shtml)
+- 2026-06-29 20:12 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/472537385.shtml)
+- 2026-06-29 20:21 - [郑钦文谈再战西尼亚科娃](https://www.share.minike.top/Article/details/305175684.shtml)
+- 2026-06-29 20:28 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/896258.shtml)
+- 2026-06-29 20:18 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/0517101815.shtml)
+- 2026-06-29 20:27 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/92518227963.shtml)
+- 2026-06-29 20:07 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/3472131.shtml)
+- 2026-06-29 20:27 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/1941004891.shtml)
+- 2026-06-29 20:17 - [一生一世](http://www.blog.kurohicncr.top/Article/details/16170.shtml)
+- 2026-06-29 20:00 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/64549955001.shtml)
+- 2026-06-29 20:17 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/39581494534.shtml)
+- 2026-06-29 20:15 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/42231697480.shtml)
+- 2026-06-29 20:02 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/7740107.shtml)
+- 2026-06-29 20:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/192778989695.shtml)

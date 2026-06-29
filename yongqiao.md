@@ -1,56 +1,59 @@
-# 透视年报｜国有六大行去年日赚39亿元，“印钞机”要换挡？
+# 辽金古墓遭盗掘 内蒙古警方辗转7省区摧毁26人盗墓团伙
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-随着银行2025年年报相继披露，国有六大行的盈利情况也逐渐浮出水面：合计归母净利润超过1.4万亿元，平均一天净赚39亿元；营业收入全线正增长，拟分红总额达4274.24亿元。 在营业收入和净利润实现“双升”的背后，银行的盈利模式正在悄然生变。净息差持续收窄，靠贷款吃利息的传统路径越走越窄；反倒是债券投资等非利息收入迅速崛起，成为拉动收益的新引擎。与此同时，金融科技实力也成了衡量
+近日，内蒙古自治区通辽市扎鲁特旗公安局辗转7个省区，破获18起系列盗掘辽、金时期古墓葬与古文化遗址案，一举摧毁组织严密、分工明确的犯罪团伙，成功抓获26名犯罪嫌疑人。 2024年10月，内蒙古自治区通辽市扎鲁特旗公安局接到报警，当地文物保护工作人员在全旗文物保护单位常态化普查中，发现鲁北镇一处墓葬存在明显盗掘痕迹。经有关部门鉴定确认，该墓葬为辽代中期高等级贵族墓葬，属于内蒙古自
 
 ## 正文
 
-随着银行2025年年报相继披露，国有六大行的盈利情况也逐渐浮出水面：合计归母净利润超过1.4万亿元，平均一天净赚39亿元；营业收入全线正增长，拟分红总额达4274.24亿元。
+近日，内蒙古自治区通辽市扎鲁特旗公安局辗转7个省区，破获18起系列盗掘辽、金时期古墓葬与古文化遗址案，一举摧毁组织严密、分工明确的犯罪团伙，成功抓获26名犯罪嫌疑人。
 
-在营业收入和净利润实现“双升”的背后，银行的盈利模式正在悄然生变。
+2024年10月，内蒙古自治区通辽市扎鲁特旗公安局接到报警，当地文物保护工作人员在全旗文物保护单位常态化普查中，发现鲁北镇一处墓葬存在明显盗掘痕迹。
 
-净息差持续收窄，靠贷款吃利息的传统路径越走越窄；反倒是债券投资等非利息收入迅速崛起，成为拉动收益的新引擎。
+经有关部门鉴定确认，该墓葬为辽代中期高等级贵族墓葬，属于内蒙古自治区级重点文物保护单位，距今约900年。
 
-与此同时，金融科技实力也成了衡量银行竞争力的必选项。
+被盗掘的古墓葬顶部被挖出直径约1.5米的盗洞，周边散落工具残屑，墓内棺椁移位、随葬器物损毁，历史与文化价值遭受严重损害。
 
-【净息差】 净息差降幅收窄今年仍然承压 财报数据显示，国有六大行去年营业收入均实现了正增长。
+警方在该盗洞周边成功提取到2枚烟头、1个带指纹矿泉水瓶，同时确认了盗洞壁攀爬痕迹与地面足迹。
 
-其中，中国银行营业收入同比增长4.48%，是六大行中增速最快的银行。
+经过对提取的物证进行检验比对，锁定申某、马某、朱某3名核心犯罪嫌疑人，警方先后分赴3省区将3人抓获。
 
-建设银行、交通银行营业收入的同比增速均超过了2%，工商银行、农业银行、邮储银行的营业收入同比增速也均在1.8%以上。
+据供述，该团伙有出资人、组织者、实施者等组织架构，自2022年以来流窜内蒙古、辽宁、山东、河南等多省区，先后实施盗掘古墓葬、古文化遗址行为20余次。
 
-在银行营业收入中，利息净收入仍是重头戏。
+团伙成员成分复杂，散布在多省区，部分人员具备较强反侦查能力。
 
 ## 相关推荐
 
-- 2026-06-29 20:09 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 19:56 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 20:18 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 20:09 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 20:22 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 20:20 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 19:59 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 20:02 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 19:57 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 20:11 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 20:22 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 20:20 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 20:16 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 20:06 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 20:27 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 20:21 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 20:14 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 20:22 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 20:00 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 20:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 20:23 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 20:03 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 20:07 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:15 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/01192.shtml)
-- 2026-06-29 19:57 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/881515792429.shtml)
-- 2026-06-29 20:03 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/30976691091.shtml)
-- 2026-06-29 20:02 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/04698.shtml)
-- 2026-06-29 20:06 - [小娘惹](https://www.blog.minike.top/Article/details/28906.shtml)
-- 2026-06-29 19:55 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/749464135781.shtml)
-- 2026-06-29 20:15 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/396307.shtml)
-- 2026-06-29 20:03 - [扩军害了世界杯吗](https://www.share.kurohicncr.top/Article/details/758234263.shtml)
-- 2026-06-29 19:57 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/145767.shtml)
-- 2026-06-29 20:02 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/31612.shtml)
-- 2026-06-29 20:19 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/3539448.shtml)
-- 2026-06-29 20:20 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.kurohicncr.top/Article/details/90731.shtml)
-- 2026-06-29 20:15 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/861747384.shtml)
-- 2026-06-29 19:59 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/17930019782.shtml)
-- 2026-06-29 20:05 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/455589.shtml)
+- 2026-06-29 20:19 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/860270.shtml)
+- 2026-06-29 20:02 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/186882.shtml)
+- 2026-06-29 20:15 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/39372.shtml)
+- 2026-06-29 20:29 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/433778562.shtml)
+- 2026-06-29 20:27 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/14276668217.shtml)
+- 2026-06-29 20:10 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/7801248.shtml)
+- 2026-06-29 20:15 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/71195014280.shtml)
+- 2026-06-29 20:06 - [新官上任三把火](http://www.share.minike.top/Article/details/98565.shtml)
+- 2026-06-29 20:28 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/53839593717.shtml)
+- 2026-06-29 20:10 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/89378556381.shtml)
+- 2026-06-29 20:02 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/625991958239.shtml)
+- 2026-06-29 20:13 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/58103684242.shtml)
+- 2026-06-29 20:10 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/33447.shtml)
+- 2026-06-29 20:01 - [教育部高校学生资助热线7月1日开通](https://www.blog.kurohicncr.top/Article/details/235893.shtml)
+- 2026-06-29 20:16 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/095541.shtml)

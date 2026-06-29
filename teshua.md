@@ -1,59 +1,48 @@
-# 美伊间接会谈继续进行，但进展有限
+# 美联航曾提出与美国航空公司合作
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-知情官员称，美国及地区调解方周二继续推动达成一项为期45天的临时停火，此举有望最终永久结束与伊朗的战争，但目前进展甚微。 官员表示，伊朗调解方仍拒绝接受临时停火，以换取开放霍尔木兹海峡或放弃该国高浓缩铀库存。 他们称，伊朗仅愿以永久停火为条件解除对这一关键航道的事实上封锁，但仍会保留控制权，并与阿曼分享通行费用。 官员透露，伊朗官员已告知调解方，即便与美国谈判取得进展，他们预计
+美联航首席执行官斯科特·柯比与官员讨论了与美国航空合并的可能性，不过任何交易都将面临重大的反垄断审查。责任编辑：张俊 SF065
 
 ## 正文
 
-知情官员称，美国及地区调解方周二继续推动达成一项为期45天的临时停火，此举有望最终永久结束与伊朗的战争，但目前进展甚微。
+美联航首席执行官斯科特·柯比与官员讨论了与美国航空合并的可能性，不过任何交易都将面临重大的反垄断审查。
 
-官员表示，伊朗调解方仍拒绝接受临时停火，以换取开放霍尔木兹海峡或放弃该国高浓缩铀库存。
-
-他们称，伊朗仅愿以永久停火为条件解除对这一关键航道的事实上封锁，但仍会保留控制权，并与阿曼分享通行费用。
-
-官员透露，伊朗官员已告知调解方，即便与美国谈判取得进展，他们预计美国仍将继续打击伊朗境内目标，以色列也将持续空袭清除伊朗高级官员。
-
-特朗普总统威胁称，如果伊朗不在周二晚8点前同意重新开放霍尔木兹海峡，他将摧毁桥梁、发电厂等伊朗关键基础设施。
-
-伊朗驻巴基斯坦大使在社交平台发文称，结束战争的努力已进入“关键”阶段。
-
-他写道：“为停止战争所做的积极、建设性斡旋与善意努力，正进入关键且敏感的阶段。
-
-”责任编辑：何云
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 20:07 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 20:07 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 20:15 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 19:55 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 20:23 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 20:07 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 20:02 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 20:01 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 20:21 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 20:08 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 19:59 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-29 19:54 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 20:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 20:22 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 20:14 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 20:00 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 20:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 20:06 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 20:12 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 20:09 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 20:02 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 20:15 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 20:14 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 20:09 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 20:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 20:29 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 20:23 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:06 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/7424766.shtml)
-- 2026-06-29 20:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/604034818.shtml)
-- 2026-06-29 20:03 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.minike.top/Article/details/66076309.shtml)
-- 2026-06-29 20:16 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/6762235.shtml)
-- 2026-06-29 20:12 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/522876617335.shtml)
-- 2026-06-29 20:06 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/57157862362.shtml)
-- 2026-06-29 20:09 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/92760389.shtml)
-- 2026-06-29 20:12 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/5148342.shtml)
-- 2026-06-29 20:13 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.minike.top/Article/details/987883.shtml)
-- 2026-06-29 20:14 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/890497247.shtml)
-- 2026-06-29 19:55 - [赵今麦时隔五年再演李诗情](http://www.blog.minike.top/Article/details/552547.shtml)
-- 2026-06-29 19:56 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/909304.shtml)
-- 2026-06-29 20:12 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/2776298631.shtml)
-- 2026-06-29 20:09 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/0094655033.shtml)
-- 2026-06-29 19:56 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/63474253.shtml)
+- 2026-06-29 20:25 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/719072.shtml)
+- 2026-06-29 20:14 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/2655242861.shtml)
+- 2026-06-29 20:13 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/7302582.shtml)
+- 2026-06-29 20:15 - [当家电外通风口出现鸟窝](http://www.blog.minike.top/Article/details/0314651671.shtml)
+- 2026-06-29 20:22 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/610026295.shtml)
+- 2026-06-29 20:08 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/17808330.shtml)
+- 2026-06-29 20:00 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/8928371874.shtml)
+- 2026-06-29 20:25 - [本届世界杯已有5人涉性侵风波](https://www.blog.kurohicncr.top/Article/details/64401278612.shtml)
+- 2026-06-29 20:23 - [女生学医适合选什么专业](https://www.share.kurohicncr.top/Article/details/3457091.shtml)
+- 2026-06-29 20:27 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/3542886376.shtml)
+- 2026-06-29 20:30 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/94842586.shtml)
+- 2026-06-29 20:14 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/796723096384.shtml)
+- 2026-06-29 20:09 - [乔家的儿女](http://www.share.minike.top/Article/details/85750.shtml)
+- 2026-06-29 20:09 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/058334.shtml)
+- 2026-06-29 20:08 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/15428580352.shtml)

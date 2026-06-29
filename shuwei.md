@@ -1,55 +1,59 @@
-# 里昂：降阿里健康目标价至5.3港元 评级“跑赢大市”
+# 英伟达否认收购传闻 盘中大涨的戴尔和惠普在盘后交易中下跌
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-里昂发布研报称，根据阿里健康（00241）在2026财年下半年业绩展望会议表示维持稳健的收入预期，惟下调对创新药物和人工智能投资的盈利预期。由于早前在个人处方药领域的投入低于同行，公司正加大投资追赶，这可能影响其今年的毛利增长轨迹。其人工智能投资与其母公司更广泛的人工智能策略相符一致。该行指，将阿里健康2026年至2028年调整后净利润预测下调8%至11%，其目标价由6港元下调
+英伟达公司否认了网站SemiAccurate的一篇报道。该报道称，英伟达正寻求收购一家大型公司，此举将“重塑个人电脑行业格局”。 该网站称，英伟达就这笔交易的谈判已持续了一年多。这篇报道引发个人电脑制造商戴尔科技和惠普公司的股价在周一上涨。 英伟达公司一位发言人表示：“媒体报道不实，英伟达没有在磋商收购任何个人电脑制造商。” 戴尔和惠普都在全球最大的个人电脑供应商之列。根据行业
 
 ## 正文
 
-里昂发布研报称，根据阿里健康（00241）在2026财年下半年业绩展望会议表示维持稳健的收入预期，惟下调对创新药物和人工智能投资的盈利预期。
+英伟达公司否认了网站SemiAccurate的一篇报道。
 
-由于早前在个人处方药领域的投入低于同行，公司正加大投资追赶，这可能影响其今年的毛利增长轨迹。
+该报道称，英伟达正寻求收购一家大型公司，此举将“重塑个人电脑行业格局”。
 
-其人工智能投资与其母公司更广泛的人工智能策略相符一致。
+该网站称，英伟达就这笔交易的谈判已持续了一年多。
 
-该行指，将阿里健康2026年至2028年调整后净利润预测下调8%至11%，其目标价由6港元下调至5.3港元，维持其评级为“跑赢大市”。
+这篇报道引发个人电脑制造商戴尔科技和惠普公司的股价在周一上涨。
 
-责任编辑：史丽君
+英伟达公司一位发言人表示：“媒体报道不实，英伟达没有在磋商收购任何个人电脑制造商。
+
+” 戴尔和惠普都在全球最大的个人电脑供应商之列。
+
+根据行业研究公司Gartner的数据，总部位于加利福尼亚州帕洛阿尔托的惠普在第一季度占全球市场的19%，仅次于联想集团，后者的市场占有率接近27%。
+
+总部位于德克萨斯州Round Rock的戴尔的市场份额约为17%。
 
 ## 相关推荐
 
-- 2026-06-29 20:04 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 19:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 20:10 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 20:21 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 20:04 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 20:05 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 20:10 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 20:22 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 20:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 20:11 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 20:21 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 20:02 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 20:14 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 20:02 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 19:54 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 20:11 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 20:18 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 20:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 20:00 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 20:02 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 20:24 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 20:04 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 20:06 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 20:22 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 20:11 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 20:26 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 20:28 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 20:17 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:56 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/5292933472.shtml)
-- 2026-06-29 20:22 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/47783.shtml)
-- 2026-06-29 20:07 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/98389313801.shtml)
-- 2026-06-29 19:55 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/88424.shtml)
-- 2026-06-29 20:22 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/7291390.shtml)
-- 2026-06-29 20:07 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/882654.shtml)
-- 2026-06-29 20:23 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/47301240.shtml)
-- 2026-06-29 19:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/943287093275.shtml)
-- 2026-06-29 20:00 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/36661889.shtml)
-- 2026-06-29 19:56 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/73770572.shtml)
-- 2026-06-29 20:20 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/480742908.shtml)
-- 2026-06-29 20:15 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/43362353.shtml)
-- 2026-06-29 19:59 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/0510408698.shtml)
-- 2026-06-29 20:23 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/28556.shtml)
-- 2026-06-29 20:20 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/35835.shtml)
+- 2026-06-29 20:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/323889540187.shtml)
+- 2026-06-29 20:15 - [斛珠夫人](https://www.share.minike.top/Article/details/230841182.shtml)
+- 2026-06-29 20:27 - [欧洲安装一台空调要花近8000元](http://www.share.kurohicncr.top/Article/details/3941959696.shtml)
+- 2026-06-29 20:01 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/496205802.shtml)
+- 2026-06-29 20:24 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/2724891.shtml)
+- 2026-06-29 20:26 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/45983.shtml)
+- 2026-06-29 20:02 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/88728637.shtml)
+- 2026-06-29 20:11 - [佛得角队长门德斯被控强奸](http://www.share.minike.top/Article/details/6311136.shtml)
+- 2026-06-29 20:06 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/30538.shtml)
+- 2026-06-29 20:24 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/709057.shtml)
+- 2026-06-29 20:16 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/5654929114.shtml)
+- 2026-06-29 20:23 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/365190093.shtml)
+- 2026-06-29 20:26 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.minike.top/Article/details/203008218571.shtml)
+- 2026-06-29 20:12 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/800073522.shtml)
+- 2026-06-29 20:20 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.kurohicncr.top/Article/details/2274011.shtml)

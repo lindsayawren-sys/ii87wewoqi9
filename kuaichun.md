@@ -1,58 +1,53 @@
-# 光大银行刘彦：持续推动“五篇大文章”及相关领域信贷投放保持较快增速
+# 大美边疆看我家 | 七台河：风从故乡来，寄我一程思念
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-3月31日金融一线消息，光大银行今日召开2025年度业绩说明会。在对公业务方面，副行长、首席财务官刘彦指表示，2025年，光大银行公司金融业务保持稳健经营，发挥好服务实体经济“主力军”和全行经营“压舱石”作用。 一是扎实做好金融“五篇大文章”，服务实体经济质效明显。科技、绿色、普惠、养老、制造业等服务实体重点领域信贷增速全面高于一般对公贷款增速；两新两重、融资协调机制和各项再贷
+发布时间：2026年04月14日 17:08 来源：中国新闻网 风从故乡来，寄我一程思念。七台河，这座镌刻着拼搏与荣耀的城市，始终牵挂着在外拼搏的游子。亲爱的老乡们，无论走多远，家乡的风永远记得你们。此刻，你们想家了吗？作者：小北航拍 责任编辑：【魏聪聪】
 
 ## 正文
 
-3月31日金融一线消息，光大银行今日召开2025年度业绩说明会。
+发布时间：2026年04月14日 17:08 来源：中国新闻网 风从故乡来，寄我一程思念。
 
-在对公业务方面，副行长、首席财务官刘彦指表示，2025年，光大银行公司金融业务保持稳健经营，发挥好服务实体经济“主力军”和全行经营“压舱石”作用。
+七台河，这座镌刻着拼搏与荣耀的城市，始终牵挂着在外拼搏的游子。
 
-一是扎实做好金融“五篇大文章”，服务实体经济质效明显。
+亲爱的老乡们，无论走多远，家乡的风永远记得你们。
 
-科技、绿色、普惠、养老、制造业等服务实体重点领域信贷增速全面高于一般对公贷款增速；两新两重、融资协调机制和各项再贷款的落实取得积极进展。
+此刻，你们想家了吗？
 
-二是降本提质，公司金融利差筑底企稳。
-
-有序管控高成本负债，提升高质量活期沉淀，推动存款成本持续优化；贯彻金融“反内卷”要求，科学合理确定贷款定价水平。
-
-三是统筹发展与安全，资产质量保持稳定，对公不良生成率持续保持低位水平。
-
-四是坚持获客与活客并重，不断深化客户综合经营。
+作者：小北航拍 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 20:16 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 20:20 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 19:55 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 20:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 20:09 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 20:13 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 19:56 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 20:08 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 20:09 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 20:18 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 20:19 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 20:19 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 20:28 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 20:19 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 20:00 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 20:16 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 20:10 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 20:11 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 20:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 20:15 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 20:05 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 20:06 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 20:12 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 20:00 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 20:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:04 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/048015592.shtml)
-- 2026-06-29 20:13 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/547174062.shtml)
-- 2026-06-29 20:16 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/2572757.shtml)
-- 2026-06-29 20:11 - [欧洲安装一台空调要花近8000元](http://www.share.minike.top/Article/details/48910.shtml)
-- 2026-06-29 19:59 - [时光音乐会](https://www.blog.minike.top/Article/details/46824651745.shtml)
-- 2026-06-29 19:56 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/563882354849.shtml)
-- 2026-06-29 19:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/0134652.shtml)
-- 2026-06-29 20:00 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/5278662.shtml)
-- 2026-06-29 19:56 - [哈兰德吃饭被镜中自己吓到](https://www.blog.kurohicncr.top/Article/details/717284486905.shtml)
-- 2026-06-29 20:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/7685302.shtml)
-- 2026-06-29 20:02 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/7765452.shtml)
-- 2026-06-29 19:56 - [金刚川](http://www.blog.minike.top/Article/details/58160331.shtml)
-- 2026-06-29 20:04 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/6455807.shtml)
-- 2026-06-29 20:00 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/730064.shtml)
-- 2026-06-29 20:12 - [天气热脾气都变差了](https://www.share.minike.top/Article/details/01296807577.shtml)
+- 2026-06-29 20:14 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/1014699197.shtml)
+- 2026-06-29 20:06 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/14886022984.shtml)
+- 2026-06-29 20:20 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/5156786.shtml)
+- 2026-06-29 20:24 - [夫妻生活太无聊，所以我……](https://www.share.kurohicncr.top/Article/details/6234388676.shtml)
+- 2026-06-29 20:14 - [外交部谈对日出口管制措施](http://www.share.kurohicncr.top/Article/details/4244229832.shtml)
+- 2026-06-29 20:17 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/23386.shtml)
+- 2026-06-29 20:01 - [刘冰任河南南阳市代市长](http://www.blog.kurohicncr.top/Article/details/28721542.shtml)
+- 2026-06-29 20:24 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/088554.shtml)
+- 2026-06-29 20:12 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/1956210.shtml)
+- 2026-06-29 20:22 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/9382198.shtml)
+- 2026-06-29 20:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/2610719382.shtml)
+- 2026-06-29 20:11 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/09426763.shtml)
+- 2026-06-29 20:00 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/1933009137.shtml)
+- 2026-06-29 20:05 - [赵今麦时隔五年再演李诗情](https://www.share.kurohicncr.top/Article/details/04212.shtml)
+- 2026-06-29 20:03 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/28024909524.shtml)

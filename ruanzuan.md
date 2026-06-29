@@ -1,60 +1,59 @@
-# 特斯拉发布FSD V14.3版本，反应速度提升20%
+# 美国和伊朗酝酿新一轮会谈 以期推动达成长期停火
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-特斯拉官方账号在社交平台X上发帖称，FSD监督版的新版本现已开始推送。此次更新将反应速度提升20%，进一步提升安全性，此外还有许多其他改进。 完整版本说明如下： FSD（监督版）v14.3 包括： 升级了 FSD 神经网络训练的强化学习 （RL） 阶段，从而在各种驾驶场景中均取得了改进。 使用 MLIR 从零开始重写了 AI 编译器和运行时，使反应速度提升了 20%，并提高了模
+据知情人士透露，在副总统万斯主导的伊斯兰堡会谈未取得突破后，美国与伊朗正就举行新一轮面对面谈判展开磋商，以寻求达成更长期的停火协议。 知情人士表示，目标是在4月7日宣布的为期两周停火协议于下周到期前举行新一轮会谈。一个设想是重返伊斯兰堡进行第二轮谈判，但也在考虑其他地点。 宫官员正讨论再次举行会晤的可能性。巴基斯坦总理夏巴兹·谢里夫表示，解决美国和伊朗之间悬而未决问题的努力仍在
 
 ## 正文
 
-特斯拉官方账号在社交平台X上发帖称，FSD监督版的新版本现已开始推送。
+据知情人士透露，在副总统万斯主导的伊斯兰堡会谈未取得突破后，美国与伊朗正就举行新一轮面对面谈判展开磋商，以寻求达成更长期的停火协议。
 
-此次更新将反应速度提升20%，进一步提升安全性，此外还有许多其他改进。
+知情人士表示，目标是在4月7日宣布的为期两周停火协议于下周到期前举行新一轮会谈。
 
-完整版本说明如下： FSD（监督版）v14.3 包括： 升级了 FSD 神经网络训练的强化学习 （RL） 阶段，从而在各种驾驶场景中均取得了改进。
+一个设想是重返伊斯兰堡进行第二轮谈判，但也在考虑其他地点。
 
-使用 MLIR 从零开始重写了 AI 编译器和运行时，使反应速度提升了 20%，并提高了模型迭代速度。
+宫官员正讨论再次举行会晤的可能性。
 
-减少了不必要的车道偏转和轻微的尾随行为。
+巴基斯坦总理夏巴兹·谢里夫表示，解决美国和伊朗之间悬而未决问题的努力仍在进行中。
 
-提高了停车位选择和操控的果断性。
+美国总统特朗普周一早些时候也释放出对更多谈判持开放态度的信号，称伊朗已与美方接触。
 
-改进了停车位位置的预测功能，现在会在地图上以 （P） 图标显示。
+与此同时，他仍推进对霍尔木兹海峡的海上封锁，以加大对德黑兰的压力。
 
-增强了对紧急车辆、校车、违章车辆和其他罕见车辆的响应能力。
+“今天早上，我们接到了来自合适的人、正确的人的电话，他们想推动达成一项协议，”特朗普在白宫表示。
 
 ## 相关推荐
 
-- 2026-06-29 20:17 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 20:07 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 20:17 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 20:06 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 20:17 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 20:04 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 20:00 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 20:01 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 19:59 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 19:59 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 20:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 20:04 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 20:16 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 19:59 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 20:26 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 20:26 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 20:19 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 20:16 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 20:26 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 20:24 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 20:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 20:14 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 20:11 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 20:03 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 20:19 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 20:23 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 20:05 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:55 - [明星大侦探第四季](https://www.share.minike.top/Article/details/06486843384.shtml)
-- 2026-06-29 20:14 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/7041264597.shtml)
-- 2026-06-29 20:06 - [河南高院审委会原委员曲海滨被查](http://www.share.kurohicncr.top/Article/details/285596.shtml)
-- 2026-06-29 20:06 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/614000584772.shtml)
-- 2026-06-29 20:03 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/51293246999.shtml)
-- 2026-06-29 20:16 - [小娘惹](http://www.share.kurohicncr.top/Article/details/290039377.shtml)
-- 2026-06-29 19:59 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/432448.shtml)
-- 2026-06-29 20:03 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/554190.shtml)
-- 2026-06-29 20:00 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/602093037571.shtml)
-- 2026-06-29 20:08 - [委内瑞拉发生余震](https://www.blog.minike.top/Article/details/746322634550.shtml)
-- 2026-06-29 20:06 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/78148145781.shtml)
-- 2026-06-29 20:02 - [天道](http://www.blog.kurohicncr.top/Article/details/34119.shtml)
-- 2026-06-29 19:56 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/58557997128.shtml)
-- 2026-06-29 20:08 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/06773.shtml)
-- 2026-06-29 20:07 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/480982943.shtml)
+- 2026-06-29 20:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/01827615.shtml)
+- 2026-06-29 20:20 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/84940838565.shtml)
+- 2026-06-29 20:04 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/560352309.shtml)
+- 2026-06-29 20:21 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/787561.shtml)
+- 2026-06-29 20:28 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/824722.shtml)
+- 2026-06-29 20:02 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/02621906.shtml)
+- 2026-06-29 20:29 - [店员光脚踩入盆中清洗土豆](https://www.share.minike.top/Article/details/322730502432.shtml)
+- 2026-06-29 20:29 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/26170.shtml)
+- 2026-06-29 20:01 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.minike.top/Article/details/8094128677.shtml)
+- 2026-06-29 20:16 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/4330759153.shtml)
+- 2026-06-29 20:14 - [温网](http://www.blog.minike.top/Article/details/59074274.shtml)
+- 2026-06-29 20:15 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.minike.top/Article/details/63806406314.shtml)
+- 2026-06-29 20:18 - [CORTIS 小牌大耍](https://www.blog.minike.top/Article/details/47676933318.shtml)
+- 2026-06-29 20:17 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/43760.shtml)
+- 2026-06-29 20:12 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/4405115.shtml)

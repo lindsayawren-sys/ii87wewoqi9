@@ -1,61 +1,58 @@
-# 钱学森主题雕塑《期待》在上海交大落成
+# 赵乐际会见西班牙首相桑切斯
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-中新网上海4月7日电 (记者 许婧)钱学森作为上海交通大学1934届杰出校友，其“爱国、创新、求实、奉献、协同、育人”的科学家精神，始终激励着上海交大学子将个人理想融入祖国发展。7日，钱学森主题雕塑《期待》在上海交大闵行校区涵泽湖畔落成，献礼母校百卅华诞。 1896年，盛宣怀秉持“自强首在储才，储才必先兴学”的信念，创办南洋公学(交大前身)，确立“求实学，务实业”宗旨，以培养“
+中新社北京4月14日电 全国人大常委会委员长赵乐际4月14日下午在北京会见西班牙首相桑切斯。 赵乐际表示，今天上午，习近平主席同首相先生举行会见并达成重要共识，为下阶段两国关系发展作出规划引领。中方愿同西班牙一道，落实两国领导人重要共识，巩固政治互信，推动全方位互利合作，携手打造更有战略定力、更富发展活力、更具国际影响力的中西全面战略伙伴关系。中国全国人大愿同西班牙议会一道，密
 
 ## 正文
 
-中新网上海4月7日电 (记者 许婧)钱学森作为上海交通大学1934届杰出校友，其“爱国、创新、求实、奉献、协同、育人”的科学家精神，始终激励着上海交大学子将个人理想融入祖国发展。
+中新社北京4月14日电 全国人大常委会委员长赵乐际4月14日下午在北京会见西班牙首相桑切斯。
 
-7日，钱学森主题雕塑《期待》在上海交大闵行校区涵泽湖畔落成，献礼母校百卅华诞。
+赵乐际表示，今天上午，习近平主席同首相先生举行会见并达成重要共识，为下阶段两国关系发展作出规划引领。
 
-1896年，盛宣怀秉持“自强首在储才，储才必先兴学”的信念，创办南洋公学(交大前身)，确立“求实学，务实业”宗旨，以培养“第一等人才”为目标。
+中方愿同西班牙一道，落实两国领导人重要共识，巩固政治互信，推动全方位互利合作，携手打造更有战略定力、更富发展活力、更具国际影响力的中西全面战略伙伴关系。
 
-130年来，交大始终与国家民族同呼吸共命运，钱学森便是其中最杰出的代表。
+中国全国人大愿同西班牙议会一道，密切立法机构交往，加强立法、监督和治国理政经验交流，为两国务实合作营造良好法治环境。
 
-雕塑《期待》为青铜材质全身立像，以钱学森晚年形象为蓝本，身姿挺拔、目光深邃，基座镌刻其对母校的寄语，还原了他与母校的深厚情谊及共和国脊梁的风骨。
+桑切斯表示，西班牙坚定恪守一个中国原则。
 
-雕塑位于该校闵行校区宣怀大道与学森路交界处，与盛宣怀像遥望呼应，昭示上海交大迈向教育科技人才一体化的新起点。
+希望加强经贸、投资、人文、教育、旅游等各领域合作，促进立法机构交流，维护多边主义，推动西中、欧中关系健康稳定发展。
 
-落成仪式上，中国科学院院士孙家栋发来贺信，期待学校以百卅校庆和雕塑落成为新起点，弘扬光荣传统，激励学子立大志、成大才。
-
-《国之所需 吾之所向——钱学森与上海交通大学》专题展同期亮相。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:23 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 20:10 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 19:54 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 20:20 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 20:22 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 20:11 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 20:23 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 20:13 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 20:06 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 20:03 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 20:14 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 19:54 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 20:16 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 20:01 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 20:17 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 20:18 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 20:00 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 20:20 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 20:12 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 20:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 20:06 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 20:08 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 20:16 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 20:22 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 20:00 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 20:06 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 20:12 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 20:00 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 20:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:02 - [济南航空航天全面起势](https://www.share.kurohicncr.top/Article/details/44466676239.shtml)
-- 2026-06-29 20:16 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.kurohicncr.top/Article/details/489792.shtml)
-- 2026-06-29 20:04 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/914054384673.shtml)
-- 2026-06-29 20:09 - [流金岁月](https://www.share.minike.top/Article/details/0428375.shtml)
-- 2026-06-29 20:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/8049055.shtml)
-- 2026-06-29 20:21 - [扫黑风暴](http://www.share.minike.top/Article/details/087092.shtml)
-- 2026-06-29 20:05 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/5937170560.shtml)
-- 2026-06-29 20:16 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/56342171.shtml)
-- 2026-06-29 20:18 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/37580508.shtml)
-- 2026-06-29 20:00 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/56882808.shtml)
-- 2026-06-29 20:06 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.minike.top/Article/details/46114698.shtml)
-- 2026-06-29 20:11 - [Ella回应SHE何时合体](https://www.blog.minike.top/Article/details/1879887.shtml)
-- 2026-06-29 20:22 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/7146594699.shtml)
-- 2026-06-29 20:13 - [男子40度高温下骑行严重晒伤](http://www.share.minike.top/Article/details/78332534202.shtml)
-- 2026-06-29 20:04 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/99587012524.shtml)
+- 2026-06-29 20:26 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/259715111.shtml)
+- 2026-06-29 20:09 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/4727429.shtml)
+- 2026-06-29 20:20 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/80294794302.shtml)
+- 2026-06-29 20:17 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/25845.shtml)
+- 2026-06-29 20:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/24467554669.shtml)
+- 2026-06-29 20:28 - [恋与深空致歉](https://www.share.minike.top/Article/details/74158795746.shtml)
+- 2026-06-29 20:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/895249.shtml)
+- 2026-06-29 20:24 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/991033237.shtml)
+- 2026-06-29 20:03 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/216332497.shtml)
+- 2026-06-29 20:27 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/758498990038.shtml)
+- 2026-06-29 20:20 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/729262.shtml)
+- 2026-06-29 20:02 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/00064.shtml)
+- 2026-06-29 20:06 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/61587.shtml)
+- 2026-06-29 20:28 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/14996.shtml)
+- 2026-06-29 20:16 - [女生学医适合选什么专业](https://www.share.minike.top/Article/details/151129721003.shtml)

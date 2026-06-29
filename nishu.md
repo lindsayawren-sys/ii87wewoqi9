@@ -1,58 +1,59 @@
-# 傅里叶午前涨近9%续创新高 触觉反馈芯片领域适配多场景
+# 太原重工索赔已提交立案，符合要求还可加入
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-傅里叶（03625）午前涨近9%，盘中高见101港元，续创上市新高。截至发稿，股价上涨8.70%，现报100港元，成交额3038.71万港元。 “AI音频芯片第一股”傅里叶半导体近日正式登陆港交所。据公开资料显示，傅里叶的触觉反馈芯片已实现成熟的规模化量产出货，技术性能与市场布局均处于国内第一梯队，是国产触觉反馈芯片领域的核心供应商。目前该芯片除适配机器人外，还完成了消费电子、
+登录新浪财经APP 搜索【信披】查看更多考评等级 一、已有案件递交立案 近日，上海沪紫律师事务所刘鹏律师团队已递交了上百位投资者案件提交至全国证券期货交易纠纷调解平台登记。 回溯本案，太原重工于2025年12月26日公告，公司及相关当事人收到西监管局下发的《行政处罚决定书》。一张涉及近2500万元罚款的行政处罚决定书，揭开了太原重工一场持续七年的财务数据粉饰游戏。 据调查，太原
 
 ## 正文
 
-傅里叶（03625）午前涨近9%，盘中高见101港元，续创上市新高。
+登录新浪财经APP 搜索【信披】查看更多考评等级 一、已有案件递交立案 近日，上海沪紫律师事务所刘鹏律师团队已递交了上百位投资者案件提交至全国证券期货交易纠纷调解平台登记。
 
-截至发稿，股价上涨8.70%，现报100港元，成交额3038.71万港元。
+回溯本案，太原重工于2025年12月26日公告，公司及相关当事人收到西监管局下发的《行政处罚决定书》。
 
-“AI音频芯片第一股”傅里叶半导体近日正式登陆港交所。
+一张涉及近2500万元罚款的行政处罚决定书，揭开了太原重工一场持续七年的财务数据粉饰游戏。
 
-据公开资料显示，傅里叶的触觉反馈芯片已实现成熟的规模化量产出货，技术性能与市场布局均处于国内第一梯队，是国产触觉反馈芯片领域的核心供应商。
+据调查，太原重工的信息披露违法行为主要涉及公司与黑龙江瑞好科技集团有限公司合作的“拉弹泡300MW风电工程项目”。
 
-目前该芯片除适配机器人外，还完成了消费电子、智能家居等场景的技术适配，且已与多家机器人整机厂商达成前期技术方案对接，产品的技术兼容性、稳定性均获得市场认可，为后续在机器人赛道的规模化商业化落地筑牢了市场基础。
+公司在相关年度通过多种方式操纵财务数据。
 
-值得一提的是，傅里叶半导体为福建投资集团旗下基金所投并助力其港股上市。
+依据处罚，于2015年4月11日-2025年7月25日（含当日）期间买入，并在2025年7月26日之后卖出或仍持有而亏损的投资者可报名索赔。
 
-据了解，福建投资集团近年通过旗下福建产投管理、福创投等平台，持续深耕半导体、新能源、新材料等战略性新兴产业，全力打造“发现—投资—培育—上市”全周期服务体系。
+二、多年财报存在造假 具体来看，2014年公司多计营业收入7.57亿元，占当期披露营收的8.39%；多计利润总额1.55亿元，占当期披露利润总额的763.89%，虚增幅度极为显著。
 
-截至目前，集团累计管理及参股基金73支、总规模854亿元，已投资战新产业项目超200个、金额超150亿元，投资初创期和成长期项目数量占比近70%，成功推动50多家企业登陆境内外资本市场。
+造假行为并非孤例。
 
 ## 相关推荐
 
-- 2026-06-29 20:19 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 20:19 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 20:17 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 20:15 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 19:56 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 20:13 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 20:16 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 20:16 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 20:10 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 20:12 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 20:16 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 20:05 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 20:13 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 20:23 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 20:00 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 20:23 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 20:10 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 20:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 20:19 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 20:28 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 20:22 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 20:11 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 20:14 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 20:18 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 20:13 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:09 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.minike.top/Article/details/509091.shtml)
-- 2026-06-29 20:19 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/142574.shtml)
-- 2026-06-29 20:17 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/4977610.shtml)
-- 2026-06-29 20:23 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/9234356826.shtml)
-- 2026-06-29 20:04 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/6278115.shtml)
-- 2026-06-29 20:09 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/8826031386.shtml)
-- 2026-06-29 20:22 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.kurohicncr.top/Article/details/44807318643.shtml)
-- 2026-06-29 20:16 - [金牌调解](https://www.blog.minike.top/Article/details/5527881.shtml)
-- 2026-06-29 19:57 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/583043630032.shtml)
-- 2026-06-29 19:59 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/82159226481.shtml)
-- 2026-06-29 20:20 - [官媒首曝六代机？大V解读](https://www.share.kurohicncr.top/Article/details/32722241701.shtml)
-- 2026-06-29 20:22 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/662027056.shtml)
-- 2026-06-29 20:15 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/816835367149.shtml)
-- 2026-06-29 20:12 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/489547.shtml)
-- 2026-06-29 20:06 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/888661276854.shtml)
+- 2026-06-29 20:20 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/707636338354.shtml)
+- 2026-06-29 20:11 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/714558823045.shtml)
+- 2026-06-29 20:12 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/6681185552.shtml)
+- 2026-06-29 20:16 - [德国医生在没有空调的手术室工作](http://www.share.kurohicncr.top/Article/details/724310016.shtml)
+- 2026-06-29 20:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/82161.shtml)
+- 2026-06-29 20:10 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/771606.shtml)
+- 2026-06-29 20:19 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/47811952400.shtml)
+- 2026-06-29 20:00 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/455507674.shtml)
+- 2026-06-29 20:07 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/873908998721.shtml)
+- 2026-06-29 20:15 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/3071704.shtml)
+- 2026-06-29 20:24 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/906728912842.shtml)
+- 2026-06-29 20:16 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/223957138542.shtml)
+- 2026-06-29 20:00 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/00939702622.shtml)
+- 2026-06-29 20:21 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/0524748084.shtml)
+- 2026-06-29 20:05 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/55164752418.shtml)

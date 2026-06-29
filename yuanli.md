@@ -1,56 +1,56 @@
-# 宁夏召开2026年第一次为企业纾困解难集中办公会
+# 香港与联合国工发组织签署联合文告 共同推动工业合作与数字转型
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-中新网银川4月8日电 (李佩珊 孔婷婷)4月7日下午，宁夏回族自治区党委和政府在银川召开2026年第一次为企业纾困解难集中办公会。会议以“开局起步‘十五五’、助力企业高质量发展”为主题，宁夏回族自治区党委书记、人大常委会主任李邑飞，宁夏回族自治区党委副书记、自治区人民政府主席张雨浦出席会议，宁夏五市及相关厅局负责人参会，与10家重点企业代表面对面交流，现场听取企业诉求并办公答复
+中新社香港4月14日电 香港特区政府创新科技及工业局(简称“创科局”)与联合国工业发展组织(简称“工发组织”)14日在香港签署有关推动工业发展、创新及数字转型合作的联合文告。香港特区行政长官李家超于当日与联合国工发组织总干事格尔德·穆勒(Gerd Müller)会面，双方就加强工业发展合作交换意见，并共同见证联合文告签署。 此次签署的联合文告将建立合作框架，通过加强合作、资讯共
 
 ## 正文
 
-中新网银川4月8日电 (李佩珊 孔婷婷)4月7日下午，宁夏回族自治区党委和政府在银川召开2026年第一次为企业纾困解难集中办公会。
+中新社香港4月14日电 香港特区政府创新科技及工业局(简称“创科局”)与联合国工业发展组织(简称“工发组织”)14日在香港签署有关推动工业发展、创新及数字转型合作的联合文告。
 
-会议以“开局起步‘十五五’、助力企业高质量发展”为主题，宁夏回族自治区党委书记、人大常委会主任李邑飞，宁夏回族自治区党委副书记、自治区人民政府主席张雨浦出席会议，宁夏五市及相关厅局负责人参会，与10家重点企业代表面对面交流，现场听取企业诉求并办公答复。
+香港特区行政长官李家超于当日与联合国工发组织总干事格尔德·穆勒(Gerd Müller)会面，双方就加强工业发展合作交换意见，并共同见证联合文告签署。
 
-会上，共享装备、杞里香枸杞、恒康科技、飞鹤乳业、金晶科技、瑞资联实业、美臣纺织、协鑫光伏、中金数据、凯信能源10家企业作了发言，围绕“十五五”发展规划、项目建设、要素保障、政策支持等提出具体诉求和意见建议，相关部门和地市针对企业反映问题逐一现场答复回应。
+此次签署的联合文告将建立合作框架，通过加强合作、资讯共享及做法交流，推动工业创新、技术转移及能力发展，包括探索在香港共同打造全球先进制造业与人工智能的卓越中心等。
 
-听取大家的发言后，李邑飞表示，宁夏始终高度重视和支持企业发展，建立区市县三级为企业纾困解难机制为企业解决发展难题，构建良好营商环境，有效激发民营经济高质量发展活力。
+李家超表示，随着联合文告的签署，特区政府与联合国工发组织将加强合作，共同推动产业创新和技术转移等发展，在新一轮科技革命中把握机遇，加速产业高质量发展和转型，并进一步发挥香港作为“超级联系人”和“超级增值人”的角色，吸引海内外企业落户，推动新型工业化，培育壮大新质生产力。
 
-2026年，宁夏各部门将继续主动服务企业发展，坚持规划引领、加强政策协同、优化营商环境、强化法治保障，做好政策宣传解读、精准直达，支持企业创新发展、绿色转型、数字赋能，不断做强做优做大。
+香港特区政府创科局局长孙东表示，香港期待在联合文告框架下，与联合国工发组织分享先进制造、人工智能应用及数字转型的实践经验，推动双方就技术趋势与经验展开对话，并探索在创新、知识转移及技能发展方面的合作途径。
 
-同时，宁夏将完善为企服务体系，健全“高效办成一件事”重点事项清单管理和常态化推进机制，深化清理拖欠企业账款，规范涉企执法，做好要素供给，持续减负松绑，让企业安心投资发展。
-
-张雨浦表示，参加此次会议的主要是宁夏重点产业中发展意愿强烈、未来增长潜力大的代表性企业，目的就是要突出重点、以点带面，把解决实际问题与实现企业发展目标结合起来，助力企业高质量发展，推动“十五五”良好开局。
-
-宁夏各地将全面落实支持企业发展“十项机制”，在解决真问题上下更大功夫，切实增强各类经营主体预期。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:03 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 20:13 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 20:10 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 20:20 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 20:01 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 19:54 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 20:19 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 20:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 20:09 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 20:21 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 20:01 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 20:04 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 20:08 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 20:10 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 20:14 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 20:18 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 20:22 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 20:07 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 20:01 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 20:23 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 20:06 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 20:16 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 20:06 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 20:14 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:01 - [李思潼：不会介意大家夸我运气好](http://www.share.kurohicncr.top/Article/details/843769038836.shtml)
-- 2026-06-29 20:11 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/381338200.shtml)
-- 2026-06-29 20:01 - [记者暗访养老机构消防安全](http://www.share.minike.top/Article/details/2552901349.shtml)
-- 2026-06-29 19:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/18557188.shtml)
-- 2026-06-29 20:08 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/4103039799.shtml)
-- 2026-06-29 20:22 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/95189.shtml)
-- 2026-06-29 20:21 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/412768780504.shtml)
-- 2026-06-29 20:11 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.minike.top/Article/details/760258755.shtml)
-- 2026-06-29 20:20 - [扩军害了世界杯吗](http://www.blog.minike.top/Article/details/52907109.shtml)
-- 2026-06-29 20:11 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/916504530835.shtml)
-- 2026-06-29 20:22 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/18008550.shtml)
-- 2026-06-29 20:17 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/079718628.shtml)
-- 2026-06-29 20:03 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/813856402191.shtml)
-- 2026-06-29 20:22 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/089041.shtml)
-- 2026-06-29 20:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/75684273391.shtml)
+- 2026-06-29 20:19 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.minike.top/Article/details/42296937.shtml)
+- 2026-06-29 20:19 - [特朗普两大核心赌注将迎高院裁决](https://www.share.kurohicncr.top/Article/details/14401.shtml)
+- 2026-06-29 20:29 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/79394825598.shtml)
+- 2026-06-29 20:08 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/7112052.shtml)
+- 2026-06-29 20:04 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/72737792.shtml)
+- 2026-06-29 20:20 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/627625562.shtml)
+- 2026-06-29 20:30 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/1571838118.shtml)
+- 2026-06-29 20:17 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/907223190373.shtml)
+- 2026-06-29 20:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/65124113021.shtml)
+- 2026-06-29 20:28 - [宜宾地震已转移安置225人](http://www.blog.kurohicncr.top/Article/details/718286048286.shtml)
+- 2026-06-29 20:12 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/93540.shtml)
+- 2026-06-29 20:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/54307879096.shtml)
+- 2026-06-29 20:25 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/31405954.shtml)
+- 2026-06-29 20:06 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/3362312607.shtml)
+- 2026-06-29 20:28 - [李思潼：不会介意大家夸我运气好](http://www.blog.minike.top/Article/details/9066945220.shtml)

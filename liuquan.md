@@ -1,52 +1,54 @@
-# 中金：维持康耐特光学跑赢行业评级 目标价65港元
+# 大摩：降统一企业中国目标价至9.27港元 下调盈利预测
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-中金发布研报称，维持康耐特光学（02276）2026/2027年盈利预测不变，当前股价对应2026/2027年27/21倍P/E。维持跑赢行业评级和目标价65港元，对应2026/2027年42/32倍P/E，较当前股价有53%上行空间。该行认为公司26年收入有望依托原材料成本优势、朝日富士扩产及高折产品升级三重驱动重回双位数增长，XR业务随大客户量产开始贡献业绩，双轮驱动潜力可
+摩根士丹利发布研报称，将统一企业中国（00220）目标价由10.7港元下调至9.2港元，评级“与大市同步”，对应2026年预测市盈率16倍。 该行下调统一今明两年盈利预测14%，主要反映饮料销售预期下降，收入预测亦下调4%及5%； 原材料价格上升拖累毛利率； 上调今明两年营运开支比率0.6个百分点。该行预期公司今年收入同比增长5%，纯利同比增长7%。 该行表示，饮料业务增长将受
 
 ## 正文
 
-中金发布研报称，维持康耐特光学（02276）2026/2027年盈利预测不变，当前股价对应2026/2027年27/21倍P/E。
+摩根士丹利发布研报称，将统一企业中国（00220）目标价由10.7港元下调至9.2港元，评级“与大市同步”，对应2026年预测市盈率16倍。
 
-维持跑赢行业评级和目标价65港元，对应2026/2027年42/32倍P/E，较当前股价有53%上行空间。
+该行下调统一今明两年盈利预测14%，主要反映饮料销售预期下降，收入预测亦下调4%及5%； 原材料价格上升拖累毛利率； 上调今明两年营运开支比率0.6个百分点。
 
-该行认为公司26年收入有望依托原材料成本优势、朝日富士扩产及高折产品升级三重驱动重回双位数增长，XR业务随大客户量产开始贡献业绩，双轮驱动潜力可期。
+该行预期公司今年收入同比增长5%，纯利同比增长7%。
+
+该行表示，饮料业务增长将受惠餐饮业复苏，惟竞争加剧； 即食面行业需求复苏仍然疲弱，但同业加价将有助统一夺取市占率。
+
+该行引入2028年每股盈利预测为0.59元人民币。
 
 责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-29 20:12 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 20:00 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 20:04 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 19:54 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 20:23 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 20:02 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 20:04 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 19:57 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 19:54 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 20:10 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 20:21 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 20:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 20:02 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 20:14 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 20:26 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 20:22 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 20:08 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 20:26 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 20:26 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 20:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 20:02 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 20:04 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 20:06 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 20:17 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 20:06 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 20:17 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:13 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/62509630.shtml)
-- 2026-06-29 20:04 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/90447779317.shtml)
-- 2026-06-29 19:54 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/584870768.shtml)
-- 2026-06-29 20:15 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/797160478734.shtml)
-- 2026-06-29 20:11 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/43914277819.shtml)
-- 2026-06-29 20:14 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/8478146.shtml)
-- 2026-06-29 19:57 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/286798.shtml)
-- 2026-06-29 20:07 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/36153110230.shtml)
-- 2026-06-29 20:01 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/289610846515.shtml)
-- 2026-06-29 20:22 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/509605.shtml)
-- 2026-06-29 20:23 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/527675.shtml)
-- 2026-06-29 20:10 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/47308363529.shtml)
-- 2026-06-29 19:54 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.minike.top/Article/details/737826.shtml)
-- 2026-06-29 20:17 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/18489.shtml)
-- 2026-06-29 20:17 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.minike.top/Article/details/1095984804.shtml)
+- 2026-06-29 20:10 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/317035898351.shtml)
+- 2026-06-29 20:19 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/29109952572.shtml)
+- 2026-06-29 20:12 - [刘冰任河南南阳市代市长](http://www.share.kurohicncr.top/Article/details/16251403.shtml)
+- 2026-06-29 20:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/253503.shtml)
+- 2026-06-29 20:25 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/3083435.shtml)
+- 2026-06-29 20:01 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/81173496.shtml)
+- 2026-06-29 20:11 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/708374.shtml)
+- 2026-06-29 20:23 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/240304371.shtml)
+- 2026-06-29 20:04 - [周杰伦千禧年就有小卡了](https://www.blog.kurohicncr.top/Article/details/160122621.shtml)
+- 2026-06-29 20:08 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/961168404.shtml)
+- 2026-06-29 20:14 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/7337634630.shtml)
+- 2026-06-29 20:21 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/11109.shtml)
+- 2026-06-29 20:01 - [佛得角队长门德斯被控强奸](https://www.share.kurohicncr.top/Article/details/3029465.shtml)
+- 2026-06-29 20:02 - [刘冰任河南南阳市代市长](https://www.blog.minike.top/Article/details/864917267.shtml)
+- 2026-06-29 20:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/12481.shtml)

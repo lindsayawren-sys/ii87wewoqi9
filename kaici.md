@@ -1,43 +1,58 @@
-# 先导智能：募集资金将聚焦核心主业与长期发展
+# 博时基金王祥：美伊局势未明，黄金短期承压
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-证券日报网3月31日讯 ，先导智能在接受调研者提问时表示，本次募集资金将聚焦核心主业与长期发展，主要用于以下几个方面：（1）用于扩大全球研发、销售、服务网络及对外投资，完善全球化布局，强化市场覆盖与产业链协同；（2）用于深化平台化战略，推动固态电池、钠离子电池、钙钛矿电池等新技术电池产业化，抢占技术前沿与市场先机；（3）用于产品设计、制造流程及智能装备技术优化研发，提升产品力与
+黄金ETF博时基金经理 王祥 上周（4.6~4.10）黄金市场继续受到伊朗战争相关消息主导。在巴基斯坦的斡旋下，美伊双方释放短期停火信号并开展谈判对话，提振了市场的风险偏好，并推动金价反弹。不过，周末双方的谈判无果而终，停火基础或依然脆弱，金价短期走势预计仍充满不确定性。 市场观点方面，3月美国CPI同比回升至3.3%，环比反弹 0.9%。汽油价格环比 21.2%的涨幅创196
 
 ## 正文
 
-证券日报网3月31日讯 ，先导智能在接受调研者提问时表示，本次募集资金将聚焦核心主业与长期发展，主要用于以下几个方面：（1）用于扩大全球研发、销售、服务网络及对外投资，完善全球化布局，强化市场覆盖与产业链协同；（2）用于深化平台化战略，推动固态电池、钠离子电池、钙钛矿电池等新技术电池产业化，抢占技术前沿与市场先机；（3）用于产品设计、制造流程及智能装备技术优化研发，提升产品力与制造效率；（4）用于数字化基础设施建设，提升数字化能力与运营效率；（5）用于补充流动资金，保障日常经营稳健。
+黄金ETF博时基金经理 王祥 上周（4.6~4.10）黄金市场继续受到伊朗战争相关消息主导。
+
+在巴基斯坦的斡旋下，美伊双方释放短期停火信号并开展谈判对话，提振了市场的风险偏好，并推动金价反弹。
+
+不过，周末双方的谈判无果而终，停火基础或依然脆弱，金价短期走势预计仍充满不确定性。
+
+市场观点方面，3月美国CPI同比回升至3.3%，环比反弹 0.9%。
+
+汽油价格环比 21.2%的涨幅创1967年以来最大涨幅，不过核心通胀与CPI均好于或符合预期。
+
+市场对美联储的降息预期变化不大，加息预期未继续发酵。
+
+住房和服务成本温和上涨，机票价格继续大幅上涨，未来核心通胀预计仍然存在上行风险，关键仍在于中东地缘走向对高油价影响的持续性。
+
+周内中国央行最新公布的数据显示，3月份购金量接近4.5吨，对比过往一年平均每月2吨的数量来看，中国央行逢低买入的行为或反映出全球乱局背景下，去美元化的长期逻辑并未根本上改变；而土耳其、波兰等央行的售金更多受到石油美元背景下的短期流动性影响。
 
 ## 相关推荐
 
-- 2026-06-29 19:58 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 20:01 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 20:02 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 20:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 20:08 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 19:55 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 20:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 20:07 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 19:59 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 20:19 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 20:07 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 20:05 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 20:27 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 20:24 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 20:07 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 20:08 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 20:08 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 20:16 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 20:22 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 20:26 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 20:04 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 20:18 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 20:08 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:56 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/23132.shtml)
-- 2026-06-29 20:19 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/029082166.shtml)
-- 2026-06-29 20:13 - [高质量发展看新疆](https://www.share.minike.top/Article/details/272272897.shtml)
-- 2026-06-29 20:00 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/0979673.shtml)
-- 2026-06-29 20:19 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/1250479.shtml)
-- 2026-06-29 20:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/778765.shtml)
-- 2026-06-29 20:03 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/982584.shtml)
-- 2026-06-29 20:12 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/964247.shtml)
-- 2026-06-29 19:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/7593318.shtml)
-- 2026-06-29 20:20 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/7764647.shtml)
-- 2026-06-29 20:00 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/6355403.shtml)
-- 2026-06-29 20:14 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.kurohicncr.top/Article/details/98533428.shtml)
-- 2026-06-29 20:13 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/8028666.shtml)
-- 2026-06-29 20:12 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/320501204089.shtml)
-- 2026-06-29 20:19 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/14306239575.shtml)
+- 2026-06-29 20:15 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/152063184176.shtml)
+- 2026-06-29 20:23 - [上世纪90年代玩具成新宠](https://www.share.minike.top/Article/details/3696668.shtml)
+- 2026-06-29 20:05 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/734125233945.shtml)
+- 2026-06-29 20:12 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/6763265843.shtml)
+- 2026-06-29 20:14 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/707185624024.shtml)
+- 2026-06-29 20:02 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/46434759918.shtml)
+- 2026-06-29 20:13 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/88111428070.shtml)
+- 2026-06-29 20:02 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/10960960178.shtml)
+- 2026-06-29 20:12 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/339350978.shtml)
+- 2026-06-29 20:25 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/26902.shtml)
+- 2026-06-29 20:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/5283897.shtml)
+- 2026-06-29 20:29 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/494112.shtml)
+- 2026-06-29 20:25 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/360480341350.shtml)
+- 2026-06-29 20:25 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/30798781.shtml)
+- 2026-06-29 20:20 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/4792191426.shtml)

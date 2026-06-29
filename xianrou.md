@@ -1,52 +1,58 @@
-# 美国银行预计美元短期内走强 下半年将重回弱势
+# A股“三连涨” 沪指周二重回4000点
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-美国银行表示，能源价格上涨和全球滞胀风险短期内对美元构成支撑，但财政风险以及美国劳动力市场可能走弱将在今年下半年对美元构成拖累。 “短期来看，美元仍存在上行风险，但市场情绪可能反复无常，”策略师Alex Cohen和Michalis Rousakis周二在报告中写道，“除了短期的战争和油价驱动因素外，市场仍需应对美国劳动力市场可能走弱、私募信贷波动以及财政担忧再度升温等风险。”
+中新社北京4月14日电 (记者 陈康亮)中国A股14日(周二)延续涨势，主要股指悉数飘红，实现“三连涨”。其中，上证指数当天高开震荡，尾盘明显拉升，收盘成功站上4000点之上。 截至当天收盘，上证指数报4026点，涨幅为0.95%；深证成指报14639点，涨幅为1.61%；创业板指报3558点，涨2.36%。沪深两市成交总额约23837亿元人民币，较上一个交易日放量约2334亿
 
 ## 正文
 
-美国银行表示，能源价格上涨和全球滞胀风险短期内对美元构成支撑，但财政风险以及美国劳动力市场可能走弱将在今年下半年对美元构成拖累。
+中新社北京4月14日电 (记者 陈康亮)中国A股14日(周二)延续涨势，主要股指悉数飘红，实现“三连涨”。
 
-“短期来看，美元仍存在上行风险，但市场情绪可能反复无常，”策略师Alex Cohen和Michalis Rousakis周二在报告中写道，“除了短期的战争和油价驱动因素外，市场仍需应对美国劳动力市场可能走弱、私募信贷波动以及财政担忧再度升温等风险。
+其中，上证指数当天高开震荡，尾盘明显拉升，收盘成功站上4000点之上。
 
-” “从更长期来看，地缘政治格局的演变将继续引发市场对美元风险敞口最优配置的疑问，”他们表示。
+截至当天收盘，上证指数报4026点，涨幅为0.95%；深证成指报14639点，涨幅为1.61%；创业板指报3558点，涨2.36%。
 
-该团队仍看空欧元/美元，预计第二季度末为1.14，风险偏下行。
+沪深两市成交总额约23837亿元人民币，较上一个交易日放量约2334亿元人民币。
 
-“我们预计欧元/美元到年底将升至1.20，前提是美联储不加息、能源价格恢复正常，以及美国与欧元区经济增长逐步趋同，”他们表示。
+巨丰投顾投资顾问总监郭一鸣表示，A股近期持续上涨的重要原因之一在于中东局势的缓和。
 
-责任编辑：丁文武
+美国和伊朗谈判有望重启的消息释放积极信号，市场关于地缘政治风险的担忧缓解，全球风险偏好回升，海外资金回流意愿增强，为A股市场带来增量流动性支撑。
+
+消息面上，据美国媒体近日报道，美国和伊朗仍在接触，美政府正商讨举行第二次面对面谈判的相关细节。
+
+板块方面，当天A股多数行业板块上涨。
 
 ## 相关推荐
 
-- 2026-06-29 20:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 20:05 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 20:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 20:02 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 20:14 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 20:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 20:09 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 19:55 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 20:11 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 20:08 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 20:09 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 20:13 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 20:07 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 20:05 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 20:30 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 20:29 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 20:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 20:14 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 20:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 20:12 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 20:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 20:27 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:02 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/02582377.shtml)
-- 2026-06-29 20:04 - [夫妻生活太无聊，所以我……](http://www.blog.minike.top/Article/details/431398357.shtml)
-- 2026-06-29 20:14 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/223803.shtml)
-- 2026-06-29 20:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/62746.shtml)
-- 2026-06-29 20:06 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/76615467732.shtml)
-- 2026-06-29 20:15 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.minike.top/Article/details/12458975.shtml)
-- 2026-06-29 20:10 - [海清4次陪跑白玉兰](http://www.blog.minike.top/Article/details/5739312.shtml)
-- 2026-06-29 20:20 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/766838.shtml)
-- 2026-06-29 20:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/598958966067.shtml)
-- 2026-06-29 20:01 - [郑钦文谈再战西尼亚科娃](http://www.share.minike.top/Article/details/51777942731.shtml)
-- 2026-06-29 20:04 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/65453.shtml)
-- 2026-06-29 20:21 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/095290731324.shtml)
-- 2026-06-29 19:59 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/49167446.shtml)
-- 2026-06-29 20:19 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/48231.shtml)
-- 2026-06-29 20:12 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/49387076225.shtml)
+- 2026-06-29 20:00 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/47979.shtml)
+- 2026-06-29 20:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/2581713538.shtml)
+- 2026-06-29 20:12 - [东宫女主是不是顶级恋爱脑](http://www.blog.minike.top/Article/details/3585886.shtml)
+- 2026-06-29 20:06 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/267743118372.shtml)
+- 2026-06-29 20:11 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/5094097.shtml)
+- 2026-06-29 20:09 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/15388733.shtml)
+- 2026-06-29 20:13 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/97363948.shtml)
+- 2026-06-29 20:12 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/57284783136.shtml)
+- 2026-06-29 20:09 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/522372.shtml)
+- 2026-06-29 20:08 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/92397.shtml)
+- 2026-06-29 20:09 - [官媒首曝六代机？大V解读](https://www.blog.kurohicncr.top/Article/details/89915155124.shtml)
+- 2026-06-29 20:24 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/4480176.shtml)
+- 2026-06-29 20:02 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/1761018.shtml)
+- 2026-06-29 20:07 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/109883.shtml)
+- 2026-06-29 20:16 - [青春环游记第三季](https://www.blog.minike.top/Article/details/56842.shtml)

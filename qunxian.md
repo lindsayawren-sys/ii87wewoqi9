@@ -1,60 +1,51 @@
-# 百事公司将零食价格下调15% 此前多力多滋涨价近50%
+# 大摩：升中国生物制药目标价至8.3港元 评级“增持”
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-百事公司此前将零食价格推高至可能抑制需求的程度，如今正在重新调整。在包括沃尔玛在内的零售商持续施压之下，管理层正着手将旗下菲多利部分产品的价格下调至多15%。 近年来，美国零食价格大幅上涨，自2021年以来，沃尔玛门店的多力多滋价格涨幅接近50%，部分袋装产品价格超过7美元。同时，美国食品业务新领导层进行的内部评估表明，可负担性已成为销量的关键制约因素。此后，该公司已在沃尔玛、
+摩根士丹利发布研报称，更新对中国生物制药（01177）的风险回报评估。将集团2026至2028年销售额分别下降1%、3%、3%。预计今年公司收入将增长11%，受惠于来自赛诺菲的预付款，以及创新药和生物类似药录得逾20%的同比增长，足以抵销仿制药单位数字的跌幅。大摩将集团目标价由8港元上调至8.3港元，评级为“增持”。责任编辑：史丽君
 
 ## 正文
 
-百事公司此前将零食价格推高至可能抑制需求的程度，如今正在重新调整。
+摩根士丹利发布研报称，更新对中国生物制药（01177）的风险回报评估。
 
-在包括沃尔玛在内的零售商持续施压之下，管理层正着手将旗下菲多利部分产品的价格下调至多15%。
+将集团2026至2028年销售额分别下降1%、3%、3%。
 
-近年来，美国零食价格大幅上涨，自2021年以来，沃尔玛门店的多力多滋价格涨幅接近50%，部分袋装产品价格超过7美元。
+预计今年公司收入将增长11%，受惠于来自赛诺菲的预付款，以及创新药和生物类似药录得逾20%的同比增长，足以抵销仿制药单位数字的跌幅。
 
-同时，美国食品业务新领导层进行的内部评估表明，可负担性已成为销量的关键制约因素。
+大摩将集团目标价由8港元上调至8.3港元，评级为“增持”。
 
-此后，该公司已在沃尔玛、好市多和塔吉特等主要零售商处争取到了额外的货架空间——据报道平均增加了两位数百分比。
-
-这一更广泛的价格调整预计将在本月底前全面落实。
-
-百事公司管理层表示，早期的测试市场在销量上取得了“相当不错”的提升，这表明如果执行到位，该策略可能开始稳定业绩表现。
-
-然而，这一背景反映了百事公司曾经最稳定的增长引擎正在发生更为结构性的转变。
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-29 20:18 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 19:56 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 20:12 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 20:19 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 20:21 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 19:55 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 19:59 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 19:58 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 20:02 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 20:22 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 20:11 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 20:20 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 20:01 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 20:01 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 20:24 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 20:27 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 20:09 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 20:11 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 20:18 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 20:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 20:09 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 20:00 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 20:24 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 20:12 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 20:00 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:07 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/7633268916.shtml)
-- 2026-06-29 20:03 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/056443.shtml)
-- 2026-06-29 20:23 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/4755635.shtml)
-- 2026-06-29 20:13 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/3060829.shtml)
-- 2026-06-29 20:09 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/185085.shtml)
-- 2026-06-29 20:07 - [沙丘](http://www.blog.minike.top/Article/details/719229.shtml)
-- 2026-06-29 19:58 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/4959321532.shtml)
-- 2026-06-29 19:59 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/18402302753.shtml)
-- 2026-06-29 20:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/05056794.shtml)
-- 2026-06-29 20:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/313324.shtml)
-- 2026-06-29 20:07 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/572302.shtml)
-- 2026-06-29 20:19 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/812270.shtml)
-- 2026-06-29 20:09 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/5781061147.shtml)
-- 2026-06-29 19:59 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/213865.shtml)
-- 2026-06-29 20:16 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/949825.shtml)
+- 2026-06-29 20:14 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/7057868753.shtml)
+- 2026-06-29 20:17 - [高考1357分的同学如何报志愿？](https://www.share.kurohicncr.top/Article/details/37378.shtml)
+- 2026-06-29 20:22 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/5903644437.shtml)
+- 2026-06-29 20:01 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.kurohicncr.top/Article/details/65239086169.shtml)
+- 2026-06-29 20:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/892061564136.shtml)
+- 2026-06-29 20:00 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/4243088.shtml)
+- 2026-06-29 20:01 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/27086.shtml)
+- 2026-06-29 20:21 - [大马同意延长马航370残骸搜寻工作](http://www.share.kurohicncr.top/Article/details/65284529570.shtml)
+- 2026-06-29 20:23 - [女心理师](http://www.blog.kurohicncr.top/Article/details/718059711.shtml)
+- 2026-06-29 20:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/516428454482.shtml)
+- 2026-06-29 20:20 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/91824401.shtml)
+- 2026-06-29 20:15 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/53480.shtml)
+- 2026-06-29 20:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/21385339.shtml)
+- 2026-06-29 20:06 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.kurohicncr.top/Article/details/616070.shtml)
+- 2026-06-29 20:00 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/337042374.shtml)

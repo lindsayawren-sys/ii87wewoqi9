@@ -1,52 +1,54 @@
-# 高盛：潍柴动力AIDC发电业务胜预期 升目标价至41港元
+# 日本首相与阿曼苏丹在通话中讨论中东局势
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-高盛发布研报称，上调潍柴动力（02338）2026至2030年每股盈利预测1%至4%，主要由于AI数据中心（AIDC）发电业务前景较预期强劲，足以抵消传统重型卡车（HDT）发动机业务利润率下跌的影响。该行重申潍柴动力“买入”评级，上调目标估值，将潍柴动力H股及潍柴动力（000338.SZ）A股目标价分别升至41港元及38元人民币（此前为37港元及34元人民币），相当于今年综合市
+日本首相高市早苗与阿曼苏丹海赛姆·本·塔里克·阿勒赛义德在电话交谈中讨论了中东局势。 高市在周二通话后对记者表示，阿曼在缓解地区紧张局势方面发挥着至关重要的作用。 阿曼濒临霍尔木兹海峡，在地缘政治和能源安全方面都具有重要意义。 阐明了日本的立场，即必须维持伊朗和美国之间的停火，并通过外交途径达成最终协议。 必须尽快确保包括日本在内的所有国家船舶享有自由安全的航行权。 高市表示，
 
 ## 正文
 
-高盛发布研报称，上调潍柴动力（02338）2026至2030年每股盈利预测1%至4%，主要由于AI数据中心（AIDC）发电业务前景较预期强劲，足以抵消传统重型卡车（HDT）发动机业务利润率下跌的影响。
+日本首相高市早苗与阿曼苏丹海赛姆·本·塔里克·阿勒赛义德在电话交谈中讨论了中东局势。
 
-该行重申潍柴动力“买入”评级，上调目标估值，将潍柴动力H股及潍柴动力（000338.SZ）A股目标价分别升至41港元及38元人民币（此前为37港元及34元人民币），相当于今年综合市盈率22倍（此前为20倍）。
+高市在周二通话后对记者表示，阿曼在缓解地区紧张局势方面发挥着至关重要的作用。
 
-该行认为，公司的引擎业务组合转型将加快。
+阿曼濒临霍尔木兹海峡，在地缘政治和能源安全方面都具有重要意义。
 
-预期到2028年，AIDC发电将占公司净利润的三分之一，超逾HDT引擎业务的贡献； 2030年占比更达40%，至约110亿元人民币，相当于公司目前的净利润规模。
+阐明了日本的立场，即必须维持伊朗和美国之间的停火，并通过外交途径达成最终协议。
 
-责任编辑：史丽君
+必须尽快确保包括日本在内的所有国家船舶享有自由安全的航行权。
+
+高市表示，海赛姆表示愿意继续与日本和其他国家合作，以稳定局势，包括确保霍尔木兹海峡的航行安全责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 20:06 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 20:05 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 20:21 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 20:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 19:56 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 20:13 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 20:10 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 19:54 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 19:55 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 20:15 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 20:01 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 20:06 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 20:25 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 20:12 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 20:12 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 20:04 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 20:12 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 20:02 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 20:24 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 20:28 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 20:17 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 20:23 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 20:05 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 20:00 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:02 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/128309021039.shtml)
-- 2026-06-29 20:22 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/24901879837.shtml)
-- 2026-06-29 20:18 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/155484.shtml)
-- 2026-06-29 19:57 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/91389.shtml)
-- 2026-06-29 19:57 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/20161008808.shtml)
-- 2026-06-29 20:10 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/821057926336.shtml)
-- 2026-06-29 20:16 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/62959438.shtml)
-- 2026-06-29 20:01 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/063447.shtml)
-- 2026-06-29 19:56 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/99787.shtml)
-- 2026-06-29 20:05 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/58390102443.shtml)
-- 2026-06-29 19:57 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/9220015090.shtml)
-- 2026-06-29 20:01 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/78034.shtml)
-- 2026-06-29 19:57 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/634156809.shtml)
-- 2026-06-29 20:22 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.minike.top/Article/details/440079957331.shtml)
-- 2026-06-29 20:23 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/3931677284.shtml)
+- 2026-06-29 20:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/8560177.shtml)
+- 2026-06-29 20:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/0733889092.shtml)
+- 2026-06-29 20:26 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/9329761820.shtml)
+- 2026-06-29 20:00 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/277580362.shtml)
+- 2026-06-29 20:17 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/7297694008.shtml)
+- 2026-06-29 20:08 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/951690478612.shtml)
+- 2026-06-29 20:14 - [世界杯1/16决赛对阵出炉](http://www.blog.kurohicncr.top/Article/details/76810.shtml)
+- 2026-06-29 20:05 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/60545.shtml)
+- 2026-06-29 20:11 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/041789775995.shtml)
+- 2026-06-29 20:14 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/31320069.shtml)
+- 2026-06-29 20:10 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/65630572.shtml)
+- 2026-06-29 20:12 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/81020278876.shtml)
+- 2026-06-29 20:23 - [王楚钦称抽签结果出来心情不好](https://www.blog.minike.top/Article/details/5430240390.shtml)
+- 2026-06-29 20:18 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/381089.shtml)
+- 2026-06-29 20:00 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/570624605.shtml)

@@ -1,57 +1,53 @@
-# 招商证券净利润创新高背后：自营收入保守 同行“吃肉”自己“喝汤”
+# 日经指数或将上涨 因能源短缺担忧缓解
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-2025年，招商证券交出了一份看似平常的年度答卷。年报显示，公司全年实现营业收入249.72亿元，同比增长19.53%；实现归母净利润123.50亿元，同比增长18.91%。 2025年，招商证券的财富管理和机构业务实现营收138.25亿元，同比大增35.1%，占营收的比重高达55.36%。这一占比在头部券商中属于较高水平，这既是优势，也是风险——当市场成交量萎缩时，这块收入的
+随着对能源和石化产品短缺的担忧缓解，日本股市或将上涨。途经霍尔木兹海峡的船只流量有所改善，不过商业交通流量仍仅为战前水平的一小部分。日经指数期货在新加坡交易所上涨1.4%，至58，810点。投资者正在关注中东局势的发展，与此同时，市场继续寄望美国和伊朗将恢复谈判以解决冲突。日经指数周二上涨2.4%，至57，877.39点。责任编辑：王永生
 
 ## 正文
 
-2025年，招商证券交出了一份看似平常的年度答卷。
+随着对能源和石化产品短缺的担忧缓解，日本股市或将上涨。
 
-年报显示，公司全年实现营业收入249.72亿元，同比增长19.53%；实现归母净利润123.50亿元，同比增长18.91%。
+途经霍尔木兹海峡的船只流量有所改善，不过商业交通流量仍仅为战前水平的一小部分。
 
-2025年，招商证券的财富管理和机构业务实现营收138.25亿元，同比大增35.1%，占营收的比重高达55.36%。
+日经指数期货在新加坡交易所上涨1.4%，至58，810点。
 
-这一占比在头部券商中属于较高水平，这既是优势，也是风险——当市场成交量萎缩时，这块收入的弹性也最大。
+投资者正在关注中东局势的发展，与此同时，市场继续寄望美国和伊朗将恢复谈判以解决冲突。
 
-信用业务与经纪业务高度绑定。
+日经指数周二上涨2.4%，至57，877.39点。
 
-截至2025年末，公司融出资金规模较年初大幅提升40%至1333.53亿元，两融余额市占率由2024年末的4.87%提升至5.06%。
-
-这反映出客户加杠杆意愿增强，且公司在两融市场的份额在提升。
-
-自营业务一直是券商利润的“放大器”。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 19:55 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 19:57 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 20:03 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 20:04 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 20:21 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 19:54 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 20:19 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 20:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 19:57 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 19:59 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 20:00 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 20:00 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 20:11 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 20:00 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 20:23 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 20:18 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 20:05 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 20:00 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 20:16 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 20:02 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 20:21 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 20:25 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:04 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/166225.shtml)
-- 2026-06-29 20:15 - [东方风云榜](https://www.blog.minike.top/Article/details/84169118933.shtml)
-- 2026-06-29 20:04 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/346174993275.shtml)
-- 2026-06-29 19:58 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.kurohicncr.top/Article/details/131490035.shtml)
-- 2026-06-29 20:01 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/3483340.shtml)
-- 2026-06-29 20:18 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/6178888274.shtml)
-- 2026-06-29 20:03 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/0641329077.shtml)
-- 2026-06-29 20:11 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.kurohicncr.top/Article/details/879168140453.shtml)
-- 2026-06-29 20:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/1988768.shtml)
-- 2026-06-29 19:55 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/9232384225.shtml)
-- 2026-06-29 20:20 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/477310945606.shtml)
-- 2026-06-29 20:03 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/16621908435.shtml)
-- 2026-06-29 20:18 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.minike.top/Article/details/597137634185.shtml)
-- 2026-06-29 20:11 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.minike.top/Article/details/51297.shtml)
-- 2026-06-29 20:03 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/730598.shtml)
+- 2026-06-29 20:18 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/69071.shtml)
+- 2026-06-29 20:12 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/37821387182.shtml)
+- 2026-06-29 20:17 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/94441.shtml)
+- 2026-06-29 20:16 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/020811234610.shtml)
+- 2026-06-29 20:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/5257194662.shtml)
+- 2026-06-29 20:19 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/13008616011.shtml)
+- 2026-06-29 20:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/722949211.shtml)
+- 2026-06-29 20:02 - [极限挑战第一季](http://www.share.minike.top/Article/details/9675102.shtml)
+- 2026-06-29 20:19 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/69607158.shtml)
+- 2026-06-29 20:22 - [周生如故](https://www.share.kurohicncr.top/Article/details/001195147.shtml)
+- 2026-06-29 20:03 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/40771.shtml)
+- 2026-06-29 20:04 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/194708.shtml)
+- 2026-06-29 20:25 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/9984868010.shtml)
+- 2026-06-29 20:07 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/16918102887.shtml)
+- 2026-06-29 20:12 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/09310653.shtml)

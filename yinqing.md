@@ -1,59 +1,61 @@
-# 国台办批民进党当局阻挠两岸教育交流
+# 保险业如何迈向“服务驱动”时代？丨国是访问
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-中新网4月8日电 4月8日，国务院台办举行例行新闻发布会。有记者问：近期，台陆委会呼吁大陆方面解除自2020年4月起片面设置的限制，恢复大陆学生来台攻读学位，称其向来欢迎陆生赴台，因大陆政策限制连续5年陆生新生来台为零，目前在台剩余学位生已大幅减少。请问对此有何评论？ 国台办发言人朱凤莲称，这种说法纯属颠倒黑白、造谣抹黑。近年来，民进党当局对两岸交流横加阻挠，更无视台湾教育界和
+今年政府工作报告提出培育“中国服务”品牌。在服务业规模不断扩大的同时，如何实现扩能提质成为重要课题。 与享誉全球的“中国制造”相比，保险等金融服务业在国际上的影响力仍有提升空间。作为其中重要组成部分，人身险的转型路径，折射出中国服务业升级的一种方向。 平安人寿总经理史伟玉在接受中新社国是直通采访时表示，随着人身险行业加速迈入“服务驱动”时代，过去以风险赔付为核心的保险模式，正在
 
 ## 正文
 
-中新网4月8日电 4月8日，国务院台办举行例行新闻发布会。
+今年政府工作报告提出培育“中国服务”品牌。
 
-有记者问：近期，台陆委会呼吁大陆方面解除自2020年4月起片面设置的限制，恢复大陆学生来台攻读学位，称其向来欢迎陆生赴台，因大陆政策限制连续5年陆生新生来台为零，目前在台剩余学位生已大幅减少。
+在服务业规模不断扩大的同时，如何实现扩能提质成为重要课题。
 
-请问对此有何评论？
+与享誉全球的“中国制造”相比，保险等金融服务业在国际上的影响力仍有提升空间。
 
-国台办发言人朱凤莲称，这种说法纯属颠倒黑白、造谣抹黑。
+作为其中重要组成部分，人身险的转型路径，折射出中国服务业升级的一种方向。
 
-近年来，民进党当局对两岸交流横加阻挠，更无视台湾教育界和青年学生参与两岸交流的强烈意愿，对两岸教育交流合作极尽限控、打压。
+平安人寿总经理史伟玉在接受中新社国是直通采访时表示，随着人身险行业加速迈入“服务驱动”时代，过去以风险赔付为核心的保险模式，正在逐渐延伸至健康管理、医疗服务、养老服务等多个领域。
 
-一方面，民进党当局禁止岛内大专院校与暨南大学、北京航空航天大学等10所大学交流合作，以各种名目阻挠两岸大中小学教育交流合作，对大陆学生赴台就读设置多种不合理限制、采取多种不公平对待等。
+这一变化既源于消费者需求的转变，也对行业服务能力提出了更高要求。
 
-另一方面，民进党当局对一些来大陆交流的台湾大学校长、院长、教师“查水表”、砍经费、卡项目，加大“绿色恐怖”。
+保险服务从“理赔”走向“全流程管理”在史伟玉看来，消费者对于保险服务的需求早先比较单一，主要集中在理赔环节，希望能够“理赔得好、理赔得快、理赔得简单便捷”。
 
-这些政治操弄严重损害两岸教育交流的正常开展。
+这与保险本身的功能密切相关——在风险发生时履行经济补偿职责。
 
 ## 相关推荐
 
-- 2026-06-29 20:19 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 20:17 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 20:18 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 20:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 19:54 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 20:18 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 20:17 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 20:21 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 20:20 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 20:03 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 20:14 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 20:10 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 20:14 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 20:25 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 20:26 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 20:11 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 20:17 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 20:22 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 20:13 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 20:03 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 20:03 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 20:11 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 20:02 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 20:24 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 20:23 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 20:24 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 20:25 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 20:14 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:54 - [无畏为自己的猫正名了](http://www.share.kurohicncr.top/Article/details/92429814.shtml)
-- 2026-06-29 20:02 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/986566031777.shtml)
-- 2026-06-29 20:01 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/5964439.shtml)
-- 2026-06-29 20:19 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/51905447084.shtml)
-- 2026-06-29 20:18 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/296374832.shtml)
-- 2026-06-29 20:19 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/793796346017.shtml)
-- 2026-06-29 20:11 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/78014422302.shtml)
-- 2026-06-29 20:10 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/16928093.shtml)
-- 2026-06-29 20:04 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/0573065061.shtml)
-- 2026-06-29 19:58 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.kurohicncr.top/Article/details/80657.shtml)
-- 2026-06-29 20:13 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/49702112461.shtml)
-- 2026-06-29 20:09 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/315848832.shtml)
-- 2026-06-29 20:05 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/877525.shtml)
-- 2026-06-29 19:54 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/76767538.shtml)
-- 2026-06-29 20:11 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/3905868405.shtml)
+- 2026-06-29 20:09 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/655833870318.shtml)
+- 2026-06-29 20:06 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/0528062836.shtml)
+- 2026-06-29 20:08 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/19799483.shtml)
+- 2026-06-29 20:05 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.kurohicncr.top/Article/details/31342708.shtml)
+- 2026-06-29 20:15 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/0588540156.shtml)
+- 2026-06-29 20:26 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/178875860847.shtml)
+- 2026-06-29 20:15 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/75308.shtml)
+- 2026-06-29 20:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/091472.shtml)
+- 2026-06-29 20:26 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/034481674.shtml)
+- 2026-06-29 20:27 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.minike.top/Article/details/167600.shtml)
+- 2026-06-29 20:05 - [RAY评乘风2026总决赛](http://www.blog.kurohicncr.top/Article/details/8560025706.shtml)
+- 2026-06-29 20:28 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/73697346776.shtml)
+- 2026-06-29 20:05 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/284821896456.shtml)
+- 2026-06-29 20:26 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/826511566.shtml)
+- 2026-06-29 20:27 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/0645751.shtml)

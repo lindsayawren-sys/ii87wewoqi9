@@ -1,56 +1,45 @@
-# 增量资金持续入场！一季度A股新开户同比增长超六成
+# 中国中铁于4月13日斥资4999.95万元回购953.66万股A股
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！近期，A股市场交投持续活跃，投资者入市热情高涨。上交所最新数据显示，今年3月沪市A股新开户数超460.14万户，环比增长82.38%，同比增长50.10%。一季度沪市A股累计新开户数达1204.02万户，同比增长61.15%。 1月以来，沪市A股新开户呈现“高开、回落、再冲高”走势。1月开户数达491.58
+中国中铁（00390）发布公告，于2026年4月13日该公司斥资人民币4999.95万元回购953.66万股A股，回购价格为每股人民币5.22-5.26元。责任编辑：卢昱君
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中国中铁（00390）发布公告，于2026年4月13日该公司斥资人民币4999.95万元回购953.66万股A股，回购价格为每股人民币5.22-5.26元。
 
-近期，A股市场交投持续活跃，投资者入市热情高涨。
-
-上交所最新数据显示，今年3月沪市A股新开户数超460.14万户，环比增长82.38%，同比增长50.10%。
-
-一季度沪市A股累计新开户数达1204.02万户，同比增长61.15%。
-
-1月以来，沪市A股新开户呈现“高开、回落、再冲高”走势。
-
-1月开户数达491.58万户，2月受春节假期交易日偏少影响回落至252.3万户，3月大幅回升至460.14万户。
-
-从3月新开户结构看，个人投资者开户458.82万户，机构开户1.32万户，个人投资者仍是主力。
-
-另外，3月份沪市B股新开户0.12万户，基金新开户39.4万户。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:56 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 20:21 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 20:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 19:55 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 20:23 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 20:05 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 20:23 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 19:55 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 20:07 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 19:57 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 20:10 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 20:01 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 20:11 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 20:11 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 20:17 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 20:23 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 20:07 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 20:16 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 20:21 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 20:15 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 20:23 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:21 - [伊朗足球队将启程回国](http://www.blog.kurohicncr.top/Article/details/05432.shtml)
-- 2026-06-29 20:19 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/4272348.shtml)
-- 2026-06-29 20:21 - [厨房装空调还是装冷烟机](https://www.share.kurohicncr.top/Article/details/98126773.shtml)
-- 2026-06-29 20:07 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/2931966708.shtml)
-- 2026-06-29 20:18 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/048741.shtml)
-- 2026-06-29 19:56 - [大马同意延长马航370残骸搜寻工作](http://www.share.kurohicncr.top/Article/details/867108538.shtml)
-- 2026-06-29 20:11 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/48030.shtml)
-- 2026-06-29 20:09 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/254756642064.shtml)
-- 2026-06-29 20:21 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/893354.shtml)
-- 2026-06-29 20:16 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/99122.shtml)
-- 2026-06-29 20:21 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/8095791212.shtml)
-- 2026-06-29 20:02 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/633645.shtml)
-- 2026-06-29 19:55 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/68174.shtml)
-- 2026-06-29 20:22 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/350785525975.shtml)
-- 2026-06-29 20:07 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/69673.shtml)
+- 2026-06-29 20:11 - [郑钦文谈再战西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/38577957964.shtml)
+- 2026-06-29 20:20 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/331811279511.shtml)
+- 2026-06-29 20:00 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/253916716922.shtml)
+- 2026-06-29 20:05 - [世界杯1/16决赛对阵出炉](http://www.blog.kurohicncr.top/Article/details/050336427014.shtml)
+- 2026-06-29 20:29 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/556740.shtml)
+- 2026-06-29 20:03 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/77507.shtml)
+- 2026-06-29 20:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/356037479.shtml)
+- 2026-06-29 20:11 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/59874485.shtml)
+- 2026-06-29 20:18 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/62788007578.shtml)
+- 2026-06-29 20:05 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.minike.top/Article/details/013152393.shtml)
+- 2026-06-29 20:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/099931.shtml)
+- 2026-06-29 20:16 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/0250531788.shtml)
+- 2026-06-29 20:10 - [第一炉香](http://www.share.kurohicncr.top/Article/details/3966087.shtml)
+- 2026-06-29 20:25 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/52334650.shtml)
+- 2026-06-29 20:26 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/52038.shtml)

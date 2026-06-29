@@ -1,56 +1,61 @@
-# 美伊停火缓解霍尔木兹海峡中断担忧，亚洲科技股大涨
+# 中老铁路国际客运三周年：从昆明到万象的人间烟火
 
-> 更新时间：2026-06-29 20:24:03 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-美伊达成为期两周的有条件停火协议，其中包括临时重新开放霍尔木兹海峡，受此消息影响，亚洲科技与半导体股周三大幅上涨。 该消息推动亚洲主要股指飙升，对全球贸易流动和能源成本高度敏感的芯片制造商领涨市场。 台积电上涨4.84%；中芯国际涨幅超10%。 日本半导体设备厂商东京电子上涨9.6%，爱德万测试涨幅超13%，英伟达核心供应商瑞萨电子上涨12%，电气设备企业藤仓上涨11.58%。
+中新网云南西双版纳4月13日电 题：中老铁路国际客运三周年：从昆明到万象的人间烟火 作者 黄远飞 4月13日，中老铁路国际旅客列车迎来开行三周年。2023年4月13日，这条连接昆明与万象的铁路客运通道正式投运，实现两地当日通达。三年来，它不仅是一条交通线，更逐渐融入沿线的人间烟火。 让思念不再隔山海 “那时候，中国和老挝之间还没有铁路，思念，是很慢的。现在的思念很快，快得睡一觉
 
 ## 正文
 
-美伊达成为期两周的有条件停火协议，其中包括临时重新开放霍尔木兹海峡，受此消息影响，亚洲科技与半导体股周三大幅上涨。
+中新网云南西双版纳4月13日电 题：中老铁路国际客运三周年：从昆明到万象的人间烟火 作者 黄远飞 4月13日，中老铁路国际旅客列车迎来开行三周年。
 
-该消息推动亚洲主要股指飙升，对全球贸易流动和能源成本高度敏感的芯片制造商领涨市场。
+2023年4月13日，这条连接昆明与万象的铁路客运通道正式投运，实现两地当日通达。
 
-台积电上涨4.84%；中芯国际涨幅超10%。
+三年来，它不仅是一条交通线，更逐渐融入沿线的人间烟火。
 
-日本半导体设备厂商东京电子上涨9.6%，爱德万测试涨幅超13%，英伟达核心供应商瑞萨电子上涨12%，电气设备企业藤仓上涨11.58%。
+让思念不再隔山海 “那时候，中国和老挝之间还没有铁路，思念，是很慢的。
 
-韩国存储芯片龙头SK海力士涨幅超15%，三星电子上涨超9%。
+现在的思念很快，快得睡一觉就能扑进爸爸怀里。
 
-三星股价上涨，同时该公司周二预计一季度利润将增长八倍，受数据中心和服务器所用高带宽内存芯片的人工智能需求激增推动。
+”云南师范大学附属小学学生宋佳忆的父亲常年在老挝工作，于是他在作文里这样写道。
 
-尽管今年人工智能热潮带来的持续强劲需求推动主要芯片制造商利润飙升，但中东冲突已引发对其全球供应链的严重担忧，尤其是氦气供应。
+这样的“说走就走的团圆”，已成为许多家庭的日常。
 
-在半导体制造中，氦气凭借其冷却特性用于散热，同时也是光刻工艺不可或缺的气体，而光刻是印制芯片复杂电路的关键技术。
+三年来，中老铁路国际旅客列车累计开行3190余列，运送出入境旅客超80万人次。
 
 ## 相关推荐
 
-- 2026-06-29 20:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 20:06 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 20:12 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 20:11 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 20:18 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 20:02 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 20:23 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 20:21 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 20:10 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 20:13 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 20:01 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 20:04 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 20:17 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 20:04 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 20:26 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 20:15 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 20:14 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 20:04 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 20:24 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 20:29 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 20:01 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 20:13 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 20:00 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 20:09 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 20:26 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:03 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/42722133.shtml)
-- 2026-06-29 20:13 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/081003231374.shtml)
-- 2026-06-29 19:59 - [韩国队主帅遭极端网友死亡威胁](https://www.share.kurohicncr.top/Article/details/815035923092.shtml)
-- 2026-06-29 19:59 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/983332533675.shtml)
-- 2026-06-29 20:16 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/84000572598.shtml)
-- 2026-06-29 20:17 - [官方通报一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/8252546.shtml)
-- 2026-06-29 20:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/60890712031.shtml)
-- 2026-06-29 20:17 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/736670.shtml)
-- 2026-06-29 20:08 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/073825199937.shtml)
-- 2026-06-29 20:14 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/9820642.shtml)
-- 2026-06-29 20:10 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/28376.shtml)
-- 2026-06-29 20:03 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/306059599.shtml)
-- 2026-06-29 20:00 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/9390831215.shtml)
-- 2026-06-29 20:21 - [海清4次陪跑白玉兰](http://www.blog.kurohicncr.top/Article/details/1220455.shtml)
-- 2026-06-29 20:23 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/1774856128.shtml)
+- 2026-06-29 20:01 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/777784.shtml)
+- 2026-06-29 20:19 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/680861454581.shtml)
+- 2026-06-29 20:20 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/290448401192.shtml)
+- 2026-06-29 20:16 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/90273538248.shtml)
+- 2026-06-29 20:04 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/09758145.shtml)
+- 2026-06-29 20:11 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.kurohicncr.top/Article/details/0375676425.shtml)
+- 2026-06-29 20:05 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/4506565928.shtml)
+- 2026-06-29 20:28 - [蔚来回应车漆洗车时被冲掉](http://www.blog.kurohicncr.top/Article/details/906654976.shtml)
+- 2026-06-29 20:17 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/5910148305.shtml)
+- 2026-06-29 20:09 - [斛珠夫人](http://www.blog.minike.top/Article/details/101568955.shtml)
+- 2026-06-29 20:26 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/6631916.shtml)
+- 2026-06-29 20:08 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/270697837586.shtml)
+- 2026-06-29 20:06 - [爱奇艺抬高国剧新标尺](http://www.share.kurohicncr.top/Article/details/8170561.shtml)
+- 2026-06-29 20:26 - [《贺子珍》](https://www.blog.minike.top/Article/details/6807731.shtml)
+- 2026-06-29 20:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/68630.shtml)

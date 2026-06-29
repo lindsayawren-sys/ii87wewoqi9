@@ -1,49 +1,58 @@
-# 央行：2月末上海黄金交易所Au（T+D）合约收于每克1142.5元，环比下跌3.3%
+# 湖南城步苗乡三代人的传承 让民族文化焕发新生
 
-> 更新时间：2026-06-29 20:24:02 UTC+8
+> 更新时间：2026-06-29 20:30:02 UTC+8
 
 ## 摘要
 
-3月31日金融一线消息，央行发布2026年2月金融市场运行情况，2026年2月末，上海黄金交易所Au（T+D）合约收于每克1142.5元，环比下跌3.3%。2026年2月，上海黄金交易所黄金成交2813.9吨，同比下降52.9%；上海期货交易所黄金成交1.4万吨，同比下降7.4%。责任编辑：王馨茹
+中新网邵阳4月13日电 (付敬懿 阳望春 吕伟铭)从爷爷辈的拓荒，整理近50万字的苗族民间文学、音乐资料；到父辈的坚守，一笔笔记录“庆鼓堂”等非遗习俗，守护苗家文化；再到新一代探索“非遗+文创+旅游”的产业化......在湖南邵阳市城步苗族自治县，尹国纲及其家族三代人跨越半个多世纪的接力，让民族文化焕发新生。 故事要从尹国纲的爷爷尹建德说起。作为新中国成立后的大学生，祖籍洞口县
 
 ## 正文
 
-3月31日金融一线消息，央行发布2026年2月金融市场运行情况，2026年2月末，上海黄金交易所Au（T+D）合约收于每克1142.5元，环比下跌3.3%。
+中新网邵阳4月13日电 (付敬懿 阳望春 吕伟铭)从爷爷辈的拓荒，整理近50万字的苗族民间文学、音乐资料；到父辈的坚守，一笔笔记录“庆鼓堂”等非遗习俗，守护苗家文化；再到新一代探索“非遗+文创+旅游”的产业化......在湖南邵阳市城步苗族自治县，尹国纲及其家族三代人跨越半个多世纪的接力，让民族文化焕发新生。
 
-2026年2月，上海黄金交易所黄金成交2813.9吨，同比下降52.9%；上海期货交易所黄金成交1.4万吨，同比下降7.4%。
+故事要从尹国纲的爷爷尹建德说起。
 
-责任编辑：王馨茹
+作为新中国成立后的大学生，祖籍洞口县的尹建德从湖南师范大学毕业后，主动向校领导申请“到最需要的地方去”。
+
+1958年，尹建德被分配到城步县，一待就是三十多年。
+
+在教育、文化岗位上，尹建德把毕生心血都献给了苗乡。
+
+退休后，他带着女儿尹小菊(尹国纲姑姑)自费下乡、走村串寨，从老百姓口中抢救整理了近50万字的苗族民间文学、音乐资料，乡亲们都叫他“苗乡掘宝人”。
+
+尹国纲的父亲尹华杰接过尹建德的接力棒，在城步这片土地上继续深耕民族文化。
+
+姑姑尹小菊和姑父伍建军更是长期作为尹建德的左右手，深入长安营、白毛坪等苗寨，一笔一笔记录下“庆鼓堂”等非遗习俗。
 
 ## 相关推荐
 
-- 2026-06-29 20:22 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 20:09 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 20:12 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 19:58 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 20:15 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 20:05 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 19:57 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 20:07 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 20:19 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 20:23 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 20:03 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 20:00 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 20:12 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 20:24 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-29 20:16 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 20:06 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 20:18 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 20:07 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 20:24 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 20:06 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 20:28 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 20:06 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 20:18 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 20:11 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 20:02 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:14 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/24686438.shtml)
-- 2026-06-29 20:03 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/27435223535.shtml)
-- 2026-06-29 20:13 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/1296525.shtml)
-- 2026-06-29 20:04 - [扫黑风暴](http://www.share.minike.top/Article/details/674318637053.shtml)
-- 2026-06-29 19:58 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/078080.shtml)
-- 2026-06-29 20:09 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/21854858.shtml)
-- 2026-06-29 20:16 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/4436341226.shtml)
-- 2026-06-29 20:18 - [北京市发布雷电黄色预警](http://www.share.minike.top/Article/details/34871.shtml)
-- 2026-06-29 20:16 - [恋与深空回应争议](http://www.share.minike.top/Article/details/322213266.shtml)
-- 2026-06-29 20:03 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/01629777.shtml)
-- 2026-06-29 20:12 - [叠纸](https://www.blog.minike.top/Article/details/63731203183.shtml)
-- 2026-06-29 20:03 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/10975.shtml)
-- 2026-06-29 19:58 - [官媒首曝六代机？大V解读](http://www.share.minike.top/Article/details/65898.shtml)
-- 2026-06-29 19:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/3212178.shtml)
-- 2026-06-29 20:17 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/0595788090.shtml)
+- 2026-06-29 20:08 - [王楚钦称抽签结果出来心情不好](http://www.blog.kurohicncr.top/Article/details/305153296.shtml)
+- 2026-06-29 20:13 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/627185943.shtml)
+- 2026-06-29 20:13 - [滚石点名酒店员工说有急救培训](http://www.share.minike.top/Article/details/12239435641.shtml)
+- 2026-06-29 20:17 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/724693765269.shtml)
+- 2026-06-29 20:04 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/656153454033.shtml)
+- 2026-06-29 20:01 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.minike.top/Article/details/290445747564.shtml)
+- 2026-06-29 20:06 - [普京建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/13238309.shtml)
+- 2026-06-29 20:21 - [2026全国田径冠军赛江苏队4金收官](http://www.share.minike.top/Article/details/646322.shtml)
+- 2026-06-29 20:08 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.kurohicncr.top/Article/details/531643127316.shtml)
+- 2026-06-29 20:08 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/29123.shtml)
+- 2026-06-29 20:12 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/05672930.shtml)
+- 2026-06-29 20:00 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/513310838473.shtml)
+- 2026-06-29 20:21 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/57929.shtml)
+- 2026-06-29 20:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/150881101.shtml)
+- 2026-06-29 20:21 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/929911523.shtml)
