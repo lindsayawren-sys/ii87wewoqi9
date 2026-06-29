@@ -1,50 +1,60 @@
-# 350吨果蔬走出喀什 援疆科创中心打通通往中亚西亚鲜果通道
+# 探访澳华历史博物馆：寻文化归属 守华人记忆
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 20:40 来源：中国新闻网 近日，中新社记者走进新疆喀什市深喀现代农业产业园喀什绿洲农业科创中心，连片的日光温室在戈壁滩上蔚为壮观，该农业基地占地215亩，目前拥有4栋玻璃温室、8座标准大棚，以及一万余平方米的的科研实验站，经过3年发展，该科创中心已创新研发彩椒、西红柿、甜瓜等新品种，带动周边千余人就业，成为新疆南部援疆成果的鲜活样本。 据了
+中新社墨尔本5月27日电 题：探访澳华历史博物馆：寻文化归属 守华人记忆 中新社记者 薄雯雯 漫步于澳大利亚墨尔本唐人街，红灯笼映照着斑驳老建筑，牌楼下人来人往。坐落于街巷深处的澳华历史博物馆，收藏着澳大利亚华人200余年的移民故事。 “这是一座关于澳大利亚华人移民史、文化根源与身份认同的博物馆。”澳华历史博物馆首席执行官王兴乡(Mark Wang)近日接受中新社记者专访时说。
 
 ## 正文
 
-发布时间：2026年06月16日 20:40 来源：中国新闻网 近日，中新社记者走进新疆喀什市深喀现代农业产业园喀什绿洲农业科创中心，连片的日光温室在戈壁滩上蔚为壮观，该农业基地占地215亩，目前拥有4栋玻璃温室、8座标准大棚，以及一万余平方米的的科研实验站，经过3年发展，该科创中心已创新研发彩椒、西红柿、甜瓜等新品种，带动周边千余人就业，成为新疆南部援疆成果的鲜活样本。
+中新社墨尔本5月27日电 题：探访澳华历史博物馆：寻文化归属 守华人记忆 中新社记者 薄雯雯 漫步于澳大利亚墨尔本唐人街，红灯笼映照着斑驳老建筑，牌楼下人来人往。
 
-据了解，依托援疆省市的技术与市场支持，当地持续优化品种结构，2025年至今，该中心已出口瓜果蔬菜超350吨，远销哈萨克斯坦、俄罗斯等地，随着中吉乌铁路建设加快推进，该基地正积极引入柑橘等瓜果，未来计划将更多国内优质鲜果输往更广阔的中亚、西亚市场。
+坐落于街巷深处的澳华历史博物馆，收藏着澳大利亚华人200余年的移民故事。
 
-(贾志鹏） 责任编辑：【李季】
+“这是一座关于澳大利亚华人移民史、文化根源与身份认同的博物馆。
+
+”澳华历史博物馆首席执行官王兴乡(Mark Wang)近日接受中新社记者专访时说。
+
+这位不会说中文却自称有着“中式思维”的第五代华裔，已与这座博物馆相伴四十余载。
+
+成立于1985年的澳华历史博物馆是一家非营利机构，许多工作由志愿者承担，王兴乡便是最早的志愿者之一。
+
+王兴乡的父亲王能焕(David Wang)是墨尔本市议会首位华裔议员，长期致力于华人社区发展。
+
+王兴乡表示，受父亲影响，他也始终怀有服务华社的责任感，并且乐在其中。
 
 ## 相关推荐
 
-- 2026-06-30 03:17 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 03:09 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 03:18 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 03:07 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 03:10 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 03:10 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 03:10 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-30 03:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 03:10 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 03:23 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 03:19 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 02:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-30 03:19 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 03:10 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 03:27 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 03:08 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 03:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 03:23 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 03:02 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 03:22 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 03:20 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 03:29 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 03:06 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 03:02 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 03:16 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 03:19 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 03:18 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 03:16 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:02 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/723539451764.shtml)
-- 2026-06-30 03:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/235872243143.shtml)
-- 2026-06-30 03:01 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/12298.shtml)
-- 2026-06-30 02:56 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/35511.shtml)
-- 2026-06-30 02:58 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/91557.shtml)
-- 2026-06-30 03:16 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/69126265747.shtml)
-- 2026-06-30 02:59 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/99282.shtml)
-- 2026-06-30 03:02 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/0303767586.shtml)
-- 2026-06-30 03:14 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/981218.shtml)
-- 2026-06-30 03:24 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/368258532317.shtml)
-- 2026-06-30 02:56 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/49896419.shtml)
-- 2026-06-30 03:19 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/42822.shtml)
-- 2026-06-30 03:10 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/853427969.shtml)
-- 2026-06-30 03:02 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/989808.shtml)
-- 2026-06-30 03:04 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/17194205.shtml)
+- 2026-06-30 03:20 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/6756841663.shtml)
+- 2026-06-30 03:09 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/33735.shtml)
+- 2026-06-30 03:24 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/19044.shtml)
+- 2026-06-30 03:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/2978196.shtml)
+- 2026-06-30 03:17 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/4799447.shtml)
+- 2026-06-30 03:10 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/2201713.shtml)
+- 2026-06-30 03:28 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/3531527355.shtml)
+- 2026-06-30 03:00 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/58905809.shtml)
+- 2026-06-30 03:05 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/641379368.shtml)
+- 2026-06-30 03:15 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/474097372.shtml)
+- 2026-06-30 03:25 - [点菜也要教吗](https://www.share.minike.top/Article/details/6552235837.shtml)
+- 2026-06-30 03:19 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/90647.shtml)
+- 2026-06-30 03:13 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/64557147503.shtml)
+- 2026-06-30 03:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/1237482040.shtml)
+- 2026-06-30 03:12 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/07617535.shtml)

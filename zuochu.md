@@ -1,58 +1,59 @@
-# 鹏华基金设立香港子公司获证监会反馈意见：与QDII业务涉及的利益冲突和输送风险进行补充说明
+# 第十四届中英政党对话举行
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-6月12日，证监会对鹏华基金设立香港子公司的申请文件出具反馈意见，要求公司在30个工作日内就相关问题逐项落实并提交书面回复。 反馈意见共涉及四方面内容：一是要求说明香港子公司的管理架构，包括部门设置、客户尽职调查与适当性管理相关制度安排等；二是鉴于公司已开展QDII业务，需就香港子公司与QDII业务之间可能涉及的利益冲突和利益输送风险补充说明相关安排；三是要求进一步明确香港子公
+中新社扬州5月26日电 5月26日，第十四届中英政党对话在江苏扬州举行，主题是“发挥政党作用，构建中英长期稳定的全面战略伙伴关系”。中共中央对外联络部部长刘海星出席并作主旨讲话。中方有关部委、地方和高校代表，英国前首席内阁大臣、英中协会会长利丁顿，英国工党、保守党议员和驻华使领馆官员，以及两国企业界人士等60余人出席。双方进行坦诚、深入、建设性交流，认为中英发展长期稳定的全面战
 
 ## 正文
 
-6月12日，证监会对鹏华基金设立香港子公司的申请文件出具反馈意见，要求公司在30个工作日内就相关问题逐项落实并提交书面回复。
+中新社扬州5月26日电 5月26日，第十四届中英政党对话在江苏扬州举行，主题是“发挥政党作用，构建中英长期稳定的全面战略伙伴关系”。
 
-反馈意见共涉及四方面内容：一是要求说明香港子公司的管理架构，包括部门设置、客户尽职调查与适当性管理相关制度安排等；二是鉴于公司已开展QDII业务，需就香港子公司与QDII业务之间可能涉及的利益冲突和利益输送风险补充说明相关安排；三是要求进一步明确香港子公司潜在客户的具体情况，包括客户数量、资产规模及表达合作意向的概要情况，并评估相关客户资源是否能够有效支持境外子公司展业；四是针对香港子公司拟任总经理拟由公司部门负责人兼基金经理担任的安排，要求说明该安排是否符合《证券基金经营机构董事、监事、高级管理人员及从业人员监督管理办法》第三十一条关于从业人员应保证有足够时间和精力履行职责的规定。
+中共中央对外联络部部长刘海星出席并作主旨讲话。
 
-根据监管流程，鹏华基金需在30个工作日内完成反馈回复，证监会将根据回复情况决定是否再次发出反馈意见。
+中方有关部委、地方和高校代表，英国前首席内阁大臣、英中协会会长利丁顿，英国工党、保守党议员和驻华使领馆官员，以及两国企业界人士等60余人出席。
 
-如不能按期回复，公司需提交延期申请。
+双方进行坦诚、深入、建设性交流，认为中英发展长期稳定的全面战略伙伴关系对两国和世界具有重要意义。
 
-以下是公告全文 鹏华基金管理有限公司申请设立香港子公司反馈意见 鹏华基金管理有限公司： 现对你公司设立香港子公司申请文件提出反馈意见，请你公司在30个工作日内对下列问题逐项落实并提供书面回复和电子文档。
+双方应落实好两国领导人重要共识，秉持战略伙伴初心和求同存异、开放包容精神，妥善处理分歧，深化互利合作，密切人文交流，加强国际事务沟通协作，促进共同发展和世界和平稳定。
 
-我会收到你公司的回复后，将根据情况决定是否再次向你公司发出反馈意见。
+对话框架下还举行了中英企业家圆桌会。
 
-如在30个工作日内不能提供书面回复，请向我会提交延期回复的申请。
-
-若对本反馈意见有任何问题，请致电我会证券基金机构监管司审核员。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:03 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 03:20 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 02:56 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 03:10 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 02:56 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 03:07 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 03:21 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-30 02:57 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 02:55 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 03:23 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 03:15 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 03:05 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 03:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 03:11 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 03:07 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 03:13 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 03:09 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 03:05 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 03:28 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 03:16 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 03:28 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 03:12 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 03:13 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 03:23 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 03:08 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 03:11 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 03:00 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/7288482.shtml)
-- 2026-06-30 03:16 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/2192102.shtml)
-- 2026-06-30 03:19 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/858236993.shtml)
-- 2026-06-30 03:12 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/66358215102.shtml)
-- 2026-06-30 03:05 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/406754903.shtml)
-- 2026-06-30 03:18 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/20200.shtml)
-- 2026-06-30 03:15 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/43462557280.shtml)
-- 2026-06-30 03:01 - [周生如故](http://www.blog.minike.top/Article/details/99051810.shtml)
-- 2026-06-30 03:08 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/01984145.shtml)
-- 2026-06-30 03:13 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/23073286577.shtml)
-- 2026-06-30 03:20 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/10528.shtml)
-- 2026-06-30 03:11 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/2579697007.shtml)
-- 2026-06-30 03:00 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/41297.shtml)
-- 2026-06-30 03:17 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/9279747136.shtml)
-- 2026-06-30 03:21 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/063263575734.shtml)
+- 2026-06-30 03:02 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/678050711995.shtml)
+- 2026-06-30 03:09 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/198033.shtml)
+- 2026-06-30 03:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/191000467.shtml)
+- 2026-06-30 03:16 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/071170967017.shtml)
+- 2026-06-30 03:16 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/89107.shtml)
+- 2026-06-30 03:03 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/5953563.shtml)
+- 2026-06-30 03:02 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/59165603054.shtml)
+- 2026-06-30 03:03 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/103618064042.shtml)
+- 2026-06-30 03:21 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/66602015.shtml)
+- 2026-06-30 03:18 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/709373.shtml)
+- 2026-06-30 03:18 - [扫黑风暴](http://www.share.minike.top/Article/details/0244301123.shtml)
+- 2026-06-30 03:19 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/6297680032.shtml)
+- 2026-06-30 03:06 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/892832176.shtml)
+- 2026-06-30 03:28 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/326223756667.shtml)
+- 2026-06-30 03:20 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/98995.shtml)

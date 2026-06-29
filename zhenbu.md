@@ -1,54 +1,44 @@
-# 赛力斯午前涨超2% 人形机器人“小赛”首次亮相
+# 央行今日开展1776亿元7天期逆回购操作
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-赛力斯（09927）盘中涨近3%，截至发稿，股价上涨2.17%，报58.85港元，成交额5791.05万港元。 据6月15日市场媒体报道，赛力斯集团董事、副总裁康波于微博发布视频，展示了赛力斯人形机器人“小赛”。康波还透露，赛力斯还有更多种类的具身智能机器人在筹备，今年内将正式与大家见面。从曝光的视频中可以看出，赛力斯人形机器人已投入实际运营，覆盖B端工业制造与C端服务接待等多
+5月27日金融一线消息，今日中国人民银行以固定利率、数量招标方式开展了1776亿元7天期逆回购操作，全额满足了一级交易商需求。 责任编辑：曹睿潼
 
 ## 正文
 
-赛力斯（09927）盘中涨近3%，截至发稿，股价上涨2.17%，报58.85港元，成交额5791.05万港元。
+5月27日金融一线消息，今日中国人民银行以固定利率、数量招标方式开展了1776亿元7天期逆回购操作，全额满足了一级交易商需求。
 
-据6月15日市场媒体报道，赛力斯集团董事、副总裁康波于微博发布视频，展示了赛力斯人形机器人“小赛”。
-
-康波还透露，赛力斯还有更多种类的具身智能机器人在筹备，今年内将正式与大家见面。
-
-从曝光的视频中可以看出，赛力斯人形机器人已投入实际运营，覆盖B端工业制造与C端服务接待等多维度场景。
-
-相关人士表示，赛力斯正推进汽车向L4+具身智能方向演进，聚焦车业务协同，覆盖面向C端的零售、服务、陪伴，及面向B端的制造、物流布局，包括双足、四足、轮式在内的具身智能机器人，预计今年内将正式推出。
-
-责任编辑：卢昱君
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 03:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 02:59 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 02:54 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 03:01 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-30 02:58 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 03:11 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 03:10 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 03:12 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-30 03:08 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 03:15 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 02:58 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 03:03 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 03:04 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 03:16 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 03:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 03:09 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 03:23 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 03:08 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 03:24 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 03:20 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 03:22 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-30 03:06 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:55 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/7548556.shtml)
-- 2026-06-30 02:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/26569.shtml)
-- 2026-06-30 03:08 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/746904.shtml)
-- 2026-06-30 03:06 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/6434001588.shtml)
-- 2026-06-30 03:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/506135085.shtml)
-- 2026-06-30 03:16 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/00798.shtml)
-- 2026-06-30 03:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/67977.shtml)
-- 2026-06-30 03:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/1486688545.shtml)
-- 2026-06-30 03:03 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/6834179521.shtml)
-- 2026-06-30 03:12 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/0352150766.shtml)
-- 2026-06-30 02:55 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/1771748294.shtml)
-- 2026-06-30 03:14 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/420913581.shtml)
-- 2026-06-30 03:04 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/14007182.shtml)
-- 2026-06-30 02:58 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/23248634434.shtml)
-- 2026-06-30 02:54 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/51557872.shtml)
+- 2026-06-30 03:13 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/97058788349.shtml)
+- 2026-06-30 03:09 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/29026.shtml)
+- 2026-06-30 03:28 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/913051899868.shtml)
+- 2026-06-30 03:18 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/034336.shtml)
+- 2026-06-30 03:21 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/747829016.shtml)
+- 2026-06-30 03:07 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/7845055874.shtml)
+- 2026-06-30 03:18 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/252795465.shtml)
+- 2026-06-30 03:14 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/624227238662.shtml)
+- 2026-06-30 03:06 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/73863363.shtml)
+- 2026-06-30 03:29 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/45580069.shtml)
+- 2026-06-30 03:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/282194180614.shtml)
+- 2026-06-30 03:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/803295709.shtml)
+- 2026-06-30 03:12 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/23755228269.shtml)
+- 2026-06-30 03:29 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/365660195352.shtml)
+- 2026-06-30 03:26 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/40527156.shtml)

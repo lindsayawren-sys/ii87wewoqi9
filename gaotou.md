@@ -1,50 +1,49 @@
-# 乐舒适附属Sunmart与银行订立外汇远期合约
+# 杭州临平通报某小区有人非法从事试管婴儿手术：已立案调查
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-乐舒适（02698）公布，于2026年6月15日，公司间接全资附属公司Sunmart与银行订立外汇远期合约，据此，Sunmart同意于相关交割日期卖出合共2990万欧元及买入合共3469.4万美元，以对冲集团外币资产所面临的汇率波动风险。 就外汇远期合约而言，Sunmart须向银行存入总额为约人民币1407.01万元的保证金，以担保其在外汇远期合约项下的义务。责任编辑：卢昱君
+中新网5月28日电 据“天天看临平”微信公众号消息，5月28日，浙江省杭州市临平区联合调查处置组发布情况通报称，针对群众反映临平区某小区一住宅内有人非法从事试管婴儿手术问题，区委、区政府成立由卫健、公安等部门组成的联合调查处置组，有关情况通报如下： 5月26日晚，临平区相关部门接到群众报案，反映某小区一住宅内有人非法从事试管婴儿手术，双方就赔偿问题产生纠纷并发生冲突，临平区卫健
 
 ## 正文
 
-乐舒适（02698）公布，于2026年6月15日，公司间接全资附属公司Sunmart与银行订立外汇远期合约，据此，Sunmart同意于相关交割日期卖出合共2990万欧元及买入合共3469.4万美元，以对冲集团外币资产所面临的汇率波动风险。
+中新网5月28日电 据“天天看临平”微信公众号消息，5月28日，浙江省杭州市临平区联合调查处置组发布情况通报称，针对群众反映临平区某小区一住宅内有人非法从事试管婴儿手术问题，区委、区政府成立由卫健、公安等部门组成的联合调查处置组，有关情况通报如下： 5月26日晚，临平区相关部门接到群众报案，反映某小区一住宅内有人非法从事试管婴儿手术，双方就赔偿问题产生纠纷并发生冲突，临平区卫健局、区公安分局立即前往现场核查处置。
 
-就外汇远期合约而言，Sunmart须向银行存入总额为约人民币1407.01万元的保证金，以担保其在外汇远期合约项下的义务。
+执法人员在现场发现有与人类辅助生殖技术相关的医疗器械、药品等，当场查封涉事场所，并对相关医疗器械和物品进行封存扣押。
 
-责任编辑：卢昱君
+目前，卫健部门已对涉嫌非法行医行为立案调查；公安机关已对现场纠纷情况立案调查，并将纠纷中的受伤人员送医治疗。
+
+下一步，临平区将根据后续调查情况，依法依规严肃处理相关违法行为和责任人。
 
 ## 相关推荐
 
-- 2026-06-30 03:19 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 02:57 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 03:20 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 03:10 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 02:59 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-30 02:59 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 03:09 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 03:01 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 03:01 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 03:22 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 03:17 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 03:00 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 03:21 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 03:08 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 03:07 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 03:16 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 03:26 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 03:11 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 03:18 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 03:18 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 03:16 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 03:15 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 03:26 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 03:19 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 03:12 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:59 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/5981924.shtml)
-- 2026-06-30 03:15 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/697349.shtml)
-- 2026-06-30 03:20 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/47962509.shtml)
-- 2026-06-30 03:14 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/842579162.shtml)
-- 2026-06-30 03:20 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/632578079407.shtml)
-- 2026-06-30 02:57 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/22589.shtml)
-- 2026-06-30 02:54 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/5320577206.shtml)
-- 2026-06-30 03:15 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/39150527916.shtml)
-- 2026-06-30 03:04 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/20587974300.shtml)
-- 2026-06-30 03:02 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/39414.shtml)
-- 2026-06-30 03:15 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/0109525483.shtml)
-- 2026-06-30 03:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/9340733.shtml)
-- 2026-06-30 03:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/1780019538.shtml)
-- 2026-06-30 03:12 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/4540563905.shtml)
-- 2026-06-30 03:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/0824861698.shtml)
+- 2026-06-30 03:26 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/493062000.shtml)
+- 2026-06-30 03:03 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/87314.shtml)
+- 2026-06-30 03:25 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/18373838244.shtml)
+- 2026-06-30 03:06 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/22981324887.shtml)
+- 2026-06-30 03:21 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/20327811.shtml)
+- 2026-06-30 03:21 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/26504499981.shtml)
+- 2026-06-30 03:09 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/993528.shtml)
+- 2026-06-30 03:15 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/71383.shtml)
+- 2026-06-30 03:07 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/484358350892.shtml)
+- 2026-06-30 03:25 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/61171.shtml)
+- 2026-06-30 03:25 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/0111822897.shtml)
+- 2026-06-30 03:12 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/63210609.shtml)
+- 2026-06-30 03:06 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/6692945110.shtml)
+- 2026-06-30 03:28 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/436706.shtml)
+- 2026-06-30 03:11 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/9242522.shtml)

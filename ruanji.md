@@ -1,50 +1,61 @@
-# 巨美集团：配售价应为每股配售股份0.441港元 6月16日下午复牌
+# 福建泉州：侨乡“代书人” 守笔半世纪
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-巨美集团（01920）发布澄清公告，配售价应为每股配售股份0.441港元，较配售协议日期在联交所所报的收市价每股股份0.50港元折让约11.8%，配售净筹约3250万港元。公司已向联交所申请自 2026年 6月16日下午一时正起恢复公司股份买卖。责任编辑：卢昱君
+中新网泉州5月27日电 (记者 孙虹)一人、一桌、一支笔……在侨乡福建泉州石狮市人民路的联谊商厦停车场入口处，一面挂着“代书侨信”的木牌已经斑驳。77岁的姜明典老先生几乎每天准时出现在这里，从上午9点多到太阳落山，“刮风下雨我也摆摊”。 不同的是，前几天姜老先生四处奔波。“我这辈子第一次离开泉州，受邀到北京参加活动，5月18日才第一次看到了电影《给阿嬷的情书》。”26日，姜明典
 
 ## 正文
 
-巨美集团（01920）发布澄清公告，配售价应为每股配售股份0.441港元，较配售协议日期在联交所所报的收市价每股股份0.50港元折让约11.8%，配售净筹约3250万港元。
+中新网泉州5月27日电 (记者 孙虹)一人、一桌、一支笔……在侨乡福建泉州石狮市人民路的联谊商厦停车场入口处，一面挂着“代书侨信”的木牌已经斑驳。
 
-公司已向联交所申请自 2026年 6月16日下午一时正起恢复公司股份买卖。
+77岁的姜明典老先生几乎每天准时出现在这里，从上午9点多到太阳落山，“刮风下雨我也摆摊”。
 
-责任编辑：卢昱君
+不同的是，前几天姜老先生四处奔波。
+
+“我这辈子第一次离开泉州，受邀到北京参加活动，5月18日才第一次看到了电影《给阿嬷的情书》。
+
+”26日，姜明典接受中新网记者专访时表示，看电影时浑身起鸡皮疙瘩，“脑子里都是以前下乡给‘番客婶’写信的画面”。
+
+作为泉州最后一位仍在营业的“侨信代书人”，姜明典从事代书工作已整整59年，经他手写的10多万封侨信，曾如候鸟般往返于闽南侨乡与南洋诸国，承载着一代代华侨家庭的喜乐与悲欢。
+
+“这辈子写过最多的侨批，就是帮‘番客婶’写的。
+
+” 姜明典介绍，闽南人把下南洋谋生的男人称为“番客”，留在家乡的妻子就成了“番客婶”，也就是电影里淑柔这个角色所代表的人群。
 
 ## 相关推荐
 
-- 2026-06-30 03:04 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 02:55 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 03:07 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 02:56 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 03:12 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 03:01 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 03:19 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 03:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-30 03:15 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 02:54 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 02:55 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 03:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 03:23 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 03:00 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 03:25 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 03:12 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-30 03:19 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 03:09 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 03:17 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 03:03 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 03:18 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 03:12 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 03:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 03:24 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 03:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 03:00 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 03:27 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-30 03:19 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 03:12 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/8722196895.shtml)
-- 2026-06-30 03:15 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/43707350.shtml)
-- 2026-06-30 03:17 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/7303302708.shtml)
-- 2026-06-30 03:15 - [月亮](https://www.share.minike.top/Article/details/832525808.shtml)
-- 2026-06-30 03:02 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/515268.shtml)
-- 2026-06-30 03:09 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/691438937.shtml)
-- 2026-06-30 03:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/17573532.shtml)
-- 2026-06-30 02:56 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/6585468.shtml)
-- 2026-06-30 03:10 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/08937.shtml)
-- 2026-06-30 03:18 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/26012.shtml)
-- 2026-06-30 03:23 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/4296528.shtml)
-- 2026-06-30 03:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/290301424.shtml)
-- 2026-06-30 03:23 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/65291281.shtml)
-- 2026-06-30 03:07 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/3888683368.shtml)
-- 2026-06-30 02:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/168037153.shtml)
+- 2026-06-30 03:21 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/4086413.shtml)
+- 2026-06-30 03:01 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/8051775800.shtml)
+- 2026-06-30 03:26 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/8128748982.shtml)
+- 2026-06-30 03:03 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/7395172108.shtml)
+- 2026-06-30 03:28 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/8309485221.shtml)
+- 2026-06-30 03:00 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/50834263.shtml)
+- 2026-06-30 03:08 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/316153676148.shtml)
+- 2026-06-30 03:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/4575021.shtml)
+- 2026-06-30 03:16 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/8593656.shtml)
+- 2026-06-30 03:07 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/44990895295.shtml)
+- 2026-06-30 03:26 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/28710137644.shtml)
+- 2026-06-30 03:08 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/660456796.shtml)
+- 2026-06-30 03:23 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/1442058535.shtml)
+- 2026-06-30 03:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/36898488197.shtml)
+- 2026-06-30 03:05 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/065442649606.shtml)

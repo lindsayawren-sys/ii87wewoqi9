@@ -1,56 +1,45 @@
-# 高占义：龙脊梯田千年智慧为全球可持续发展提供“活样板”
+# 白酒板块午后直线拉升，金徽酒、水井坊涨超5%
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-中新网桂林6月17日电(邓竣缤)6月17日，龙脊梯田灌溉工程遗产价值专家研讨会在广西龙胜各族自治县举行。国际灌溉排水委员会终身荣誉主席高占义表示，拥有2300多年历史的龙脊梯田是可持续灌溉工程的“活样板”，其精细化管理理念与多民族共生智慧正通过国际培训走向世界。 高占义指出，龙脊梯田地处桂北山区，坡度最陡达50度，工程体量虽小，但构成了完整的灌排系统，2300多年来持续发挥作用
+白酒板块午后直线拉升，金徽酒、水井坊涨超5%，皇台酒业、金种子酒、酒鬼酒跟涨。
 
 ## 正文
 
-中新网桂林6月17日电(邓竣缤)6月17日，龙脊梯田灌溉工程遗产价值专家研讨会在广西龙胜各族自治县举行。
-
-国际灌溉排水委员会终身荣誉主席高占义表示，拥有2300多年历史的龙脊梯田是可持续灌溉工程的“活样板”，其精细化管理理念与多民族共生智慧正通过国际培训走向世界。
-
-高占义指出，龙脊梯田地处桂北山区，坡度最陡达50度，工程体量虽小，但构成了完整的灌排系统，2300多年来持续发挥作用。
-
-他强调，梯田不仅工程价值显著，多民族共同开垦维护的历史更为乡村振兴和社会和谐提供了借鉴。
-
-“大家在缺水时靠长期形成的管理体系化解矛盾，这种朴素平和的人际关系，体现了可持续相处的智慧。
-
-” 谈及遗产保护，高占义认为要挖掘工程、管理和文化价值，把人与自然和谐相处的理念保护好、传承好，为新时代水利工程注入精神力量。
-
-在对比国内外技术时，他指出，中国南方稻作梯田的精细化程度在全球稀有，没有大型水库和渠道，甚至用竹管引水，却实现高产。
-
-“我们的条件比许多国家差，但产出更好，体现了中国人的勤劳和精益求精的管理方式。
+白酒板块午后直线拉升，金徽酒、水井坊涨超5%，皇台酒业、金种子酒、酒鬼酒跟涨。
 
 ## 相关推荐
 
-- 2026-06-30 03:07 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 03:02 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 03:15 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 03:16 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-30 03:14 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 03:03 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 03:07 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 02:54 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 02:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 03:10 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 03:09 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 03:12 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 03:02 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 03:21 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 03:20 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 03:16 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 03:11 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 03:04 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 03:22 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 03:21 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 03:23 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 03:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 03:00 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:21 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/2065158179.shtml)
-- 2026-06-30 03:05 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/015156315.shtml)
-- 2026-06-30 03:14 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/49269898.shtml)
-- 2026-06-30 03:03 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/24461611.shtml)
-- 2026-06-30 02:59 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/05678805.shtml)
-- 2026-06-30 03:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/35692777033.shtml)
-- 2026-06-30 03:10 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/989829774942.shtml)
-- 2026-06-30 03:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/3982174515.shtml)
-- 2026-06-30 02:58 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/171797915082.shtml)
-- 2026-06-30 03:23 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/4664433816.shtml)
-- 2026-06-30 03:11 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/094896874.shtml)
-- 2026-06-30 03:13 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/52592078215.shtml)
-- 2026-06-30 03:12 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/650565221571.shtml)
-- 2026-06-30 03:13 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/61740791.shtml)
-- 2026-06-30 03:20 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/35830248380.shtml)
+- 2026-06-30 03:18 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/007580.shtml)
+- 2026-06-30 03:16 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/04926833.shtml)
+- 2026-06-30 03:29 - [千与千寻](https://www.share.minike.top/Article/details/02308125.shtml)
+- 2026-06-30 03:16 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/61936.shtml)
+- 2026-06-30 03:11 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/100676.shtml)
+- 2026-06-30 03:14 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/40259222684.shtml)
+- 2026-06-30 03:19 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/27403069.shtml)
+- 2026-06-30 03:02 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/61168938.shtml)
+- 2026-06-30 03:07 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/056761472.shtml)
+- 2026-06-30 03:09 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/0767717.shtml)
+- 2026-06-30 03:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/805960.shtml)
+- 2026-06-30 03:20 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/482617.shtml)
+- 2026-06-30 03:01 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/959140260048.shtml)
+- 2026-06-30 03:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/4624986091.shtml)
+- 2026-06-30 03:22 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/28944.shtml)

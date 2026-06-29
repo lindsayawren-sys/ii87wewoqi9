@@ -1,60 +1,55 @@
-# 一周涨近8%！黄金价格上演“过山车”行情，多家银行出手了
+# 壁仞科技午前涨超4% 公司下月有望成为港股通标的
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-近日，黄金价格出现明显回暖。截至6月17日界面新闻发稿，现货黄金报4339.59美元/盎司，上涨了0.19%。6月10日，现货黄金一度跌到4023.1美元/盎司的近期低点，随后出现明显反弹，上涨幅度达到7.87%。 面对金价“过山车”行情带来的风险敞口，近期银行密集升级贵金属业务风控体系，从上调保证金比例、实施动态限额管理、调整业务门槛与费率、收紧涨跌停板限制等多维度收紧业务边
+壁仞科技（06082）盘中涨超9%，截至发稿，股价上涨4.40%，现报53.35港元，成交额3.47亿港元。 5月26日，中国信息安全测评中心与国家保密科技测评中心发布《安全可靠测评结果公告（2026年第2号）》，AI训练推理芯片首次被纳入该测评体系，壁仞科技壁砺166等9款国产芯片一同获评安全可靠Ⅰ级。据介绍，壁砺166M产品形态为4U OAM V1.1风冷模组峰值功耗550
 
 ## 正文
 
-近日，黄金价格出现明显回暖。
+壁仞科技（06082）盘中涨超9%，截至发稿，股价上涨4.40%，现报53.35港元，成交额3.47亿港元。
 
-截至6月17日界面新闻发稿，现货黄金报4339.59美元/盎司，上涨了0.19%。
+5月26日，中国信息安全测评中心与国家保密科技测评中心发布《安全可靠测评结果公告（2026年第2号）》，AI训练推理芯片首次被纳入该测评体系，壁仞科技壁砺166等9款国产芯片一同获评安全可靠Ⅰ级。
 
-6月10日，现货黄金一度跌到4023.1美元/盎司的近期低点，随后出现明显反弹，上涨幅度达到7.87%。
+据介绍，壁砺166M产品形态为4U OAM V1.1风冷模组峰值功耗550W，可适配标准OAM V1.X版本的GPU服务器，与现有基础设施高度兼容，可广泛应用于人工智能训练与推理应用场景。
 
-面对金价“过山车”行情带来的风险敞口，近期银行密集升级贵金属业务风控体系，从上调保证金比例、实施动态限额管理、调整业务门槛与费率、收紧涨跌停板限制等多维度收紧业务边界，以防范客户穿仓风险及自身经营损失。
+此前，恒生指数公司季度检讨已将壁仞科技纳入恒生综合指数，变动将于6月5日收市后实施、6月8日起生效，市场据此预期公司有望同步调入港股通标的池，南向资金的潜在增量通道正在打开。
 
-6月以来，保证金方面，针对代理个人贵金属延期业务（如Au（T+D）），工行、建行于近日将保证金从100%上调至‌120%‌，农行跟进。
-
-此前工行、农行、建行等将代理个人贵金属延期业务保证金比例由80%上调至100%。
-
-除了上调保证金比例之外，动态限额成为常态化风控手段。
-
-工行在周末及法定节假日对如意金积存业务实施动态限额管理，建行对“建行金”实施动态交易限额管理，当日额度耗尽后无法继续买入。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:56 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 02:56 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 03:00 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 03:01 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 02:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 03:02 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 03:04 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 03:10 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 03:08 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 03:15 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 03:02 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 03:09 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 02:56 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 03:06 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 03:23 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 03:00 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 03:06 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 03:21 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 03:11 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 03:25 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 03:04 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 03:19 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 03:23 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-30 03:08 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 03:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 03:28 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 03:06 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 03:02 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 03:04 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:58 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/8565280011.shtml)
-- 2026-06-30 03:11 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/4632254851.shtml)
-- 2026-06-30 03:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/13920839.shtml)
-- 2026-06-30 02:59 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/688007195.shtml)
-- 2026-06-30 03:22 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/1021878.shtml)
-- 2026-06-30 03:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/92154950.shtml)
-- 2026-06-30 03:08 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/65088403947.shtml)
-- 2026-06-30 03:15 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/45632.shtml)
-- 2026-06-30 03:09 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/04651467.shtml)
-- 2026-06-30 02:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/766131969567.shtml)
-- 2026-06-30 03:08 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/503069.shtml)
-- 2026-06-30 03:12 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/44401665749.shtml)
-- 2026-06-30 03:15 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/42761.shtml)
-- 2026-06-30 02:54 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/048632.shtml)
-- 2026-06-30 03:16 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/841159551.shtml)
+- 2026-06-30 03:17 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/0161633.shtml)
+- 2026-06-30 03:07 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/636192269.shtml)
+- 2026-06-30 03:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/570723622287.shtml)
+- 2026-06-30 03:01 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/5900045224.shtml)
+- 2026-06-30 03:23 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/6706942753.shtml)
+- 2026-06-30 03:09 - [女心理师](http://www.share.kurohicncr.top/Article/details/2422045349.shtml)
+- 2026-06-30 03:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/64522032.shtml)
+- 2026-06-30 03:13 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/3742925443.shtml)
+- 2026-06-30 03:18 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/49940.shtml)
+- 2026-06-30 03:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/44422021300.shtml)
+- 2026-06-30 03:05 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/659882898225.shtml)
+- 2026-06-30 03:11 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/089765857.shtml)
+- 2026-06-30 03:01 - [极限挑战第一季](https://www.share.minike.top/Article/details/917746.shtml)
+- 2026-06-30 03:13 - [日本进球](http://www.blog.minike.top/Article/details/802587062.shtml)
+- 2026-06-30 03:01 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/52696.shtml)

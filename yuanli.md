@@ -1,53 +1,52 @@
-# 麦科奥特：公司核心产品被临床医生高度期待 不担心新药上市周期长市场被瓜分
+# 我国成功发射通信技术试验卫星二十四号
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-内地创新药企麦科医药-B （2335） 于6月15日至18日招股。预期将于6月24日挂牌买卖，建银国际、招商证券国际为联席保荐人。 公司以18A章上市的创新药企麦科医药计划发行5805.4万股H股，10%在港公开发售，招股价介乎18.2元至21元，其余国际配售，集资最多12.2亿元。 公司管理层在记者会中表示，核心新药MT1013目前进入III期临床，将在2028年初实现商业化
+中新网北京5月27日电 (马帅莎 王明杰)北京时间5月27日0时16分，我国在文昌航天发射场使用长征七号改运载火箭，成功将通信技术试验卫星二十四号发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。该卫星主要用于开展多频段，高速率卫星通信技术验证。 此次任务是长征系列运载火箭的第645次飞行。(完)
 
 ## 正文
 
-内地创新药企麦科医药-B （2335） 于6月15日至18日招股。
+中新网北京5月27日电 (马帅莎 王明杰)北京时间5月27日0时16分，我国在文昌航天发射场使用长征七号改运载火箭，成功将通信技术试验卫星二十四号发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
 
-预期将于6月24日挂牌买卖，建银国际、招商证券国际为联席保荐人。
+该卫星主要用于开展多频段，高速率卫星通信技术验证。
 
-公司以18A章上市的创新药企麦科医药计划发行5805.4万股H股，10%在港公开发售，招股价介乎18.2元至21元，其余国际配售，集资最多12.2亿元。
+此次任务是长征系列运载火箭的第645次飞行。
 
-公司管理层在记者会中表示，核心新药MT1013目前进入III期临床，将在2028年初实现商业化，不担心新药上市周期长导致市场被瓜分，目前公司核心产品被临床医生高度期待。
-
-此外，公司另有六项药物在研发，包括主攻体重管理市场的减肥药XTL6001，预计本季度可完成一期临床试验。
-
-责任编辑：郝欣煜
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:03 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 03:22 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 03:05 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 03:01 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-30 02:57 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 03:05 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 03:21 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 03:23 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 03:01 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 02:59 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 03:06 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 03:25 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 03:26 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 03:21 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 03:17 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 03:14 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 03:24 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 03:22 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 03:12 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 03:25 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 03:16 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-30 03:01 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 03:10 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 03:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 03:21 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:09 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/850381013.shtml)
-- 2026-06-30 03:17 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/851081822.shtml)
-- 2026-06-30 03:12 - [第一炉香](http://www.share.kurohicncr.top/Article/details/65656755.shtml)
-- 2026-06-30 03:06 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/25835.shtml)
-- 2026-06-30 03:18 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/43725534074.shtml)
-- 2026-06-30 03:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/06124.shtml)
-- 2026-06-30 03:15 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/666689.shtml)
-- 2026-06-30 03:09 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/700644656.shtml)
-- 2026-06-30 03:03 - [一生一世](https://www.blog.minike.top/Article/details/772758400.shtml)
-- 2026-06-30 03:04 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/916313.shtml)
-- 2026-06-30 03:22 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/9449395228.shtml)
-- 2026-06-30 03:15 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/485550567887.shtml)
-- 2026-06-30 03:18 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/462626064808.shtml)
-- 2026-06-30 03:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/129560.shtml)
-- 2026-06-30 03:23 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/3694611.shtml)
+- 2026-06-30 03:01 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/45907913.shtml)
+- 2026-06-30 03:17 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/99473.shtml)
+- 2026-06-30 03:05 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/11345906.shtml)
+- 2026-06-30 03:08 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/2829887439.shtml)
+- 2026-06-30 03:16 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/50158505.shtml)
+- 2026-06-30 03:04 - [明星大侦探第四季](https://www.share.minike.top/Article/details/30707395309.shtml)
+- 2026-06-30 03:27 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/85939736.shtml)
+- 2026-06-30 03:04 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/37809975.shtml)
+- 2026-06-30 03:18 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/646430038.shtml)
+- 2026-06-30 03:07 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/751548379319.shtml)
+- 2026-06-30 03:04 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/930169.shtml)
+- 2026-06-30 03:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/1304343.shtml)
+- 2026-06-30 03:28 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/345637184898.shtml)
+- 2026-06-30 03:25 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/46090957.shtml)
+- 2026-06-30 03:22 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/01149176362.shtml)

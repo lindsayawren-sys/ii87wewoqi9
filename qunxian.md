@@ -1,56 +1,56 @@
-# 年内超700只理财提前“退场”！年化不到3%即止盈，有产品仅存续半年多便终止
+# A股年内22家公司退市，涉及财务造假、资金占用、主业空心化等
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-来源： 时代财经 来自河北的投资者林女士近日发现，其在某家城商行认购的一款固收类理财产品，因产品投资管理需要，于6月初被提前终止。 “最怕的就是两件事，一个是定期存款到期不知道往哪儿转，一个就是理财终止还要重新选。”林女士告诉时代财经。 林女士的遭遇并非个例，越来越多的投资者发现，自己买的理财还没到期就被强制清盘。时代财经根据Wind数据不完全统计，今年以来，多家理财公司旗下已
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨崔文静 编辑丨包芳鸣 视频丨陈泽锴 上市公司退市常态化加速落地。 截至2026年5月27日，今年以来A股已有22家公司退市或锁定退市，覆盖主动退市、重大违法强制退市、交易类强制退市和财务类强制退市四大类型。 退市路径的多元化和出清力度的持续加码，折射出
 
 ## 正文
 
-来源： 时代财经 来自河北的投资者林女士近日发现，其在某家城商行认购的一款固收类理财产品，因产品投资管理需要，于6月初被提前终止。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-“最怕的就是两件事，一个是定期存款到期不知道往哪儿转，一个就是理财终止还要重新选。
+记者丨崔文静 编辑丨包芳鸣 视频丨陈泽锴 上市公司退市常态化加速落地。
 
-”林女士告诉时代财经。
+截至2026年5月27日，今年以来A股已有22家公司退市或锁定退市，覆盖主动退市、重大违法强制退市、交易类强制退市和财务类强制退市四大类型。
 
-林女士的遭遇并非个例，越来越多的投资者发现，自己买的理财还没到期就被强制清盘。
+退市路径的多元化和出清力度的持续加码，折射出资本市场优胜劣汰机制的深刻变革。
 
-时代财经根据Wind数据不完全统计，今年以来，多家理财公司旗下已有约720只理财产品被提前终止，明显高于去年同期。
+从2026年首家主动退市的德邦股份，到因市值持续低于5亿元而黯然离场的*ST奥维；从因系统性财务造假被强制出清的*ST长药、*ST立方，到13家因财务指标全面恶化而触及退市红线的*ST公司，各家退市路径虽异，但均指向同一个方向：监管正在以前所未有的力度，将“应退尽退”从制度文本变为市场现实。
 
-这一趋势在今年二季度更加明显，仅4月以来，市场上就有约400只理财产品宣布提前退场。
+4家A股公司将集体退市 一股一年涨停33次 从退市类型看，22家公司呈现“财务类为主、多路径并行”的格局。
 
-从发行机构看，被提前终止的产品既涉及多家国有大行、股份行、城商行系理财子公司，也包括部分中小银行的自营理财；从产品类型看，其中既有日开型现金管理类产品，也有最低持有期产品、定期开放类产品、封闭式产品。
+财务类退市数量最多，共13家，占比近六成；重大违法强制退市4家；交易类退市3家；主动退市2家。
 
-一个值得关注的现象是，在提前终止的产品中，因触发止盈条件而“提前收手”的目标盈类产品占据了相当比例。
+这一分布表明，财务指标已成为淘汰劣质公司的主要抓手，而重大违法和交易类退市则从合规底线和市场定价两个维度，构成了多层次、互补性的退市筛选机制。
 
 ## 相关推荐
 
-- 2026-06-30 03:21 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 03:17 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 03:05 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 03:08 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-30 03:14 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 03:18 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 03:19 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 03:08 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-30 03:01 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 02:54 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 03:01 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 03:25 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 03:21 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 03:14 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 03:01 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 03:25 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 03:01 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-30 03:13 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 03:17 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 03:25 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:21 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/6099193405.shtml)
-- 2026-06-30 03:18 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/82532.shtml)
-- 2026-06-30 03:03 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/993162066580.shtml)
-- 2026-06-30 03:00 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/81953277889.shtml)
-- 2026-06-30 03:21 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/491669013.shtml)
-- 2026-06-30 03:01 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/08866432090.shtml)
-- 2026-06-30 03:19 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/3292939.shtml)
-- 2026-06-30 03:09 - [沙丘](https://www.blog.kurohicncr.top/Article/details/12369441.shtml)
-- 2026-06-30 03:04 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/47349123639.shtml)
-- 2026-06-30 03:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/822965794409.shtml)
-- 2026-06-30 03:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/51322134658.shtml)
-- 2026-06-30 03:17 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/348656.shtml)
-- 2026-06-30 03:14 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/479166211610.shtml)
-- 2026-06-30 03:03 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/31319093.shtml)
-- 2026-06-30 03:15 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/04225644820.shtml)
+- 2026-06-30 03:00 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/048225342.shtml)
+- 2026-06-30 03:04 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/571302876801.shtml)
+- 2026-06-30 03:06 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/05713.shtml)
+- 2026-06-30 03:25 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/7431791734.shtml)
+- 2026-06-30 03:22 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/110370.shtml)
+- 2026-06-30 03:07 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/3742385622.shtml)
+- 2026-06-30 03:09 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/92260.shtml)
+- 2026-06-30 03:13 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/981427424.shtml)
+- 2026-06-30 03:28 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/99822.shtml)
+- 2026-06-30 03:04 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/44410546.shtml)
+- 2026-06-30 03:23 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/9584877.shtml)
+- 2026-06-30 03:03 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/67966.shtml)
+- 2026-06-30 03:22 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/367923477.shtml)
+- 2026-06-30 03:25 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/580148391819.shtml)
+- 2026-06-30 03:09 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/3150942617.shtml)

@@ -1,61 +1,54 @@
-# 国家统计局：进一步强化宏观政策调节，持续扩大内需、优化供给
+# 新疆霍尔果斯口岸今年通行中欧中亚班列突破4000列
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-中新网6月16日电 国新办16日举行新闻发布会，国家统计局相关负责人介绍2026年5月份国民经济运行情况。 会上，有记者问：5月份主要经济指标已发布，请问如何评价5月份国民经济运行总体表现？另外，当前经济运行中主要亮点有哪些？ 国家统计局新闻发言人、总经济师、国民经济综合统计司司长付凌晖表示，5月份，尽管国际环境复杂多变，中东地缘政治冲突外溢影响持续显现，国内部分地区出现高温多
+5月26日下午，一列满载特种设备、预包装食品等货物的中欧班列从霍尔果斯铁路口岸站驶出，一路向西驶往俄罗斯首都莫斯科。至此，今年经霍尔果斯铁路口岸通行的中欧中亚班列数量已突破4000列。 据乌鲁木齐海关统计，今年前4个月，新疆进出口总值1727.1亿元人民币，同比增长4.2%，进出口贸易需求旺盛。霍尔果斯海关充分发挥“智慧铁路口岸+属地快速通关”联动优势，持续深化关铁信息互通、数
 
 ## 正文
 
-中新网6月16日电 国新办16日举行新闻发布会，国家统计局相关负责人介绍2026年5月份国民经济运行情况。
+5月26日下午，一列满载特种设备、预包装食品等货物的中欧班列从霍尔果斯铁路口岸站驶出，一路向西驶往俄罗斯首都莫斯科。
 
-会上，有记者问：5月份主要经济指标已发布，请问如何评价5月份国民经济运行总体表现？
+至此，今年经霍尔果斯铁路口岸通行的中欧中亚班列数量已突破4000列。
 
-另外，当前经济运行中主要亮点有哪些？
+据乌鲁木齐海关统计，今年前4个月，新疆进出口总值1727.1亿元人民币，同比增长4.2%，进出口贸易需求旺盛。
 
-国家统计局新闻发言人、总经济师、国民经济综合统计司司长付凌晖表示，5月份，尽管国际环境复杂多变，中东地缘政治冲突外溢影响持续显现，国内部分地区出现高温多雨，冲击着市场需求和供给。
+霍尔果斯海关充分发挥“智慧铁路口岸+属地快速通关”联动优势，持续深化关铁信息互通、数据共享，实现班列货物即到即查、优先验放，通行效能持续增长。
 
-但各地区各部门有效实施更加积极有为的宏观政策，积极应对外部挑战，克服内部困难，生产供给平稳增长，新动能加快成长，就业民生保障有力，国民经济延续总体平稳、向新向优的发展态势。
-
-具体来看有以下几个特点： 一是生产平稳增长。
-
-从农业看，今年夏粮生产形势较好，有望实现丰收。
-
-从工业看，创新引领作用增强，生产稳中有升。
+(总台记者 崔宁 曹江 霍尔果斯融媒体中心)
 
 ## 相关推荐
 
-- 2026-06-30 03:15 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 03:15 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 02:57 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 03:11 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 03:04 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 03:03 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 03:02 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 03:10 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-30 03:24 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 03:10 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 03:00 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 02:58 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 03:09 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-30 03:04 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 03:03 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 03:26 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-30 03:01 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 03:23 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 03:00 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 03:05 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 03:05 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 03:12 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 03:10 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 03:15 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 03:24 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 03:14 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 03:29 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 03:23 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 03:25 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:15 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/33658962071.shtml)
-- 2026-06-30 03:01 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/195451374.shtml)
-- 2026-06-30 03:05 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/777644211608.shtml)
-- 2026-06-30 03:16 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/238620376668.shtml)
-- 2026-06-30 03:02 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/4663013734.shtml)
-- 2026-06-30 02:56 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/97760580.shtml)
-- 2026-06-30 03:04 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/5503791.shtml)
-- 2026-06-30 03:02 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/208832962623.shtml)
-- 2026-06-30 03:12 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/807416193.shtml)
-- 2026-06-30 03:23 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/283261.shtml)
-- 2026-06-30 03:13 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/16673628.shtml)
-- 2026-06-30 03:14 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/00855194286.shtml)
-- 2026-06-30 03:08 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/925523233.shtml)
-- 2026-06-30 03:24 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/811274002.shtml)
-- 2026-06-30 03:23 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/39909666063.shtml)
+- 2026-06-30 03:29 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/67223395979.shtml)
+- 2026-06-30 03:07 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/55175842368.shtml)
+- 2026-06-30 03:01 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/92238234722.shtml)
+- 2026-06-30 03:14 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/188781.shtml)
+- 2026-06-30 03:16 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/93497469.shtml)
+- 2026-06-30 03:22 - [恋与深空 日服](https://www.share.minike.top/Article/details/976570589508.shtml)
+- 2026-06-30 03:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/568567.shtml)
+- 2026-06-30 03:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/955603.shtml)
+- 2026-06-30 03:25 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/984734590011.shtml)
+- 2026-06-30 03:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/30118326.shtml)
+- 2026-06-30 03:06 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/23712314.shtml)
+- 2026-06-30 03:14 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/3399960205.shtml)
+- 2026-06-30 03:29 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/1208833.shtml)
+- 2026-06-30 03:29 - [逃狱兄弟](https://www.share.minike.top/Article/details/61748128865.shtml)
+- 2026-06-30 03:09 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/12284054.shtml)

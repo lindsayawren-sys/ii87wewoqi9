@@ -1,59 +1,59 @@
-# 近半数央行计划增持黄金，增持意愿创历史纪录
+# 马斯克突传大消息！凌晨商业航天赛道全线暴涨！
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-今日亚市早盘，现货黄金交投于4338美元/盎司附近。消息面上，6月16日，世界黄金协会发布的《2026年全球央行黄金储备调研》（CBGR）报告显示，89%的央行预计，未来12个月内全球央行黄金储备将继续增加。45%的央行表示，预计其所在机构将在未来12个月内增加黄金储备，这一比例打破了历史纪录。此外，84%的受访央行认为，未来五年黄金在全球储备中的占比将有所上升，高于去年的76
+马斯克彻底引爆商业航天赛道。 昨夜今晨，结束假期重启交易的美股市场延续半导体和AI交易热潮，纳指、标普500指数再创历史新高。随着SpaceX上市临近，美股商业航天板块持续吸引大量热钱涌入，Momentus一度暴涨超120%，Redwire一度暴涨超31%，Firefly Aerospace一度暴涨超25%。 与此同时，SpaceX、特斯拉CEO马斯克传出的最新消息备受市场关注
 
 ## 正文
 
-今日亚市早盘，现货黄金交投于4338美元/盎司附近。
+马斯克彻底引爆商业航天赛道。
 
-消息面上，6月16日，世界黄金协会发布的《2026年全球央行黄金储备调研》（CBGR）报告显示，89%的央行预计，未来12个月内全球央行黄金储备将继续增加。
+昨夜今晨，结束假期重启交易的美股市场延续半导体和AI交易热潮，纳指、标普500指数再创历史新高。
 
-45%的央行表示，预计其所在机构将在未来12个月内增加黄金储备，这一比例打破了历史纪录。
+随着SpaceX上市临近，美股商业航天板块持续吸引大量热钱涌入，Momentus一度暴涨超120%，Redwire一度暴涨超31%，Firefly Aerospace一度暴涨超25%。
 
-此外，84%的受访央行认为，未来五年黄金在全球储备中的占比将有所上升，高于去年的76%。
+与此同时，SpaceX、特斯拉CEO马斯克传出的最新消息备受市场关注。
 
-有机构分析表示，黄金的风险平衡从目前水平向上倾斜。
+据美媒爆料，马斯克曾与同事讨论将特斯拉与SpaceX合并的可能性，特斯拉的许多员工长期以来一直预计这样的交易最终会发生。
 
-目前，布伦特原油较4月30日的高点下跌了30%以上，且美联储偏紧缩的重新定价已在相当大程度上对金价构成压力，风险平衡正偏向于更看涨黄金的情境。
+美股卫星概念股大爆发 美东时间5月26日，美股三大指数走势分化，截至收盘，标普500指数涨0.61%，纳指涨1.19%，道指跌0.23%。
 
-油价持续走低可能会缓解美国国债以及新兴市场货币的压力，这反过来可能会带来黄金更持久的上涨。
+美股大型科技股涨跌不一，谷歌、台积电ADR、博通、特斯拉涨超1%，Meta涨0.34%；英伟达、苹果、微软、亚马逊小幅收跌。
 
-该机构补充，金价阻力位在每盎司4900美元，然后是每盎司5020美元。
+芯片股全线大涨，费城半导体指数大涨超5%，美光大涨超19%，市值首度突破1万亿美元关口；安森美半导体大涨超9%，AMD涨超7%，迈威尔科技涨超6%，Arm、高通涨超4%。
 
 ## 相关推荐
 
-- 2026-06-30 02:57 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 03:11 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 03:17 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 03:08 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-30 03:04 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 03:13 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 03:04 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 03:06 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 03:22 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 03:23 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 02:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 03:15 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 02:59 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 03:29 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 03:21 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 03:23 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 03:18 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 03:15 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 03:10 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 03:05 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 03:18 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 03:23 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 03:13 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 03:17 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 03:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 03:02 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/173316.shtml)
-- 2026-06-30 03:21 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/490185570.shtml)
-- 2026-06-30 03:09 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/19765306.shtml)
-- 2026-06-30 03:22 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/1215917879.shtml)
-- 2026-06-30 03:15 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/20738481.shtml)
-- 2026-06-30 03:05 - [巴西绝杀](http://www.share.minike.top/Article/details/8677144139.shtml)
-- 2026-06-30 03:22 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/50087458.shtml)
-- 2026-06-30 03:10 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/94495005.shtml)
-- 2026-06-30 03:12 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/0558624643.shtml)
-- 2026-06-30 03:23 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/6800436785.shtml)
-- 2026-06-30 02:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/976742944217.shtml)
-- 2026-06-30 03:04 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/896825253846.shtml)
-- 2026-06-30 03:22 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/279364697898.shtml)
-- 2026-06-30 03:21 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/477404088543.shtml)
-- 2026-06-30 03:11 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/03772797385.shtml)
+- 2026-06-30 03:21 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/289826.shtml)
+- 2026-06-30 03:11 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/20627.shtml)
+- 2026-06-30 03:11 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/28465753333.shtml)
+- 2026-06-30 03:13 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/361892558.shtml)
+- 2026-06-30 03:00 - [请回答王牌2019](http://www.blog.minike.top/Article/details/49534216.shtml)
+- 2026-06-30 03:20 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/338696.shtml)
+- 2026-06-30 03:17 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/968224.shtml)
+- 2026-06-30 03:18 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/3730718.shtml)
+- 2026-06-30 03:28 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/4970328.shtml)
+- 2026-06-30 03:28 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/290447241998.shtml)
+- 2026-06-30 03:08 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/943949209.shtml)
+- 2026-06-30 03:29 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/271833121.shtml)
+- 2026-06-30 03:16 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/218462.shtml)
+- 2026-06-30 03:28 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/356464040301.shtml)
+- 2026-06-30 03:11 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/98763.shtml)

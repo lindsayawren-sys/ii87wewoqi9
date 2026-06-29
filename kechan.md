@@ -1,49 +1,56 @@
-# OpenAI在2026年第一季度烧掉了37亿美元
+# 全文|快手Q1业绩会实录：继续投资可灵AI 加大股东回报
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-据媒体援引该公司向股东提供的文件报道，OpenAI在2026年第一季度烧掉了37亿美元，占其57亿美元收入的一半以上。 本月早些时候，OpenAI表示已秘密提交美国首次公开募股（IPO）申请 （link），有消息人士称，此次IPO最早可能于9月进行，公司估值最高可达1万亿美元。责任编辑：王永生
+快手发布2026年第一季度业绩。财报显示，2026年第一季度，快手总营业收入达到337亿元，包含线上营销服务和以电商为主的其他服务在内的核心商业收入同比增长10.7%。2026年第一季度，快手经调整净利润达到34亿元。 详见：快手2026年一季报：总收入337亿元 经调整净利润34亿元 财报发布后，快手科技联合创始人、董事长、CEO程一笑，CFO金秉等高管出席了随后举行的财报电
 
 ## 正文
 
-据媒体援引该公司向股东提供的文件报道，OpenAI在2026年第一季度烧掉了37亿美元，占其57亿美元收入的一半以上。
+快手发布2026年第一季度业绩。
 
-本月早些时候，OpenAI表示已秘密提交美国首次公开募股（IPO）申请 （link），有消息人士称，此次IPO最早可能于9月进行，公司估值最高可达1万亿美元。
+财报显示，2026年第一季度，快手总营业收入达到337亿元，包含线上营销服务和以电商为主的其他服务在内的核心商业收入同比增长10.7%。
 
-责任编辑：王永生
+2026年第一季度，快手经调整净利润达到34亿元。
+
+详见：快手2026年一季报：总收入337亿元 经调整净利润34亿元 财报发布后，快手科技联合创始人、董事长、CEO程一笑，CFO金秉等高管出席了随后举行的财报电话会议，解读财报要点，并回答分析师提问。
+
+以下为此次电话会议分析师问答环节的主要内容： 瑞银集团分析师Kenneth Fong：谢谢管理层接受我的提问。
+
+恭喜一个非常稳健的业绩，以及肯定非常迅猛的发展。
+
+我有一个问题是关于可灵 AI 的，我们看到 26 年一季度的商业化的发展也是非常超预期，我想问一下，就是主要收入增长的驱动是什么呢？
+
+以及可灵目前主要的应用场景主要是什么？
 
 ## 相关推荐
 
-- 2026-06-30 03:13 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-30 03:05 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-30 03:07 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 03:09 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 03:14 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 03:12 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 03:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 03:23 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 03:15 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 03:21 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 02:58 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 03:14 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 03:22 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 03:04 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 03:08 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 03:21 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 03:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 03:09 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 03:18 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 03:24 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 03:03 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 03:20 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 03:09 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/57385851.shtml)
-- 2026-06-30 03:06 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/55465161663.shtml)
-- 2026-06-30 03:04 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/04471389078.shtml)
-- 2026-06-30 03:01 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/56753501.shtml)
-- 2026-06-30 03:01 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/561708.shtml)
-- 2026-06-30 03:18 - [普京间接喊话特朗普有何考量](https://www.blog.minike.top/Article/details/758296328641.shtml)
-- 2026-06-30 03:18 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/8909130451.shtml)
-- 2026-06-30 02:56 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/574282297.shtml)
-- 2026-06-30 02:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/4772412.shtml)
-- 2026-06-30 03:09 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/56290.shtml)
-- 2026-06-30 03:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/042253501.shtml)
-- 2026-06-30 03:17 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/686624000336.shtml)
-- 2026-06-30 03:00 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/53386766098.shtml)
-- 2026-06-30 03:14 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/103443.shtml)
-- 2026-06-30 03:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/059651358.shtml)
+- 2026-06-30 03:16 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/32522.shtml)
+- 2026-06-30 03:21 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/31583641068.shtml)
+- 2026-06-30 03:21 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/09404.shtml)
+- 2026-06-30 03:09 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/7111052.shtml)
+- 2026-06-30 03:05 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/10809.shtml)
+- 2026-06-30 03:12 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/698173216.shtml)
+- 2026-06-30 03:26 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/39684994147.shtml)
+- 2026-06-30 03:18 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/695377.shtml)
+- 2026-06-30 03:18 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/1632758.shtml)
+- 2026-06-30 03:01 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/74229049654.shtml)
+- 2026-06-30 03:30 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/091802.shtml)
+- 2026-06-30 03:13 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/307770491.shtml)
+- 2026-06-30 03:20 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/05480.shtml)
+- 2026-06-30 03:25 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/94600809128.shtml)
+- 2026-06-30 03:14 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/509961.shtml)

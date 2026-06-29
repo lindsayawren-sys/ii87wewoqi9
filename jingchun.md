@@ -1,53 +1,58 @@
-# 台当局设网页诱导大陆民众提供情报被嘲讽，专家提示防范方法
+# 华泰期货：沪金沪银走低 地缘与政策双重压制
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 10:50 来源：中国新闻网 台“国安局”14日宣布设立所谓针对大陆民众的“联系窗口”，妄图向大陆“撒网”收集情报。北京联合大学政治学研究所所长、台湾研究院教授朱松岭接受中新网“燕新台”工作室采访时表示，民进党当局这种公然煽动大陆民众的行为，其目的在于破坏两岸民间互信、污染两岸交流环境。岛内舆论对此一片嘲讽，恰恰暴露出民进党当局两岸政策的深层困
+来源：华泰期货 作者： 新能源有色金属组 相关品种：沪金、沪银 贵金属价格昨日日内走低，主力合约沪银2608收于18251元/千克，跌幅3.24%；主力合约沪金2608收于983.56元/克，跌幅1.58%。 地缘上，美伊军事交火与外交博弈同步升级。伊朗谴责美国公然违反停火协议，美国称其自卫打击旨在应对伊朗布设水雷等威胁，伊朗随后击落美军无人机并开火反击。谈判方面，美伊双方就伊
 
 ## 正文
 
-发布时间：2026年06月16日 10:50 来源：中国新闻网 台“国安局”14日宣布设立所谓针对大陆民众的“联系窗口”，妄图向大陆“撒网”收集情报。
+来源：华泰期货 作者： 新能源有色金属组 相关品种：沪金、沪银 贵金属价格昨日日内走低，主力合约沪银2608收于18251元/千克，跌幅3.24%；主力合约沪金2608收于983.56元/克，跌幅1.58%。
 
-北京联合大学政治学研究所所长、台湾研究院教授朱松岭接受中新网“燕新台”工作室采访时表示，民进党当局这种公然煽动大陆民众的行为，其目的在于破坏两岸民间互信、污染两岸交流环境。
+地缘上，美伊军事交火与外交博弈同步升级。
 
-岛内舆论对此一片嘲讽，恰恰暴露出民进党当局两岸政策的深层困境，“他们为了选举需要，只能制造两岸之间的敌意，操弄两岸之间的对抗。
+伊朗谴责美国公然违反停火协议，美国称其自卫打击旨在应对伊朗布设水雷等威胁，伊朗随后击落美军无人机并开火反击。
 
-”朱松岭认为，防范民进党当局的渗透行为，最稳妥的办法就是绝对不点进去看，这样即使他们想了再多办法，大陆老百姓上不了当，自己也会更好地保护自己。
+谈判方面，美伊双方就伊朗海外240亿美元资金解冻问题僵持不下，伊朗要求谅解备忘录发布后立即解冻一半，并坚持在约定资金到账之前，任何协议都不可能达成。
 
-(策划/制作：燕新台 常望涛 实习生 静怡 中新网“燕新台”工作室出品） 责任编辑：【吉翔】
+此外，外媒称在与美国达成停火协议前，伊朗正寻求从中国获得担保，并愿意“将浓缩铀移至中国”。
+
+外交部发言人毛宁对此回应表示，希望有关各方抓住机会，通过谈判达成兼顾各方合理关切的解决方案。
+
+中方愿意继续为伊朗核问题的政治外交解决发挥建设性作用。
+
+整体看，美伊局势的再次反复或是贵金属价格再次走低的主要催化，但内在核心逻辑仍集中在市场对于未来货币政策取向的交易上；现阶段美联储并无进一步降息的动机，对于贵金属而言若无边际上更为宽松的信号出现，短期难以延续反弹走势；黄金白银短期仍中性看待，而若油价延续弱势则可期待通胀数据转弱之后的美联储表态。
 
 ## 相关推荐
 
-- 2026-06-30 03:08 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 03:03 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 03:06 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 03:03 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 03:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 02:57 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 03:23 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 03:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 03:11 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 03:21 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 02:58 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 03:18 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 03:13 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 03:26 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 03:03 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 03:07 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 03:05 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 03:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 03:21 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 03:01 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 03:15 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 03:21 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 03:08 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 03:09 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 03:19 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:01 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/4684868.shtml)
-- 2026-06-30 03:09 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/39502.shtml)
-- 2026-06-30 02:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/20158272120.shtml)
-- 2026-06-30 03:04 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/0165632733.shtml)
-- 2026-06-30 03:12 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/817049931.shtml)
-- 2026-06-30 03:02 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/76854007.shtml)
-- 2026-06-30 03:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/372775176.shtml)
-- 2026-06-30 03:12 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/523166210017.shtml)
-- 2026-06-30 03:00 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/041107537075.shtml)
-- 2026-06-30 03:03 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/84394019394.shtml)
-- 2026-06-30 03:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/0118651.shtml)
-- 2026-06-30 03:15 - [沉睡花园](https://www.blog.minike.top/Article/details/9968589.shtml)
-- 2026-06-30 02:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/61685.shtml)
-- 2026-06-30 03:14 - [请回答王牌2019](https://www.share.minike.top/Article/details/82607.shtml)
-- 2026-06-30 03:18 - [世界杯](https://www.share.kurohicncr.top/Article/details/91148.shtml)
+- 2026-06-30 03:29 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/911011111.shtml)
+- 2026-06-30 03:16 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/902916.shtml)
+- 2026-06-30 03:16 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/93662367535.shtml)
+- 2026-06-30 03:07 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/586110247908.shtml)
+- 2026-06-30 03:02 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/36744671.shtml)
+- 2026-06-30 03:08 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/591581621.shtml)
+- 2026-06-30 03:11 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/138771286969.shtml)
+- 2026-06-30 03:15 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/1393622.shtml)
+- 2026-06-30 03:12 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/6007088872.shtml)
+- 2026-06-30 03:23 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/732340.shtml)
+- 2026-06-30 03:22 - [恋与深空 日服](https://www.share.minike.top/Article/details/559205619644.shtml)
+- 2026-06-30 03:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/594967.shtml)
+- 2026-06-30 03:29 - [第一炉香](http://www.share.kurohicncr.top/Article/details/7267744190.shtml)
+- 2026-06-30 03:04 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/480684023.shtml)
+- 2026-06-30 03:03 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/7074224.shtml)

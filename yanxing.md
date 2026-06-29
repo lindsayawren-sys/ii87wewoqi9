@@ -1,59 +1,60 @@
-# 油价回落削弱加元支撑，美元兑加元连续四日上涨逼近1.4000关口
+# 光大期货0527黄金点评：美伊局势再度升温，沃什鹰声未散，金价短期仍宜谨慎
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——美元兑加元（USD/CAD）在周二亚洲交易时段保持上涨势头，汇价运行于1.3990附近，连续第四个交易日录得升势。尽管美国与伊朗达成结束冲突的谅解备忘录，市场风险情绪有所改善，但由于协议正式文本尚未公布，全球航运企业对于重新安排经过霍尔木兹海峡的运输路线仍保持谨慎，使市场对中东能源供应恢复速度存在不确定性。 美国总统特朗普宣布已与伊朗签署相关谅解备忘录，计划
+隔夜COMEX黄金先震荡走弱，随后有所反弹，整体仍呈现出拉锯格局。 地缘是昨日盘面的核心扰动项。此前市场对于美伊谈判抱有一定期待，但局势在短暂缓和后迅速逆转，据媒体报导，伊朗向进入波斯湾地区伊朗领空的美国战斗机及数架无人机开火，市场对于停火协议被动失效的担忧迅速升温。受此影响，美元指数和原油价格双双回升，而黄金则承压下挫，这提示我们，当前美伊谈判的基础仍较脆弱，双方在核心议题上
 
 ## 正文
 
-汇通财经APP讯——美元兑加元（USD/CAD）在周二亚洲交易时段保持上涨势头，汇价运行于1.3990附近，连续第四个交易日录得升势。
+隔夜COMEX黄金先震荡走弱，随后有所反弹，整体仍呈现出拉锯格局。
 
-尽管美国与伊朗达成结束冲突的谅解备忘录，市场风险情绪有所改善，但由于协议正式文本尚未公布，全球航运企业对于重新安排经过霍尔木兹海峡的运输路线仍保持谨慎，使市场对中东能源供应恢复速度存在不确定性。
+地缘是昨日盘面的核心扰动项。
 
-美国总统特朗普宣布已与伊朗签署相关谅解备忘录，计划推动此前受到影响的霍尔木兹海峡逐步恢复通航。
+此前市场对于美伊谈判抱有一定期待，但局势在短暂缓和后迅速逆转，据媒体报导，伊朗向进入波斯湾地区伊朗领空的美国战斗机及数架无人机开火，市场对于停火协议被动失效的担忧迅速升温。
 
-根据伊朗半官方媒体报道，当前协议草案显示，相关航道预计将在未来30天内按照伊朗方面的安排逐步恢复正常运行。
+受此影响，美元指数和原油价格双双回升，而黄金则承压下挫，这提示我们，当前美伊谈判的基础仍较脆弱，双方在核心议题上的分歧尚未弥合，任何意外摩擦都可能打断谈判进程，这也是近期金价反复的重要原因。
 
-然而，随着市场预期未来原油供应将逐渐增加，国际油价承压回落，对作为商品货币的加元形成明显压力，推动美元兑加元持续走高。
+与此同时，美联储新任主席沃什的首次官方讲话给市场泼了一盆冷水。
 
-此前中东局势升级曾导致市场担忧能源价格大幅上涨可能推高全球通胀，并迫使主要央行采取更加鹰派的政策立场。
+讲话整体偏鹰，市场普遍担忧，即便美伊谈判取得阶段性突破、地缘风险有所消退，也未必能够推动美联储在政策立场上向鸽派转变。
 
-但随着油价下降，能源驱动的通胀风险有所缓解，全球债券收益率回落，也降低了市场对于加拿大央行维持较高借贷成本的担忧。
+换句话说，地缘缓和如果成真，市场的焦点将会快速切换至美联储的政策指引，届时沃什的表态将成为主导金价的新变量。
 
-整体来看，油价变化仍是短期影响加元走势的重要因素。
+因此，无论美伊走向如何，黄金在这两重压力下都难言轻松。
 
 ## 相关推荐
 
-- 2026-06-30 02:58 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 02:55 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 03:22 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 03:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-30 02:58 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 03:09 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 03:00 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 03:07 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 03:00 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 03:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 03:17 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 03:17 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 02:54 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 03:11 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 03:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-30 03:23 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 03:20 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 03:20 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 03:25 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 03:12 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 03:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 03:13 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 03:09 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 03:02 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 03:19 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 03:29 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 03:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:56 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/05560363.shtml)
-- 2026-06-30 03:01 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/971771103.shtml)
-- 2026-06-30 03:08 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/170764485869.shtml)
-- 2026-06-30 03:21 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/783045221.shtml)
-- 2026-06-30 03:04 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/163873901.shtml)
-- 2026-06-30 03:10 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/84330.shtml)
-- 2026-06-30 03:18 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/0921341.shtml)
-- 2026-06-30 03:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/98577.shtml)
-- 2026-06-30 02:56 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/47085689.shtml)
-- 2026-06-30 03:23 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/06240.shtml)
-- 2026-06-30 03:08 - [点菜也要教吗](https://www.share.minike.top/Article/details/78251.shtml)
-- 2026-06-30 03:00 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/2297707.shtml)
-- 2026-06-30 03:00 - [沙丘](https://www.blog.kurohicncr.top/Article/details/043937385976.shtml)
-- 2026-06-30 03:06 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/9180215.shtml)
-- 2026-06-30 03:09 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/907301.shtml)
+- 2026-06-30 03:27 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/087624.shtml)
+- 2026-06-30 03:19 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/8939441.shtml)
+- 2026-06-30 03:12 - [小娘惹](https://www.share.minike.top/Article/details/761781918.shtml)
+- 2026-06-30 03:19 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/2022182.shtml)
+- 2026-06-30 03:18 - [沙丘](http://www.share.kurohicncr.top/Article/details/7451408.shtml)
+- 2026-06-30 03:29 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/22956.shtml)
+- 2026-06-30 03:02 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/220256.shtml)
+- 2026-06-30 03:22 - [女心理师](https://www.share.kurohicncr.top/Article/details/7313123988.shtml)
+- 2026-06-30 03:26 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/830844519636.shtml)
+- 2026-06-30 03:04 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/45910189226.shtml)
+- 2026-06-30 03:29 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/264937851.shtml)
+- 2026-06-30 03:03 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/20655.shtml)
+- 2026-06-30 03:04 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/65186753.shtml)
+- 2026-06-30 03:27 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/54783612.shtml)
+- 2026-06-30 03:09 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/11137398053.shtml)

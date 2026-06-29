@@ -1,56 +1,56 @@
-# 央行行长潘功胜：在上海自贸区开展离岸人民币外汇交易试点
+# 外周血管疾病科普与健康倡议行动启动 多位医学专家吁“脉”向未来
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-中新网上海6月17日电 (高志苗 康玉湛)2026陆家嘴论坛17日在上海开幕。中国人民银行行长潘功胜在开幕式上宣布，在上海自贸区开展离岸人民币外汇交易试点。授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易。将根据试点情况，进一步推动离岸人民币外汇交易市场发展。 他同时介绍，将会同上海市政府有关部门出台《上海国际金融中心
+中新网北京5月27日电 (记者 张素)以“‘足’够健康 ‘脉’向未来”为主题的外周血管疾病科普与健康倡议行动，近日在北京启动。多位医学专家呼吁各方提升疾病认知和规范治疗水平。 何为外周血管疾病？ 据介绍，外周血管疾病是心脏、颅脑以外血管系统疾病的总称。其中，外周动脉疾病最为常见、疾病负担重，却易被公众忽视。 “目前，中国下肢周围动脉疾病的发病率约4500万人次，其风险并不低于公
 
 ## 正文
 
-中新网上海6月17日电 (高志苗 康玉湛)2026陆家嘴论坛17日在上海开幕。
+中新网北京5月27日电 (记者 张素)以“‘足’够健康 ‘脉’向未来”为主题的外周血管疾病科普与健康倡议行动，近日在北京启动。
 
-中国人民银行行长潘功胜在开幕式上宣布，在上海自贸区开展离岸人民币外汇交易试点。
+多位医学专家呼吁各方提升疾病认知和规范治疗水平。
 
-授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易。
+何为外周血管疾病？
 
-将根据试点情况，进一步推动离岸人民币外汇交易市场发展。
+据介绍，外周血管疾病是心脏、颅脑以外血管系统疾病的总称。
 
-他同时介绍，将会同上海市政府有关部门出台《上海国际金融中心发展离岸金融行动方案》。
+其中，外周动脉疾病最为常见、疾病负担重，却易被公众忽视。
 
-人民银行将逐步健全适应离岸金融的业务规则、风险管理、营商环境等制度体系。
+“目前，中国下肢周围动脉疾病的发病率约4500万人次，其风险并不低于公众熟知的心脑血管疾病。
 
-稳妥推进自贸离岸债、离岸贸易金融服务、国际财资中心等离岸金融业务，支持上海率先构建与国际金融中心相匹配的离岸金融业务体系。
+”首都医科大学附属北京安贞医院陈忠教授提醒，如果不能早期得到诊断与治疗，疾病进展后不仅可能显著降低患者生活质量，一旦出现组织坏死和感染，严重的还可能导致肢体缺血甚至截肢，增加死亡风险。
 
-(完)
+外周血管疾病未能尽早诊断治疗，其中一个原因在于症状“不典型”。
 
 ## 相关推荐
 
-- 2026-06-30 03:00 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-30 03:03 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 02:57 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 03:00 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 03:13 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 03:06 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 03:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 03:04 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 03:04 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 02:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 03:00 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 03:20 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 03:10 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 03:14 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 03:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 03:28 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 03:15 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-30 03:05 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 03:11 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 03:22 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:21 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/47461165057.shtml)
-- 2026-06-30 03:12 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/324076.shtml)
-- 2026-06-30 03:15 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/512567355639.shtml)
-- 2026-06-30 02:57 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/2846516919.shtml)
-- 2026-06-30 02:56 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/8946108925.shtml)
-- 2026-06-30 03:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/0571499121.shtml)
-- 2026-06-30 03:18 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/49663.shtml)
-- 2026-06-30 02:57 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/73814836417.shtml)
-- 2026-06-30 03:13 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/747087673.shtml)
-- 2026-06-30 03:10 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/39420.shtml)
-- 2026-06-30 03:07 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/3216399.shtml)
-- 2026-06-30 02:58 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/1539770.shtml)
-- 2026-06-30 03:16 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/97156485941.shtml)
-- 2026-06-30 03:01 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/699428.shtml)
-- 2026-06-30 03:17 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/44952144.shtml)
+- 2026-06-30 03:19 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/407506914341.shtml)
+- 2026-06-30 03:03 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/486900.shtml)
+- 2026-06-30 03:13 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/242444905770.shtml)
+- 2026-06-30 03:29 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/3824078.shtml)
+- 2026-06-30 03:12 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/222702.shtml)
+- 2026-06-30 03:22 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/632172177818.shtml)
+- 2026-06-30 03:28 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/9957409109.shtml)
+- 2026-06-30 03:14 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/377432.shtml)
+- 2026-06-30 03:12 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/6100471043.shtml)
+- 2026-06-30 03:15 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/2453231.shtml)
+- 2026-06-30 03:25 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/706660756.shtml)
+- 2026-06-30 03:10 - [巴西绝杀日本](http://www.share.minike.top/Article/details/221861.shtml)
+- 2026-06-30 03:28 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/72283823.shtml)
+- 2026-06-30 03:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/62376237209.shtml)
+- 2026-06-30 03:25 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/985910177785.shtml)

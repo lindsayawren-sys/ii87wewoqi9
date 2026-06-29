@@ -1,61 +1,56 @@
-# 6月已有4家银行获批！中小银行资本补充提速
+# 中国哲学社会科学自主知识体系与田野调查学术沙龙暨白玛措博士新书分享会在拉萨举行
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 林汉垚 中小银行外源性补血的政策预期逐步企稳，获批进程正呈现明显提速迹象。 据记者不完全统计估计，6月份以来，已有四家中小银行陆续拿到二永债（二级资本债和永续债）发行“通行证”。 随着银行业净息差降至历史低位，单纯依靠利润留存的内源性“造血”空间受到挤压。如何在压实地方属地责任的同时，畅通中小银行的市场化“补血”渠道，已成为关乎区域金融稳定的重要命题。 四
+中新网拉萨5月27日电 (李林)27日，中国哲学社会科学自主知识体系与田野调查学术沙龙暨白玛措博士新书分享会在西藏自治区社科院举行。活动以“长时段田野调查与中国自主知识体系构建”为主题，围绕西藏自治区社科院研究员、人类学博士白玛措新近出版的《大地艺术家：北方牧人》和《草原上的敬老院》两部专著展开深入研讨。 西藏自治区社科院党组副书记、院长，自治区社科联主席李小宁在致辞中指出，白
 
 ## 正文
 
-21世纪经济报道记者 林汉垚 中小银行外源性补血的政策预期逐步企稳，获批进程正呈现明显提速迹象。
+中新网拉萨5月27日电 (李林)27日，中国哲学社会科学自主知识体系与田野调查学术沙龙暨白玛措博士新书分享会在西藏自治区社科院举行。
 
-据记者不完全统计估计，6月份以来，已有四家中小银行陆续拿到二永债（二级资本债和永续债）发行“通行证”。
+活动以“长时段田野调查与中国自主知识体系构建”为主题，围绕西藏自治区社科院研究员、人类学博士白玛措新近出版的《大地艺术家：北方牧人》和《草原上的敬老院》两部专著展开深入研讨。
 
-随着银行业净息差降至历史低位，单纯依靠利润留存的内源性“造血”空间受到挤压。
+西藏自治区社科院党组副书记、院长，自治区社科联主席李小宁在致辞中指出，白玛措的两部新著由商务印书馆、中国社会科学出版社推出，代表着西藏社科工作者的学术水准在不断提升，西藏学术研究的独特价值正在被更广泛的学术界所认可。
 
-如何在压实地方属地责任的同时，畅通中小银行的市场化“补血”渠道，已成为关乎区域金融稳定的重要命题。
+西藏自治区社科院副院长边巴拉姆表示，白玛措是为数不多的在商务印书馆出版学术专著的藏族学者，其研究成果为西藏哲学社会科学高质量发展树立了标杆。
 
-四家中小银行获批发债 进入6月以来，多家中小银行密集获得二永债发行批文。
+与会学者认为，白玛措的研究从西藏牧区的具体经验出发，提炼出具有普遍意义的学术概念，为构建中国自主知识体系贡献了雪域高原的智慧。
 
-6月15日，国家金融监管总局甘肃监管局发布批复，同意甘肃银行发行不超过50亿元人民币的二级资本债券。
+据悉，《草原上的敬老院》一书基于长期田野调查，呈现了西藏牧区家庭结构变迁与老龄化背景下，国家福利制度如何保障老年人有尊严地老去的生动图景。
 
-同日，厦门银行公告称，已获得中国人民银行行政许可，同意其在全国银行间市场及境外市场发行资本补充债券，资本补充债券余额不超过114亿元。
+《大地艺术家：北方牧人》则记录了北方牧人在严酷自然环境中展现的生存智慧与生活艺术。
 
-这一连串的动作并非孤例。
+来自西藏自治区社科院、西藏大学及相关单位的百余位专家学者和青年学子参加了本次活动。
 
 ## 相关推荐
 
-- 2026-06-30 03:15 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 03:03 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 03:18 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 03:04 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 02:56 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 03:01 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 03:11 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 02:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 03:11 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 03:01 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 03:15 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 03:12 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 03:17 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 02:56 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 02:59 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 03:17 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 03:02 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 03:00 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 03:18 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 03:01 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 03:13 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 03:18 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 03:18 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 03:08 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 03:15 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:05 - [逃狱兄弟](http://www.blog.minike.top/Article/details/174513.shtml)
-- 2026-06-30 02:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/14937297388.shtml)
-- 2026-06-30 03:07 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/60782674844.shtml)
-- 2026-06-30 02:55 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/341449875048.shtml)
-- 2026-06-30 03:17 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/550790940.shtml)
-- 2026-06-30 03:04 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/4409850568.shtml)
-- 2026-06-30 03:12 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/065814946171.shtml)
-- 2026-06-30 03:21 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/821645.shtml)
-- 2026-06-30 03:00 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/269408942294.shtml)
-- 2026-06-30 03:11 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/79508105033.shtml)
-- 2026-06-30 03:05 - [蔚来车主罚站](http://www.share.minike.top/Article/details/51551884452.shtml)
-- 2026-06-30 03:03 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/696769234.shtml)
-- 2026-06-30 03:08 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/249938753.shtml)
-- 2026-06-30 03:16 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/5473482.shtml)
-- 2026-06-30 03:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/1338583.shtml)
+- 2026-06-30 03:07 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/1796957212.shtml)
+- 2026-06-30 03:08 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/1663426.shtml)
+- 2026-06-30 03:14 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/73397428.shtml)
+- 2026-06-30 03:00 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/16499825386.shtml)
+- 2026-06-30 03:01 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/55038.shtml)
+- 2026-06-30 03:21 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/24647.shtml)
+- 2026-06-30 03:27 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/4966724.shtml)
+- 2026-06-30 03:12 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/317433206497.shtml)
+- 2026-06-30 03:01 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/512802.shtml)
+- 2026-06-30 03:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/1645341.shtml)
+- 2026-06-30 03:21 - [起风了](http://www.blog.minike.top/Article/details/738122308.shtml)
+- 2026-06-30 03:26 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/842510.shtml)
+- 2026-06-30 03:27 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/687214164453.shtml)
+- 2026-06-30 03:23 - [金刚川](https://www.blog.kurohicncr.top/Article/details/9854183.shtml)
+- 2026-06-30 03:16 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/5335477.shtml)

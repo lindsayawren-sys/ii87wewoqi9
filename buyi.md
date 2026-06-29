@@ -1,58 +1,57 @@
-# 湖南多举措推进智能建造产业发展 2025年产值达4090亿元
+# Buff叠满！芯片，双重利好！狂飙不止，韩国股指年内翻倍！
 
-> 更新时间：2026-06-30 03:24:03 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-中新网长沙6月16日电(向一鹏)16日召开的2026长沙国际绿色智能建造与建筑工业化博览会新闻发布会透露，湖南省智能建造产业发展成效凸显，2025年产值增至4090亿元，产业保持高速增长态势。 湖南立足新型建筑工业化多年积淀的产业基础，依托完备的研发、制造、施工、建材全链条配套体系，锚定全产业链培育目标，坚持政策引领、试点破局、科创驱动、技术攻坚、展会赋能多路并进，系统性推进智
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！芯片领域，传来两则大消息！ 一是5月27日有媒体报道称，台积电3纳米制程下半年将涨价15%，明年或再涨5%至10%。二是三星电子工会27日投票通过薪酬协议，避免了一场可能扰乱全球芯片供应的大罢工。 当天，在韩国证券市场上，芯片股集体暴涨，三星电子一度涨超8%，SK海力士一度涨超14%。其中，SK海力士市值首
 
 ## 正文
 
-中新网长沙6月16日电(向一鹏)16日召开的2026长沙国际绿色智能建造与建筑工业化博览会新闻发布会透露，湖南省智能建造产业发展成效凸显，2025年产值增至4090亿元，产业保持高速增长态势。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-湖南立足新型建筑工业化多年积淀的产业基础，依托完备的研发、制造、施工、建材全链条配套体系，锚定全产业链培育目标，坚持政策引领、试点破局、科创驱动、技术攻坚、展会赋能多路并进，系统性推进智能建造落地实施，取得阶段性实效。
+芯片领域，传来两则大消息！
 
-以《湖南省绿色建筑发展条例》为法治依托，湖南叠加新型建筑工业化专项配套政策，构建起层级完善的“1+N”政策框架。
+一是5月27日有媒体报道称，台积电3纳米制程下半年将涨价15%，明年或再涨5%至10%。
 
-依托长沙智能建造试点城市，湖南在项目实践中提炼标准化建设路径与管理范式，形成可复制、可推广的实施经验。
+二是三星电子工会27日投票通过薪酬协议，避免了一场可能扰乱全球芯片供应的大罢工。
 
-目前全省建成国家级智能建造产业基地20家、省级74家，产业规模化布局基本成型。
+当天，在韩国证券市场上，芯片股集体暴涨，三星电子一度涨超8%，SK海力士一度涨超14%。
 
-同时，湖南聚力科创平台建设，组建湖南省智能建造与新型建筑工业化技术创新中心，由中国工程院院士余志武担任首席科学家，统筹多家共建单位资源，围绕智能建造、智能装备、数信融合、智能监测、成果转化五大领域搭建协同创新体系，集中攻坚BIM一模到底、建筑机器人、建筑3D打印等关键核心技术。
+其中，SK海力士市值首破万亿美元大关。
 
-此外，湖南加快新技术规模化场景应用，一方面全面落地北斗+智能监测体系，建成空天地一体化城市基础设施全域感知网络，攻克毫米级形变监测、AI智能预警、数字孪生等关键技术，搭建省级基础设施安全监测平台，在深基坑、超高层建筑、地下管网、城市桥梁等工程大范围投用，夯实城市生命线安全保障；另一方面持续推进建筑3D打印产业化，依托本届筑博会打造实景沉浸式展示区，直观展现智能建造新工艺、新模式。
+在SK海力士和三星电子大涨的带动下，韩国Kospi指数不断刷新纪录，该指数周三盘中一度涨超5%，今年以来累计飙升近100%。
 
-(完)
+芯片涨价传闻 5月27日，据媒体报道，供应链传出，台积电计划于下半年再度上调3纳米制程报价，涨幅最高达15%，明年亦可能进一步上涨5%至10%。
 
 ## 相关推荐
 
-- 2026-06-30 03:12 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 03:10 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 02:55 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 03:04 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 03:18 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 03:15 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 03:10 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 03:17 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 02:56 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 02:55 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 03:06 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 03:00 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 03:22 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 03:02 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 03:10 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 03:11 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 03:03 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 03:13 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 03:13 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 03:24 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 03:07 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 03:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 03:07 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:14 - [速度与激情9](https://www.share.minike.top/Article/details/11092.shtml)
-- 2026-06-30 03:07 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/734151311650.shtml)
-- 2026-06-30 03:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/001109520649.shtml)
-- 2026-06-30 03:23 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/83894.shtml)
-- 2026-06-30 03:16 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/964984479672.shtml)
-- 2026-06-30 03:07 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/244001583357.shtml)
-- 2026-06-30 02:57 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/3578632850.shtml)
-- 2026-06-30 03:08 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/366915.shtml)
-- 2026-06-30 03:13 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/50339432074.shtml)
-- 2026-06-30 02:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/35728343.shtml)
-- 2026-06-30 03:10 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/146624.shtml)
-- 2026-06-30 02:59 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/5361118003.shtml)
-- 2026-06-30 02:58 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/0807307841.shtml)
-- 2026-06-30 03:21 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/24647.shtml)
-- 2026-06-30 02:55 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/195867232.shtml)
+- 2026-06-30 03:02 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/465417.shtml)
+- 2026-06-30 03:13 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/01460203654.shtml)
+- 2026-06-30 03:03 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/587522099.shtml)
+- 2026-06-30 03:19 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/76380.shtml)
+- 2026-06-30 03:18 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/76252115.shtml)
+- 2026-06-30 03:19 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/19064639.shtml)
+- 2026-06-30 03:06 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/37875809.shtml)
+- 2026-06-30 03:21 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/96710.shtml)
+- 2026-06-30 03:14 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/5311239465.shtml)
+- 2026-06-30 03:28 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/8182436.shtml)
+- 2026-06-30 03:14 - [房价什么时候能涨](http://www.share.minike.top/Article/details/675371.shtml)
+- 2026-06-30 03:15 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/97564.shtml)
+- 2026-06-30 03:17 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/26056.shtml)
+- 2026-06-30 03:21 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/1083519767.shtml)
+- 2026-06-30 03:07 - [一生一世](https://www.share.kurohicncr.top/Article/details/15186512402.shtml)

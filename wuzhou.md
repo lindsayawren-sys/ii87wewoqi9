@@ -1,55 +1,48 @@
-# 随着IPO后股价持续上涨 SpaceX有望超越亚马逊的市值
+# 郑州珠江村镇银行股权变更获批 广州农商行持股比例达42%
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-专题：SpaceX市值超越两家“七巨头” 拉开美股巨型IPO浪潮序幕 埃隆·马斯克旗下的SpaceX公司股价周二盘前交易中上涨逾10%，随着该公司延续 IPO后的涨势，其市值有望超越亚马逊，成为全球第五大公司 。 该股周一暴涨逾19%，最新报211.8美元，涨幅达10.1%；若涨势得以维持，公司市值将接近2.8万亿美元。 亚马逊的最新市值为2.66万亿美元。 SpaceX股票成
+5月27日金融一线消息，河南金融监管局发布批复，同意广州农村商业银行股份有限公司受让固始凤凰农业开发有限公司持有郑州珠江村镇银行股份有限公司的14，000，000股股份。受让后，广州农村商业银行股份有限公司持有郑州珠江村镇银行股份有限公司84，000，000股股份，持股比例为42%。 责任编辑：秦艺
 
 ## 正文
 
-专题：SpaceX市值超越两家“七巨头” 拉开美股巨型IPO浪潮序幕 埃隆·马斯克旗下的SpaceX公司股价周二盘前交易中上涨逾10%，随着该公司延续 IPO后的涨势，其市值有望超越亚马逊，成为全球第五大公司 。
+5月27日金融一线消息，河南金融监管局发布批复，同意广州农村商业银行股份有限公司受让固始凤凰农业开发有限公司持有郑州珠江村镇银行股份有限公司的14，000，000股股份。
 
-该股周一暴涨逾19%，最新报211.8美元，涨幅达10.1%；若涨势得以维持，公司市值将接近2.8万亿美元。
+受让后，广州农村商业银行股份有限公司持有郑州珠江村镇银行股份有限公司84，000，000股股份，持股比例为42%。
 
-亚马逊的最新市值为2.66万亿美元。
-
-SpaceX股票成交额已超过11.6亿美元，是英伟达、微软、特斯拉和苹果四家公司成交额总和的数倍。
-
-责任编辑：刘明亮
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 03:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 03:06 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 03:05 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 03:13 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 03:15 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 03:16 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 03:24 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 03:22 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 03:21 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 03:01 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 03:23 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 03:07 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 03:16 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 03:07 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 03:19 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 03:12 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 03:29 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 03:21 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 03:09 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 03:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 03:02 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 03:19 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 03:16 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 03:16 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 03:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 03:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 03:06 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/7433585.shtml)
-- 2026-06-30 02:58 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/76321413.shtml)
-- 2026-06-30 03:20 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/3138064651.shtml)
-- 2026-06-30 03:10 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/487069892398.shtml)
-- 2026-06-30 03:21 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/46376.shtml)
-- 2026-06-30 03:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/3913573.shtml)
-- 2026-06-30 03:22 - [田曦薇没招了](https://www.share.minike.top/Article/details/9660492.shtml)
-- 2026-06-30 03:01 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/0204324.shtml)
-- 2026-06-30 03:08 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/435339065.shtml)
-- 2026-06-30 03:23 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/556460577654.shtml)
-- 2026-06-30 02:58 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/743796930093.shtml)
-- 2026-06-30 03:03 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/7690184656.shtml)
-- 2026-06-30 03:02 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/86970.shtml)
-- 2026-06-30 03:10 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/071008.shtml)
-- 2026-06-30 03:06 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/96930357593.shtml)
+- 2026-06-30 03:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/6097060.shtml)
+- 2026-06-30 03:06 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/9214665.shtml)
+- 2026-06-30 03:02 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/09050.shtml)
+- 2026-06-30 03:06 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/98839258.shtml)
+- 2026-06-30 03:12 - [急先锋](https://www.share.minike.top/Article/details/1287063090.shtml)
+- 2026-06-30 03:12 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/6598521817.shtml)
+- 2026-06-30 03:08 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/27731550.shtml)
+- 2026-06-30 03:28 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/81376040680.shtml)
+- 2026-06-30 03:25 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/749202081.shtml)
+- 2026-06-30 03:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/13739032693.shtml)
+- 2026-06-30 03:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/342605129.shtml)
+- 2026-06-30 03:16 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/538864.shtml)
+- 2026-06-30 03:25 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/49724.shtml)
+- 2026-06-30 03:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/363396484679.shtml)
+- 2026-06-30 03:14 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/62553892.shtml)

@@ -1,43 +1,56 @@
-# 公安部网安局：公布5起打击“银狐”木马病毒典型案例
+# 临床阶段RNAi疗法公司Silence Therapeutics将出席Jefferies全球医疗保健年会
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 14:26 来源：央视新闻 责任编辑：【王祎】
+临床阶段RNAi疗法公司Silence Therapeutics近日宣布，公司管理层将出席2026年6月3日下午4：55（美国东部时间）举行的Jefferies全球医疗保健年会，并进行分析师主导的炉边谈话。投资者可通过公司官网投资者关系页面收听现场网络直播，回放将在会议结束后提供。 核心管线：divesiran III期数据8月读出 Silence Therapeutics目前
 
 ## 正文
 
-发布时间：2026年06月17日 14:26 来源：央视新闻 责任编辑：【王祎】
+临床阶段RNAi疗法公司Silence Therapeutics近日宣布，公司管理层将出席2026年6月3日下午4：55（美国东部时间）举行的Jefferies全球医疗保健年会，并进行分析师主导的炉边谈话。
+
+投资者可通过公司官网投资者关系页面收听现场网络直播，回放将在会议结束后提供。
+
+核心管线：divesiran III期数据8月读出 Silence Therapeutics目前最受关注的资产是divesiran（SLN124），一种靶向TMPRSS6的siRNA疗法，用于治疗真性红细胞增多症（PV）。
+
+公司此前已完成II期SANRECO试验的入组工作，预计将于2026年8月公布顶线结果。
+
+PV是一种罕见的骨髓增生性肿瘤，目前治疗选择有限。
+
+divesiran通过抑制TMPRSS6表达来调节铁代谢，具有改善红细胞生成和降低血细胞比容的潜力。
+
+若II期数据积极，将标志着该药物进入后期临床开发阶段。
+
+根据公司2025年年报披露的里程碑计划，divesiran是“最高优先级”项目。
 
 ## 相关推荐
 
-- 2026-06-30 03:17 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 03:02 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 03:12 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 03:08 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 03:05 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 03:19 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 03:13 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 03:13 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 02:57 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 02:59 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 03:20 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 03:11 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 03:08 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 03:07 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 03:09 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 03:11 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 03:12 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 03:00 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 03:18 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 03:24 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 03:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:05 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/58638636832.shtml)
-- 2026-06-30 03:21 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/11078.shtml)
-- 2026-06-30 03:11 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/1322207067.shtml)
-- 2026-06-30 03:04 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/88159.shtml)
-- 2026-06-30 03:00 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/96651.shtml)
-- 2026-06-30 03:13 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/725296264.shtml)
-- 2026-06-30 02:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/558066.shtml)
-- 2026-06-30 03:15 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/838012.shtml)
-- 2026-06-30 03:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/87990081.shtml)
-- 2026-06-30 03:01 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/93888071.shtml)
-- 2026-06-30 03:23 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/88066192.shtml)
-- 2026-06-30 03:00 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/4351498664.shtml)
-- 2026-06-30 03:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/8924398254.shtml)
-- 2026-06-30 03:03 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/54173.shtml)
-- 2026-06-30 02:57 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/74749105344.shtml)
+- 2026-06-30 03:02 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/34944358233.shtml)
+- 2026-06-30 03:05 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/49515251.shtml)
+- 2026-06-30 03:09 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/833065.shtml)
+- 2026-06-30 03:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/97964.shtml)
+- 2026-06-30 03:16 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/803763.shtml)
+- 2026-06-30 03:02 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/6920702.shtml)
+- 2026-06-30 03:09 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/97488356494.shtml)
+- 2026-06-30 03:08 - [一见倾心](http://www.blog.minike.top/Article/details/39814.shtml)
+- 2026-06-30 03:00 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/0098982.shtml)
+- 2026-06-30 03:27 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/87182532.shtml)
+- 2026-06-30 03:00 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/7308245.shtml)
+- 2026-06-30 03:25 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/86871.shtml)
+- 2026-06-30 03:20 - [急先锋](https://www.share.kurohicncr.top/Article/details/48721.shtml)
+- 2026-06-30 03:04 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/55282.shtml)
+- 2026-06-30 03:20 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/7734193558.shtml)

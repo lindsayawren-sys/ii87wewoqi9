@@ -1,56 +1,61 @@
-# 光大期货：6月17日农产品日报
+# 整治“幽灵外卖” 上海推出全国首个网络餐饮电子证照核验应用
 
-> 更新时间：2026-06-30 03:24:03 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周二，CBOT大豆收高，受出口需求希望提振。盘后的作物报告显示，美豆优良率66%，较前一周增加1个百分点。美豆种植率95%，比预期低1个百分点。NOPA报告显示，美豆5月压榨量处于预估区间下沿，美豆油库存降至17.35亿帮，为5个月最低水平。南美方面，阿根廷大豆丰收兑现，预计巴西6月大豆出口1
+中新网上海5月26日电 (记者 许婧)上海26日推出全国首个网络餐饮电子证照核验应用，构建一套从商户申请到平台亮证的数字化管理闭环，为市民“舌尖上的安全”加装了一道可靠“阀门”，也为根治“幽灵外卖”拿出了治理新招。 此次上线的电子证照核验应用，正是将法规落地转化为技术方案的关键一步。经国家市场监管总局同意，上海市市场监管局依托电子营业执照系统，在全国首创试点，通过打通监管部门、
 
 ## 正文
 
-蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周二，CBOT大豆收高，受出口需求希望提振。
+中新网上海5月26日电 (记者 许婧)上海26日推出全国首个网络餐饮电子证照核验应用，构建一套从商户申请到平台亮证的数字化管理闭环，为市民“舌尖上的安全”加装了一道可靠“阀门”，也为根治“幽灵外卖”拿出了治理新招。
 
-盘后的作物报告显示，美豆优良率66%，较前一周增加1个百分点。
+此次上线的电子证照核验应用，正是将法规落地转化为技术方案的关键一步。
 
-美豆种植率95%，比预期低1个百分点。
+经国家市场监管总局同意，上海市市场监管局依托电子营业执照系统，在全国首创试点，通过打通监管部门、平台与商户间的数据壁垒，构建起“真人、真证、真店”的可信核验机制，让法规中的“主体责任”有了可操作、可追溯的数字化抓手。
 
-NOPA报告显示，美豆5月压榨量处于预估区间下沿，美豆油库存降至17.35亿帮，为5个月最低水平。
+目前，政府侧应用已建成，涵盖资质自动核验、电子证照授权管理、合规公示证照生成、证照信息动态同步等功能，支持网络餐饮入驻资质审核的全流程数字化、闭环化管理。
 
-南美方面，阿根廷大豆丰收兑现，预计巴西6月大豆出口1531万吨，比去年同期增加150万吨。
+新应用的核心，是构筑了严密的“申请-比对-授权-亮证”管理闭环，旨在对“幽灵外卖”实现源头治理：商户在平台提交入驻申请后，相关信息会与官方权威数据库实时比对。
 
-阿根廷大豆产量预计在5150万吨附近。
+证照不实、信息不符者将被系统直接拦截。
 
-国内方面，蛋白粕震荡运行，资金观望情绪浓厚。
+信息核验通过后，必须由商户法定代表人本人通过“电子营业执照”小程序完成实名认证与精准授权，确保“真人、真意愿”，杜绝冒用。
 
-现货市场成交清淡，同样观望为主。
+平台依授权可从市场监管部门的系统中调取加注了平台名称和时间的官方保真电子证照，依托其防伪、防篡改、可追溯的特性，确保入驻商户“真证、真店”。
 
 ## 相关推荐
 
-- 2026-06-30 03:08 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 03:13 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 03:17 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 03:09 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 03:12 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 03:14 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 02:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 02:57 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 03:21 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 03:23 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 03:20 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 03:27 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 03:11 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 03:12 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 03:15 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-30 03:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 03:25 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 03:06 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 03:13 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 03:08 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 03:13 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 03:06 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 03:20 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-30 03:13 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-30 03:15 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/8954807.shtml)
-- 2026-06-30 03:19 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/3941689.shtml)
-- 2026-06-30 03:01 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/036824879.shtml)
-- 2026-06-30 03:01 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/9724141483.shtml)
-- 2026-06-30 03:02 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/602199.shtml)
-- 2026-06-30 03:16 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/1047389.shtml)
-- 2026-06-30 03:20 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/11258475.shtml)
-- 2026-06-30 03:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/8679305742.shtml)
-- 2026-06-30 03:10 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/9846525210.shtml)
-- 2026-06-30 03:12 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/85189014162.shtml)
-- 2026-06-30 02:59 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/317984.shtml)
-- 2026-06-30 02:56 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/18005.shtml)
-- 2026-06-30 03:18 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/2732692.shtml)
-- 2026-06-30 03:23 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/969047509113.shtml)
-- 2026-06-30 03:04 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/62806.shtml)
+- 2026-06-30 03:24 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/919924183.shtml)
+- 2026-06-30 03:13 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/920327623852.shtml)
+- 2026-06-30 03:22 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/240278857.shtml)
+- 2026-06-30 03:08 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/53342237.shtml)
+- 2026-06-30 03:11 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/04377128.shtml)
+- 2026-06-30 03:19 - [极限挑战第一季](http://www.blog.minike.top/Article/details/15590295221.shtml)
+- 2026-06-30 03:11 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/7169558426.shtml)
+- 2026-06-30 03:23 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/3747089.shtml)
+- 2026-06-30 03:16 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/56705823587.shtml)
+- 2026-06-30 03:05 - [这一刀 会很帅](https://www.share.minike.top/Article/details/944160806.shtml)
+- 2026-06-30 03:10 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/04340.shtml)
+- 2026-06-30 03:01 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/4139956290.shtml)
+- 2026-06-30 03:13 - [小娘惹](https://www.share.minike.top/Article/details/48657.shtml)
+- 2026-06-30 03:05 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/15963.shtml)
+- 2026-06-30 03:27 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/15252608.shtml)

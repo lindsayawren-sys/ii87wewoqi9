@@ -1,56 +1,60 @@
-# 金力永磁早盘涨超6% AI高容MLCC爆发带动高纯氧化镝需求激增
+# “金融知识科普与安全”赛道等你来投稿！金视频奖·第三届金融机构短视频评选大赛火热进行中
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-金力永磁（06680）盘中涨近7%，截至发稿，股价上涨6.37%，现报20.18港元，成交额1.31亿港元。 据Citrini Research统计数据显示，消费类MLCC的现货与经销商价格已较此前上涨20%至40%。值得关注的是，近期，日韩MLCC龙头（村田、三星电机、太阳诱电）正全力扩产，但因高纯镝库存仅支撑一个月满产，已引发全球抢购态势，进一步强化市场供应紧张预期。晨星分
+近年来，随着金融产品日益丰富，金融诈骗手段也在不断翻新。面向公众开展基础金融知识普及、防范电信网络诈骗、识别非法金融活动，已成为金融机构履行社会责任、守护百姓“钱袋子”的重要防线。 为了更生动地展现金融机构在金融知识科普与安全教育方面的创新实践，新浪财经“金视频奖·第三届金融机构短视频评选大赛”活动特设“金融知识科普与安全”赛道。欢迎各金融机构踊跃参赛，用短视频传递专业知识，筑
 
 ## 正文
 
-金力永磁（06680）盘中涨近7%，截至发稿，股价上涨6.37%，现报20.18港元，成交额1.31亿港元。
+近年来，随着金融产品日益丰富，金融诈骗手段也在不断翻新。
 
-据Citrini Research统计数据显示，消费类MLCC的现货与经销商价格已较此前上涨20%至40%。
+面向公众开展基础金融知识普及、防范电信网络诈骗、识别非法金融活动，已成为金融机构履行社会责任、守护百姓“钱袋子”的重要防线。
 
-值得关注的是，近期，日韩MLCC龙头（村田、三星电机、太阳诱电）正全力扩产，但因高纯镝库存仅支撑一个月满产，已引发全球抢购态势，进一步强化市场供应紧张预期。
+为了更生动地展现金融机构在金融知识科普与安全教育方面的创新实践，新浪财经“金视频奖·第三届金融机构短视频评选大赛”活动特设“金融知识科普与安全”赛道。
 
-晨星分析师预期AI服务器及基础设施投资将“至少持续增长至2028年”，这将为MLCC等被动元件提供较为清晰的中期成长能见度。
+欢迎各金融机构踊跃参赛，用短视频传递专业知识，筑牢安全防线，期待您的佳作！
 
-公开资料显示，氧化镝是应用于制造车规级MLCC（需承受发动机舱高温）和AI服务器MLCC（需处理高功耗产生的热量）的刚需材料，高端MLCC必须使用纯度高达 99.999% （5N） 的高纯氧化镝。
+一、大赛主题 本届大赛设四大主题奖项，参赛机构可根据视频内容自主选择对应赛道申报。
 
-国投证券指出，AI高容MLCC爆发带动高纯氧化镝需求激增，该材料为必备且无成熟替代。
+主题类型： 1．五篇大文章：聚焦科技金融、绿色金融、普惠金融、养老金融、数字金融五个细分领域，展现金融机构在服务国家战略、民生福祉和可持续发展中的系统性创新成果。
 
-2027年AI-MLCC将新增氧化镝需求1500吨，占全球总供给3500吨近四成，重稀土供需格局将彻底扭转，价格进入涨价周期。
+2．金融知识科普与安全：聚焦金融机构面向社会公众开展的金融知识普及与安全教育工作，围绕明晰基础金融知识、防范电信网络诈骗、识别非法金融活动等重点内容。
 
-责任编辑：卢昱君
+3．金融为民故事：聚焦金融机构及一线员工服务人民群众的感人事迹与温暖故事，展现金融工作的人民性底色和金融从业者的责任担当与职业情怀。
 
 ## 相关推荐
 
-- 2026-06-30 03:15 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 03:02 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 03:01 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 03:18 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 03:15 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 03:13 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 03:03 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 02:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 03:13 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 03:10 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 03:27 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 03:04 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 03:10 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 03:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 03:10 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 03:06 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 03:18 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 03:03 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 03:07 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 03:18 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 03:03 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 03:13 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 03:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 03:06 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:54 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/9245236.shtml)
-- 2026-06-30 03:08 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/03094344555.shtml)
-- 2026-06-30 03:04 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/5884583.shtml)
-- 2026-06-30 03:19 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/67037.shtml)
-- 2026-06-30 03:18 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/41733039.shtml)
-- 2026-06-30 03:10 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/96565534369.shtml)
-- 2026-06-30 03:05 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/457035.shtml)
-- 2026-06-30 03:19 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/212834305.shtml)
-- 2026-06-30 03:00 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/6744582941.shtml)
-- 2026-06-30 02:57 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/8300420016.shtml)
-- 2026-06-30 02:56 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/50368040.shtml)
-- 2026-06-30 03:19 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/5922559.shtml)
-- 2026-06-30 03:01 - [刘念回应](https://www.blog.minike.top/Article/details/91165.shtml)
-- 2026-06-30 02:58 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/76762.shtml)
-- 2026-06-30 03:05 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/98020584.shtml)
+- 2026-06-30 03:26 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/456459292571.shtml)
+- 2026-06-30 03:19 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/428587616.shtml)
+- 2026-06-30 03:24 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/000030313.shtml)
+- 2026-06-30 03:29 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/715469520.shtml)
+- 2026-06-30 03:15 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/9906439548.shtml)
+- 2026-06-30 03:25 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/26140025403.shtml)
+- 2026-06-30 03:29 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/946373504279.shtml)
+- 2026-06-30 03:28 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/581733269.shtml)
+- 2026-06-30 03:02 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/96087000414.shtml)
+- 2026-06-30 03:25 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/833056503.shtml)
+- 2026-06-30 03:28 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/2919997575.shtml)
+- 2026-06-30 03:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/6851454.shtml)
+- 2026-06-30 03:23 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/833450926073.shtml)
+- 2026-06-30 03:12 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/202855830.shtml)
+- 2026-06-30 03:06 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/8789433766.shtml)

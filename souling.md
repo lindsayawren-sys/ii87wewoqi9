@@ -1,57 +1,58 @@
-# 山间鲜果映红一方乡土 浙江缙云高山杨梅的“共富”之路
+# 三分之一进口榴莲来自磨憨口岸
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-中新网丽水6月16日电(胡丰盛)“预计最快六月中旬，上海市民就能品尝到来自缙云的杨梅茶饮，尝到那大山里的味道。”近日，浙江省缙云县大源镇党委书记蔡利伟在接受中新网采访时表示，当地杨梅已成功叩开国内高端市场的大门——36颗一箱的大个东魁杨梅，售价可达300余元。 山巅枝头上，熟果通透深红，迎风挺立；树荫掩映处，青粉相间的幼果敛藏身姿，青涩犹存。 在缙云县大源镇海拔五百多米的群山上
+时值东南亚国家的榴莲集中上市期，产自泰国等国家的新鲜榴莲不断运抵云南磨憨口岸。 据昆明海关统计，今年前4个月，磨憨口岸(含磨憨公路口岸、磨憨铁路口岸)累计进口鲜榴莲12.1万吨，同比增长1.7倍，进口量占全国鲜榴莲进口总量的三分之一。其中，4月进口榴莲达8.2万吨。 磨憨口岸是我国面向中南半岛的重要枢纽，中老铁路与昆曼国际公路在此并肩穿行。凭借“铁路+公路”运输灵活机动的组合优
 
 ## 正文
 
-中新网丽水6月16日电(胡丰盛)“预计最快六月中旬，上海市民就能品尝到来自缙云的杨梅茶饮，尝到那大山里的味道。
+时值东南亚国家的榴莲集中上市期，产自泰国等国家的新鲜榴莲不断运抵云南磨憨口岸。
 
-”近日，浙江省缙云县大源镇党委书记蔡利伟在接受中新网采访时表示，当地杨梅已成功叩开国内高端市场的大门——36颗一箱的大个东魁杨梅，售价可达300余元。
+据昆明海关统计，今年前4个月，磨憨口岸(含磨憨公路口岸、磨憨铁路口岸)累计进口鲜榴莲12.1万吨，同比增长1.7倍，进口量占全国鲜榴莲进口总量的三分之一。
 
-山巅枝头上，熟果通透深红，迎风挺立；树荫掩映处，青粉相间的幼果敛藏身姿，青涩犹存。
+其中，4月进口榴莲达8.2万吨。
 
-在缙云县大源镇海拔五百多米的群山上，一树树杨梅错落有致，层层叠叠缀满枝头。
+磨憨口岸是我国面向中南半岛的重要枢纽，中老铁路与昆曼国际公路在此并肩穿行。
 
-“这是大山最朴素的馈赠，也是乡土岁月里最动人的丰收信号。
+凭借“铁路+公路”运输灵活机动的组合优势，磨憨口岸成为东南亚优质特色产品进入国内市场的重要门户之一。
 
-”浙江三本生态农业负责人王丽锋说。
+5月14日，一列满载泰国榴莲的中老铁路澜湄快线国际货物列车通过提前申报、预约查验等措施高效通关，快速驶入磨憨铁路口岸综合性指定监管场地。
 
-曾经，这片山地多为零散坡地，大批杨梅树被撂荒于山野，村民守着绿水青山，却难享生态红利，山野的价值久久沉睡。
+“运用好‘提前申报’模式，预留境外申报准备时间达10小时以上。
 
-如今，通过土地统一承包、集中整合、规模化培育、标准化管护，这片原本默默无闻的山野，已化作连片成势的特色杨梅基地。
+目前，经中老铁路进口水果‘提前申报’应用率达100%。
 
 ## 相关推荐
 
-- 2026-06-30 03:17 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 03:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 03:21 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 03:20 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 02:57 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 03:00 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 03:16 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 03:09 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 02:55 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 03:06 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 03:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 03:00 - [孙兴慜道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 03:08 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 03:22 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 03:17 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 03:06 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 03:04 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 03:18 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 03:11 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 03:03 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 03:10 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 03:27 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 03:21 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:05 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/067213685.shtml)
-- 2026-06-30 03:21 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/61243.shtml)
-- 2026-06-30 03:23 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/154540662.shtml)
-- 2026-06-30 03:21 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/59377.shtml)
-- 2026-06-30 02:59 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/00752.shtml)
-- 2026-06-30 03:20 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/95980308.shtml)
-- 2026-06-30 03:05 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/997817.shtml)
-- 2026-06-30 03:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/822288541738.shtml)
-- 2026-06-30 02:56 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/84456250089.shtml)
-- 2026-06-30 03:19 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/156288704207.shtml)
-- 2026-06-30 03:06 - [日本进球](https://www.share.kurohicncr.top/Article/details/85595.shtml)
-- 2026-06-30 03:15 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/75477298.shtml)
-- 2026-06-30 03:11 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/8971848274.shtml)
-- 2026-06-30 03:01 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/29867161355.shtml)
-- 2026-06-30 03:18 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/0987499.shtml)
+- 2026-06-30 03:13 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/92124844517.shtml)
+- 2026-06-30 03:26 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/79982163.shtml)
+- 2026-06-30 03:24 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/077019.shtml)
+- 2026-06-30 03:09 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/253460253579.shtml)
+- 2026-06-30 03:17 - [这一刀 会很帅](http://www.share.minike.top/Article/details/971179.shtml)
+- 2026-06-30 03:17 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/560352256.shtml)
+- 2026-06-30 03:12 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/2701249696.shtml)
+- 2026-06-30 03:26 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/77896286853.shtml)
+- 2026-06-30 03:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/82541929559.shtml)
+- 2026-06-30 03:24 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/68027043.shtml)
+- 2026-06-30 03:10 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/648987392.shtml)
+- 2026-06-30 03:27 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/865789.shtml)
+- 2026-06-30 03:07 - [日本进球](http://www.share.minike.top/Article/details/29139768.shtml)
+- 2026-06-30 03:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/4391350817.shtml)
+- 2026-06-30 03:29 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/260422.shtml)

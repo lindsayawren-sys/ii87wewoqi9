@@ -1,56 +1,60 @@
-# 千里科技2倍溢价收购关联方资不抵债标的 关联交易额预计超200亿涨幅超80%
+# 老虎、富途被罚跨境买港险引热议 违规营销仍存 “地下保单”触红线
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-核心观点：千里科技关联交易不断，一方面，公司溢价2倍收购关联方资不抵债标的；另一方面，公司较为依赖关联交易，吉利系多个财年为公司大客户与大供应商。此外，公司2026年关联交易预计额进一步上调至218亿元，较上年同期增幅超80%。 近日，千里科技高溢价收购关联资产引发关注。 公告显示，公司控股子公司重庆千里智驾科技有限公司（下简称千里智驾）拟以自有资金2590.80万元，收购宁波
+财联社5月26日讯（记者 高萍）近日，老虎、富途等因非法开展跨境展业被监管点名处罚一事引发市场较大关注。而随着跨境金融监管升级，跨境保险市场进入大众热议话题。 有保险行业内人士对财联社记者分析，持牌机构、保险从业人员超出业务范围，宣传、推介、销售或组织安排购买境外保险机构产品，均属于违法违规行为。 而内地居民投保香港保单，需亲赴香港投保并签署相关保险合同。如在境内投保香港保单，
 
 ## 正文
 
-核心观点：千里科技关联交易不断，一方面，公司溢价2倍收购关联方资不抵债标的；另一方面，公司较为依赖关联交易，吉利系多个财年为公司大客户与大供应商。
+财联社5月26日讯（记者 高萍）近日，老虎、富途等因非法开展跨境展业被监管点名处罚一事引发市场较大关注。
 
-此外，公司2026年关联交易预计额进一步上调至218亿元，较上年同期增幅超80%。
+而随着跨境金融监管升级，跨境保险市场进入大众热议话题。
 
-近日，千里科技高溢价收购关联资产引发关注。
+有保险行业内人士对财联社记者分析，持牌机构、保险从业人员超出业务范围，宣传、推介、销售或组织安排购买境外保险机构产品，均属于违法违规行为。
 
-公告显示，公司控股子公司重庆千里智驾科技有限公司（下简称千里智驾）拟以自有资金2590.80万元，收购宁波市融感科技有限公司（下简称融感科技）100%股权。
+而内地居民投保香港保单，需亲赴香港投保并签署相关保险合同。
 
-本次交易对方之一的芜湖旷沄人工智能产业投资基金（有限合伙）系公司副董事长鲍毅先生的关联企业，本次交易构成关联交易。
+如在境内投保香港保单，则属于非法的“地下保单”，境外保单不受我国境内法律保护。
 
-溢价2倍收购标的净资产为负 无业绩承诺 据公告显示，此次收购标的融感科技是国内专注于毫米波雷达及融合感知技术的车规级技术企业，聚焦于智能驾驶感知层核心硬件的研发、生产与销售，致力于为L2+及以上级别智能驾驶系统提供高性能、高可靠的感知解决方案。
+实际上，一直以来，监管对跨境售险乱象处于严监管态势。
 
-融感科技依托核心研发团队在雷达射频设计、信号处理、多传感器融合算法领域的多年技术沉淀，打造了兼具探测精度、恶劣环境适应性与成本优势的4D成像毫米波雷达产品，已实现多家主流主机厂的定点验证与小批量交付，同时构建了完善的车规级质量管控体系与量产供应链，具备较强的技术壁垒与市场拓展潜力。
+违规宣传仍存 “地下保单”藏隐患 依托全球化投资布局、多币种资产配置等优势，香港保险受到内地投资者青睐。
 
-公司控股子公司千里智驾是公司智能驾驶业务板块的核心企业，为进一步构建覆盖L2至L4级别的全栈式智能驾驶解决方案，践行“软硬一体、全栈交付”的战略部署，巩固其在智能驾驶产业的核心竞争力，千里智驾拟收购专注于毫米波雷达及融合感知技术的车规级技术企业融感科技100%股权，交易价格为2590.80万元。
+数据显示，2025年全年，香港保险新单保费达到了3，309亿港元，较2024年大幅增长51%。
 
 ## 相关推荐
 
-- 2026-06-30 02:58 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 03:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 02:58 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 02:54 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 03:12 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 03:23 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 03:18 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 03:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 03:08 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 03:23 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 03:19 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 03:08 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 03:03 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 03:22 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 03:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 03:02 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 03:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 03:04 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 03:13 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 03:09 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 03:05 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 03:05 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 03:05 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 03:25 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:10 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/818595.shtml)
-- 2026-06-30 03:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/24960.shtml)
-- 2026-06-30 03:10 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/73671.shtml)
-- 2026-06-30 03:08 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/22748.shtml)
-- 2026-06-30 03:21 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/92930452984.shtml)
-- 2026-06-30 03:07 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/26127684.shtml)
-- 2026-06-30 03:22 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/23823275326.shtml)
-- 2026-06-30 03:17 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/533467.shtml)
-- 2026-06-30 03:07 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/994469.shtml)
-- 2026-06-30 03:11 - [斛珠夫人](https://www.share.minike.top/Article/details/2324470.shtml)
-- 2026-06-30 02:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/1767284.shtml)
-- 2026-06-30 03:10 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/52152.shtml)
-- 2026-06-30 03:10 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/53482117565.shtml)
-- 2026-06-30 02:54 - [巴西vs日本](http://www.blog.minike.top/Article/details/271060389.shtml)
-- 2026-06-30 03:14 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/3172015209.shtml)
+- 2026-06-30 03:20 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/083488573237.shtml)
+- 2026-06-30 03:27 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/827402057551.shtml)
+- 2026-06-30 03:15 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/7125904431.shtml)
+- 2026-06-30 03:15 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/576877819297.shtml)
+- 2026-06-30 03:00 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/697682.shtml)
+- 2026-06-30 03:25 - [天道](https://www.blog.minike.top/Article/details/73244496.shtml)
+- 2026-06-30 03:16 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/086856135316.shtml)
+- 2026-06-30 03:27 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/6141306766.shtml)
+- 2026-06-30 03:26 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/4116551.shtml)
+- 2026-06-30 03:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/13809068541.shtml)
+- 2026-06-30 03:10 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/35447595.shtml)
+- 2026-06-30 03:15 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/3850642200.shtml)
+- 2026-06-30 03:10 - [恋与深空回应争议](http://www.share.minike.top/Article/details/768854250.shtml)
+- 2026-06-30 03:08 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/7248296186.shtml)
+- 2026-06-30 03:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/904667248809.shtml)

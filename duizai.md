@@ -1,56 +1,46 @@
-# 深度解读博通提振芯片需求的大胆布局
+# 央行今天将在香港发行两期300亿元央票
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-上周，博通宣布联合阿波罗全球管理、黑石集团设立融资合作项目，为人工智能企业 Anthropic 采购 1 吉瓦算力提供资金支持。这笔交易看似只是私募资本入局 AI 算力领域的又一常规融资项目，但其背后，是博通为拉动自家芯片订单而迈出的一步高风险战略棋。 尽管官方公告并未明确披露博通在本次交易中的角色，但这家长期与谷歌等科技企业合作定制 AI 芯片的厂商，实际上为一笔规模高达 3
+5月27日金融一线消息，为丰富香港高信用等级人民币金融产品，完善香港人民币收益率曲线，5月27日中国人民银行将通过香港金融管理局债务工具中央结算系统（CMU）债券投标平台，招标发行2026年第四期和第五期中央银行票据。发行量均为人民币150亿元。责任编辑：曹睿潼
 
 ## 正文
 
-上周，博通宣布联合阿波罗全球管理、黑石集团设立融资合作项目，为人工智能企业 Anthropic 采购 1 吉瓦算力提供资金支持。
+5月27日金融一线消息，为丰富香港高信用等级人民币金融产品，完善香港人民币收益率曲线，5月27日中国人民银行将通过香港金融管理局债务工具中央结算系统（CMU）债券投标平台，招标发行2026年第四期和第五期中央银行票据。
 
-这笔交易看似只是私募资本入局 AI 算力领域的又一常规融资项目，但其背后，是博通为拉动自家芯片订单而迈出的一步高风险战略棋。
+发行量均为人民币150亿元。
 
-尽管官方公告并未明确披露博通在本次交易中的角色，但这家长期与谷歌等科技企业合作定制 AI 芯片的厂商，实际上为一笔规模高达 350 亿美元的芯片采购订单提供了关键信用兜底担保。
-
-博通此番操作效仿了英伟达的商业模式 —— 借助卖方信贷模式加速芯片销售。
-
-但不同于手握巨额现金流的英伟达，博通的资金储备并不充裕，也让这场博弈的风险被显著放大。
-
-一位接触过博通管理层的知情人士透露，就在今年 3 月，博通 CEO 陈福阳尚且不愿动用公司资产负债表对外提供此类兜底担保，但后续他转变了态度。
-
-参与本次交易的人士表示，博通委托摩根士丹利设计融资方案，力求在拉动芯片销售的同时，尽可能控制公司新增负债规模。
-
-陈福阳的谨慎并非没有缘由。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 03:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 03:05 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 02:56 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 03:02 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 03:03 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 03:16 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 02:54 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 03:02 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 03:10 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 03:14 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 03:05 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 03:27 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 03:28 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 03:06 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 03:22 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 03:05 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 03:08 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 03:29 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 03:24 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 03:24 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:59 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/22755151146.shtml)
-- 2026-06-30 03:00 - [起风了](http://www.share.minike.top/Article/details/352330.shtml)
-- 2026-06-30 03:16 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/557706447219.shtml)
-- 2026-06-30 03:21 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/89804787077.shtml)
-- 2026-06-30 02:57 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/4936433512.shtml)
-- 2026-06-30 03:16 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/97026041738.shtml)
-- 2026-06-30 03:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/2399752977.shtml)
-- 2026-06-30 03:18 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/2655657.shtml)
-- 2026-06-30 03:13 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/279083549.shtml)
-- 2026-06-30 03:12 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/34089.shtml)
-- 2026-06-30 03:08 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/34513869251.shtml)
-- 2026-06-30 03:08 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/6599124.shtml)
-- 2026-06-30 03:01 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/55448973.shtml)
-- 2026-06-30 03:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/8647527069.shtml)
-- 2026-06-30 03:17 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/060146595.shtml)
+- 2026-06-30 03:21 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/7138384.shtml)
+- 2026-06-30 03:07 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/81417816006.shtml)
+- 2026-06-30 03:24 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/4249404.shtml)
+- 2026-06-30 03:05 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/2905952974.shtml)
+- 2026-06-30 03:18 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/83161.shtml)
+- 2026-06-30 03:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/267507071.shtml)
+- 2026-06-30 03:21 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/451785433.shtml)
+- 2026-06-30 03:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/504593671789.shtml)
+- 2026-06-30 03:29 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/584366832.shtml)
+- 2026-06-30 03:09 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/396390738304.shtml)
+- 2026-06-30 03:29 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/856042.shtml)
+- 2026-06-30 03:23 - [世界杯](http://www.blog.kurohicncr.top/Article/details/36052881056.shtml)
+- 2026-06-30 03:13 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/424797.shtml)
+- 2026-06-30 03:18 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/9072721.shtml)
+- 2026-06-30 03:03 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/1808327655.shtml)

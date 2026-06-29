@@ -1,59 +1,43 @@
-# DeepSeek超500亿对外融资完成，梁文锋个人就掏了200亿
+# 德国副总理兼财长表示：欧洲受美伊战事冲击 应增强自身韧性
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财通社 最新市场消息称，备受瞩目的DeepSeek首次对外融资完成了。 据《The Information》周二报道，DeepSeek在公司首轮融资中筹集了超过500亿元，估值逾500亿美元（约合人民币3378亿元）。 报道称，此次融资要求投资者将资金投入由DeepSeek首席执行官梁文锋管理的有限合
+发布时间：2026年05月27日 13:32 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-来源：财通社 最新市场消息称，备受瞩目的DeepSeek首次对外融资完成了。
-
-据《The Information》周二报道，DeepSeek在公司首轮融资中筹集了超过500亿元，估值逾500亿美元（约合人民币3378亿元）。
-
-报道称，此次融资要求投资者将资金投入由DeepSeek首席执行官梁文锋管理的有限合伙企业，而不是直接投入DeepSeek公司本身。
-
-DeepSeek管理层据说对投资基金的LP身份进行了尽职调查，以防止不良投资者的介入。
-
-而参与DeepSeek首轮融资的普通投资者，据报将受到五年锁定期的限制，并且不享有投票权，但可获取财务信息，并在未来的融资轮中享有优先权。
-
-不过，国家人工智能产业投资基金是唯一的例外。
-
-《The Information》指，该基金出资10亿元，直接投资了DeepSeek，并保留了投票权和不受禁售期限制的权益。
+发布时间：2026年05月27日 13:32 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 03:13 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 03:11 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 03:11 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 03:00 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 03:15 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 03:21 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 03:14 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 03:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 03:22 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 03:23 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 03:24 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 03:19 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-30 02:59 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 03:27 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 03:29 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 03:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 03:03 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 03:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 03:09 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 03:25 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 03:01 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 03:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 03:02 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 03:03 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:15 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/12319235.shtml)
-- 2026-06-30 03:17 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/141093.shtml)
-- 2026-06-30 02:57 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/92722481.shtml)
-- 2026-06-30 03:02 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/62665130548.shtml)
-- 2026-06-30 03:19 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/991803484110.shtml)
-- 2026-06-30 02:57 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/67463352.shtml)
-- 2026-06-30 03:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/3917390674.shtml)
-- 2026-06-30 03:12 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/47587.shtml)
-- 2026-06-30 03:02 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/87589009.shtml)
-- 2026-06-30 03:03 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/62913848.shtml)
-- 2026-06-30 03:03 - [小娘惹](https://www.share.kurohicncr.top/Article/details/7461357967.shtml)
-- 2026-06-30 03:21 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/063266.shtml)
-- 2026-06-30 02:58 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/386588831.shtml)
-- 2026-06-30 03:11 - [巴西vs日本](https://www.blog.minike.top/Article/details/417630844907.shtml)
-- 2026-06-30 03:04 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/8519797965.shtml)
+- 2026-06-30 03:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/882956.shtml)
+- 2026-06-30 03:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/0951840.shtml)
+- 2026-06-30 03:04 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/924284461914.shtml)
+- 2026-06-30 03:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/01048287312.shtml)
+- 2026-06-30 03:00 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/819726179374.shtml)
+- 2026-06-30 03:21 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/94544052.shtml)
+- 2026-06-30 03:11 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/2982500.shtml)
+- 2026-06-30 03:00 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/89106682597.shtml)
+- 2026-06-30 03:04 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/7617847.shtml)
+- 2026-06-30 03:13 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/6212828574.shtml)
+- 2026-06-30 03:20 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/116063721.shtml)
+- 2026-06-30 03:23 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/4201407107.shtml)
+- 2026-06-30 03:16 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/25150.shtml)
+- 2026-06-30 03:12 - [毒液2](http://www.blog.minike.top/Article/details/9472132558.shtml)
+- 2026-06-30 03:21 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/03194709.shtml)

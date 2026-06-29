@@ -1,59 +1,57 @@
-# 火箭“烧煤”成现实 煤炭产业转型打开价值新空间
+# 习近平总书记关切事·关键小事｜街巷里的温暖“家”事
 
-> 更新时间：2026-06-30 03:24:03 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-提起煤炭，很多人第一印象就是用来烧火发电的燃料。如今，煤炭已“变身”航空煤油，成功把火箭送上太空。从地下黑煤到航天燃料，煤炭是怎么一步步“脱胎换骨”，变成高精尖产品？ 成本更低 火箭“烧煤”成现实 2026年6月1日16时40分，长征十二号乙运载火箭在东风商业航天创新试验区点火升空。 早在2023年，我国商业航天就已进入液体运载火箭时代，其燃料是煤基航天煤油，中国率先用煤炼出了
+住房问题既是民生问题也是发展问题。习近平总书记多次强调，“老旧小区改造直接关系人民群众获得感、幸福感、安全感，是提升人民生活品质的重要工作”“老城区改造要回应不同愿望和要求，工作量很大，有关部门要把工作做深做细”。 从“忧居”到“优居”，一个个“小家”的改变，将“居者有其屋”的民生愿景化作温暖现实，彰显出“民生为大”的理念。 圆了几十年的“搬家梦” 5月的内蒙古兴安盟阿尔山市，
 
 ## 正文
 
-提起煤炭，很多人第一印象就是用来烧火发电的燃料。
+住房问题既是民生问题也是发展问题。
 
-如今，煤炭已“变身”航空煤油，成功把火箭送上太空。
+习近平总书记多次强调，“老旧小区改造直接关系人民群众获得感、幸福感、安全感，是提升人民生活品质的重要工作”“老城区改造要回应不同愿望和要求，工作量很大，有关部门要把工作做深做细”。
 
-从地下黑煤到航天燃料，煤炭是怎么一步步“脱胎换骨”，变成高精尖产品？
+从“忧居”到“优居”，一个个“小家”的改变，将“居者有其屋”的民生愿景化作温暖现实，彰显出“民生为大”的理念。
 
-成本更低 火箭“烧煤”成现实 2026年6月1日16时40分，长征十二号乙运载火箭在东风商业航天创新试验区点火升空。
+圆了几十年的“搬家梦” 5月的内蒙古兴安盟阿尔山市，风中还带着凉意。
 
-早在2023年，我国商业航天就已进入液体运载火箭时代，其燃料是煤基航天煤油，中国率先用煤炼出了航空煤油。
+在这个位于大兴安岭南麓的小城，夏天总是姗姗来迟。
 
-火箭烧煤的段子变成了现实。
+走进阿尔山市圣泉小区的周长河家，阳光满屋，海棠等鲜花开得正艳。
 
-在宁夏银川的化工厂里，有用煤提炼出的航空煤油，它的成本比石油中提取的航空煤油低30%至50%，纯净、密度、燃烧性能更优。
+“以前住在‘板夹泥’房里，这个季节屋里还冷飕飕的，哪有条件养花啊？
 
-富煤贫油少气的能源格局，决定了不能完全依赖石油。
+”周长河感慨地说。
 
 ## 相关推荐
 
-- 2026-06-30 02:56 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 03:11 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 03:22 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 02:58 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 02:59 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 03:07 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 03:01 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 03:09 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-30 03:17 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 02:58 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 02:55 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 03:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 03:16 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 03:10 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 03:18 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 03:28 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 03:13 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 03:18 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 03:04 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-30 03:00 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 03:15 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 03:22 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 03:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 03:02 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:58 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/9369402.shtml)
-- 2026-06-30 03:11 - [斗破苍穹](https://www.blog.minike.top/Article/details/899083.shtml)
-- 2026-06-30 03:08 - [爱很美味](http://www.share.kurohicncr.top/Article/details/40783080557.shtml)
-- 2026-06-30 03:15 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/0085311107.shtml)
-- 2026-06-30 03:03 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/41449103.shtml)
-- 2026-06-30 03:09 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/179009283057.shtml)
-- 2026-06-30 03:01 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/1012489500.shtml)
-- 2026-06-30 03:22 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/50049087428.shtml)
-- 2026-06-30 03:08 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/634929.shtml)
-- 2026-06-30 03:23 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/3331127.shtml)
-- 2026-06-30 03:03 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/17083057.shtml)
-- 2026-06-30 03:10 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/899111659.shtml)
-- 2026-06-30 03:16 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/49178561140.shtml)
-- 2026-06-30 03:08 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/287455.shtml)
-- 2026-06-30 03:23 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/3094000472.shtml)
+- 2026-06-30 03:03 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/657427680339.shtml)
+- 2026-06-30 03:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/92175839528.shtml)
+- 2026-06-30 03:05 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/70965.shtml)
+- 2026-06-30 03:25 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/752332919297.shtml)
+- 2026-06-30 03:00 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/8270828.shtml)
+- 2026-06-30 03:21 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/34833.shtml)
+- 2026-06-30 03:04 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/139079736649.shtml)
+- 2026-06-30 03:07 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/017090.shtml)
+- 2026-06-30 03:07 - [急先锋](http://www.blog.kurohicncr.top/Article/details/25606195.shtml)
+- 2026-06-30 03:23 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/560187000460.shtml)
+- 2026-06-30 03:08 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/81278888170.shtml)
+- 2026-06-30 03:14 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/35473116586.shtml)
+- 2026-06-30 03:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/252997858.shtml)
+- 2026-06-30 03:20 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/38733314961.shtml)
+- 2026-06-30 03:23 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/76372.shtml)

@@ -1,52 +1,57 @@
-# 台防务部门暴增预算给美国送保护费 国台办回应
+# 外卖吃出异物怎么办？这几个投诉渠道你该知道
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-中新网6月17日电 6月17日，国台办举行例行新闻发布会。有记者问：近日，岛内有舆论质疑，台防务部门2026年度预算中，“台美防务部门共同合作评估案”预算由去年41万美元暴增至500万美元，是巧立名目给美国送“保护费”，或是用于对美国国会的“游说费用”。请问对此有何评论？ 国台办发言人陈斌华表示，民进党当局为了“谋独拒统”，不择手段、拿钱开路，蝇营狗苟、令人不齿。(中新网#燕新
+点外卖吃到一半，突然发现饭里有蟑螂腿——这不是段子，而是最近发生在广州一位消费者身上的真事。更离谱的是，当她把问题反馈给商家后，商家派人上门取餐核查，结果不仅毁掉了证据，还对她进行了辱骂。这件事在网上曝光后，引发了大量网友对外卖食品安全的担忧。 外卖食品安全一直是消费者投诉 【下载黑猫投诉客户端】的高发领域。除了吃出异物，还有食材不新鲜、配送超时、错送漏送、分量不足等各种问题。
 
 ## 正文
 
-中新网6月17日电 6月17日，国台办举行例行新闻发布会。
+点外卖吃到一半，突然发现饭里有蟑螂腿——这不是段子，而是最近发生在广州一位消费者身上的真事。
 
-有记者问：近日，岛内有舆论质疑，台防务部门2026年度预算中，“台美防务部门共同合作评估案”预算由去年41万美元暴增至500万美元，是巧立名目给美国送“保护费”，或是用于对美国国会的“游说费用”。
+更离谱的是，当她把问题反馈给商家后，商家派人上门取餐核查，结果不仅毁掉了证据，还对她进行了辱骂。
 
-请问对此有何评论？
+这件事在网上曝光后，引发了大量网友对外卖食品安全的担忧。
 
-国台办发言人陈斌华表示，民进党当局为了“谋独拒统”，不择手段、拿钱开路，蝇营狗苟、令人不齿。
+外卖食品安全一直是消费者投诉 【下载黑猫投诉客户端】的高发领域。
 
-(中新网#燕新台#工作室)
+除了吃出异物，还有食材不新鲜、配送超时、错送漏送、分量不足等各种问题。
+
+遇到这些情况时，很多人第一反应是找商家理论，但如果商家态度恶劣或者拒绝赔偿，该怎么办？
+
+有哪些正规渠道可以帮助我们维护自身权益？
+
+最常用的渠道自然是12315。
 
 ## 相关推荐
 
-- 2026-06-30 03:21 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 03:17 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 03:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 03:15 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 02:59 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 03:16 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 03:09 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 03:12 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 03:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 03:18 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 03:02 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 02:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 03:10 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 03:05 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 03:14 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 03:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 03:16 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 03:19 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 03:29 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 03:27 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 03:10 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 03:03 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 03:28 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:16 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/825765083782.shtml)
-- 2026-06-30 02:59 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/35623.shtml)
-- 2026-06-30 02:55 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/2328938934.shtml)
-- 2026-06-30 03:03 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/46594.shtml)
-- 2026-06-30 03:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/71123313.shtml)
-- 2026-06-30 02:56 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/933607533.shtml)
-- 2026-06-30 03:16 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/52507.shtml)
-- 2026-06-30 03:12 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/07059256.shtml)
-- 2026-06-30 03:18 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/1995633.shtml)
-- 2026-06-30 03:21 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/39440103110.shtml)
-- 2026-06-30 03:09 - [点菜也要教吗](https://www.blog.minike.top/Article/details/14879445139.shtml)
-- 2026-06-30 03:21 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/23431711.shtml)
-- 2026-06-30 03:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/131657582.shtml)
-- 2026-06-30 03:14 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/865612715.shtml)
-- 2026-06-30 03:15 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/74421.shtml)
+- 2026-06-30 03:11 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/685383.shtml)
+- 2026-06-30 03:24 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/906273.shtml)
+- 2026-06-30 03:29 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/443675699.shtml)
+- 2026-06-30 03:28 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/69467.shtml)
+- 2026-06-30 03:22 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/459405169125.shtml)
+- 2026-06-30 03:26 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/659923478.shtml)
+- 2026-06-30 03:02 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/9791157.shtml)
+- 2026-06-30 03:23 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/7776077.shtml)
+- 2026-06-30 03:14 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/072164261033.shtml)
+- 2026-06-30 03:25 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/87003.shtml)
+- 2026-06-30 03:13 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/23328509320.shtml)
+- 2026-06-30 03:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/9552231.shtml)
+- 2026-06-30 03:13 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/56595457.shtml)
+- 2026-06-30 03:18 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/54720110177.shtml)
+- 2026-06-30 03:07 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/49653178358.shtml)

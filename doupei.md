@@ -1,61 +1,61 @@
-# 两岸共潮生｜台湾姑娘四川媳 凉山鲜果卖出去
+# （乡村行·看振兴）内蒙古巴林草原上有一座民间手艺人之家
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 08:37 来源：中国新闻网 作为台湾姑娘、四川媳妇，宓欣怡在成都创业十几年。紧跟乡村振兴的浪潮，她选择落脚风光物产兼备的四川凉山。宓欣怡凭借当地原生态鲜果优势，逐步打造出成熟的产运销体系，让凉山特色鲜果走出深山，奔赴更广阔的市场。“现在我儿子自己都可以说我妈妈是做乡村振兴的！”宓欣怡提起儿子对她的肯定，一脸自豪。在大陆打拼的日子里，“农林 2
+中新网赤峰5月27日电 题：内蒙古巴林草原上有一座民间手艺人之家 作者 奥蓝 丁丽丽 清晨，草原上的阳光透过窗户洒进内蒙古自治区赤峰市巴林右旗民族手工坊3楼的工作台，胡达古拉的指尖在深蓝色绸缎上下翻飞。她正在赶制一件定制婚礼蒙古袍，工期还有半个月。 蒙古袍的领口图案是“云纹”，她的针脚细密匀称，仿佛把草原上的云朵缝进了布料里。“我们这些人啊，年轻时候学手艺是为了吃饭，没想到老了
 
 ## 正文
 
-发布时间：2026年06月17日 08:37 来源：中国新闻网 作为台湾姑娘、四川媳妇，宓欣怡在成都创业十几年。
+中新网赤峰5月27日电 题：内蒙古巴林草原上有一座民间手艺人之家 作者 奥蓝 丁丽丽 清晨，草原上的阳光透过窗户洒进内蒙古自治区赤峰市巴林右旗民族手工坊3楼的工作台，胡达古拉的指尖在深蓝色绸缎上下翻飞。
 
-紧跟乡村振兴的浪潮，她选择落脚风光物产兼备的四川凉山。
+她正在赶制一件定制婚礼蒙古袍，工期还有半个月。
 
-宓欣怡凭借当地原生态鲜果优势，逐步打造出成熟的产运销体系，让凉山特色鲜果走出深山，奔赴更广阔的市场。
+蒙古袍的领口图案是“云纹”，她的针脚细密匀称，仿佛把草原上的云朵缝进了布料里。
 
-“现在我儿子自己都可以说我妈妈是做乡村振兴的！
+“我们这些人啊，年轻时候学手艺是为了吃饭，没想到老了，手艺不光养活了家，还成了咱们草原的一张名片。
 
-”宓欣怡提起儿子对她的肯定，一脸自豪。
+” 今年54岁的胡达古拉本是牧民，如今是非物质文化遗产代表性项目蒙古族刺绣的市级传承人，同时也是民族手工坊里的一名小老板。
 
-在大陆打拼的日子里，“农林 22 条” “川台 70 条” 等惠台政策，让宓欣怡感受到十足的温暖与便利。
+她坦言：“从前我只在家零散接活，一年收入还不到两万元。
 
-她希望架起两岸连心桥，鼓励更多台湾青年来到大陆，开辟属于自己的天地。
+如今政府免费提供经营场地，还落实了免税政策，手工坊客流量大，不少游客和客商现场观摩刺绣制作，订单也源源不断找上门来。
 
-责任编辑：【黄钰涵】
+” 让胡达古拉生活发生改变的，就是巴林右旗于2014年投资建立的民族手工坊。
 
 ## 相关推荐
 
-- 2026-06-30 02:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 03:15 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 03:07 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 02:55 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 03:11 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-30 03:17 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 03:05 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 03:19 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 03:22 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 03:03 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 03:21 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 02:59 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 03:10 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 03:09 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 03:15 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 03:06 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 03:26 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 03:10 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 03:03 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 03:12 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 03:16 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 03:13 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 03:06 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 03:15 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 03:22 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 03:18 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-30 03:10 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 03:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 03:05 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 03:03 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/32022753077.shtml)
-- 2026-06-30 03:21 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/322581446.shtml)
-- 2026-06-30 02:56 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/445797.shtml)
-- 2026-06-30 02:57 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/07868.shtml)
-- 2026-06-30 03:17 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/85473970951.shtml)
-- 2026-06-30 03:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/66810546729.shtml)
-- 2026-06-30 02:56 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/135322348.shtml)
-- 2026-06-30 03:04 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/277677907729.shtml)
-- 2026-06-30 03:18 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/248423200766.shtml)
-- 2026-06-30 03:03 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/27368677665.shtml)
-- 2026-06-30 03:09 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/601853.shtml)
-- 2026-06-30 03:06 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/40807422984.shtml)
-- 2026-06-30 03:21 - [金牌调解](http://www.blog.minike.top/Article/details/50143.shtml)
-- 2026-06-30 03:02 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/7973270.shtml)
-- 2026-06-30 03:15 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/566603926941.shtml)
+- 2026-06-30 03:13 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/1954830173.shtml)
+- 2026-06-30 03:21 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/57388871139.shtml)
+- 2026-06-30 03:28 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/763500.shtml)
+- 2026-06-30 03:00 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/08701799988.shtml)
+- 2026-06-30 03:13 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/151405385743.shtml)
+- 2026-06-30 03:25 - [张凌赫 客串](https://www.share.minike.top/Article/details/665652.shtml)
+- 2026-06-30 03:27 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/16055406.shtml)
+- 2026-06-30 03:13 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/237395.shtml)
+- 2026-06-30 03:01 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/83568509.shtml)
+- 2026-06-30 03:20 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/045992.shtml)
+- 2026-06-30 03:27 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/773546691.shtml)
+- 2026-06-30 03:28 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/87977929358.shtml)
+- 2026-06-30 03:05 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/24215.shtml)
+- 2026-06-30 03:01 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/06765300.shtml)
+- 2026-06-30 03:06 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/95286649727.shtml)

@@ -1,56 +1,53 @@
-# 一群90后、00后活跃在田野，他们在忙啥？
+# 工商银行成功发行600亿元二级资本债券
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-原标题：推动组织管理规范化、作业接单网络化、农机调配共享化 青年农机手赋能现代农业(三夏进行时) 麦熟一晌，贵在争抢。“三夏”时节，田野里活跃着一群90后、00后农机手，他们驾驶收割机抢收小麦，操控无人机开展植保作业，依托智慧中控系统远程管控农机运行…… 2025年我国农作物耕种收综合机械化率达76.7%。充分发挥农机的农业生产和应急救灾主力军作用，需建设一支高素质的农机手队伍
+来源：中国工商银行 近日，工商银行在全国银行间市场成功发行600亿元二级资本债券，创今年以来全市场同品种债券最大发行规模。本期债券品种为10年期固定利率债券，在第5年末附有条件的发行人赎回权，票面利率1.90%。 本次发行得到市场高度认可，获得近160家各类投资者的踊跃认购，全场认购倍数近2倍，彰显了工商银行在资本市场的良好形象和市场影响力。工商银行将通过本次发行进一步优化资本
 
 ## 正文
 
-原标题：推动组织管理规范化、作业接单网络化、农机调配共享化 青年农机手赋能现代农业(三夏进行时) 麦熟一晌，贵在争抢。
+来源：中国工商银行 近日，工商银行在全国银行间市场成功发行600亿元二级资本债券，创今年以来全市场同品种债券最大发行规模。
 
-“三夏”时节，田野里活跃着一群90后、00后农机手，他们驾驶收割机抢收小麦，操控无人机开展植保作业，依托智慧中控系统远程管控农机运行…… 2025年我国农作物耕种收综合机械化率达76.7%。
+本期债券品种为10年期固定利率债券，在第5年末附有条件的发行人赎回权，票面利率1.90%。
 
-充分发挥农机的农业生产和应急救灾主力军作用，需建设一支高素质的农机手队伍。
+本次发行得到市场高度认可，获得近160家各类投资者的踊跃认购，全场认购倍数近2倍，彰显了工商银行在资本市场的良好形象和市场影响力。
 
-更多青年农机手投身田间，为这支队伍注入了青春活力。
+工商银行将通过本次发行进一步优化资本结构、增强风险抵御能力、夯实服务实体经济的基础。
 
-“现在开农机收麦子用时短、效率高” 凌晨四五点，雨脚刚收。
+工商银行将在监管机构的指导下，持续强化资本管理效能，提升风险防范和可持续发展能力，积极发挥领军银行作用，加大对实体经济的优质金融供给，为经济社会高质量发展贡献力量。
 
-河北省邯郸市曲周县槐桥镇西漳头村，收割机轰鸣着切开麦浪，饱满的麦穗被齐茬切断、卷入滚筒。
-
-驾驶室里，90后农机手任晓微全神贯注地把控作业进度，抢抓农时。
-
-“从天气预报得知今年麦收时可能下雨，我们就着手准备了。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 03:16 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 03:13 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 03:09 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-30 03:01 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 03:01 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 03:08 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 03:10 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 03:02 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 03:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 02:55 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 03:07 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 03:08 - [点菜也要教吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 03:13 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 03:25 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 03:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 03:05 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 03:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 03:15 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 03:15 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 03:24 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 03:26 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:08 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/533954.shtml)
-- 2026-06-30 03:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/9856799044.shtml)
-- 2026-06-30 02:54 - [刘念回应](http://www.share.minike.top/Article/details/7490100554.shtml)
-- 2026-06-30 02:54 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/18143489.shtml)
-- 2026-06-30 02:56 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/5050695.shtml)
-- 2026-06-30 03:14 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/2186377.shtml)
-- 2026-06-30 03:10 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/764695603.shtml)
-- 2026-06-30 03:21 - [天道](https://www.blog.minike.top/Article/details/4085543.shtml)
-- 2026-06-30 03:11 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/246227.shtml)
-- 2026-06-30 03:00 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/73586.shtml)
-- 2026-06-30 02:54 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/53948112.shtml)
-- 2026-06-30 03:15 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/892300.shtml)
-- 2026-06-30 03:08 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/7968350053.shtml)
-- 2026-06-30 03:09 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/7973137.shtml)
-- 2026-06-30 02:59 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/783026461540.shtml)
+- 2026-06-30 03:29 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/55117.shtml)
+- 2026-06-30 03:17 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/66378188645.shtml)
+- 2026-06-30 03:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/099732962.shtml)
+- 2026-06-30 03:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/728413426.shtml)
+- 2026-06-30 03:05 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/723813.shtml)
+- 2026-06-30 03:15 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/794143954281.shtml)
+- 2026-06-30 03:10 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/92593950714.shtml)
+- 2026-06-30 03:21 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/29303.shtml)
+- 2026-06-30 03:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/22429.shtml)
+- 2026-06-30 03:09 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/52729127679.shtml)
+- 2026-06-30 03:09 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/1568807.shtml)
+- 2026-06-30 03:22 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/50561.shtml)
+- 2026-06-30 03:20 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/22530.shtml)
+- 2026-06-30 03:00 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/09373.shtml)
+- 2026-06-30 03:19 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/899335264397.shtml)

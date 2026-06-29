@@ -1,60 +1,60 @@
-# 特朗普在七国集团峰会会晤盟友时否认：美国不会向伊朗投入一分钱
+# 巴西年通胀率攀升至4.64%
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-核心要点 美国总统特朗普于周二表示，在美国与伊朗签署谅解备忘录之后，美国不会向伊朗投入任何资金。 他在法国埃维昂举办的七国集团峰会间隙接受记者采访时称：“顺便说一句，我们绝不会向伊朗投资一分钱。昨天流传的相关谣言简直荒谬。即便未来某天我们有权采取相关行动，无论我或是其他方想要出台相关举措，我们都不会对伊朗进行投资。” 美国、英国、法国、德国、加拿大、意大利、日本七大发达经济体领
+中新社圣保罗5月27日电 (记者 林春茵)巴西地理统计局(IBGE)27日公布数据显示，被视为官方通胀预览指标的广义消费者物价指数15(IPCA-15)5月环比上涨0.62%，虽低于4月的0.89%，但仍高于市场预期。巴西年化通胀率已升至4.64%，高于央行4.5%的官方目标上限。数据显示，食品、住房和医疗价格的上涨为推动通胀的主要因素。其中，食品和饮料价格上涨1.38%，住房
 
 ## 正文
 
-核心要点 美国总统特朗普于周二表示，在美国与伊朗签署谅解备忘录之后，美国不会向伊朗投入任何资金。
+中新社圣保罗5月27日电 (记者 林春茵)巴西地理统计局(IBGE)27日公布数据显示，被视为官方通胀预览指标的广义消费者物价指数15(IPCA-15)5月环比上涨0.62%，虽低于4月的0.89%，但仍高于市场预期。
 
-他在法国埃维昂举办的七国集团峰会间隙接受记者采访时称：“顺便说一句，我们绝不会向伊朗投资一分钱。
+巴西年化通胀率已升至4.64%，高于央行4.5%的官方目标上限。
 
-昨天流传的相关谣言简直荒谬。
+数据显示，食品、住房和医疗价格的上涨为推动通胀的主要因素。
 
-即便未来某天我们有权采取相关行动，无论我或是其他方想要出台相关举措，我们都不会对伊朗进行投资。
+其中，食品和饮料价格上涨1.38%，住房上涨1.03%，医疗与个人护理上涨1.05%。
 
-” 美国、英国、法国、德国、加拿大、意大利、日本七大发达经济体领导人齐聚这座阿尔卑斯小城召开 G7 年度峰会，欧盟、乌克兰代表也受邀参会。
+住房类通胀则主要受电价上涨推动。
 
-在启程前往法国的数小时前，特朗普宣布美国与伊朗达成协议，结束双方在中东地区的战事。
+由于发电成本上升，巴西电力系统实行“黄色电价旗”制度，根据规定，每消耗100千瓦时(kWh)电力，将额外加收1.885雷亚尔。
 
-周一晚间，特朗普在其真实社交平台发文，将 “美国将向伊朗支付巨额资金” 的相关报道斥为 “假新闻”。
+居民电价随之上涨2.16%，成为本月最大单项推动因素。
 
-这番表态针对的是此前流传的和平协议条款传闻：有消息称美方或将牵头设立一笔 3000 亿美元的伊朗投资基金。
+经济专家分析指出，巴西通胀加速幅度超出预期，今年以来食品涨价已扩散至多个品类，除季节性因素外，还受到供需关系、局部气候问题以及肉类出口增加影响。
 
 ## 相关推荐
 
-- 2026-06-30 03:09 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 03:12 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 03:13 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 03:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 03:20 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 03:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 03:03 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 03:07 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 03:17 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 02:58 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 03:12 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 03:23 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-30 03:12 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 03:21 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 03:20 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 03:00 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 03:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 03:09 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 03:04 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 03:20 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 03:20 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 03:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 03:01 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 03:24 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 03:02 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 03:12 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 03:19 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 03:12 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:23 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/924378194.shtml)
-- 2026-06-30 03:00 - [扬名立万](https://www.share.kurohicncr.top/Article/details/1133881970.shtml)
-- 2026-06-30 03:21 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/650218497284.shtml)
-- 2026-06-30 03:00 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/462314004382.shtml)
-- 2026-06-30 02:55 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/5378434080.shtml)
-- 2026-06-30 03:11 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/340292353912.shtml)
-- 2026-06-30 03:22 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/23138780578.shtml)
-- 2026-06-30 03:10 - [金牌调解](https://www.blog.minike.top/Article/details/769102.shtml)
-- 2026-06-30 03:03 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/9162772.shtml)
-- 2026-06-30 03:13 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/008505361.shtml)
-- 2026-06-30 02:59 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/8405398.shtml)
-- 2026-06-30 03:18 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/092568056.shtml)
-- 2026-06-30 03:03 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/766248408571.shtml)
-- 2026-06-30 03:04 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/51056327.shtml)
-- 2026-06-30 02:58 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/72862.shtml)
+- 2026-06-30 03:03 - [扫黑风暴](http://www.blog.minike.top/Article/details/9534806.shtml)
+- 2026-06-30 03:01 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/93237312.shtml)
+- 2026-06-30 03:02 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/06490268210.shtml)
+- 2026-06-30 03:02 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/170254008.shtml)
+- 2026-06-30 03:16 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/7726673583.shtml)
+- 2026-06-30 03:12 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/4797509.shtml)
+- 2026-06-30 03:20 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/6037090.shtml)
+- 2026-06-30 03:03 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/4943831566.shtml)
+- 2026-06-30 03:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/80122857.shtml)
+- 2026-06-30 03:26 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/414806204100.shtml)
+- 2026-06-30 03:12 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/586131.shtml)
+- 2026-06-30 03:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/870061.shtml)
+- 2026-06-30 03:06 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/647357818285.shtml)
+- 2026-06-30 03:11 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/343048.shtml)
+- 2026-06-30 03:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/94740372.shtml)

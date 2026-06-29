@@ -1,52 +1,59 @@
-# 李氏大药厂拟回购不多于5000万港元公司股份
+# 英国家庭能源账单涨幅达数百英镑 创两年多新高
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-李氏大药厂（00950）发布公告，公司已决定透过行使公司股东于2026年5月21日举行的公司股东周年大会上授予董事会购回公司股份的一般授权，实行一项股份购回计划。公司将于公开市场上购回其股份。在购回授权的规限下，股份购回计划将授权公司于自2026年6月16日起至公司下届股东周年大会结束时或公司的组织章程大纲及细则或任何适用法律规定公司须举行下届股东周年大会的期限届满时或公司股东
+自7月起，英国普通气电双燃料家庭的年度能源账单将增加数百英镑。 英国能源监管局（Ofgem）宣布，居民能源价格上限上调13%，普通家庭年度限额从此前的1641英镑涨至1862英镑。 对于选用供应商标准默认费率的普通家庭而言，每月账单将多出18英镑。这也是自2024年1月以来，年度能源账单首次达到这一高位。 受伊朗局势推高能源批发价影响，英格兰、苏格兰和威尔士居民的账单首次受到冲
 
 ## 正文
 
-李氏大药厂（00950）发布公告，公司已决定透过行使公司股东于2026年5月21日举行的公司股东周年大会上授予董事会购回公司股份的一般授权，实行一项股份购回计划。
+自7月起，英国普通气电双燃料家庭的年度能源账单将增加数百英镑。
 
-公司将于公开市场上购回其股份。
+英国能源监管局（Ofgem）宣布，居民能源价格上限上调13%，普通家庭年度限额从此前的1641英镑涨至1862英镑。
 
-在购回授权的规限下，股份购回计划将授权公司于自2026年6月16日起至公司下届股东周年大会结束时或公司的组织章程大纲及细则或任何适用法律规定公司须举行下届股东周年大会的期限届满时或公司股东于股东大会上以普通决议案撤销或更改购回授权之日（以最早者为准）止期间，以不多于5000万港元的总代价购回股份。
+对于选用供应商标准默认费率的普通家庭而言，每月账单将多出18英镑。
 
-根据购回授权，公司获准购回最多达于授出购回授权的相关决议案通过当日已发行股份总数10%的本身股份（即58，883，534股股份）。
+这也是自2024年1月以来，年度能源账单首次达到这一高位。
 
-责任编辑：卢昱君
+受伊朗局势推高能源批发价影响，英格兰、苏格兰和威尔士居民的账单首次受到冲击。
+
+受冲突影响，全球油气运输要道霍尔木兹海峡通行受阻，该航道承担着全球两成油气运输量，能源批发价格在2月开始走高，并于3月急剧飙升。
+
+不过由于夏季气温偏高，英国居民用电、用气需求普遍下降，此番涨价带来的压力会比冬季相对缓和。
+
+英国能源价格上限每三个月调整一次，该机制限定了能源供应商的单位售价。
 
 ## 相关推荐
 
-- 2026-06-30 02:58 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 03:03 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 02:56 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 03:21 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 03:05 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 02:58 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 02:59 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 03:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 03:22 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 03:09 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 03:11 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 03:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 03:04 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 03:05 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 03:14 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 03:05 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 03:02 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 03:00 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 03:16 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 03:16 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 03:21 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 03:01 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 03:11 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 03:02 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 03:14 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/9359285028.shtml)
-- 2026-06-30 02:58 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/1581228085.shtml)
-- 2026-06-30 03:14 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/2716840256.shtml)
-- 2026-06-30 03:08 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/807022136259.shtml)
-- 2026-06-30 03:03 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/276347688882.shtml)
-- 2026-06-30 02:55 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/446368042812.shtml)
-- 2026-06-30 03:22 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/146579729584.shtml)
-- 2026-06-30 03:20 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/461470407.shtml)
-- 2026-06-30 03:16 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/8086582.shtml)
-- 2026-06-30 03:06 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/2617375724.shtml)
-- 2026-06-30 03:06 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/517690717847.shtml)
-- 2026-06-30 03:20 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/8147899.shtml)
-- 2026-06-30 03:00 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/426533889211.shtml)
-- 2026-06-30 03:03 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/011579018682.shtml)
-- 2026-06-30 02:58 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/849781.shtml)
+- 2026-06-30 03:09 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/744502.shtml)
+- 2026-06-30 03:23 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/873217.shtml)
+- 2026-06-30 03:21 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/27646.shtml)
+- 2026-06-30 03:05 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/472456.shtml)
+- 2026-06-30 03:15 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/0733954.shtml)
+- 2026-06-30 03:23 - [《贺子珍》](http://www.share.minike.top/Article/details/804181.shtml)
+- 2026-06-30 03:09 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/23766.shtml)
+- 2026-06-30 03:16 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/732094.shtml)
+- 2026-06-30 03:25 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/6751469.shtml)
+- 2026-06-30 03:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/748267039205.shtml)
+- 2026-06-30 03:09 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/7313121.shtml)
+- 2026-06-30 03:13 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/36372472191.shtml)
+- 2026-06-30 03:28 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/220879.shtml)
+- 2026-06-30 03:08 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/4835483.shtml)
+- 2026-06-30 03:24 - [85花告别古偶](https://www.blog.minike.top/Article/details/6215643973.shtml)

@@ -1,54 +1,56 @@
-# 广东召开加快推进新型机电一体化产业发展座谈会
+# 证通电子索赔迎来新进展，符合要求还可加入
 
-> 更新时间：2026-06-30 03:24:03 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-中新网广州6月17日电 (记者 程景伟)广东省委书记黄坤明16日在广州主持召开广东加快推进新型机电一体化产业发展座谈会，听取有关领域科学家、企业家的意见建议。广东省委副书记、省长孟凡利，广东省人大常委会主任黄楚平出席会议。会上，中国工程院院士周济，中国工程院院士、华南理工大学校长杨中民，中国工程院院士、鹏城实验室主任高文，江苏省产业技术研究院院长刘庆等高校和科研机构代表系统介绍
+登录新浪财经APP 搜索【信披】查看更多考评等级 关于投资者诉证通电子（维权）证券虚假陈述案，日前一审获法院支持，目前判决还未生效。其被索赔源于一纸处罚决定，公司因信息披露违法违规于2024年11月28日收到行政处罚决定书。据处罚决定书，公司主要违规事实为2017年和2019年的年度报告中存在虚假记载。最终公司被罚超千万，相关责任人也被重罚。 两类投资者可加入维权行列：（ST证
 
 ## 正文
 
-中新网广州6月17日电 (记者 程景伟)广东省委书记黄坤明16日在广州主持召开广东加快推进新型机电一体化产业发展座谈会，听取有关领域科学家、企业家的意见建议。
+登录新浪财经APP 搜索【信披】查看更多考评等级 关于投资者诉证通电子（维权）证券虚假陈述案，日前一审获法院支持，目前判决还未生效。
 
-广东省委副书记、省长孟凡利，广东省人大常委会主任黄楚平出席会议。
+其被索赔源于一纸处罚决定，公司因信息披露违法违规于2024年11月28日收到行政处罚决定书。
 
-会上，中国工程院院士周济，中国工程院院士、华南理工大学校长杨中民，中国工程院院士、鹏城实验室主任高文，江苏省产业技术研究院院长刘庆等高校和科研机构代表系统介绍了机电一体化的最新科研成果与产业动向，并结合广东实际，就加强基础研究、深化产学研合作等提出意见建议；华为、腾讯、树根互联、稀宇极智和美的、优必选、明珞装备、浙江中控、绿的谐波、银河通用等来自人工智能和先进制造领域的企业代表分别发言，立足各自生产经营实践，着重介绍了各类新型机电一体化技术的实际运行成效，并就广东如何推动相关产业做大做强、提质升级发表见解。
+据处罚决定书，公司主要违规事实为2017年和2019年的年度报告中存在虚假记载。
 
-黄坤明充分肯定大家的发言贴近行业产业实际，所提建议专业性针对性可操作性强，要求广东省有关部门和各地市认真梳理吸收，进一步细化优化思路举措，把各项工作做得更加扎实到位。
+最终公司被罚超千万，相关责任人也被重罚。
 
-黄坤明强调，要把发展新型机电一体化产业作为广东省深耕实体经济的重要抓手和高质量迈向制造强省的重要途径，坚持机电产业升级与人工智能发展双向发力，进一步推动科技创新和产业创新深度融合，不断催生培育新的万亿级产业集群。
+两类投资者可加入维权行列：（ST证通维权入口） （1）于2021年4月15日-2024年4月29日期间买入，并在2024年4月30日之后卖出或仍持有而亏损； （2）于2018年4月24日-2024年5月30日期间买入，并在2024年5月31日之后卖出或仍持有而亏损。
 
-黄坤明详细介绍了当前和今后一个时期广东支持新型机电一体化产业发展的政策举措。
+据处罚决定书，需回溯到多年前收购的一家公司，2015年证通电子收购一公司70%股权，成为子公司，将其纳入合并报表范围。
 
-(完)
+2017年10月17日至12月4日，公司子公司与另一家公司签订6份采购合同，约定向其采购存储设备等产品，合同金额合计2，177.4万元。
+
+2017年11月1日、2018年8月23日，子公司分别与北京一点签订销售合同，约定将相应货物销售给北京一点，合同金额合计 2，648.14万元。
 
 ## 相关推荐
 
-- 2026-06-30 02:55 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 03:01 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 03:15 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 03:13 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-30 03:07 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 03:08 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 03:10 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 02:55 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 03:18 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 03:19 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 03:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 03:29 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 03:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 03:07 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 03:05 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 03:10 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 03:19 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-30 03:06 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-30 03:16 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 03:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:21 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/342250.shtml)
-- 2026-06-30 02:55 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/029669926.shtml)
-- 2026-06-30 03:15 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/654747623488.shtml)
-- 2026-06-30 02:56 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/49911159393.shtml)
-- 2026-06-30 03:09 - [日本进球](https://www.blog.minike.top/Article/details/60794.shtml)
-- 2026-06-30 03:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/47535957.shtml)
-- 2026-06-30 03:23 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/847180.shtml)
-- 2026-06-30 03:18 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/46110608528.shtml)
-- 2026-06-30 03:19 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/556490753047.shtml)
-- 2026-06-30 03:20 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/181648199904.shtml)
-- 2026-06-30 02:55 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/954038985808.shtml)
-- 2026-06-30 03:20 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/522436863729.shtml)
-- 2026-06-30 02:55 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/1791736320.shtml)
-- 2026-06-30 03:18 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/90329.shtml)
-- 2026-06-30 03:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/636341709585.shtml)
+- 2026-06-30 03:12 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/76952396722.shtml)
+- 2026-06-30 03:19 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/046505.shtml)
+- 2026-06-30 03:02 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/1608352.shtml)
+- 2026-06-30 03:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/76108393.shtml)
+- 2026-06-30 03:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/735203345543.shtml)
+- 2026-06-30 03:17 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/07094347487.shtml)
+- 2026-06-30 03:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/47411321197.shtml)
+- 2026-06-30 03:07 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/29525.shtml)
+- 2026-06-30 03:15 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/14140664108.shtml)
+- 2026-06-30 03:15 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/98818.shtml)
+- 2026-06-30 03:17 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/286311172.shtml)
+- 2026-06-30 03:16 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/59444969.shtml)
+- 2026-06-30 03:28 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/5526848.shtml)
+- 2026-06-30 03:26 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/359898975557.shtml)
+- 2026-06-30 03:24 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/033498589912.shtml)

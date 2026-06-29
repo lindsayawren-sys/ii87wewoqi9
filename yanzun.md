@@ -1,44 +1,59 @@
-# 黑龙江省纪委副书记、省监委副主任姜宏伟接受审查调查
+# 美光科技市值突破1万亿美元 瑞银预计其股价未来一年可能翻番
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-中新网6月16日电 据中央纪委国家监委网站消息，黑龙江省纪委副书记、省监委副主任姜宏伟涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
+美光科技的市值在过去一年飙升约840%，瑞银分析师预计这家存储芯片巨头的股价未来12个月将上涨逾一倍。 瑞银周二将美光科技的目标价上调至1，625美元，创华尔街最高水平，较上周收盘价高出逾116%。这一目标价是瑞银此前535美元目标价的三倍，意味着美光的市值将达到约1.8万亿美元。 若达到这一水平，美光的市值将超过Meta Platforms、特斯拉和伯克希尔等公司目前的市值。
 
 ## 正文
 
-中新网6月16日电 据中央纪委国家监委网站消息，黑龙江省纪委副书记、省监委副主任姜宏伟涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
+美光科技的市值在过去一年飙升约840%，瑞银分析师预计这家存储芯片巨头的股价未来12个月将上涨逾一倍。
+
+瑞银周二将美光科技的目标价上调至1，625美元，创华尔街最高水平，较上周收盘价高出逾116%。
+
+这一目标价是瑞银此前535美元目标价的三倍，意味着美光的市值将达到约1.8万亿美元。
+
+若达到这一水平，美光的市值将超过Meta Platforms、特斯拉和伯克希尔等公司目前的市值。
+
+受瑞银上调目标价提振，美光股价周二大涨19%，创下2011年11月以来最大单日涨幅，市值首次突破1万亿美元。
+
+美光股价5月累计上涨逾70%，有望创下自1987年12月以来最大单月涨幅。
+
+该股今年以来已上涨逾两倍，在2025年大涨近240%。
+
+瑞银分析师Timothy Arcuri在报告中写道，随着人工智能推动整个存储芯片行业结构性变化日趋明朗，市场将给予美光更“正常”的估值倍数，美光料继续迎来估值上修。
 
 ## 相关推荐
 
-- 2026-06-30 03:19 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 02:57 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 03:19 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 03:12 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 03:09 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 03:10 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 03:11 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-30 02:58 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 02:56 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 03:20 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 03:11 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 03:05 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 03:18 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 03:05 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 03:06 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 03:20 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 03:16 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 03:14 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 03:03 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 03:26 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 03:07 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 03:18 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 03:26 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 03:14 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 03:09 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:55 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/2097203.shtml)
-- 2026-06-30 03:10 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/03137396.shtml)
-- 2026-06-30 03:21 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/88011824744.shtml)
-- 2026-06-30 03:11 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/633921874.shtml)
-- 2026-06-30 03:06 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/030651751.shtml)
-- 2026-06-30 02:55 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/26368485266.shtml)
-- 2026-06-30 02:58 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/874078835.shtml)
-- 2026-06-30 03:08 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/43243031.shtml)
-- 2026-06-30 03:21 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/9775922.shtml)
-- 2026-06-30 03:00 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/852276.shtml)
-- 2026-06-30 03:22 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/66501.shtml)
-- 2026-06-30 03:20 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/35113.shtml)
-- 2026-06-30 03:07 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/200079452637.shtml)
-- 2026-06-30 03:07 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/408288796.shtml)
-- 2026-06-30 02:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/8444767278.shtml)
+- 2026-06-30 03:13 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/42114.shtml)
+- 2026-06-30 03:14 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/56615.shtml)
+- 2026-06-30 03:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/8880924858.shtml)
+- 2026-06-30 03:27 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/767924.shtml)
+- 2026-06-30 03:14 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/806490668200.shtml)
+- 2026-06-30 03:28 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/29843748.shtml)
+- 2026-06-30 03:12 - [巴西vs日本](https://www.share.minike.top/Article/details/532467358934.shtml)
+- 2026-06-30 03:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/686253153754.shtml)
+- 2026-06-30 03:22 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/137681438.shtml)
+- 2026-06-30 03:20 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/98983188992.shtml)
+- 2026-06-30 03:24 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/1279269.shtml)
+- 2026-06-30 03:20 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/4232882.shtml)
+- 2026-06-30 03:04 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/701967340231.shtml)
+- 2026-06-30 03:22 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/79899.shtml)
+- 2026-06-30 03:05 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/85070.shtml)

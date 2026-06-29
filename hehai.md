@@ -1,57 +1,56 @@
-# 国家统计局：5月份一二三线城市商品住宅销售价格同比降幅总体收窄
+# 黄金消费调查：金店门前排队踪影消失，投资意愿全面转冷
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-中新网6月16日电 据国家统计局网站消息，国家统计局城市司高级统计师杨彩芳解读2026年5月份商品住宅销售价格变动情况统计数据指出，2026年5月份，70个大中城市中，一线城市商品住宅销售价格环比上涨，二三线城市环比下降，一二三线城市同比降幅总体收窄。新建商品住宅销售价格环比上涨城市个数比上月增加。一、一线城市商品住宅销售价格环比上涨，二三线城市环比下降 5月份，一线城市新建商
+文章来源：华夏时报 本报（chinatimes.net.cn）记者刘佳 北京报道 五月下旬，国内黄金消费市场迎来明显转折，此前一路走高的购金热潮逐步降温，市场情绪显著回落。曾经人头攒动、排队抢购的黄金门店变得门庭冷落，全民扎堆囤金的热潮彻底退去。 近日，《华夏时报》记者实地走访北京多家高端黄金卖场及核心商圈品牌门店发现，经历此轮金价暴涨与阶段性回调后，线下黄金消费热度大幅下滑，
 
 ## 正文
 
-中新网6月16日电 据国家统计局网站消息，国家统计局城市司高级统计师杨彩芳解读2026年5月份商品住宅销售价格变动情况统计数据指出，2026年5月份，70个大中城市中，一线城市商品住宅销售价格环比上涨，二三线城市环比下降，一二三线城市同比降幅总体收窄。
+文章来源：华夏时报 本报（chinatimes.net.cn）记者刘佳 北京报道 五月下旬，国内黄金消费市场迎来明显转折，此前一路走高的购金热潮逐步降温，市场情绪显著回落。
 
-新建商品住宅销售价格环比上涨城市个数比上月增加。
+曾经人头攒动、排队抢购的黄金门店变得门庭冷落，全民扎堆囤金的热潮彻底退去。
 
-一、一线城市商品住宅销售价格环比上涨，二三线城市环比下降 5月份，一线城市新建商品住宅销售价格环比上涨0.2%，涨幅比上月扩大0.1个百分点。
+近日，《华夏时报》记者实地走访北京多家高端黄金卖场及核心商圈品牌门店发现，经历此轮金价暴涨与阶段性回调后，线下黄金消费热度大幅下滑，消费者心态也从此前的盲目跟风，转向谨慎观望。
 
-其中，上海、广州和深圳分别上涨0.2%、0.2%和0.4%，北京下降0.2%。
+结合长江商学院最新发布的《投资者情绪调查报告》来看，受金价回调影响，居民增持黄金的意愿持续走低，叠加全球宏观环境变动、传统避险逻辑阶段性失效等因素，黄金消费与投资心态全面回归理性。
 
-二线城市新建商品住宅销售价格环比下降0.1%，降幅与上月相同。
+门店排队盛况不再 长期以来，老铺黄金线下门店堪称国内黄金消费与投资市场的重要风向标，也是观察黄金消费市场的“晴雨表”。
 
-三线城市新建商品住宅销售价格环比下降0.4%，降幅比上月扩大0.1个百分点。
+以往每逢全球地缘局势紧张、资本市场波动加剧，市场避险情绪升温，各地门店前总会排起长队。
 
-70个大中城市中，新建商品住宅销售价格环比上涨城市有16个，比上月增加2个。
+不少消费者出于保值、收藏等需求集中采购金条金饰，甚至有人连夜到店等候抢购，黄牛倒号牟利的现象也屡见不鲜，市场热度一度居高不下。
 
-5月份，一线城市二手住宅销售价格环比上涨0.4%，涨幅与上月相同。
+彼时，门店排队热潮，不仅是黄金消费火爆的直观体现，更折射出全民追捧黄金、将黄金视作“稳赚资产”的普遍心态，成为探究居民消费意愿与资产配置偏好的重要窗口。
 
 ## 相关推荐
 
-- 2026-06-30 03:18 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 03:06 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 03:22 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 03:14 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 03:04 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 02:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 03:06 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 03:06 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-30 03:10 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 03:19 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 03:17 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 03:20 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 03:25 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 03:20 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 03:03 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 03:03 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 03:20 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 03:04 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 03:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 03:27 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 03:13 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:04 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/76120.shtml)
-- 2026-06-30 03:23 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/4261545.shtml)
-- 2026-06-30 03:14 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/155210001.shtml)
-- 2026-06-30 02:57 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/62088069.shtml)
-- 2026-06-30 03:19 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/5562829.shtml)
-- 2026-06-30 03:10 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/6951820714.shtml)
-- 2026-06-30 03:20 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/3674081837.shtml)
-- 2026-06-30 03:07 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/33843.shtml)
-- 2026-06-30 03:03 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/3315895466.shtml)
-- 2026-06-30 03:17 - [蔚来车主罚站](https://www.share.minike.top/Article/details/08680519.shtml)
-- 2026-06-30 03:22 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/7524672.shtml)
-- 2026-06-30 03:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/779800.shtml)
-- 2026-06-30 03:05 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/75882129.shtml)
-- 2026-06-30 03:16 - [金刚川](http://www.blog.kurohicncr.top/Article/details/460737740.shtml)
-- 2026-06-30 03:18 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/295346128876.shtml)
+- 2026-06-30 03:28 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/175843777455.shtml)
+- 2026-06-30 03:04 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/67940.shtml)
+- 2026-06-30 03:09 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/4684115692.shtml)
+- 2026-06-30 03:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/6623467685.shtml)
+- 2026-06-30 03:02 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/1563903570.shtml)
+- 2026-06-30 03:26 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/38856.shtml)
+- 2026-06-30 03:15 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/3307617.shtml)
+- 2026-06-30 03:07 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/53065187754.shtml)
+- 2026-06-30 03:01 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/52181000301.shtml)
+- 2026-06-30 03:22 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/0396014948.shtml)
+- 2026-06-30 03:23 - [千香](https://www.blog.kurohicncr.top/Article/details/544030161549.shtml)
+- 2026-06-30 03:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/31925573.shtml)
+- 2026-06-30 03:15 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/932654699.shtml)
+- 2026-06-30 03:02 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/2981514112.shtml)
+- 2026-06-30 03:29 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/75831544.shtml)

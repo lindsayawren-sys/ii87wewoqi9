@@ -1,59 +1,47 @@
-# 告别0.75%，日本央行利率重返1%！购债缩减却踩刹车
+# 国际油价27日大幅下跌
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——北京时间6月16日，日本央行完成了一场令全球金融市场屏息的重要决策——将政策利率由0.75%上调25个基点至1.00%，利率水平重返1995年以来的最高水位。 这是自2024年3月日本央行结束负利率政策以来的第五次加息，也是继此前连续三次会议按兵不动之后的首次行动，但并非令市场感到意外的决策。彭博此前的调查显示，受调的51位经济学家中多达49人预计本月将加息
+国际油价27日大幅下跌，截至当天收盘，纽约商品交易所7月交货的轻质原油期货价格下跌5.21美元，收于每桶88.68美元，跌幅为5.55%；7月交货的伦敦布伦特原油期货价格下跌5.29美元，收于每桶94.29美元，跌幅为5.31%。
 
 ## 正文
 
-汇通财经APP讯——北京时间6月16日，日本央行完成了一场令全球金融市场屏息的重要决策——将政策利率由0.75%上调25个基点至1.00%，利率水平重返1995年以来的最高水位。
-
-这是自2024年3月日本央行结束负利率政策以来的第五次加息，也是继此前连续三次会议按兵不动之后的首次行动，但并非令市场感到意外的决策。
-
-彭博此前的调查显示，受调的51位经济学家中多达49人预计本月将加息。
-
-一、利率政策：如期加息，分歧之下一人反对 日本央行决策委员会以7票赞成、1票反对的票数通过加息决议。
-
-审议委员浅田统一郎对利率决定持反对意见，他在会上指出，中东局势对生产和就业的下行风险大于物价的上行风险，央行宜维持当前的政策指引。
-
-受加息落地影响，日经225指数期货在决议公布后几乎未有变化。
-
-外汇市场上，美元兑日元短线上扬逾10点，报160.22。
-
-这一汇率水平早已成为日本当局高度关注的心理关口，160附近被市场普遍视为潜在干预线。
+国际油价27日大幅下跌，截至当天收盘，纽约商品交易所7月交货的轻质原油期货价格下跌5.21美元，收于每桶88.68美元，跌幅为5.55%；7月交货的伦敦布伦特原油期货价格下跌5.29美元，收于每桶94.29美元，跌幅为5.31%。
 
 ## 相关推荐
 
-- 2026-06-30 03:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 02:54 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 03:23 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-30 03:08 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 03:20 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 02:54 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 03:19 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 03:16 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 03:12 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 02:55 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 03:20 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 03:13 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 02:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 03:06 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-30 03:15 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-30 03:16 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 03:25 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 03:26 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 03:20 - [巴西扳平比分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 03:09 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 03:05 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 03:14 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 03:03 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 03:07 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 03:09 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 03:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 03:10 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 03:25 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [新官上任三把火](https://www.share.minike.top/Article/details/77971.shtml)
-- 2026-06-30 02:59 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/348595884.shtml)
-- 2026-06-30 03:11 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/2087656.shtml)
-- 2026-06-30 03:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/3748047.shtml)
-- 2026-06-30 03:17 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/26720099.shtml)
-- 2026-06-30 03:09 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/3990549.shtml)
-- 2026-06-30 02:57 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/221608735029.shtml)
-- 2026-06-30 03:22 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/3340514080.shtml)
-- 2026-06-30 03:23 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/682318608160.shtml)
-- 2026-06-30 02:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/812727036.shtml)
-- 2026-06-30 03:18 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/709847.shtml)
-- 2026-06-30 03:05 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/7835423552.shtml)
-- 2026-06-30 03:14 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/347030361.shtml)
-- 2026-06-30 03:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/773958828.shtml)
-- 2026-06-30 03:03 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/555781129896.shtml)
+- 2026-06-30 03:02 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/594168098.shtml)
+- 2026-06-30 03:21 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/7644868888.shtml)
+- 2026-06-30 03:22 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/013959735500.shtml)
+- 2026-06-30 03:02 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/1839035.shtml)
+- 2026-06-30 03:22 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/061001.shtml)
+- 2026-06-30 03:06 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/50266.shtml)
+- 2026-06-30 03:25 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/025681833.shtml)
+- 2026-06-30 03:03 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/968936632754.shtml)
+- 2026-06-30 03:02 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/10998224238.shtml)
+- 2026-06-30 03:25 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/3376100734.shtml)
+- 2026-06-30 03:09 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/978266.shtml)
+- 2026-06-30 03:09 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/285951292236.shtml)
+- 2026-06-30 03:22 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/1421762051.shtml)
+- 2026-06-30 03:20 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/11835943917.shtml)
+- 2026-06-30 03:07 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/60284328346.shtml)

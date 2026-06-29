@@ -1,61 +1,59 @@
-# 大学生返乡创业12年：从“省标杆家庭农场”到被强制清退，行政诉讼被驳后上诉
+# 特斯拉欧洲月度销量大幅增长 全自动驾驶技术正申请欧盟准入
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-入围“广东省标杆家庭农场”仅一年后，广东茂名“新农人”林华杰与父亲林海经营的蓝海湾家庭农场，在2025年8月被强制清退。虾塘被停水停电，鱼虾低价急售，看护房随后被拆除。 面对清退，林海提起行政诉讼。电白博贺镇政府回应称，清退依据是2023年发布的《养殖水域滩涂规划》，该农场位于博贺内湾红树林保护区禁养区范围内。镇政府表示，已两次送达限期清理通知，程序合法正当，并强调“当私人经营
+欧洲汽车制造商协会（ACEA）数据显示，上月在欧盟、英国、冰岛、列支敦士登、挪威及瑞士范围内，特斯拉新车上牌量同比大增 46.5%，达 10654 辆；其中仅欧盟地区销量就同比上涨超 67%，录得 9169 辆。新车上牌量是衡量汽车销量的核心指标。 这一数据表明，特斯拉在欧洲市场正持续回暖、势头向好。自 2024 年 12 月之后，特斯拉新车上牌量在今年 2 月首度转正（同比上
 
 ## 正文
 
-入围“广东省标杆家庭农场”仅一年后，广东茂名“新农人”林华杰与父亲林海经营的蓝海湾家庭农场，在2025年8月被强制清退。
+欧洲汽车制造商协会（ACEA）数据显示，上月在欧盟、英国、冰岛、列支敦士登、挪威及瑞士范围内，特斯拉新车上牌量同比大增 46.5%，达 10654 辆；其中仅欧盟地区销量就同比上涨超 67%，录得 9169 辆。
 
-虾塘被停水停电，鱼虾低价急售，看护房随后被拆除。
+新车上牌量是衡量汽车销量的核心指标。
 
-面对清退，林海提起行政诉讼。
+这一数据表明，特斯拉在欧洲市场正持续回暖、势头向好。
 
-电白博贺镇政府回应称，清退依据是2023年发布的《养殖水域滩涂规划》，该农场位于博贺内湾红树林保护区禁养区范围内。
+自 2024 年 12 月之后，特斯拉新车上牌量在今年 2 月首度转正（同比上涨近 12%），3 月涨幅更是超过 84%，4 月则实现连续第三个月销量走高，扭转了此前持续一年多的销量低迷局面。
 
-镇政府表示，已两次送达限期清理通知，程序合法正当，并强调“当私人经营权益与生态环境保护公共利益发生冲突时，私人权益应依法让位于公共利益”。
+2025 年特斯拉在欧洲处境艰难。
 
-林海一方则认为，根据规划文本，现状有养殖的范围应划为“限养区”而非“禁养区”，且镇政府存在补偿主体错误、补偿标准偏低、未落实“先补偿后清退”等问题。
+一方面，埃隆・马斯克任职美国政府效率部、配合特朗普政府施政，引发部分消费者不满；另一方面，中国车企巨头比亚迪在欧洲市场不断抢占份额，行业竞争日趋激烈。
 
-公共利益当然重要，但原则适用也是有前提的，“不能成为程序违法和补偿不公的挡箭牌”。
+自去年夏天欧洲汽车制造商协会开始统计比亚迪数据以来，该品牌在欧洲销量月月暴涨。
 
-2026年5月，茂名市茂南区法院一审裁定驳回林海一方起诉，认为《限期清理通知》已被后续强制清退行为“吸收”，不属于行政诉讼受案范围。
+上月比亚迪上牌量增至 27008 辆，同比翻番以上；中国零跑汽车欧洲销量更是激增五倍有余，达到 8745 辆。
 
 ## 相关推荐
 
-- 2026-06-30 02:59 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 03:09 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 03:04 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 03:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 03:12 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 03:01 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-30 03:21 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-30 03:14 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-30 02:55 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 03:23 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 02:57 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-30 03:15 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 03:00 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 03:16 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 03:17 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-30 03:08 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 03:29 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 03:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 03:28 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 03:28 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 03:24 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-30 03:09 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 03:17 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 03:07 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 03:02 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 03:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 03:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 03:03 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:05 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/7329383281.shtml)
-- 2026-06-30 03:20 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/1479297.shtml)
-- 2026-06-30 03:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/599409342.shtml)
-- 2026-06-30 03:14 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/91284198005.shtml)
-- 2026-06-30 03:18 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/4332961162.shtml)
-- 2026-06-30 03:08 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/143666124.shtml)
-- 2026-06-30 03:19 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/78971.shtml)
-- 2026-06-30 02:54 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/20122928095.shtml)
-- 2026-06-30 03:05 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/2324202.shtml)
-- 2026-06-30 03:10 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/030049199076.shtml)
-- 2026-06-30 03:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/69768.shtml)
-- 2026-06-30 02:57 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/897098928.shtml)
-- 2026-06-30 03:22 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/92201617806.shtml)
-- 2026-06-30 03:20 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/37254301593.shtml)
-- 2026-06-30 03:20 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/2233576996.shtml)
+- 2026-06-30 03:07 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/734078.shtml)
+- 2026-06-30 03:05 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/107647.shtml)
+- 2026-06-30 03:19 - [《贺子珍》](https://www.share.minike.top/Article/details/4820818.shtml)
+- 2026-06-30 03:10 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/0473144.shtml)
+- 2026-06-30 03:11 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/961313.shtml)
+- 2026-06-30 03:09 - [天道](https://www.blog.kurohicncr.top/Article/details/241513145.shtml)
+- 2026-06-30 03:23 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/911166.shtml)
+- 2026-06-30 03:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/448540893770.shtml)
+- 2026-06-30 03:06 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/29746469646.shtml)
+- 2026-06-30 03:29 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/949445234.shtml)
+- 2026-06-30 03:12 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/30849763424.shtml)
+- 2026-06-30 03:00 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/27183817244.shtml)
+- 2026-06-30 03:25 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/80111459358.shtml)
+- 2026-06-30 03:21 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/3531858.shtml)
+- 2026-06-30 03:21 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/193640.shtml)

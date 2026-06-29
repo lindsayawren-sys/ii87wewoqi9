@@ -1,57 +1,57 @@
-# 开国大典记（伟大征程）
+# 美国最高法院驳回Meta旨在驳回佛蒙特州诉讼的上诉
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-人民日报 本报记者 李昌禹 北京，长安街，晨曦微露，雄壮的国歌声中，五星红旗冉冉升起，人们肃立注目，天安门广场迎来新的一天。 历史的强音仿佛仍在回响。1949年10月1日，毛泽东在天安门城楼庄严宣告中华人民共和国中央人民政府成立。 习近平总书记指出，建立中华人民共和国，“彻底结束了旧中国半殖民地半封建社会的历史，彻底结束了旧中国一盘散沙的局面，彻底废除了列强强加给中国的不平等条
+美国最高法院已拒绝审理Meta Platforms在一桩案件中提出的上诉，该案由佛蒙特州提起，指控这家社交媒体巨头将Instagram设计得对青少年具有成瘾性。 Meta的上诉是针对一家下级法院的裁决，该裁决驳回了该公司要求驳回诉讼的动议。该公司对最高法院的裁决不予置评。 佛蒙特州总检察长于2023年在州法院起诉Meta，指控该公司存在不公平和欺骗性的商业行为。该诉讼指控Met
 
 ## 正文
 
-人民日报 本报记者 李昌禹 北京，长安街，晨曦微露，雄壮的国歌声中，五星红旗冉冉升起，人们肃立注目，天安门广场迎来新的一天。
+美国最高法院已拒绝审理Meta Platforms在一桩案件中提出的上诉，该案由佛蒙特州提起，指控这家社交媒体巨头将Instagram设计得对青少年具有成瘾性。
 
-历史的强音仿佛仍在回响。
+Meta的上诉是针对一家下级法院的裁决，该裁决驳回了该公司要求驳回诉讼的动议。
 
-1949年10月1日，毛泽东在天安门城楼庄严宣告中华人民共和国中央人民政府成立。
+该公司对最高法院的裁决不予置评。
 
-习近平总书记指出，建立中华人民共和国，“彻底结束了旧中国半殖民地半封建社会的历史，彻底结束了旧中国一盘散沙的局面，彻底废除了列强强加给中国的不平等条约和帝国主义在中国的一切特权，实现了中国从几千年封建专制政治向人民民主的伟大飞跃。
+佛蒙特州总检察长于2023年在州法院起诉Meta，指控该公司存在不公平和欺骗性的商业行为。
 
-” 1948年，随着解放战争胜利推进，建立新中国的任务被提上了议事日程。
+该诉讼指控Meta将其社交媒体应用Instagram设计得对青少年具有成瘾性，且该公司此举是为了增加广告收入。
 
-4月30日，中共中央发布“五一口号”，主张迅速召开政治协商会议，成立民主联合政府。
+诉讼还称，Meta在明知该应用具有成瘾性的情况下，未能采取有意义的行动。
 
-1949年6月，以毛泽东为主任的新政协筹备会常务委员会成立，负责起草共同纲领、拟定政府方案等，全面展开筹建新中国政权的工作。
+Meta曾请求佛蒙特州一家法院驳回该诉讼，理由是该州对Meta不具有属人管辖权（Personal Jurisdiction）。
 
-9月21日，中国人民政治协商会议第一届全体会议在中南海怀仁堂隆重开幕。
+该动议被一家下级法院驳回，之后，佛蒙特州最高法院在上诉中也驳回了该动议。
 
 ## 相关推荐
 
-- 2026-06-30 03:09 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 03:02 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 03:08 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 02:56 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-30 02:57 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 03:06 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 03:07 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 03:18 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 02:54 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 03:06 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 03:06 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 03:11 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 03:11 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 03:28 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 03:14 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 03:02 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 03:18 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 03:09 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 03:22 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 03:26 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 03:15 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 03:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:08 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/5232536.shtml)
-- 2026-06-30 03:14 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/674596.shtml)
-- 2026-06-30 02:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/12793230.shtml)
-- 2026-06-30 02:55 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/6434164425.shtml)
-- 2026-06-30 02:54 - [巴西vs日本](http://www.share.minike.top/Article/details/9621387256.shtml)
-- 2026-06-30 03:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/301958701266.shtml)
-- 2026-06-30 03:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/626197642.shtml)
-- 2026-06-30 03:13 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/41795.shtml)
-- 2026-06-30 03:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/4100699759.shtml)
-- 2026-06-30 02:55 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/03775308510.shtml)
-- 2026-06-30 03:11 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/42866025.shtml)
-- 2026-06-30 03:03 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/67270293.shtml)
-- 2026-06-30 03:15 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/5444655816.shtml)
-- 2026-06-30 02:59 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/197079.shtml)
-- 2026-06-30 03:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/890458.shtml)
+- 2026-06-30 03:19 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/76757399630.shtml)
+- 2026-06-30 03:03 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/90947838.shtml)
+- 2026-06-30 03:20 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/61803202.shtml)
+- 2026-06-30 03:13 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/5109929.shtml)
+- 2026-06-30 03:03 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/62546465.shtml)
+- 2026-06-30 03:20 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/69078506.shtml)
+- 2026-06-30 03:12 - [金刚川](http://www.share.minike.top/Article/details/46052.shtml)
+- 2026-06-30 03:28 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/2905161.shtml)
+- 2026-06-30 03:17 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/216090695858.shtml)
+- 2026-06-30 03:16 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/005949.shtml)
+- 2026-06-30 03:18 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/34326470.shtml)
+- 2026-06-30 03:10 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/4620735.shtml)
+- 2026-06-30 03:24 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/655683.shtml)
+- 2026-06-30 03:21 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/9752196.shtml)
+- 2026-06-30 03:11 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/003363178926.shtml)

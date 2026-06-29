@@ -1,48 +1,61 @@
-# 中金：泡泡玛特维持“跑赢行业”评级 目标价218港元
+# 港股午评：恒指跌0.85% 科指跌0.25% 黄金股普跌 深演智能首日涨超260%
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-中金发布研报称，维持泡泡玛特（09992）26/27年经调整净利润预测133/155亿元，当前股价对应26/27年16/13倍经调整P/E，公司作为稀缺性、空间广的全球龙头，目前处于历史估值低位，短期具备事件催化、中期业绩环比改善可期，重申板块内首推标的，维持“跑赢行业”评级，目标价218港元，对应26/27年19/16倍经调整P/E，较当前有19%上行空间。责任编辑：卢昱君
+5月27日消息，港股三大指数集体下跌。截至午间收盘，恒生指数跌0.85%，报25381.51，恒生科技指数跌0.25%，国企指数跌1.02%。盘面上，科网股跌多涨少，阿里巴巴、小米、京东跌超2%，联想涨超6%；黄金股普跌，灵宝黄金跌超5%；半导体板块强势，芯智控股涨超12%；今日3只新股上市，深演智能涨超260%，华曦达涨超98%，云英谷科技涨超79%。 黄金股普跌，灵宝黄金跌
 
 ## 正文
 
-中金发布研报称，维持泡泡玛特（09992）26/27年经调整净利润预测133/155亿元，当前股价对应26/27年16/13倍经调整P/E，公司作为稀缺性、空间广的全球龙头，目前处于历史估值低位，短期具备事件催化、中期业绩环比改善可期，重申板块内首推标的，维持“跑赢行业”评级，目标价218港元，对应26/27年19/16倍经调整P/E，较当前有19%上行空间。
+5月27日消息，港股三大指数集体下跌。
 
-责任编辑：卢昱君
+截至午间收盘，恒生指数跌0.85%，报25381.51，恒生科技指数跌0.25%，国企指数跌1.02%。
+
+盘面上，科网股跌多涨少，阿里巴巴、小米、京东跌超2%，联想涨超6%；黄金股普跌，灵宝黄金跌超5%；半导体板块强势，芯智控股涨超12%；今日3只新股上市，深演智能涨超260%，华曦达涨超98%，云英谷科技涨超79%。
+
+黄金股普跌，灵宝黄金跌超5%。
+
+今日黄金股的下跌是加息预期升温、美元走强、技术性抛售三重因素共振的结果。
+
+短期来看，金价仍将受制于美债收益率和美元的强势；中长期看，全球央行持续购金（2026年Q1净购金244吨-8）、去美元化趋势、地缘风险常态化，仍为黄金提供坚实支撑，回调被视为中长期布局的机会。
+
+半导体板块强势，芯智控股涨超12%。
+
+中信证券研报指出，华为提出“韬（τ）定律”，将带来晶体管、电路、芯片、系统四个层面的深刻变化。
 
 ## 相关推荐
 
-- 2026-06-30 03:04 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-30 03:02 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 03:08 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 03:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-30 03:16 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-30 03:08 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 03:22 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 02:56 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 03:16 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 02:58 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 03:01 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 03:07 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 03:07 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 03:09 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 03:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 03:13 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 03:20 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 03:16 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 03:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 03:18 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 03:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 03:05 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 03:19 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 03:12 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 03:18 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 03:07 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 03:14 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 03:29 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 03:13 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:18 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/103236.shtml)
-- 2026-06-30 03:22 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/121184362.shtml)
-- 2026-06-30 03:06 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/48543.shtml)
-- 2026-06-30 03:00 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/90948970.shtml)
-- 2026-06-30 02:54 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/4197231.shtml)
-- 2026-06-30 03:08 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/13498835.shtml)
-- 2026-06-30 03:01 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/531856605.shtml)
-- 2026-06-30 03:21 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/9593160906.shtml)
-- 2026-06-30 03:20 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/53755128.shtml)
-- 2026-06-30 02:59 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/98170.shtml)
-- 2026-06-30 03:18 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/693909366.shtml)
-- 2026-06-30 02:57 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/67638982.shtml)
-- 2026-06-30 02:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/044845216635.shtml)
-- 2026-06-30 02:58 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/32067281219.shtml)
-- 2026-06-30 03:11 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/6934132.shtml)
+- 2026-06-30 03:09 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/261609908.shtml)
+- 2026-06-30 03:16 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/606551076130.shtml)
+- 2026-06-30 03:22 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/5227683.shtml)
+- 2026-06-30 03:22 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/71307745.shtml)
+- 2026-06-30 03:10 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/13568.shtml)
+- 2026-06-30 03:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/50346353.shtml)
+- 2026-06-30 03:05 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/643826307320.shtml)
+- 2026-06-30 03:30 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/541035.shtml)
+- 2026-06-30 03:16 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/615400.shtml)
+- 2026-06-30 03:25 - [绘画区你赢了](http://www.blog.minike.top/Article/details/82460720.shtml)
+- 2026-06-30 03:26 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/23335.shtml)
+- 2026-06-30 03:28 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/289385377.shtml)
+- 2026-06-30 03:13 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/03083161.shtml)
+- 2026-06-30 03:13 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/034790010.shtml)
+- 2026-06-30 03:02 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/6568917.shtml)

@@ -1,59 +1,57 @@
-# 集体押注世界杯，AI为何要扮演“懂球佬”
+# 倒计时10天！今年高考有哪些新变化？
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-每经记者｜温梦华 2026年美加墨世界杯才刚刚拉开帷幕，而赛场外的AI(人工智能)赛事研判、实力比拼，早已先行开启。 日前，国产大模型Kimi(月之暗面)称将通过Agent(智能体)集群同时调度300个子Agent，公开预测104场世界杯赛事结果，并提出德国队或爆冷夺冠。Kimi同时上线了一场“押注”活动：奖池中有1万亿Tokens(词元)，用户选队后球队赢了就可以瓜分Toke
+中新网北京5月28日电(记者 袁秀月)2026年高考进入倒计时，再有10天，各地考生将迎来人生中的一次大考。在考试内容和形式、高校招生上，今年高考有诸多变化。 加强项目式、探究式的真实情境问题设计 严控大类招生的数量和规模 2025年，第五批8省份新高考落地。截至目前，已有29个省区市实行了“新高考”模式。 今年初，教育部发布“关于做好2026年普通高校招生工作的通知”(以下简
 
 ## 正文
 
-每经记者｜温梦华 2026年美加墨世界杯才刚刚拉开帷幕，而赛场外的AI(人工智能)赛事研判、实力比拼，早已先行开启。
+中新网北京5月28日电(记者 袁秀月)2026年高考进入倒计时，再有10天，各地考生将迎来人生中的一次大考。
 
-日前，国产大模型Kimi(月之暗面)称将通过Agent(智能体)集群同时调度300个子Agent，公开预测104场世界杯赛事结果，并提出德国队或爆冷夺冠。
+在考试内容和形式、高校招生上，今年高考有诸多变化。
 
-Kimi同时上线了一场“押注”活动：奖池中有1万亿Tokens(词元)，用户选队后球队赢了就可以瓜分Token，将体育赛事与AI用户运营深度绑定。
+加强项目式、探究式的真实情境问题设计 严控大类招生的数量和规模 2025年，第五批8省份新高考落地。
 
-《每日经济新闻》记者(以下简称每经记者)注意到，千问也紧随其后上线了相关活动。
+截至目前，已有29个省区市实行了“新高考”模式。
 
-每经记者实测发现，豆包、元宝、DeepSeek(深度求索)、文心一言等国产大模型在被问及“2026年世界杯谁会夺冠”时，多数预测答案为“西班牙队”，判断逻辑也高度趋同。
+今年初，教育部发布“关于做好2026年普通高校招生工作的通知”(以下简称“通知”)，其中提到“进一步深化考试招生制度改革，引导学生德智体美劳全面发展”。
 
-热闹之下，Kelly Bench(一个大模型评估测试平台)最新数据却显示，包括ChatGPT等在内的顶级模型在足球赌盘上表现惨淡。
+通知提到，持续深化考试内容和形式改革。
 
-Kimi、千问等AI大模型为何要“押注”世界杯？
+优化试题呈现方式和素材选取，融入科技前沿动态，浸润人文教育元素，加强项目式、探究式的真实情境问题设计，更好考查学生关键能力、学科素养和思维品质。
 
-这背后，实际上是AI大模型行业的集体焦虑：当写诗、做题、对话的极致竞争走到尽头，各家厂商急于证明自己的产品能够理解复杂、动态、充满不确定性的现实世界。
+在推进高考综合改革上，通知要求，高校要优化招生工作方案，原则上按专业开展招生，严控大类招生的数量和规模；在实行院校专业组投档的省份，进一步优化专业组设置，将关联度高、培养要求相近的专业编入同一专业组，合理控制同一专业组的专业数量，提升考生专业志愿满足率。
 
 ## 相关推荐
 
-- 2026-06-30 03:01 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 03:13 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 03:02 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 02:54 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-30 03:02 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 03:06 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 02:56 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 03:22 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 02:54 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 02:57 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 03:15 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-30 03:23 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 03:05 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 03:14 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 03:10 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 03:28 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 03:29 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 03:16 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 03:18 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 03:20 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 03:15 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 03:26 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 03:15 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 03:11 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:08 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/8543604464.shtml)
-- 2026-06-30 03:02 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/610719490706.shtml)
-- 2026-06-30 03:20 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/27548005.shtml)
-- 2026-06-30 03:06 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/31311.shtml)
-- 2026-06-30 02:59 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/557676416.shtml)
-- 2026-06-30 03:21 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/01066136.shtml)
-- 2026-06-30 02:54 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/892438.shtml)
-- 2026-06-30 03:06 - [巴西绝杀日本](https://www.share.minike.top/Article/details/304126.shtml)
-- 2026-06-30 03:15 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/00726494025.shtml)
-- 2026-06-30 03:02 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/1874666.shtml)
-- 2026-06-30 03:19 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/170541313.shtml)
-- 2026-06-30 02:54 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/73481656.shtml)
-- 2026-06-30 03:20 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/29702.shtml)
-- 2026-06-30 03:19 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/52422117180.shtml)
-- 2026-06-30 03:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/53058326.shtml)
+- 2026-06-30 03:04 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/9431828.shtml)
+- 2026-06-30 03:22 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/38920.shtml)
+- 2026-06-30 03:26 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/5543719763.shtml)
+- 2026-06-30 03:16 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/984434629.shtml)
+- 2026-06-30 03:00 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/627993567993.shtml)
+- 2026-06-30 03:20 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/165981643.shtml)
+- 2026-06-30 03:16 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/261812949479.shtml)
+- 2026-06-30 03:02 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/8110051935.shtml)
+- 2026-06-30 03:24 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/474985058359.shtml)
+- 2026-06-30 03:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/822055806.shtml)
+- 2026-06-30 03:25 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/23166813026.shtml)
+- 2026-06-30 03:15 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/472488.shtml)
+- 2026-06-30 03:16 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/6958177044.shtml)
+- 2026-06-30 03:27 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/359756891.shtml)
+- 2026-06-30 03:04 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/080807220.shtml)

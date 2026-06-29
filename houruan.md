@@ -1,60 +1,58 @@
-# 侨见重庆荣昌：昨天镌刻文明，今天崛起新城，明天繁荣昌盛
+# 卓朗科技（600225）投资者索赔案再收测算报告，已有大量获赔
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月16日电 (马佳欣)6月14日至15日，“2026海外华媒侨领川渝行——聚焦成渝地区双城经济圈建设”联合参访活动走进重庆市荣昌区。20余家海外主流华文媒体代表和10余位知名侨领走访荣昌安陶小镇、万灵古镇、夏布小镇、国家生猪大数据中心、西部电子电路产业园等地，在千年非遗的指尖传承与现代化工厂的机器轰鸣中，感受这座成渝腹地历史文化名城的古韵、今姿与新程。 昨天，一部镌
+2026年5月中旬，上海久诚律师事务所股票索赔律师许峰代理的卓朗科技（600225，津信科5，代码400259）虚假陈述引发的投资者索赔案再收到核算报告，下一步将进入调解或法院立案，卓朗科技退市不影响索赔。（许峰律师专栏） 前期许峰律师代理的卓朗科技投资者索赔案在法院判决投资者胜诉后，投资者目前已经收到法院判定的赔偿款项，律师团队同步还在继续推进后续案件的立案工作，还在继续接受
 
 ## 正文
 
-中新网重庆6月16日电 (马佳欣)6月14日至15日，“2026海外华媒侨领川渝行——聚焦成渝地区双城经济圈建设”联合参访活动走进重庆市荣昌区。
+2026年5月中旬，上海久诚律师事务所股票索赔律师许峰代理的卓朗科技（600225，津信科5，代码400259）虚假陈述引发的投资者索赔案再收到核算报告，下一步将进入调解或法院立案，卓朗科技退市不影响索赔。
 
-20余家海外主流华文媒体代表和10余位知名侨领走访荣昌安陶小镇、万灵古镇、夏布小镇、国家生猪大数据中心、西部电子电路产业园等地，在千年非遗的指尖传承与现代化工厂的机器轰鸣中，感受这座成渝腹地历史文化名城的古韵、今姿与新程。
+（许峰律师专栏） 前期许峰律师代理的卓朗科技投资者索赔案在法院判决投资者胜诉后，投资者目前已经收到法院判定的赔偿款项，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-昨天，一部镌刻文明的厚重史书 “荣昌的昨天，是一部镌刻文明的厚重史书。
+2024年12月25日晚，卓朗科技公告收到证监会《行政处罚决定书》，经查，2019年至2023年，卓朗科技子公司天津卓朗科技发展有限公司虚构服务器、软件和系统集成服务销售业务，虚增收入和利润。
 
-”在6月15日举行的推介座谈会上，重庆市荣昌区委书记万容以此开篇，向参访团娓娓道来这座千年历史文化名城的文脉传承。
+上述虚假销售业务导致卓朗科技2019年至2023年年度报告分别虚增营业收入24，915.28万元、48，912.89万元、33，861.50万元、65，612.78万元、8，225.45万元，占各期对外披露营业收入的21.05%、45.19%、41.60%、72.46%、13.22%；分别虚增利润总额24，915.28万元、30，989.93万元、33，861.50万元、35，713.19万元、8，225.45万元，占各期对外披露利润总额绝对值的33.81%、7.68%、41.26%、86.08%、50.27%。
 
-唐乾元元年设昌州、置昌元县，开启1268年建城史；明洪武六年定名“荣昌”，寓意繁荣昌盛，得名至今已有653年，所以荣昌历来是共繁荣、同昌盛的地方。
+专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，根据前期投资者胜诉判决以及获赔案例，在2019年9月24日到2024年3月15日之间买入卓朗科技股票，并且在2024年3月15日后卖出或持有股票的投资者，目前还可发起索赔。
 
-这里非遗璀璨，232项非遗代表性项目承载千年技艺——汉代起源的荣昌陶、汉代传承的荣昌夏布、宋代问世的荣昌折扇，三大国家级非遗撑起文化脊梁。
+（卓朗科技维权入口） （本文由许峰律师供稿，不代表新浪财经立场。
 
-作为“湖广填四川”核心聚集地，荣昌被誉为“客家文化活化石”，河包粉条、血橙等特产与卤鹅、羊肉汤、黄凉粉等美食，共同勾勒出历史文化名城的千年图景。
+许峰律师，上海久诚律师事务所主任，2008年起律师执业，执业服务范围涉及虚假陈述、内幕交易、操纵市场等证券欺诈领域索赔代理。
 
-参访团走进了这部史书：在安陶小镇，触摸了千年窑火传承的匠心；在万灵古镇，感受了巴蜀人文的厚重；在天运夏布，亲手体验了非遗技艺的温度；在湖广会馆，了解了移民文化的历史…… “荣昌不仅有厚重的历史，更有鲜活的文化传承。
+十几年来已代理近两百只股票的投资者胜诉或调解获赔，同期还在代理诉讼时效内近三百只股票的索赔案件，部分也已有胜诉以及调解获赔先例。
 
 ## 相关推荐
 
-- 2026-06-30 03:10 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 03:04 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 02:55 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 02:55 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 03:08 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 03:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 02:58 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 02:54 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 03:17 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 03:13 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 02:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 03:19 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 03:07 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 03:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 03:01 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 03:18 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 03:14 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 03:25 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 03:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 03:04 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 03:08 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 03:13 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 03:18 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 03:06 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 03:13 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 03:20 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:06 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/852001.shtml)
-- 2026-06-30 03:07 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/658152627.shtml)
-- 2026-06-30 02:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/985148266.shtml)
-- 2026-06-30 02:55 - [周生如故](http://www.share.kurohicncr.top/Article/details/0163901883.shtml)
-- 2026-06-30 03:10 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/924322.shtml)
-- 2026-06-30 03:02 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/0896562543.shtml)
-- 2026-06-30 02:58 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/320860199827.shtml)
-- 2026-06-30 03:00 - [毒液2](https://www.blog.minike.top/Article/details/19326649.shtml)
-- 2026-06-30 03:00 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/37761949722.shtml)
-- 2026-06-30 03:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/2805920.shtml)
-- 2026-06-30 03:13 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/378678277078.shtml)
-- 2026-06-30 03:22 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/3317111301.shtml)
-- 2026-06-30 03:22 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/820274252.shtml)
-- 2026-06-30 03:11 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/167717.shtml)
-- 2026-06-30 02:58 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/344360.shtml)
+- 2026-06-30 03:28 - [一见倾心](https://www.share.minike.top/Article/details/66515609.shtml)
+- 2026-06-30 03:01 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/9293548934.shtml)
+- 2026-06-30 03:18 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/33933370.shtml)
+- 2026-06-30 03:04 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/66179.shtml)
+- 2026-06-30 03:03 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/76014971.shtml)
+- 2026-06-30 03:10 - [起风了](http://www.share.kurohicncr.top/Article/details/72077097748.shtml)
+- 2026-06-30 03:21 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/26888.shtml)
+- 2026-06-30 03:26 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/3227368828.shtml)
+- 2026-06-30 03:28 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/72113238189.shtml)
+- 2026-06-30 03:27 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/2523972005.shtml)
+- 2026-06-30 03:19 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/0019178.shtml)
+- 2026-06-30 03:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/7776814464.shtml)
+- 2026-06-30 03:01 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/38704.shtml)
+- 2026-06-30 03:17 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/48906.shtml)
+- 2026-06-30 03:16 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/9622320648.shtml)

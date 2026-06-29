@@ -1,56 +1,57 @@
-# 美联储决议与英国关键数据来袭，英镑兑美元围绕1.3400反复震荡
+# AI的尽头：不是模型，而是电厂
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——英镑兑美元（GBP/USD）在周二亚洲时段结束此前小幅反弹走势，重新承压回落至1.3400附近。尽管美国与伊朗达成临时和平框架协议，市场风险偏好整体有所改善，但由于协议正式文本仍未公开，市场对于霍尔木兹海峡全面恢复正常通航的时间以及未来运营安排仍保持谨慎，这使部分资金继续流向美元，支撑美元指数维持强势。 美国总统特朗普此前宣布已经签署结束冲突的谅解备忘录，并
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！碳基需求正在给硅基需求让步，硅基不光需要GPU，而且对电力胃口已经超过碳基需求，从过去两周最新消息来看，“电力”以前所未有的密度涌进硅谷AI行业头版。 5月11日，Blackstone以10亿美元入股发电商VoltaGrid，同日英伟达以最高21亿美元的5年期股权期权入股AI数据中心运营商IREN；5月6日
 
 ## 正文
 
-汇通财经APP讯——英镑兑美元（GBP/USD）在周二亚洲时段结束此前小幅反弹走势，重新承压回落至1.3400附近。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-尽管美国与伊朗达成临时和平框架协议，市场风险偏好整体有所改善，但由于协议正式文本仍未公开，市场对于霍尔木兹海峡全面恢复正常通航的时间以及未来运营安排仍保持谨慎，这使部分资金继续流向美元，支撑美元指数维持强势。
+碳基需求正在给硅基需求让步，硅基不光需要GPU，而且对电力胃口已经超过碳基需求，从过去两周最新消息来看，“电力”以前所未有的密度涌进硅谷AI行业头版。
 
-美国总统特朗普此前宣布已经签署结束冲突的谅解备忘录，并计划推动霍尔木兹海峡重新开放。
+5月11日，Blackstone以10亿美元入股发电商VoltaGrid，同日英伟达以最高21亿美元的5年期股权期权入股AI数据中心运营商IREN；5月6日，比特币矿企转型的Hut 8在得克萨斯州Beacon Point签下98亿美元、15年、352MW的take-or-pay租约，股价当天涨近30%。
 
-根据伊朗半官方媒体报道，现有协议草案预计将在未来30天内由伊朗方面安排逐步恢复海峡通航。
+4月20日，Anthropic与亚马逊扩大合作：Anthropic承诺未来十年在AWS技术上投入超过1000亿美元，并获得最高5GW的新算力容量，用于训练和运行Claude。
 
-虽然中东紧张局势出现缓和迹象，但全球航运企业在协议细节完全透明之前，仍对调整运输路线持谨慎态度，因此市场对能源供应恢复速度仍存在不确定性。
+5GW约相当于数座大型核电机组的装机容量。
 
-与此同时，市场焦点逐渐转向美联储即将公布的货币政策决定。
+这一系列交易最值得注意的不是价格，而是亚马逊公告中那个词——“binding constraint”。
 
-投资者普遍预计，美联储将维持联邦基金利率在3.50%至3.75%区间不变，而新任主席凯文·沃什首次主持的新闻发布会将受到高度关注。
+这说明，不是芯片、不是人才、不是算法，是电，成为AI规模化最硬的瓶颈。
 
-若美联储释放偏鹰派政策信号，美元可能进一步受到支撑，从而对英镑形成压力。
+这与笔者近期在加州看到的趋势一致：AI数据中心面对的电网危机点燃了新一轮电厂建设潮，竞赛已从谁的模型更聪明转向谁控制了能源。
 
 ## 相关推荐
 
-- 2026-06-30 03:19 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-30 03:11 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 03:08 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 03:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 03:14 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-30 02:59 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 03:20 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 03:14 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 03:06 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 03:01 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 03:18 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 03:11 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 03:27 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 03:24 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 03:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 03:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 03:16 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 03:28 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 03:01 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 03:19 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 03:19 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/2661033.shtml)
-- 2026-06-30 03:17 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/25621228839.shtml)
-- 2026-06-30 02:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/297058.shtml)
-- 2026-06-30 03:13 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/431726081021.shtml)
-- 2026-06-30 03:01 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/3363658.shtml)
-- 2026-06-30 02:56 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/87185449.shtml)
-- 2026-06-30 02:57 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/64176.shtml)
-- 2026-06-30 03:12 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/70496.shtml)
-- 2026-06-30 03:04 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/729403.shtml)
-- 2026-06-30 03:03 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/8343358.shtml)
-- 2026-06-30 03:17 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/44358386.shtml)
-- 2026-06-30 02:58 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/36071.shtml)
-- 2026-06-30 03:11 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/87514.shtml)
-- 2026-06-30 03:17 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/1919009126.shtml)
-- 2026-06-30 03:22 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/8069607970.shtml)
+- 2026-06-30 03:26 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/12834578722.shtml)
+- 2026-06-30 03:16 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/610855031727.shtml)
+- 2026-06-30 03:08 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/1103917240.shtml)
+- 2026-06-30 03:20 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/255676.shtml)
+- 2026-06-30 03:16 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/089693344.shtml)
+- 2026-06-30 03:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/123771.shtml)
+- 2026-06-30 03:20 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/1335936499.shtml)
+- 2026-06-30 03:04 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/3875791.shtml)
+- 2026-06-30 03:01 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/4999903117.shtml)
+- 2026-06-30 03:12 - [一生一世](http://www.share.minike.top/Article/details/923397630.shtml)
+- 2026-06-30 03:20 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/62269192696.shtml)
+- 2026-06-30 03:09 - [时光音乐会](https://www.blog.minike.top/Article/details/2818632.shtml)
+- 2026-06-30 03:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/564580052790.shtml)
+- 2026-06-30 03:09 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/44505622.shtml)
+- 2026-06-30 03:03 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/10875683.shtml)

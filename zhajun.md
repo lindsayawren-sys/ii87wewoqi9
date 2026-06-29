@@ -1,61 +1,60 @@
-# 中国—东盟林业人工智能创新应用大赛拓展林业跨境合作
+# 美国拒绝提供驻地，伊朗世界杯大本营改至墨西哥
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-中新网南宁6月17日电(黄令妍 林浩)广西壮族自治区林业局、贵港市人民政府17日召开新闻发布会介绍，中国—东盟林业人工智能创新应用大赛6月启动，着力打造国内首个聚焦林业全领域、深度联动东盟国家的专业化林业人工智能创新赛事。 作为全国林业大省(区)，广西森林资源经营培育、林业产业、生态保护修复等体系日益完善，森林覆盖率长期位居全国前列，林草产业总产值连续多年位居全国首位。广西与东
+中新网5月27日电 综合多家外媒报道，由于美国方面拒绝为伊朗男足国家队提供世界杯期间的住宿地，墨西哥总统辛鲍姆近日透露，伊朗队将把球队大本营改设在墨西哥，并在比赛日时前往美国参赛。 历届世界杯期间，每支球队的大本营都是他们的“第二个家”，球员、教练和工作人员大部分时间会待在这里，进行训练、休整等活动。 2026美加墨世界杯将于6月11日至7月19日举行，这是世界杯首次由三个国家
 
 ## 正文
 
-中新网南宁6月17日电(黄令妍 林浩)广西壮族自治区林业局、贵港市人民政府17日召开新闻发布会介绍，中国—东盟林业人工智能创新应用大赛6月启动，着力打造国内首个聚焦林业全领域、深度联动东盟国家的专业化林业人工智能创新赛事。
+中新网5月27日电 综合多家外媒报道，由于美国方面拒绝为伊朗男足国家队提供世界杯期间的住宿地，墨西哥总统辛鲍姆近日透露，伊朗队将把球队大本营改设在墨西哥，并在比赛日时前往美国参赛。
 
-作为全国林业大省(区)，广西森林资源经营培育、林业产业、生态保护修复等体系日益完善，森林覆盖率长期位居全国前列，林草产业总产值连续多年位居全国首位。
+历届世界杯期间，每支球队的大本营都是他们的“第二个家”，球员、教练和工作人员大部分时间会待在这里，进行训练、休整等活动。
 
-广西与东盟各国地缘相近、林情相似，林业资源互补性强、合作基础深厚、发展空间广阔。
+2026美加墨世界杯将于6月11日至7月19日举行，这是世界杯首次由三个国家联合承办。
 
-此次大赛以“智赋林业·数创未来——人工智能驱动林业全链升级”为核心主题，致力于搭建中国与东盟林业领域人工智能技术交流、创新研发、成果转化与人才培育的国际化平台，为林业生态保护、产业升级、跨境合作拓展新空间。
+据报道，伊朗队最初计划将大本营设在美国亚利桑那州，因为按照赛程，球队三场小组赛都将在美国进行，其中前两场在洛杉矶，第三场在西雅图。
 
-发布会透露，大赛设置通用赛道与专项赛道，覆盖林业全产业链。
+不过，美国方面并不希望伊朗队在整个世界杯赛事期间驻留美国境内。
 
-通用赛道分设中国赛区与东盟(越南)赛区，下设林业一产、林业二产、生态保护与林业服务、东盟四大细分赛道，精准对接种苗培育、伐区调查、森林经营、灾害监测预警、林产工业智能化改造、智慧仓储、生态治理、动植物识别、林产品数字交易、东盟林业转型等核心场景。
+不过，如今伊朗队已经确定将大本营改设在位于美墨边境的墨西哥城市蒂华纳。
 
-专项赛道采用“揭榜挂帅”模式，由企业发布技术需求并设立揭榜资金，按照“发榜—对接—评审—签约”流程推进。
+伊朗足协主席迈赫迪·塔吉表示，此次变动将有助于避免与签证相关的一些问题。
 
-大赛面向中国及东盟各国全面开放，参赛对象包括企业、创业团队、个体开发者、科研院所、高校师生，鼓励跨国、跨领域、跨机构联合组队。
+自今年中东局势发生变化后，伊朗队参加世界杯便面临着重重阻碍。
 
 ## 相关推荐
 
-- 2026-06-30 02:54 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 02:57 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 03:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 03:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 02:58 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 02:59 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 03:09 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 03:12 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 03:18 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 02:58 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 03:11 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 03:10 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 03:08 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 03:17 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 03:21 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 03:00 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 03:01 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 03:17 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 03:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 03:04 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 03:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 03:16 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 03:12 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 03:24 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 03:14 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 03:21 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 03:14 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 03:08 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 03:16 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:12 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/208867.shtml)
-- 2026-06-30 03:16 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/908913.shtml)
-- 2026-06-30 02:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/366368124.shtml)
-- 2026-06-30 03:11 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/27630165458.shtml)
-- 2026-06-30 03:13 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/1827022.shtml)
-- 2026-06-30 03:18 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/99882191.shtml)
-- 2026-06-30 03:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/86443691.shtml)
-- 2026-06-30 03:01 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/8363833278.shtml)
-- 2026-06-30 02:54 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/420684814980.shtml)
-- 2026-06-30 03:02 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/9123871.shtml)
-- 2026-06-30 02:55 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/71034.shtml)
-- 2026-06-30 03:00 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/3618056.shtml)
-- 2026-06-30 03:23 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/91297885.shtml)
-- 2026-06-30 03:04 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/03817473480.shtml)
-- 2026-06-30 03:17 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/35037.shtml)
+- 2026-06-30 03:01 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/273046446466.shtml)
+- 2026-06-30 03:20 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/41034.shtml)
+- 2026-06-30 03:20 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/415352.shtml)
+- 2026-06-30 03:24 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/0252434.shtml)
+- 2026-06-30 03:02 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/468262.shtml)
+- 2026-06-30 03:18 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/6173353.shtml)
+- 2026-06-30 03:21 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/688238841656.shtml)
+- 2026-06-30 03:00 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/682946256887.shtml)
+- 2026-06-30 03:13 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/27861592.shtml)
+- 2026-06-30 03:18 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/2460570.shtml)
+- 2026-06-30 03:25 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/79491.shtml)
+- 2026-06-30 03:15 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/53162.shtml)
+- 2026-06-30 03:19 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/860175259.shtml)
+- 2026-06-30 03:24 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/66594.shtml)
+- 2026-06-30 03:23 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/294664519.shtml)

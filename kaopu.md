@@ -1,61 +1,58 @@
-# SpaceX市值超越亚马逊，马斯克万亿身家可抵140个国家GDP
+# 兽药残留超标37.5倍！双汇股价下跌5%
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-太空探索技术公司SpaceX（股票代码：SPCX）上市三天连续大涨，市值超越亚马逊。 当地时间6月16日，SpaceX盘中涨幅一度接近17%，股价最高飙升至225.64美元/股，较上市首日开盘价上涨50%，市值一度超越亚马逊和微软。 截至当日收盘，SpaceX股价报201.80美元/股，涨幅为4.83%，市值为2.66万亿美元，超过亚马逊成为全球市值第五大公司。同日收盘，亚马逊
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 “火腿大王”双汇发展再度陷入食品安全风波。 5月26日，双汇发展（000895）股价大幅下挫，盘中一度下探至24.35元，创近7个月新低；最终报收24.52元，下跌5%。 消息面上，有关双汇发展控股子公司一批猪肉产品兽药残留严重超标一事正持续发酵。 近日，黑龙江省市场监督管理局发布2026
 
 ## 正文
 
-太空探索技术公司SpaceX（股票代码：SPCX）上市三天连续大涨，市值超越亚马逊。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当地时间6月16日，SpaceX盘中涨幅一度接近17%，股价最高飙升至225.64美元/股，较上市首日开盘价上涨50%，市值一度超越亚马逊和微软。
+来源：国际金融报 “火腿大王”双汇发展再度陷入食品安全风波。
 
-截至当日收盘，SpaceX股价报201.80美元/股，涨幅为4.83%，市值为2.66万亿美元，超过亚马逊成为全球市值第五大公司。
+5月26日，双汇发展（000895）股价大幅下挫，盘中一度下探至24.35元，创近7个月新低；最终报收24.52元，下跌5%。
 
-同日收盘，亚马逊市值为2.65万亿美元，微软市值为2.93万亿美元。
+消息面上，有关双汇发展控股子公司一批猪肉产品兽药残留严重超标一事正持续发酵。
 
-随着市值走高，SpaceX创始人马斯克身家继续飙升。
+近日，黑龙江省市场监督管理局发布2026年第7期食品安全监督抽检通告。
 
-据《福布斯》最新发布的全球富豪榜，马斯克的个人财富一度升至1.4万亿美元，刷新历史纪录。
+经检测，合格产品2950批次，不合格72批次，合格率为97.62%。
 
-前一日，其身家约为1.3万亿美元。
+一众不合格样品中，包含双汇发展子公司望奎双汇北大荒食品有限公司（下称“双汇北大荒”）生产的猪后鞧肉。
 
-财联社6月16日报道称，根据IMF2026年报告数据统计，马斯克身家已经超过全球140多个国家的国内生产总值（GDP），在全球GDP排行榜中大约可以排在第19名。
+涉事产品生产日期为2025年8月27日，抽检样品取自黑龙江比邻优选连锁超市明湖分公司。
 
 ## 相关推荐
 
-- 2026-06-30 03:15 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 03:18 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 03:18 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 03:05 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 03:13 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 03:13 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 03:17 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 03:02 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 03:02 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 03:14 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 03:04 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 03:19 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 03:05 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 03:23 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 03:09 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 03:07 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 03:23 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 03:19 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 03:29 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 03:07 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 03:00 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 03:16 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 03:16 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 03:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 03:08 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 03:24 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 03:29 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:59 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/557662478523.shtml)
-- 2026-06-30 03:08 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/21035.shtml)
-- 2026-06-30 02:59 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/97704449.shtml)
-- 2026-06-30 03:08 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/37645843190.shtml)
-- 2026-06-30 03:18 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/9952769294.shtml)
-- 2026-06-30 03:16 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/8051542063.shtml)
-- 2026-06-30 03:11 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/34524018996.shtml)
-- 2026-06-30 03:15 - [毒液2](https://www.blog.kurohicncr.top/Article/details/1407531630.shtml)
-- 2026-06-30 03:02 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/7120764.shtml)
-- 2026-06-30 03:05 - [我和我的家乡](https://www.share.minike.top/Article/details/3660993646.shtml)
-- 2026-06-30 03:02 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/84728057845.shtml)
-- 2026-06-30 03:09 - [刘念回应](https://www.blog.minike.top/Article/details/53888.shtml)
-- 2026-06-30 02:59 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/35847119.shtml)
-- 2026-06-30 02:59 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/301514232745.shtml)
-- 2026-06-30 03:05 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/560480.shtml)
+- 2026-06-30 03:05 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/22486682854.shtml)
+- 2026-06-30 03:20 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/8988347.shtml)
+- 2026-06-30 03:15 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/560375180.shtml)
+- 2026-06-30 03:06 - [点菜也要教吗](https://www.blog.minike.top/Article/details/0408583.shtml)
+- 2026-06-30 03:24 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/466919695310.shtml)
+- 2026-06-30 03:10 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/66822235.shtml)
+- 2026-06-30 03:02 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/22171.shtml)
+- 2026-06-30 03:10 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/165239.shtml)
+- 2026-06-30 03:11 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/194269876.shtml)
+- 2026-06-30 03:11 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/86806.shtml)
+- 2026-06-30 03:02 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/233945488514.shtml)
+- 2026-06-30 03:13 - [周生如故](https://www.share.kurohicncr.top/Article/details/697840.shtml)
+- 2026-06-30 03:26 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/714169660.shtml)
+- 2026-06-30 03:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/3439703925.shtml)
+- 2026-06-30 03:26 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/36130.shtml)

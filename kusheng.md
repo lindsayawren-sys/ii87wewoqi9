@@ -1,46 +1,56 @@
-# “数爱无疆”数字公益故事展播 | 产业扶贫+项目扶贫，君乐宝打造扶贫民企样本
+# 美股涨疯了！纳指、标普再创历史新高，美光暴涨19%跻身万亿俱乐部
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 20:42 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。 2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由君乐宝乳业集团股份有限公司
+昨夜今晨，结束假期重启交易的美股市场延续半导体和AI牛股集体冲高的局面，标普500指数和纳指再创盘中新高和收盘历史新高。 截至收盘，标准普尔500指数涨0.61%，报7519.12点；纳斯达克综合指数涨1.19%，报26656.18点；在周二迎来130岁生日的道琼斯工业平均指数跌0.23%，报50461.68点。 昨夜风头最强劲的个股无疑是存储龙头美光科技。 美光收盘涨幅定格在
 
 ## 正文
 
-发布时间：2026年06月16日 20:42 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。
+昨夜今晨，结束假期重启交易的美股市场延续半导体和AI牛股集体冲高的局面，标普500指数和纳指再创盘中新高和收盘历史新高。
 
-2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由君乐宝乳业集团股份有限公司推送的“产业扶贫+项目扶贫，君乐宝打造扶贫民企样本”作品入选。
+截至收盘，标准普尔500指数涨0.61%，报7519.12点；纳斯达克综合指数涨1.19%，报26656.18点；在周二迎来130岁生日的道琼斯工业平均指数跌0.23%，报50461.68点。
 
-责任编辑：【李季】
+昨夜风头最强劲的个股无疑是存储龙头美光科技。
+
+美光收盘涨幅定格在19.29%，市值首度突破1万亿美元关口，成为当前地球上13家万亿美元上市公司之一。
+
+过去12个月里，公司股价翻了8倍。
+
+作为美光股价的强力催化因素，瑞银美国半导体和半导体设备分析师蒂莫西·阿库里（Timothy Arcuri）在最新报告中，将美光目标价从535美元大幅上调至1625美元，对应市值高达1.8万亿美元。
+
+阿库里也认为，鉴于长期供应协议（LTA）将锁定相当一部分产能，市场将逐步给予美光更正常的估值倍数，而不只是“周期股”。
+
+与此同时，美国总统特朗普也在上周五的一场集会中公开称赞美光科技。
 
 ## 相关推荐
 
-- 2026-06-30 02:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 03:12 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 03:05 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 03:03 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 03:11 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 03:01 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 03:19 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 03:11 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 03:08 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 03:08 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 03:03 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 03:11 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 03:00 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 03:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 03:09 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 03:00 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 03:27 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 03:23 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 03:26 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 03:24 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/546843.shtml)
-- 2026-06-30 03:13 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/787846.shtml)
-- 2026-06-30 03:02 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/325106573.shtml)
-- 2026-06-30 02:56 - [巴西扳平比分](http://www.share.minike.top/Article/details/713704.shtml)
-- 2026-06-30 03:14 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/62394.shtml)
-- 2026-06-30 03:00 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/8832513.shtml)
-- 2026-06-30 02:55 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/1639019785.shtml)
-- 2026-06-30 03:00 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/5102793980.shtml)
-- 2026-06-30 02:54 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/00619413.shtml)
-- 2026-06-30 03:22 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/15292407181.shtml)
-- 2026-06-30 03:06 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/70016048462.shtml)
-- 2026-06-30 03:20 - [一生一世](http://www.share.minike.top/Article/details/538088.shtml)
-- 2026-06-30 03:05 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/77436386.shtml)
-- 2026-06-30 03:16 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/56141275.shtml)
-- 2026-06-30 03:03 - [请回答王牌2019](http://www.blog.minike.top/Article/details/85092.shtml)
+- 2026-06-30 03:26 - [日本进球](https://www.share.minike.top/Article/details/70259076.shtml)
+- 2026-06-30 03:20 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/749654924.shtml)
+- 2026-06-30 03:18 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/80673097.shtml)
+- 2026-06-30 03:00 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/347444.shtml)
+- 2026-06-30 03:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/14890868.shtml)
+- 2026-06-30 03:18 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/439676964736.shtml)
+- 2026-06-30 03:17 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/082434558.shtml)
+- 2026-06-30 03:04 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/9779316505.shtml)
+- 2026-06-30 03:01 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/985599640.shtml)
+- 2026-06-30 03:01 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/72648458095.shtml)
+- 2026-06-30 03:07 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/835715.shtml)
+- 2026-06-30 03:11 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/2211376058.shtml)
+- 2026-06-30 03:27 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/8429521000.shtml)
+- 2026-06-30 03:28 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/23184321790.shtml)
+- 2026-06-30 03:24 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/385116175864.shtml)

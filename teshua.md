@@ -1,58 +1,59 @@
-# 文远知行-W盘中涨超20% 传公司正在尝试分拆Robovan业务进行独立融资
+# 金篆数据库GoldenDB三款产品通过国测！筑牢国产数据库安全可靠新标杆
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-文远知行-W（00800）盘中涨超20%，截至发稿，股价上涨13.55%，现报18.86元，成交额4036.46万港元。 据每日经济新闻报道，有消息称文远知行正在尝试分拆其Robovan（自动驾驶货运车）业务进行独立融资，该业务估值已达4亿美元（约合人民币27亿元）。据悉，文远知行于2025年2月正式发布Robovan产品，并已在广州获得道路测试牌照并开启路测。对于上述消息，记
+近日，中兴通讯旗下金篆数据库 GoldenDB（简称“GoldenDB”） 三款产品顺利通过安全可靠测评，这标志着GoldenDB数据库在核心技术、安全保障、持续发展等能力上再获国家级认可，必将成为GoldenDB发展的重要里程碑。该测评由中国信息安全测评中心、国家保密科技测评中心、国家知识产权局联合实施，依据国家安全法、网络安全法、数据安全法等相关法规，对产品的研发设计、生产
 
 ## 正文
 
-文远知行-W（00800）盘中涨超20%，截至发稿，股价上涨13.55%，现报18.86元，成交额4036.46万港元。
+近日，中兴通讯旗下金篆数据库 GoldenDB（简称“GoldenDB”） 三款产品顺利通过安全可靠测评，这标志着GoldenDB数据库在核心技术、安全保障、持续发展等能力上再获国家级认可，必将成为GoldenDB发展的重要里程碑。
 
-据每日经济新闻报道，有消息称文远知行正在尝试分拆其Robovan（自动驾驶货运车）业务进行独立融资，该业务估值已达4亿美元（约合人民币27亿元）。
+该测评由中国信息安全测评中心、国家保密科技测评中心、国家知识产权局联合实施，依据国家安全法、网络安全法、数据安全法等相关法规，对产品的研发设计、生产制造、供应保障、售后维护等全生命周期安全可靠性的综合度量和客观评价，是国内基础软件领域最权威、最全面的官方认证之一，也是关键信息基础设施采购选型的核心准入依据。
 
-据悉，文远知行于2025年2月正式发布Robovan产品，并已在广州获得道路测试牌照并开启路测。
+本次通过测评的产品分别为：GoldenDB数据库 V7、GoldenDB lite数据库 V7、GoldenDB EBASE V3。
 
-对于上述消息，记者向文远知行方面求证，一位内部人士回应称：“暂无消息分享。
+其中，GoldenDB数据库 V7成功通过分布式数据库二级测评，为当前分布式数据库领域最高等级；GoldenDB lite数据库 V7通过集中式数据库一级测评；GoldenDB EBASE V3 通过分布式数据库（分析型）一级测评。
 
-” 值得注意的是，公司将在斯洛伐克全面部署旗下L4级自动驾驶产品矩阵。
+三款产品主要覆盖分布式核心交易、集中式通用场景、分析型场景，形成完整产品矩阵，全面满足金融、运营商、能源、政务、交通等诸多行业数字化转型需求。
 
-项目先在布拉迪斯拉发启动测试，后扩展至科希策及高塔特拉山区，部分车型计划2026年内实现公开商业化运营，满足欧盟法规后推进纯无人运营。
+GoldenDB数据库 V7作为聚焦核心交易场景为主的分布式数据库，具备分布式事务强一致、高可用、高可靠、高安全、线性水平扩展等核心能力，已在金融、运营商、交通，企业等行业的核心系统大规模商用，此次斩获分布式二级测评，必将进一步巩固和扩大其在核心交易场景的领先地位。
 
-责任编辑：卢昱君
+GoldenDB lite数据库 V7为集中式数据库，具备部署简洁、稳定高效、易运维等特点，适配中小规模核心业务与通用业务场景，满足快速上线与降本增效需求。
+
+GoldenDB EBASE V3 是一款分析型为主的数据库，其以无共享大规模并行处理（MPP）架构为核心，具备高性能、高可用、高安全、易扩展等特性，支持Multi-Master多写多读、流式计算、湖仓一体、向量存储与检索等高级功能，拥有高吞吐的实时数据加工及分析能力，可打造全SQL体验的一站式实时数仓。
 
 ## 相关推荐
 
-- 2026-06-30 03:00 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 03:09 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 03:12 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 03:04 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 02:57 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 02:58 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 03:12 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 03:16 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 03:11 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 02:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 02:59 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-30 03:14 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 02:58 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 02:54 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 03:22 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 03:18 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 03:25 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 03:18 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 03:19 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 03:19 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 03:19 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 03:29 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 03:20 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 03:03 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 03:05 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 03:06 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 03:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:04 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/58653.shtml)
-- 2026-06-30 03:04 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/3905801469.shtml)
-- 2026-06-30 03:10 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/352629.shtml)
-- 2026-06-30 03:20 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/545992417.shtml)
-- 2026-06-30 03:11 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/1672756159.shtml)
-- 2026-06-30 02:56 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/95079277.shtml)
-- 2026-06-30 02:54 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/488755.shtml)
-- 2026-06-30 03:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/4779898.shtml)
-- 2026-06-30 03:23 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/698625389934.shtml)
-- 2026-06-30 03:21 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/92661042823.shtml)
-- 2026-06-30 03:22 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/2377386099.shtml)
-- 2026-06-30 03:09 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/96433752.shtml)
-- 2026-06-30 02:55 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/16644518438.shtml)
-- 2026-06-30 03:04 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/08693287455.shtml)
-- 2026-06-30 03:06 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/67251605153.shtml)
+- 2026-06-30 03:26 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/77547924.shtml)
+- 2026-06-30 03:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/51458940936.shtml)
+- 2026-06-30 03:01 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/26944770.shtml)
+- 2026-06-30 03:09 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/3650230633.shtml)
+- 2026-06-30 03:29 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/87268336829.shtml)
+- 2026-06-30 03:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/86980.shtml)
+- 2026-06-30 03:00 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/164556996374.shtml)
+- 2026-06-30 03:03 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/47740517.shtml)
+- 2026-06-30 03:24 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/2631767318.shtml)
+- 2026-06-30 03:14 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/78386.shtml)
+- 2026-06-30 03:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/660429713232.shtml)
+- 2026-06-30 03:00 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/64165.shtml)
+- 2026-06-30 03:00 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/7657294624.shtml)
+- 2026-06-30 03:23 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/077377646.shtml)
+- 2026-06-30 03:05 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/779633483.shtml)

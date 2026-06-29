@@ -1,57 +1,60 @@
-# 习近平：中缅建交76年来 两国始终风雨同舟 守望相助
+# 今夜，大变局！全球“大动脉”，突传重磅！两类资产，直线跳水！
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-独家视频丨习近平：中缅建交76年来 两国始终风雨同舟 守望相助 6月16日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的缅甸总统敏昂莱举行会谈。 习近平指出，中缅胞波情谊深厚，建交76年来，始终风雨同舟、守望相助。中国秉持亲诚惠容理念，将发展对缅关系置于周边外交重要位置。中国坚持不干涉内政原则，对缅友好政策面向缅甸全体人民，坚定支持缅方维护主权和领土完整，支持缅甸新政
+全球航运“大动脉”，传来新消息！ 当地时间27日，伊朗方面称，已有多艘船只通过霍尔木兹海峡，其余船只也将在未来数小时内通行，“敌对国家船只”除外。 同日，一份有关伊朗与美国谅解备忘录框架的“初步非正式文件”被披露，内容涉及霍尔木兹海峡、地区军事部署及未来协议安排等问题。 随着投资者“看好”美伊协议进展，国际油价27日盘中直线跳水，WTI原油期货价格跌幅一度超过6%。 市场方面，
 
 ## 正文
 
-独家视频丨习近平：中缅建交76年来 两国始终风雨同舟 守望相助 6月16日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的缅甸总统敏昂莱举行会谈。
+全球航运“大动脉”，传来新消息！
 
-习近平指出，中缅胞波情谊深厚，建交76年来，始终风雨同舟、守望相助。
+当地时间27日，伊朗方面称，已有多艘船只通过霍尔木兹海峡，其余船只也将在未来数小时内通行，“敌对国家船只”除外。
 
-中国秉持亲诚惠容理念，将发展对缅关系置于周边外交重要位置。
+同日，一份有关伊朗与美国谅解备忘录框架的“初步非正式文件”被披露，内容涉及霍尔木兹海峡、地区军事部署及未来协议安排等问题。
 
-中国坚持不干涉内政原则，对缅友好政策面向缅甸全体人民，坚定支持缅方维护主权和领土完整，支持缅甸新政府统筹发展和安全，找到符合国情、人民拥护的正确发展道路。
+随着投资者“看好”美伊协议进展，国际油价27日盘中直线跳水，WTI原油期货价格跌幅一度超过6%。
 
-敏昂莱说：“尊敬的主席阁下，我当选总统后数小时内便首先收到了阁下的贺信，这既体现了中国对缅甸新政府的重视，也展现了我们之间的亲密友谊。
+市场方面，美股半导体板块盘中大跳水，费城半导体指数一度跌超3%，高通大跌9.6%，ARM跌超6%，英特尔跌超4%，AMD跌超3%。
 
-尊敬的主席阁下，这是我第十三次来到中国访问，缅方期待同中方实现共同发展繁荣。
+美光科技盘中转跌，该公司在盘前交易时段一度大涨约10%。
 
-” 总监制丨申勇 监制丨龚雪辉 记者丨史伟 彭汉明 赵化 邢彬 马喆 摄像丨李铮 钟锐 李辉 曹亚星 刘琦 赵龙 翻译丨董洁
+油价大跳水，霍尔木兹海峡传来新消息 北京时间27日晚间，由于市场对美伊将达成和平协议的乐观情绪，油价大幅跳水。
+
+其中，WTI原油一度跌超6%。
 
 ## 相关推荐
 
-- 2026-06-30 03:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 03:01 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 03:04 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 02:57 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 03:19 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 03:11 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 02:56 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 02:57 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 03:06 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 02:57 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 03:18 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 03:20 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 03:11 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 03:29 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 03:11 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 03:18 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 03:14 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 03:15 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 03:10 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 03:21 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 03:26 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 03:27 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 03:01 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 03:04 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 03:11 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 03:23 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 03:00 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/83635.shtml)
-- 2026-06-30 03:07 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/245071500.shtml)
-- 2026-06-30 02:58 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/454994991737.shtml)
-- 2026-06-30 03:14 - [千香](https://www.blog.kurohicncr.top/Article/details/9483446642.shtml)
-- 2026-06-30 03:05 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/151343752142.shtml)
-- 2026-06-30 03:11 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/42375590971.shtml)
-- 2026-06-30 02:54 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/2442881.shtml)
-- 2026-06-30 03:04 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/947435740.shtml)
-- 2026-06-30 03:20 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/9570242.shtml)
-- 2026-06-30 02:54 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/22981851382.shtml)
-- 2026-06-30 03:12 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/94074379.shtml)
-- 2026-06-30 03:14 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/95047847.shtml)
-- 2026-06-30 03:19 - [我们的少年时代2](https://www.share.minike.top/Article/details/009190839.shtml)
-- 2026-06-30 03:19 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/652823402496.shtml)
-- 2026-06-30 03:20 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/757548766017.shtml)
+- 2026-06-30 03:22 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/8496591350.shtml)
+- 2026-06-30 03:07 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/57891085579.shtml)
+- 2026-06-30 03:26 - [沙丘](https://www.share.minike.top/Article/details/374688386.shtml)
+- 2026-06-30 03:24 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/995336508.shtml)
+- 2026-06-30 03:02 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/67303538.shtml)
+- 2026-06-30 03:13 - [周生如故](http://www.share.kurohicncr.top/Article/details/290795758353.shtml)
+- 2026-06-30 03:27 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/37030.shtml)
+- 2026-06-30 03:26 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/8860111921.shtml)
+- 2026-06-30 03:18 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/0088966.shtml)
+- 2026-06-30 03:05 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/405992986960.shtml)
+- 2026-06-30 03:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/37322073479.shtml)
+- 2026-06-30 03:15 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/724407210250.shtml)
+- 2026-06-30 03:15 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/66058.shtml)
+- 2026-06-30 03:07 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/986756.shtml)
+- 2026-06-30 03:22 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/628928153005.shtml)

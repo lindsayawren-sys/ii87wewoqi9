@@ -1,56 +1,42 @@
-# 大众汽车要求竞购财团提交对发动机子公司的最终报价
+# 2026年01月-04月广西进出口商品类章总值表（人民币、美元值）
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-媒体援引知情人士报道，大众汽车已要求三家竞购财团下周就其价值100亿美元的发动机子公司出售交易提交最终报价。竞购财团背后有欧洲亿万富豪家族、卡塔尔和加拿大的资金支持。 大众汽车试图消除外界对EQT拥有不公平优势的担忧，后者此前与大众汽车大股东保时捷汽车控股公司和卡塔尔投资局联手竞标。大众汽车、保时捷和EQT均拒绝就此事置评。 4月，大众汽车据悉将EQT Group、CVC、贝恩
+2026年01月-04月广西进出口商品类章总值表(人民币、美元值).xls
 
 ## 正文
 
-媒体援引知情人士报道，大众汽车已要求三家竞购财团下周就其价值100亿美元的发动机子公司出售交易提交最终报价。
-
-竞购财团背后有欧洲亿万富豪家族、卡塔尔和加拿大的资金支持。
-
-大众汽车试图消除外界对EQT拥有不公平优势的担忧，后者此前与大众汽车大股东保时捷汽车控股公司和卡塔尔投资局联手竞标。
-
-大众汽车、保时捷和EQT均拒绝就此事置评。
-
-4月，大众汽车据悉将EQT Group、CVC、贝恩列入对旗下Everllence发动机子公司的竞购入围名单。
-
-责任编辑：王永生
+2026年01月-04月广西进出口商品类章总值表(人民币、美元值).xls
 
 ## 相关推荐
 
-- 2026-06-30 03:03 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 03:09 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 03:11 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-30 02:57 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 03:13 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 03:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 03:00 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-30 02:56 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 03:04 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 03:09 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 02:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 03:05 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 03:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 02:57 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 03:00 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 03:18 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 03:01 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 03:26 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 03:07 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-30 03:02 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 03:12 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 03:24 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 03:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 03:25 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:59 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/1869628803.shtml)
-- 2026-06-30 03:20 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/097885035464.shtml)
-- 2026-06-30 03:13 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/354216.shtml)
-- 2026-06-30 03:05 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/19225662704.shtml)
-- 2026-06-30 03:09 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/4701384.shtml)
-- 2026-06-30 03:23 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/1116967.shtml)
-- 2026-06-30 03:07 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/469402870.shtml)
-- 2026-06-30 03:13 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/860951510.shtml)
-- 2026-06-30 03:07 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/35320467.shtml)
-- 2026-06-30 03:07 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/3940603.shtml)
-- 2026-06-30 03:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/238829862.shtml)
-- 2026-06-30 03:23 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/56591473189.shtml)
-- 2026-06-30 02:54 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/9669397223.shtml)
-- 2026-06-30 03:14 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/35487731926.shtml)
-- 2026-06-30 03:00 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/263024.shtml)
+- 2026-06-30 03:12 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/352697553.shtml)
+- 2026-06-30 03:13 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/7916660.shtml)
+- 2026-06-30 03:21 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/607059245009.shtml)
+- 2026-06-30 03:28 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/93776070.shtml)
+- 2026-06-30 03:06 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/7541284.shtml)
+- 2026-06-30 03:02 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/984498955.shtml)
+- 2026-06-30 03:15 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/33991.shtml)
+- 2026-06-30 03:10 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/493130188.shtml)
+- 2026-06-30 03:22 - [一见倾心](https://www.share.minike.top/Article/details/8043598070.shtml)
+- 2026-06-30 03:21 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/5931227460.shtml)
+- 2026-06-30 03:13 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/6328102280.shtml)
+- 2026-06-30 03:13 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/01683308.shtml)
+- 2026-06-30 03:01 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/517034339.shtml)
+- 2026-06-30 03:21 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/0218100.shtml)
+- 2026-06-30 03:05 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/1414885396.shtml)

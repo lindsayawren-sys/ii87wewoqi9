@@ -1,60 +1,57 @@
-# 日本央行如期加息25个基点 利率升至31年来最高水平
+# 淮河水利委员会连续会商部署水旱灾害防御工作
 
-> 更新时间：2026-06-30 03:24:03 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-日本央行加息25个基点，将目标利率由0.75%上调至1.00%，为31年来最高水平，符合市场预期，此前已连续三次会议按兵不动。 日本央行行长植田和男因治疗肝囊肿感染近日住院，他将以书面形式向政策委员会提交意见，但不会参与投票。 日本央行副行长内田真一周二作为央行的主要沟通者将成为焦点，肩负解释央行最新决定和未来政策方向的重任。这位副行长十多年来一直是日本央行的主要政策制定者之一
+中新网5月27日电 5月26日，淮河水利委员会召开防汛会商会，分析研判流域雨水情趋势，安排部署近期水旱灾害防御工作。 入汛以来，淮河流域发生两轮强降雨过程，流域降雨量92.1毫米(含山东半岛)，较历史同期多317%。受强降雨影响，淮河干流及南部潢河、白露河、史灌河、淠河等支流发生明显涨水过程，其中潢河发生一次超警洪水过程。截至目前，本轮强降雨过程已基本结束，河道洪水正向中下游演
 
 ## 正文
 
-日本央行加息25个基点，将目标利率由0.75%上调至1.00%，为31年来最高水平，符合市场预期，此前已连续三次会议按兵不动。
+中新网5月27日电 5月26日，淮河水利委员会召开防汛会商会，分析研判流域雨水情趋势，安排部署近期水旱灾害防御工作。
 
-日本央行行长植田和男因治疗肝囊肿感染近日住院，他将以书面形式向政策委员会提交意见，但不会参与投票。
+入汛以来，淮河流域发生两轮强降雨过程，流域降雨量92.1毫米(含山东半岛)，较历史同期多317%。
 
-日本央行副行长内田真一周二作为央行的主要沟通者将成为焦点，肩负解释央行最新决定和未来政策方向的重任。
+受强降雨影响，淮河干流及南部潢河、白露河、史灌河、淠河等支流发生明显涨水过程，其中潢河发生一次超警洪水过程。
 
-这位副行长十多年来一直是日本央行的主要政策制定者之一，他将代替行长植田和男出席记者会，后者上周因肝囊肿感染住院治疗。
+截至目前，本轮强降雨过程已基本结束，河道洪水正向中下游演进，流域河道、水库、湖泊水情平稳可控。
 
-即便行长仍在住院，市场普遍预期日本央行将把基准利率上调至1995年以来的最高水平。
+会议强调，各地各单位要密切跟踪后续雨水情态势，从严从实落细各项防汛举措。
 
-内田真一此前因白血病接受了数月治疗，刚刚出院不久。
-
-他将代替植田和男出席记者会，这将是自1998年日本央行法颁布以来，首次出现央行行长因健康原因缺席政策决策的情况。
-
-责任编辑：王永生
+一是强化雨水情监测预警，要紧盯淮南山区潢河、白露河等重点河段洪水演进，指导地方做好超警河段堤防防守等工作；二是科学开展水工程调度，要重点关注洪泽湖、骆马湖水位，科学调度水利工程，合理控制湖水位，保障洪水顺利下泄；三是强化中小水库运行监管，督促各地按照规程有序泄流，确保超汛限水库水位尽快回落至汛限水位以下；四是重点关注短时强降雨区域，严防山洪灾害、中小河流超警及城市内涝风险，督促各地及时落实应急措施，牢牢守住安全底线；五是不断完善淮河防洪“四预”系统，要以此次洪水过程为契机，及时复核重点河道断面水位流量关系，夯实水文测报与调度研判基础。
 
 ## 相关推荐
 
-- 2026-06-30 03:22 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 03:09 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 02:55 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 03:23 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 03:17 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 03:00 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 03:23 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 03:23 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 03:01 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 03:15 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 03:08 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 03:22 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 03:08 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 03:15 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 03:25 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 03:21 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 03:28 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 03:23 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 03:25 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 03:05 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 03:25 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 03:18 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 03:15 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 03:13 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 03:14 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 03:04 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 03:00 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 03:25 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 03:20 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:58 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/7428318362.shtml)
-- 2026-06-30 03:02 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/683760423879.shtml)
-- 2026-06-30 02:57 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/45336.shtml)
-- 2026-06-30 03:03 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/886182214.shtml)
-- 2026-06-30 03:07 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/418618.shtml)
-- 2026-06-30 03:16 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/038048374150.shtml)
-- 2026-06-30 02:55 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/70147511099.shtml)
-- 2026-06-30 03:14 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/5968483.shtml)
-- 2026-06-30 03:10 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/48477329771.shtml)
-- 2026-06-30 03:10 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/837156940.shtml)
-- 2026-06-30 03:19 - [我们的少年时代2](http://www.share.minike.top/Article/details/22623241138.shtml)
-- 2026-06-30 03:01 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/3212639531.shtml)
-- 2026-06-30 03:22 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/2173311004.shtml)
-- 2026-06-30 03:02 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/4693787.shtml)
-- 2026-06-30 02:59 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/9830316.shtml)
+- 2026-06-30 03:12 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/06968598038.shtml)
+- 2026-06-30 03:04 - [啊啊啊](https://www.blog.minike.top/Article/details/453394327009.shtml)
+- 2026-06-30 03:05 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/59653646095.shtml)
+- 2026-06-30 03:15 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/529066.shtml)
+- 2026-06-30 03:10 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/533487.shtml)
+- 2026-06-30 03:16 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/57328633229.shtml)
+- 2026-06-30 03:10 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/73409.shtml)
+- 2026-06-30 03:08 - [极限挑战第一季](http://www.blog.minike.top/Article/details/766357513.shtml)
+- 2026-06-30 03:15 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/8263473.shtml)
+- 2026-06-30 03:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/875991.shtml)
+- 2026-06-30 03:24 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/000351695.shtml)
+- 2026-06-30 03:17 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/84104.shtml)
+- 2026-06-30 03:19 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/23551325.shtml)
+- 2026-06-30 03:16 - [我们的少年时代2](https://www.blog.minike.top/Article/details/005500.shtml)
+- 2026-06-30 03:21 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/634728380148.shtml)

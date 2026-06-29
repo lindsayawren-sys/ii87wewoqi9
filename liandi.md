@@ -1,61 +1,60 @@
-# 共同创造雄安美好未来——雄安新区扎实推进高质量建设和发展
+# 林州重机涉嫌信披违规被查，适格股民或可索赔损失！
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-人民日报记者 万秀斌 邵玉姿 人因城而聚，城因人而兴。 从“一块地”“一张图”到“一座城”，再到努力建设新时代创新高地和推动高质量发展样板，拔节生长的河北雄安新区，活跃着一群朝气蓬勃的雄安人。 今年3月23日，习近平总书记来到雄安新区考察，同雄安新区入驻和在建疏解单位干部职工代表亲切交流，询问大家的工作生活情况，肯定大家为新区建设发展付出的努力。“大家要为做雄安人感到自豪，一马
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月27日，林州重机（维权）集团股份有限公司发布《关于收到中国证券监督管理委员会的公告》，公告称，公司2026 年5月26日收到中国证券监督管理委员会下发的《立案告知书》 （证监立案字 0122026003）。因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》、《中华人民共和国行政处罚法》等法律法规，中国证券监督
 
 ## 正文
 
-人民日报记者 万秀斌 邵玉姿 人因城而聚，城因人而兴。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月27日，林州重机（维权）集团股份有限公司发布《关于收到中国证券监督管理委员会的公告》，公告称，公司2026 年5月26日收到中国证券监督管理委员会下发的《立案告知书》 （证监立案字 0122026003）。
 
-从“一块地”“一张图”到“一座城”，再到努力建设新时代创新高地和推动高质量发展样板，拔节生长的河北雄安新区，活跃着一群朝气蓬勃的雄安人。
+因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》、《中华人民共和国行政处罚法》等法律法规，中国证券监督管理委员会决定对公司立案调查。
 
-今年3月23日，习近平总书记来到雄安新区考察，同雄安新区入驻和在建疏解单位干部职工代表亲切交流，询问大家的工作生活情况，肯定大家为新区建设发展付出的努力。
+目前尚不清楚林州重机涉嫌信披违规的具体情形，但无论上市公司涉及的何种信披违规行为，给投资人造成投资损失的，均应承担赔偿责任。
 
-“大家要为做雄安人感到自豪，一马当先、蹄疾步稳地干事创业，共同创造雄安美好未来。
+索赔相关 陈宇霞律师在此提醒， 凡在2026年5月26日收盘时持有林州重机股票的投资者，或有权向林州重机索赔相关投资损失。
 
-” 殷殷期许，言犹在耳。
+（林州重机维权入口） 以上索赔条件仅代表陈宇霞律师的观点，不作为任何投资决策和买卖建议，最终以法院认定的索赔条件为准。
 
-使命在肩，雄安人步履铿锵。
+参加股票索赔的股民需准备如下材料； 1、股票交易对账单（如对账单上未显示完整的身份证号码，需另外打印股东信息表；对账期间从第一次买入至完全卖出（或打印对账单之日） 2、身份证复印件 律师代理费 如委托律师代理，该类案件一般为风险代理，前期不收取任何费用，胜诉后按赔偿款的一定比例支付律师费，未获赔偿无需支付律师费。
 
-6月12日上午8时，雄安新区中关村科技园，眼神科技雄安事业部副总经理翁军武拿上笔记本电脑，直奔雄安城市计算中心，协调“灵娲”人工智能训练平台的系统升级工作。
+（本文由北京盈科（杭州）律师事务所陈宇霞律师供稿，不代表新浪财经的观点。
 
-“平台可快速生成各种人工智能识别算法，助力雄安打造一个可感可知的‘未来之城’。
+陈宇霞律师，北京盈科（杭州）律师事务所律师，已成功代理股民诉超华科技、圣莱达、三房巷、亿晶光电、天翔环境、祥源文化、中兵红箭、獐子岛、长园集团、索菱股份、中润资源、延安必康、大东南、联建光电等数十家上市公司的证券虚假陈述责任纠纷案件。
 
 ## 相关推荐
 
-- 2026-06-30 03:03 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 02:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 03:12 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 03:06 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 02:56 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 02:59 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 03:01 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 02:54 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 03:02 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 03:06 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 03:01 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 03:03 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 03:20 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 03:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 03:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 03:00 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 03:17 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 03:11 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 03:02 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 03:15 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 03:05 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 03:10 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 03:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 03:20 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 03:05 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 03:20 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 03:05 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 03:11 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 03:03 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:59 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/178757.shtml)
-- 2026-06-30 03:03 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/0632165906.shtml)
-- 2026-06-30 02:57 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/71937.shtml)
-- 2026-06-30 03:07 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/789453547.shtml)
-- 2026-06-30 03:20 - [绘画区你赢了](http://www.blog.minike.top/Article/details/51852.shtml)
-- 2026-06-30 03:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/1260645892.shtml)
-- 2026-06-30 03:04 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/52322622.shtml)
-- 2026-06-30 03:08 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/8122901113.shtml)
-- 2026-06-30 03:16 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/7409562128.shtml)
-- 2026-06-30 03:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/55936.shtml)
-- 2026-06-30 03:13 - [流金岁月](https://www.share.minike.top/Article/details/79680684.shtml)
-- 2026-06-30 03:16 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/137788197456.shtml)
-- 2026-06-30 03:09 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/07799299.shtml)
-- 2026-06-30 03:17 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/6259419246.shtml)
-- 2026-06-30 03:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/920785944949.shtml)
+- 2026-06-30 03:07 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/38737604979.shtml)
+- 2026-06-30 03:28 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/948252.shtml)
+- 2026-06-30 03:07 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/93909492.shtml)
+- 2026-06-30 03:09 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/32170.shtml)
+- 2026-06-30 03:07 - [明星大侦探第一季](http://www.share.minike.top/Article/details/1332019.shtml)
+- 2026-06-30 03:20 - [刘念回应](http://www.share.minike.top/Article/details/8842339462.shtml)
+- 2026-06-30 03:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/13829237393.shtml)
+- 2026-06-30 03:20 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/14678492.shtml)
+- 2026-06-30 03:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/08527297812.shtml)
+- 2026-06-30 03:21 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/04603.shtml)
+- 2026-06-30 03:18 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/91123748287.shtml)
+- 2026-06-30 03:15 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/670844272540.shtml)
+- 2026-06-30 03:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/839086.shtml)
+- 2026-06-30 03:03 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/072266774.shtml)
+- 2026-06-30 03:06 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/52990.shtml)

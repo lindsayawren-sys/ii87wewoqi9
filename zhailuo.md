@@ -1,53 +1,59 @@
-# 智谱早盘涨超6% 公司已推出最新一代旗舰模型GLM-5.2
+# 从清华园到小米工厂：武契奇一日感知“中国未来”
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-智谱（02513）早盘涨近7%，截至发稿，股价上涨6.18%，现报1547港元，成交额10.69亿港元。 6月15日，智谱发布公告，公司已推出最新一代旗舰模型GLM-5.2，模型提供达到1M的长上下文，并在长程任务中继续保持领先，将遵循MIT协议开源。预计该模型将助益公司后续开放平台及API业务的调用量提升。麦格理认为，智谱推出GLM-5.2带来正面影响，可能加强该公司在随后订
+中新社北京5月26日电 题：从清华园到小米工厂：武契奇一日感知“中国未来” 中新社记者 “我几乎都快哭了。”26日上午在清华大学发表演讲后，塞尔维亚总统武契奇再次谈起前一日晚被授予“友谊勋章”时的感受。 25日晚，中国国家主席习近平在北京人民大会堂为武契奇举行颁授仪式。“友谊勋章”是中华人民共和国对外最高荣誉勋章。 武契奇表示，那不仅是一份荣誉，更是未来肩负的重大责任，他将继续
 
 ## 正文
 
-智谱（02513）早盘涨近7%，截至发稿，股价上涨6.18%，现报1547港元，成交额10.69亿港元。
+中新社北京5月26日电 题：从清华园到小米工厂：武契奇一日感知“中国未来” 中新社记者 “我几乎都快哭了。
 
-6月15日，智谱发布公告，公司已推出最新一代旗舰模型GLM-5.2，模型提供达到1M的长上下文，并在长程任务中继续保持领先，将遵循MIT协议开源。
+”26日上午在清华大学发表演讲后，塞尔维亚总统武契奇再次谈起前一日晚被授予“友谊勋章”时的感受。
 
-预计该模型将助益公司后续开放平台及API业务的调用量提升。
+25日晚，中国国家主席习近平在北京人民大会堂为武契奇举行颁授仪式。
 
-麦格理认为，智谱推出GLM-5.2带来正面影响，可能加强该公司在随后订阅计划中的定价能力，这应会继续推动强劲的年度经常性收入增长势头。
+“友谊勋章”是中华人民共和国对外最高荣誉勋章。
 
-中金指出，根据该行和众多开发者测评，GLM-5.2整体编程能力相较GLM-5.1均有明显进步，在具备优势的后端领域多项测评任务已可以对标Claude Opus 4.6；前端任务的审美、精细度和可控性也有明显提高，综合编程能力继续稳居国产模型第一，也是国模首个真实能力达到Opus 4.6的模型，并逐步拉开和其他国产模型的差距。
+武契奇表示，那不仅是一份荣誉，更是未来肩负的重大责任，他将继续致力于塞中友好事业，让塞中两国友好关系更加紧密牢固。
 
-责任编辑：卢昱君
+在即兴交流时，武契奇被问及是否会考虑让孩子学习中文，他笑着说，最小的儿子已经开始学中文。
+
+“我最大的‘错误’之一，就是自己年纪太大，学不会中文。
+
+”他说完，现场响起笑声。
 
 ## 相关推荐
 
-- 2026-06-30 03:03 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 03:17 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 03:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 03:18 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 02:59 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 02:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-30 03:19 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 03:22 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 03:13 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-30 03:01 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 03:18 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 03:09 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 03:19 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 03:25 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 03:03 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 03:13 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 03:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 03:26 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 03:29 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 03:23 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 03:00 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 03:00 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 03:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 03:13 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/918961507.shtml)
-- 2026-06-30 03:10 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/201175074493.shtml)
-- 2026-06-30 03:19 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/92032.shtml)
-- 2026-06-30 03:08 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/1973288633.shtml)
-- 2026-06-30 03:10 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/439382609.shtml)
-- 2026-06-30 03:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/3647579567.shtml)
-- 2026-06-30 03:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/64499.shtml)
-- 2026-06-30 02:58 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/0303591.shtml)
-- 2026-06-30 03:10 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/012118012.shtml)
-- 2026-06-30 03:13 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/765379651708.shtml)
-- 2026-06-30 03:11 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/1140630531.shtml)
-- 2026-06-30 03:10 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/567532.shtml)
-- 2026-06-30 03:13 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/362843501415.shtml)
-- 2026-06-30 03:21 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/7888644.shtml)
-- 2026-06-30 03:00 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/795041345.shtml)
+- 2026-06-30 03:05 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/22786.shtml)
+- 2026-06-30 03:25 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/61679.shtml)
+- 2026-06-30 03:12 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/529355.shtml)
+- 2026-06-30 03:27 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/2415271.shtml)
+- 2026-06-30 03:19 - [斛珠夫人](http://www.share.minike.top/Article/details/756879495574.shtml)
+- 2026-06-30 03:07 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/1414277025.shtml)
+- 2026-06-30 03:10 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/71094378.shtml)
+- 2026-06-30 03:04 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/2494960999.shtml)
+- 2026-06-30 03:07 - [周生如故](https://www.share.kurohicncr.top/Article/details/795071335.shtml)
+- 2026-06-30 03:14 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/5803260590.shtml)
+- 2026-06-30 03:01 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/1819606495.shtml)
+- 2026-06-30 03:21 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/39965945.shtml)
+- 2026-06-30 03:07 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/563400.shtml)
+- 2026-06-30 03:27 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/79775545.shtml)
+- 2026-06-30 03:13 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/65442.shtml)

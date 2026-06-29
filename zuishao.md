@@ -1,61 +1,51 @@
-# 长江有色：17日氧化铝期价收涨0.73% 下游刚需成交偏弱
+# 嘉兴燃气获柳松增持129.55万股 每股作价约7.93港元
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 长江有色网6月17日讯，今日氧化铝所有合约涨跌不一，主力2609合约早盘高开走弱，午后盘面反弹走强；截止当日15：00收盘，氧化铝主力月2609合约报2914元，涨21元，涨幅0.73%；加权合约累计成交389165手，比前一交易日增加20466手，涨幅5.55%；持仓量417203手增加6625手，涨幅1.61%。 今日国内氧化铝现货价格部分地区上涨；据长江有
+香港联交所最新数据显示，5月21日，柳松增持嘉兴燃气（09908）129.55万股，每股作价7.932港元，总金额约为1027.59万港元。增持后最新持股数目为249.55万股，最新持股比例为6.59%。责任编辑：卢昱君
 
 ## 正文
 
-长江有色金属网 长江有色网6月17日讯，今日氧化铝所有合约涨跌不一，主力2609合约早盘高开走弱，午后盘面反弹走强；截止当日15：00收盘，氧化铝主力月2609合约报2914元，涨21元，涨幅0.73%；加权合约累计成交389165手，比前一交易日增加20466手，涨幅5.55%；持仓量417203手增加6625手，涨幅1.61%。
+香港联交所最新数据显示，5月21日，柳松增持嘉兴燃气（09908）129.55万股，每股作价7.932港元，总金额约为1027.59万港元。
 
-今日国内氧化铝现货价格部分地区上涨；据长江有色网ccmn数据，6月17日氧化铝华南地区每吨报2700-2750元之间，与前一交易日报价持平；华东地区氧化铝每吨报2740-2780元之间，与前一交易日报价涨20元；西南地区氧化铝每吨2755-2795元之间，与前一交易日报价持平；西北地区氧化铝每吨报3070-3110元之间，与前一交易日报价涨10元。
+增持后最新持股数目为249.55万股，最新持股比例为6.59%。
 
-今日上期所氧化铝期货主力2609合约先抑后扬，日间交易收涨0.73%，国内氧化铝现货价格部分地区上涨； 宏观层面，美伊临时和平协议即将签署，能源供应冲击与通胀担忧继续降温，美元避险买需受抑，但美联储周三议息（沃什首秀）前市场偏谨慎，全球股市分化、风险偏好不稳。
-
-山西部分氧化铝厂受赤泥库隐患排查影响短暂停限产，几内亚铝土矿出口配额细则出台预期继续扰动盘面，氧化铝期价相对有韧性；但整体过剩及高库存格局未改，短期仍面临区间调整压力。
-
-基本面多空交织。
-
-供给端：前期检修产能部分恢复与广西新产能投产爬坡，全国氧化铝运行产能增至9230万吨/年，周产量169.8万吨，总库存环比大增13.9万吨至702.4万吨（港口同步累积、海外货源持续到港施压）；上期所仓单高位且6月临期仓单超15万吨无法转抛远月、现货抛压隐现。
-
-潜在支撑：几内亚铝土矿出口配额传闻（上限1.5亿吨/年）及山西非煤矿山、赤泥库隐患排查（涉及约200万吨/年产能）提供低位情绪支撑，但短期难改宽松格局。
-
-需求端：国内电解铝运行产能逼近4500万吨天花板、开工率近99%，对氧化铝形成刚性消耗托底；受铝价高位震荡、冶炼利润环比收窄影响，铝厂采购趋保守，以执行长单刚需为主，现货无集中补库。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:08 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 03:19 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 02:58 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 03:01 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 03:20 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 03:08 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 02:54 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 03:23 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 03:13 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 02:59 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 03:22 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 03:10 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 03:14 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 02:59 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 03:05 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 03:29 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 03:23 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 03:28 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-30 03:27 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 03:26 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 03:00 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 03:19 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-30 03:27 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 03:14 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 03:18 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 03:22 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 03:22 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 03:02 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 03:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 03:12 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:13 - [扫黑风暴](http://www.blog.minike.top/Article/details/96515894162.shtml)
-- 2026-06-30 03:01 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/813904.shtml)
-- 2026-06-30 03:05 - [金刚川](http://www.share.kurohicncr.top/Article/details/303361.shtml)
-- 2026-06-30 03:05 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/015351.shtml)
-- 2026-06-30 03:00 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/1434353372.shtml)
-- 2026-06-30 03:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/87485.shtml)
-- 2026-06-30 03:18 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/17696338.shtml)
-- 2026-06-30 03:07 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/658951310.shtml)
-- 2026-06-30 02:55 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/628580838.shtml)
-- 2026-06-30 03:20 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/96588073.shtml)
-- 2026-06-30 03:09 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/822572688536.shtml)
-- 2026-06-30 03:18 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/76978907000.shtml)
-- 2026-06-30 03:14 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/92990.shtml)
-- 2026-06-30 03:15 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/4135281824.shtml)
-- 2026-06-30 03:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/0888775.shtml)
+- 2026-06-30 03:05 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/05671457.shtml)
+- 2026-06-30 03:19 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/72957.shtml)
+- 2026-06-30 03:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/2395816608.shtml)
+- 2026-06-30 03:22 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/08998.shtml)
+- 2026-06-30 03:29 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/7279410.shtml)
+- 2026-06-30 03:25 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/82583487778.shtml)
+- 2026-06-30 03:09 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/539748349.shtml)
+- 2026-06-30 03:03 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/593376.shtml)
+- 2026-06-30 03:21 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/6949170540.shtml)
+- 2026-06-30 03:07 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/35908.shtml)
+- 2026-06-30 03:02 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/485730.shtml)
+- 2026-06-30 03:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/731577.shtml)
+- 2026-06-30 03:03 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/41189.shtml)
+- 2026-06-30 03:29 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/677537521.shtml)
+- 2026-06-30 03:18 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/9085114.shtml)

@@ -1,57 +1,58 @@
-# 【豆菜粕半年报】丰年假想
+# 互联网监测组织称伊朗开始部分恢复互联网连接
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-紫金天风期货 观点小结 北美：预计6月面积较3月种植意向小幅上调。美豆出口方面暂无新增利好消息，USDA给的26/27季美豆平衡表较为中性。全球大豆26/27季期末库存维持稳定且巴西丰产，美豆新作种植进度快，通胀逻辑下，美豆价格受全球供需及宏观因素制约，波动区间或受限。 南美：丰产前景明朗、阿根廷大豆优良率高。据IMEA或者更高频一些的数据，反映当前销售进度不慢，预计巴西贴水下
+互联网监测组织NetBlocks报告称，在经历了现代历史上持续时间最长的全国性断网之后，伊朗的互联网连接已部分恢复。 该组织的实时网络指标显示，网络连接已开始恢复；此前，伊朗与国际网络几乎完全隔离长达88天。 NetBlocks表示，目前尚不清楚此次恢复能否持续。 按照伊朗总统指示，该国正分阶段重新开放互联网接入。 后续评估表明，这一过程正持续推进且未曾中断，固网领域的国际互联
 
 ## 正文
 
-紫金天风期货 观点小结 北美：预计6月面积较3月种植意向小幅上调。
+互联网监测组织NetBlocks报告称，在经历了现代历史上持续时间最长的全国性断网之后，伊朗的互联网连接已部分恢复。
 
-美豆出口方面暂无新增利好消息，USDA给的26/27季美豆平衡表较为中性。
+该组织的实时网络指标显示，网络连接已开始恢复；此前，伊朗与国际网络几乎完全隔离长达88天。
 
-全球大豆26/27季期末库存维持稳定且巴西丰产，美豆新作种植进度快，通胀逻辑下，美豆价格受全球供需及宏观因素制约，波动区间或受限。
+NetBlocks表示，目前尚不清楚此次恢复能否持续。
 
-南美：丰产前景明朗、阿根廷大豆优良率高。
+按照伊朗总统指示，该国正分阶段重新开放互联网接入。
 
-据IMEA或者更高频一些的数据，反映当前销售进度不慢，预计巴西贴水下跌幅度有限。
+后续评估表明，这一过程正持续推进且未曾中断，固网领域的国际互联网接入恢复工作已经展开。
 
-天气：可以期待，但降低厄尔尼诺不利南北美大豆生长的期待，警惕厄尔尼诺对水产养殖的不利影响。
+据官方媒体报道，伊朗总统佩泽希齐扬一天前表示，互联网接入将于周一恢复。
 
-国内基本面：后续三月进口大豆到港预估虽然均在千吨以上，但不及去年同期的水平。
-
-豆粕上半年成交整体好于上半年，特别是年初的远月基差成交。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 03:21 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 03:17 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 03:20 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 03:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-30 03:00 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-30 03:16 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 03:17 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 03:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 03:12 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 03:04 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 03:21 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 03:00 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 03:23 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 03:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 03:26 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 03:12 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 03:08 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 03:09 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 03:26 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 03:27 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 03:02 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 03:20 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-30 03:07 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 03:29 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 03:07 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:02 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/2356933.shtml)
-- 2026-06-30 03:04 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/8284463099.shtml)
-- 2026-06-30 03:17 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/875012220.shtml)
-- 2026-06-30 03:03 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/281427995.shtml)
-- 2026-06-30 02:59 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/263095066325.shtml)
-- 2026-06-30 02:59 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/5054111630.shtml)
-- 2026-06-30 03:10 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/5882168192.shtml)
-- 2026-06-30 03:14 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/630550020.shtml)
-- 2026-06-30 03:14 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/5899192.shtml)
-- 2026-06-30 03:14 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/7117781892.shtml)
-- 2026-06-30 03:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/19039011.shtml)
-- 2026-06-30 03:00 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/743196498654.shtml)
-- 2026-06-30 03:08 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/8719358.shtml)
-- 2026-06-30 02:54 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/181201.shtml)
-- 2026-06-30 03:22 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/44132.shtml)
+- 2026-06-30 03:19 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/76560.shtml)
+- 2026-06-30 03:18 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/04436960.shtml)
+- 2026-06-30 03:21 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/941556053445.shtml)
+- 2026-06-30 03:01 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/43398432.shtml)
+- 2026-06-30 03:08 - [天道](http://www.blog.kurohicncr.top/Article/details/269801834811.shtml)
+- 2026-06-30 03:03 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/418423.shtml)
+- 2026-06-30 03:07 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/6108783250.shtml)
+- 2026-06-30 03:28 - [周生如故](http://www.share.kurohicncr.top/Article/details/70964.shtml)
+- 2026-06-30 03:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/718786433.shtml)
+- 2026-06-30 03:03 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/34435013.shtml)
+- 2026-06-30 03:19 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/63971.shtml)
+- 2026-06-30 03:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/75417214899.shtml)
+- 2026-06-30 03:13 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/01550281054.shtml)
+- 2026-06-30 03:22 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/74737860025.shtml)
+- 2026-06-30 03:06 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/4494939.shtml)

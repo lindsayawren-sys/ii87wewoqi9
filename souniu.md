@@ -1,58 +1,58 @@
-# （机遇澳门）中葡论坛常设秘书处秘书长：“横琴+澳门”为葡语国家企业带来新机遇
+# 尽管伊朗冲突冲击销售，Abercrombie盈利超预期，股价大涨13%
 
-> 更新时间：2026-06-30 03:24:03 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-中新网澳门6月16日电 (记者 郑嘉伟)中国—葡语国家经贸合作论坛(澳门)(简称“中葡论坛”)常设秘书处秘书长季先峥15日表示，随着“横琴+澳门”一体化发展不断深入，“总部在澳门、研发在横琴、生产在珠海”将为有能力的葡语国家企业进入中国内地带来新机遇。当日下午，季先峥在中国与葡语国家商贸合作服务平台综合体接受“机遇澳门”主题采访活动专访时作上述表述。他还表示，葡语国家既可以利用
+专题：聚焦美股2026年第一季度财报 核心要点 Abercrombie & Fitch 于周三公布了 2026 财年第一季度业绩。公司表示，受中东冲突 “直接影响”，业绩喜忧参半，且给出了弱于预期的业绩指引。 尽管面临上述挑战，公司早盘股价仍大涨约 13%，因其盈利数据轻松超出华尔街预期。 首席财务官 Robert Ball 在分析师电话会议上表示，本季度公司欧洲、中东及非洲地
 
 ## 正文
 
-中新网澳门6月16日电 (记者 郑嘉伟)中国—葡语国家经贸合作论坛(澳门)(简称“中葡论坛”)常设秘书处秘书长季先峥15日表示，随着“横琴+澳门”一体化发展不断深入，“总部在澳门、研发在横琴、生产在珠海”将为有能力的葡语国家企业进入中国内地带来新机遇。
+专题：聚焦美股2026年第一季度财报 核心要点 Abercrombie & Fitch 于周三公布了 2026 财年第一季度业绩。
 
-当日下午，季先峥在中国与葡语国家商贸合作服务平台综合体接受“机遇澳门”主题采访活动专访时作上述表述。
+公司表示，受中东冲突 “直接影响”，业绩喜忧参半，且给出了弱于预期的业绩指引。
 
-他还表示，葡语国家既可以利用澳门的法律和语言优势，也可以利用横琴和珠海的产业空间和供应链条件，更好对接中国超大市场规模。
+尽管面临上述挑战，公司早盘股价仍大涨约 13%，因其盈利数据轻松超出华尔街预期。
 
-季先峥介绍，中葡论坛常设秘书处近年来把“横琴+澳门”作为推进各项工作的出发点。
+首席财务官 Robert Ball 在分析师电话会议上表示，本季度公司欧洲、中东及非洲地区（EMEA）销售额下降 10%，主因中东冲突导致旗下 Hollister 品牌需求放缓Abercrombie & Fitch Co．。
 
-秘书处组织的每一个研修班都会组织横琴和粤港澳大湾区其他城市的交流行程。
+他称，相较于公司此前预期，中东冲突导致公司第一季度总净销售额增速降低了 0.5 个百分点以上。
 
-秘书处每年赴葡语国家访问时，每到一地都要系统介绍横琴粤澳深度合作区的政策机遇与合作方向。
+CEO Fran Horowitz 在电话会议上补充道：“我们专注于可控因素，包括库存水平和营销投入，确保能实时应对市场变化。
 
-季先峥指出，目前“横琴+澳门”模式已初见成效：“中国—葡语系国家科技交流合作中心”已经成立，引进5家葡语国家企业落户澳门，以及7个科技合作项目入驻珠海、横琴；中医药产业园对推动中医药在巴西、莫桑比克注册发挥了积极作用；会展“一展两地”模式为来澳门的外国客商提供了走进内地市场的便利。
+尽管 EMEA 地区遭遇逆风，但我们预计第二季度及 2026 全年总销售额将实现增长，这将是我们净销售额连续第四年增长。
 
-季先峥说，澳门发展要克服空间限制，必然要发挥“内联外通”作用，把内地各省份和葡语国家的资源要素通过澳门平台流通起来。
+”Abercrombie & Fitch Co． 据伦敦证券交易所集团（LSEG）数据，公司预计本季度每股收益在 1.80 美元至 2.00 美元之间，远低于市场预期的 2.54 美元。
 
 ## 相关推荐
 
-- 2026-06-30 03:06 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 03:06 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 03:15 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 02:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-30 03:11 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 03:14 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 02:54 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 03:09 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 02:56 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 03:02 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 03:06 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 03:12 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 03:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 03:03 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 03:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 03:19 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 03:08 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 03:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 03:16 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 03:09 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 03:21 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 03:17 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 03:16 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 03:05 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:07 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/38901354236.shtml)
-- 2026-06-30 03:00 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/264342731.shtml)
-- 2026-06-30 02:57 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/968024.shtml)
-- 2026-06-30 02:54 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/89495515140.shtml)
-- 2026-06-30 03:16 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/2127108.shtml)
-- 2026-06-30 02:58 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/75211379.shtml)
-- 2026-06-30 03:03 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/313187258516.shtml)
-- 2026-06-30 03:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/35844157092.shtml)
-- 2026-06-30 02:54 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/181503790.shtml)
-- 2026-06-30 03:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/994907.shtml)
-- 2026-06-30 03:03 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/31672697.shtml)
-- 2026-06-30 03:13 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/77182.shtml)
-- 2026-06-30 03:10 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/532389.shtml)
-- 2026-06-30 02:56 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/1246375414.shtml)
-- 2026-06-30 03:09 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/9966470.shtml)
+- 2026-06-30 03:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/970739753.shtml)
+- 2026-06-30 03:20 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/56558506241.shtml)
+- 2026-06-30 03:13 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/34331491188.shtml)
+- 2026-06-30 03:28 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/02391304711.shtml)
+- 2026-06-30 03:06 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/900913841137.shtml)
+- 2026-06-30 03:13 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/846150777631.shtml)
+- 2026-06-30 03:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/501637211.shtml)
+- 2026-06-30 03:19 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/92680076.shtml)
+- 2026-06-30 03:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/79434540758.shtml)
+- 2026-06-30 03:14 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/9314193846.shtml)
+- 2026-06-30 03:09 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/80390.shtml)
+- 2026-06-30 03:09 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/97439.shtml)
+- 2026-06-30 03:12 - [日本16强魔咒](http://www.share.minike.top/Article/details/118188806.shtml)
+- 2026-06-30 03:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/8983810871.shtml)
+- 2026-06-30 03:13 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/4710646.shtml)

@@ -1,47 +1,58 @@
-# 收评|国内期货主力合约跌多涨少，多晶硅跌超7%
+# Zscaler发布乐观财报但指引不及预期，股价重挫逾23%
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-2026年6月16日，国内期货主力合约跌多涨少，多晶硅跌超7%，甲醇、丙烯跌超5%，乙二醇（EG）、聚丙烯、低硫燃料油（LU）、沥青跌超4%。涨幅方面，不锈钢（SS）涨超3%，20号胶涨近3%，橡胶涨超2%，沪金、沪银、合成橡胶、棕榈油涨超1%，沪锡涨近1%。 责任编辑：赵思远
+云安全公司Zscaler周三公布2026财年第三季度业绩，营收和利润双双超越华尔街预期，但因第四季度营收指引略低于市场预估，且全年自由现金流预期遭大幅下调，公司股价在盘后交易中暴跌逾23%。 财报亮点：营收、利润双双超预期 截至4月30日的第三财季，Zscaler营收同比增长25%至8.505亿美元，高于分析师预期的8.36亿美元。调整后每股收益为1.08美元，同样超出市场预期
 
 ## 正文
 
-2026年6月16日，国内期货主力合约跌多涨少，多晶硅跌超7%，甲醇、丙烯跌超5%，乙二醇（EG）、聚丙烯、低硫燃料油（LU）、沥青跌超4%。
+云安全公司Zscaler周三公布2026财年第三季度业绩，营收和利润双双超越华尔街预期，但因第四季度营收指引略低于市场预估，且全年自由现金流预期遭大幅下调，公司股价在盘后交易中暴跌逾23%。
 
-涨幅方面，不锈钢（SS）涨超3%，20号胶涨近3%，橡胶涨超2%，沪金、沪银、合成橡胶、棕榈油涨超1%，沪锡涨近1%。
+财报亮点：营收、利润双双超预期 截至4月30日的第三财季，Zscaler营收同比增长25%至8.505亿美元，高于分析师预期的8.36亿美元。
 
-责任编辑：赵思远
+调整后每股收益为1.08美元，同样超出市场预期的1.01美元。
+
+公司年度经常性收入增长25%至35.3亿美元，调整后营业利润率达到创纪录的23%。
+
+然而按美国通用会计准则计算，公司本季度净亏损1390万美元，高于去年同期的410万美元亏损。
+
+“随着企业面临AI智能体和先进模型带来的安全威胁，对零信任架构的需求持续攀升，”首席执行官Jay Chaudhry在财报声明中表示，“Zscaler已处于理想位置，成为AI时代的网络安全平台。
+
+” 市场担忧：指引不及预期，自由现金流展望下调 尽管业绩亮眼，Zscaler对第四季度的营收指引令市场失望。
+
+公司预计第四财季营收将在8.75亿至8.78亿美元之间，略低于分析师预期的8.79亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 03:15 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 03:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 03:23 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 03:14 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 03:04 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 02:59 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 03:01 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 03:09 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 03:20 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 03:15 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 03:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 03:14 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 03:16 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 03:06 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 03:29 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-30 03:27 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 03:28 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 03:06 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 03:25 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 03:16 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 03:09 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 03:25 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 03:24 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:21 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/0286617794.shtml)
-- 2026-06-30 03:21 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/66986793.shtml)
-- 2026-06-30 02:56 - [金刚川](http://www.share.kurohicncr.top/Article/details/504743602517.shtml)
-- 2026-06-30 03:16 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/6266293.shtml)
-- 2026-06-30 03:21 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/51710036.shtml)
-- 2026-06-30 03:22 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/800159305.shtml)
-- 2026-06-30 03:04 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/7859438524.shtml)
-- 2026-06-30 03:11 - [内马尔替补](https://www.share.minike.top/Article/details/39831489589.shtml)
-- 2026-06-30 03:22 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/108025743594.shtml)
-- 2026-06-30 03:05 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/3326545.shtml)
-- 2026-06-30 03:15 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/26072141971.shtml)
-- 2026-06-30 03:00 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/66181297651.shtml)
-- 2026-06-30 02:59 - [金牌调解](https://www.share.minike.top/Article/details/86573320467.shtml)
-- 2026-06-30 03:05 - [爱很美味](http://www.share.minike.top/Article/details/8567424906.shtml)
-- 2026-06-30 03:00 - [内马尔替补](http://www.blog.minike.top/Article/details/448700732944.shtml)
+- 2026-06-30 03:19 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/216939.shtml)
+- 2026-06-30 03:09 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/698691993242.shtml)
+- 2026-06-30 03:26 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/02584.shtml)
+- 2026-06-30 03:15 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/89617887.shtml)
+- 2026-06-30 03:02 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/66118262945.shtml)
+- 2026-06-30 03:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/822849932.shtml)
+- 2026-06-30 03:27 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/77960.shtml)
+- 2026-06-30 03:16 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/3163033878.shtml)
+- 2026-06-30 03:20 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/6219378831.shtml)
+- 2026-06-30 03:15 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/1880281639.shtml)
+- 2026-06-30 03:17 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/09869063633.shtml)
+- 2026-06-30 03:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/205036088191.shtml)
+- 2026-06-30 03:24 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/88499.shtml)
+- 2026-06-30 03:28 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/22090.shtml)
+- 2026-06-30 03:00 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/69695.shtml)

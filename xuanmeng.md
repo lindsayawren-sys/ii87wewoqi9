@@ -1,61 +1,59 @@
-# 92%→99.99%！国产高纯硅量产 为哪些领域带来机遇
+# （台海观澜）廿载守望 在福建泉州读懂“闽台缘”
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-量子计算被认为是下一代科技革命的引擎。硅基量子芯片则是最有可能推动量子计算规模化应用的技术之一。作为硅的稳定同位素，硅-28被誉为“世界上最纯净的硅”，是比钻石还纯净的晶体，是研制硅基量子芯片不可或缺的核心材料。中核集团核工业理化工程研究院昨天宣布，我国科学家在稳定同位素富集与高纯硅制备领域取得关键性突破，首次成功实现丰度超过99.99%的硅-28同位素自主量产，产品关键指标达
+中新社泉州5月27日电 题：廿载守望 在福建泉州读懂“闽台缘” 中新社记者 孙虹 “台胞捐赠的藏品涵盖宗教造像、陶瓷器皿、名人手稿、古籍文献、谱牒家书等多个品类。”中国唯一一座以反映大陆与台湾历史关系为主题的国家一级博物馆——中国闽台缘博物馆馆长郑国防向中新社记者介绍，这些藏品见证了两岸同胞同心共绘闽台缘的深厚情谊。 2006年5月27日，坐落于福建泉州的中国闽台缘博物馆正式对
 
 ## 正文
 
-量子计算被认为是下一代科技革命的引擎。
+中新社泉州5月27日电 题：廿载守望 在福建泉州读懂“闽台缘” 中新社记者 孙虹 “台胞捐赠的藏品涵盖宗教造像、陶瓷器皿、名人手稿、古籍文献、谱牒家书等多个品类。
 
-硅基量子芯片则是最有可能推动量子计算规模化应用的技术之一。
+”中国唯一一座以反映大陆与台湾历史关系为主题的国家一级博物馆——中国闽台缘博物馆馆长郑国防向中新社记者介绍，这些藏品见证了两岸同胞同心共绘闽台缘的深厚情谊。
 
-作为硅的稳定同位素，硅-28被誉为“世界上最纯净的硅”，是比钻石还纯净的晶体，是研制硅基量子芯片不可或缺的核心材料。
+2006年5月27日，坐落于福建泉州的中国闽台缘博物馆正式对外开放。
 
-中核集团核工业理化工程研究院昨天宣布，我国科学家在稳定同位素富集与高纯硅制备领域取得关键性突破，首次成功实现丰度超过99.99%的硅-28同位素自主量产，产品关键指标达到国际先进水平。
+20年来，该馆通过各种方式充实文物藏品24560件、馆藏谱牒11456册、两岸家书9649件/套，其中40%的藏品为台胞捐赠；累计接待观众逾1770万人次，其中台胞逾103.8万人次。
 
-科研团队介绍，这项科研突破，将为我国硅基量子计算芯片的自主研制，以及先进制程半导体、精确导航、计量基准等前沿科技领域高质量发展提供坚实支撑。
+“闽台缘”不只体现在馆名，更分布在馆里的各个角落。
 
-那么，丰度超过99.99%的硅-28同位素为何会对硅基量子芯片如此重要？
+郑国防说，馆内收藏着数不尽的两岸故事，见证了300多个两岸家族的团圆、数千位游子的笑与泪。
 
-实现这项突破的难度有多大？
+志愿讲解员黄芳萍还记得，2019年7月自己第一次正式上岗讲解，接待的是一个台湾进香团。
 
-要了解这项科研突破，首先要回答一个问题，什么是量子计算。
+当她用闽南语说出“大家好”时，全团长辈们突然安静下来，有人眼眶泛红。
 
 ## 相关推荐
 
-- 2026-06-30 03:19 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 03:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 03:17 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 03:00 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 03:15 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 03:08 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 03:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 03:22 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 03:14 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 03:07 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 03:04 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 02:56 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 02:58 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 03:14 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 03:03 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 03:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 03:04 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 03:13 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 03:09 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-30 03:12 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 03:21 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 03:16 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 03:01 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 03:10 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 03:04 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 03:25 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 03:26 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 03:10 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:16 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/0471680.shtml)
-- 2026-06-30 03:21 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/73922843154.shtml)
-- 2026-06-30 03:05 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/3401499.shtml)
-- 2026-06-30 03:05 - [美股](http://www.share.minike.top/Article/details/89111.shtml)
-- 2026-06-30 03:13 - [我们的少年时代2](https://www.share.minike.top/Article/details/53847593.shtml)
-- 2026-06-30 02:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/327539.shtml)
-- 2026-06-30 03:08 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/807101.shtml)
-- 2026-06-30 03:21 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/731491526.shtml)
-- 2026-06-30 02:56 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/122169.shtml)
-- 2026-06-30 03:21 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/373882504762.shtml)
-- 2026-06-30 02:55 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/88586258.shtml)
-- 2026-06-30 02:55 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/79296734074.shtml)
-- 2026-06-30 03:08 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/846884843.shtml)
-- 2026-06-30 03:07 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/0523161.shtml)
-- 2026-06-30 02:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/21057447827.shtml)
+- 2026-06-30 03:02 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/907644.shtml)
+- 2026-06-30 03:15 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/0477164.shtml)
+- 2026-06-30 03:19 - [月亮](http://www.share.kurohicncr.top/Article/details/65459.shtml)
+- 2026-06-30 03:12 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/1941366.shtml)
+- 2026-06-30 03:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/6010005123.shtml)
+- 2026-06-30 03:13 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/466858.shtml)
+- 2026-06-30 03:16 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/919118724530.shtml)
+- 2026-06-30 03:06 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/3376488.shtml)
+- 2026-06-30 03:14 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/72588028.shtml)
+- 2026-06-30 03:23 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/170419.shtml)
+- 2026-06-30 03:22 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/43852813412.shtml)
+- 2026-06-30 03:21 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/49890622510.shtml)
+- 2026-06-30 03:16 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/958123865.shtml)
+- 2026-06-30 03:18 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/80143825.shtml)
+- 2026-06-30 03:03 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/20070.shtml)

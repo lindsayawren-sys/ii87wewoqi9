@@ -1,53 +1,54 @@
-# 日本央行副行长内田真一：行长植田和男缺席将不会产生重大影响
+# 深交所2026全球投资者大会开幕 证监会副主席刘浩凌出席开幕式并致辞
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-日本央行副行长内田真一在会后的新闻发布会上表示，行长植田和男的住院治疗将会是短期的，因此不太可能对政策制定过程产生重大影响。 内田在代替行长发言时表示，植田已通过演讲和简报表达了自己的观点。 内田表示他无法分享植田提交给委员会有关6月会议的观点。 日本央行将基准利率上调至31年最高 并计划停止缩减债券购买规模。责任编辑：江学思
+专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月28日，深交所2026全球投资者大会在深圳开幕。大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，中国证监会副主席刘浩凌，广东省副省长李运，深圳市常务副市长陶永欣等出席开幕式并致辞。多位中外专家学者，来
 
 ## 正文
 
-日本央行副行长内田真一在会后的新闻发布会上表示，行长植田和男的住院治疗将会是短期的，因此不太可能对政策制定过程产生重大影响。
+专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-内田在代替行长发言时表示，植田已通过演讲和简报表达了自己的观点。
+5月28日，深交所2026全球投资者大会在深圳开幕。
 
-内田表示他无法分享植田提交给委员会有关6月会议的观点。
+大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，中国证监会副主席刘浩凌，广东省副省长李运，深圳市常务副市长陶永欣等出席开幕式并致辞。
 
-日本央行将基准利率上调至31年最高 并计划停止缩减债券购买规模。
+多位中外专家学者，来自24个国家和地区的境外监管机构和交易所、资管机构、创投机构、行业组织、上市公司等代表，以及深交所主要负责同志现场参会。
 
-责任编辑：江学思
+大会为期两天，将通过主旨演讲、圆桌讨论、公司路演、科技展陈等方式，多维度展示“十五五”规划下的中国资本市场高质量发展及服务科技创新成长的投资新机遇。
+
+责任编辑：常福强
 
 ## 相关推荐
 
-- 2026-06-30 03:23 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 02:59 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 03:10 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 03:02 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 03:03 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 03:13 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 03:10 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 03:02 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 03:04 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 03:19 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 03:09 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 03:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 03:22 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 03:26 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 03:23 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 03:04 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 03:11 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 03:28 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 03:07 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 03:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 03:14 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-30 03:07 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 03:09 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 03:11 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 03:20 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:58 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/13151675.shtml)
-- 2026-06-30 02:59 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/98404.shtml)
-- 2026-06-30 03:03 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/72452796.shtml)
-- 2026-06-30 03:19 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/11299658.shtml)
-- 2026-06-30 03:13 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/3934299181.shtml)
-- 2026-06-30 03:07 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/670310229.shtml)
-- 2026-06-30 03:16 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/181309.shtml)
-- 2026-06-30 03:07 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/461399.shtml)
-- 2026-06-30 03:09 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/4114917200.shtml)
-- 2026-06-30 03:10 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/353843946.shtml)
-- 2026-06-30 03:13 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/07682335474.shtml)
-- 2026-06-30 02:56 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/35745183601.shtml)
-- 2026-06-30 03:19 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/58093544.shtml)
-- 2026-06-30 03:21 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/337107.shtml)
-- 2026-06-30 03:07 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/0317648.shtml)
+- 2026-06-30 03:11 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/891433843869.shtml)
+- 2026-06-30 03:14 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/076549.shtml)
+- 2026-06-30 03:29 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/246730.shtml)
+- 2026-06-30 03:06 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/021489756.shtml)
+- 2026-06-30 03:02 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/14927053264.shtml)
+- 2026-06-30 03:20 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/5174642116.shtml)
+- 2026-06-30 03:08 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/522842148595.shtml)
+- 2026-06-30 03:04 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/041157.shtml)
+- 2026-06-30 03:13 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/16761.shtml)
+- 2026-06-30 03:11 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/55990954.shtml)
+- 2026-06-30 03:28 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/60624295851.shtml)
+- 2026-06-30 03:10 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/33200117.shtml)
+- 2026-06-30 03:06 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/82989042109.shtml)
+- 2026-06-30 03:06 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/0618899.shtml)
+- 2026-06-30 03:00 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/416970697.shtml)

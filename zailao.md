@@ -1,47 +1,56 @@
-# 美伊达成谅解备忘录 美总统：霍尔木兹海峡“已经部分开放”
+# 首届上海电气“工匠月”启幕，产业工人队伍建设改革展示馆同步揭牌亮相
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 10:19 来源：央视新闻 责任编辑：【王祎】
+近日，首届上海电气“工匠月”主题活动暨2026年技能人才工作会议在电气培训基地召开。当天，上海电气产业工人队伍建设改革展示馆正式揭牌开馆。这是上海市首个以产业工人队伍建设改革为主题的专题展馆，标志着上海在深化产改、弘扬工匠精神方面迈出重要一步。市人大常委会副主任、党组副书记，市总工会主席郑钢淼，市总工会党组书记、副主席侯继军，上海电气集团党委书记、董事长吴磊，集团党委副书记、总
 
 ## 正文
 
-发布时间：2026年06月16日 10:19 来源：央视新闻 责任编辑：【王祎】
+近日，首届上海电气“工匠月”主题活动暨2026年技能人才工作会议在电气培训基地召开。
+
+当天，上海电气产业工人队伍建设改革展示馆正式揭牌开馆。
+
+这是上海市首个以产业工人队伍建设改革为主题的专题展馆，标志着上海在深化产改、弘扬工匠精神方面迈出重要一步。
+
+市人大常委会副主任、党组副书记，市总工会主席郑钢淼，市总工会党组书记、副主席侯继军，上海电气集团党委书记、董事长吴磊，集团党委副书记、总裁朱兆开出席会议。
+
+集团党委副书记、市机电工会主席王晨皓主持会议。
+
+新揭牌的上海电气产业工人队伍建设改革展示馆以“锻造大国工匠，赋能制造强国”为主题，聚焦集团贯彻落实中央及上海市深化产业工人队伍建设改革决策部署的生动实践。
+
+展馆通过“时代召唤”“战略擘画”“改革攻坚”“未来图景”四大篇章，全方位展现上海电气从国家战略需求与企业高质量发展出发，构建“培养、提升、应用、激励”全链条技能人才发展生态的探索历程。
+
+作为中国动力工业的摇篮，上海电气拥有120余年辉煌历史，此次展馆落成，既是对历代劳模工匠奋斗精神的致敬，也为全行业搭建起高技能人才培养的交流平台。
 
 ## 相关推荐
 
-- 2026-06-30 03:06 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 03:06 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-30 03:01 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 03:12 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 02:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 03:07 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 03:14 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 03:01 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 03:11 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 02:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 02:56 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 03:17 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 03:15 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 02:58 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 03:23 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 03:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 03:05 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 03:07 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 03:11 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 03:28 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 03:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-30 03:27 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 03:19 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 03:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 03:26 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [天道](http://www.share.minike.top/Article/details/35502649.shtml)
-- 2026-06-30 02:54 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/27533448028.shtml)
-- 2026-06-30 03:13 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/61031461568.shtml)
-- 2026-06-30 03:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/513433.shtml)
-- 2026-06-30 02:55 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/14962951.shtml)
-- 2026-06-30 03:16 - [卡塞米罗头球破门](http://www.blog.kurohicncr.top/Article/details/89370323.shtml)
-- 2026-06-30 03:00 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/483996605964.shtml)
-- 2026-06-30 03:09 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/53372847.shtml)
-- 2026-06-30 03:08 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/3526633.shtml)
-- 2026-06-30 03:07 - [刘念回应](https://www.share.minike.top/Article/details/4326901.shtml)
-- 2026-06-30 03:15 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/13344409.shtml)
-- 2026-06-30 03:18 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/857615027214.shtml)
-- 2026-06-30 02:56 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/565718.shtml)
-- 2026-06-30 03:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/85570963.shtml)
-- 2026-06-30 03:17 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/979160.shtml)
+- 2026-06-30 03:03 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/4546379.shtml)
+- 2026-06-30 03:25 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/0613913732.shtml)
+- 2026-06-30 03:11 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/434708.shtml)
+- 2026-06-30 03:10 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/6024056800.shtml)
+- 2026-06-30 03:01 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/045584577816.shtml)
+- 2026-06-30 03:12 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/59985323178.shtml)
+- 2026-06-30 03:12 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/482559404.shtml)
+- 2026-06-30 03:23 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/906945.shtml)
+- 2026-06-30 03:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/799482507.shtml)
+- 2026-06-30 03:13 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/0984234378.shtml)
+- 2026-06-30 03:10 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/422381.shtml)
+- 2026-06-30 03:01 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/28548266.shtml)
+- 2026-06-30 03:13 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/275670381.shtml)
+- 2026-06-30 03:06 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/5676926.shtml)
+- 2026-06-30 03:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/14695533015.shtml)

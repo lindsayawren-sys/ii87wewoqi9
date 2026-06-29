@@ -1,60 +1,57 @@
-# 600228、603721今夜同时公布重磅事项，股价白天均涨停！
+# 马上消费拟任总经理蒋宁：深化“人机协同”战略，数智化持续赋能高质量经营
 
-> 更新时间：2026-06-30 03:24:03 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经编辑|张锦河 6月16日，返利科技（600228）发布公告称，公司实际控制人及其一致行动人葛永昌、隗元元、上海享锐企业管理咨询事务所（有限合伙）、上海鹄睿企业管理咨询事务所（有限合伙）正在筹划股份协议转让事宜，可能导致公司控制权发生变更。为保证公平信息披
+来源：财联社 近日，消费金融行业头部机构马上消费金融股份有限公司（下称“马上消费”） 迎来人事调整：经董事会决议，原常务副总经理蒋宁拟任总经理。原总经理郭剑霓因达退休年龄，在此次高管换届中正常荣休。 蒋宁兼具深厚技术背景、业务经营、运营能力以及合规与消保治理经验，是典型的复合型管理者，本次人事调整，传递出马上消费持续深耕数智化、稳步推进“人机协同”发展的战略导向。当前，消费金融
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：财联社 近日，消费金融行业头部机构马上消费金融股份有限公司（下称“马上消费”） 迎来人事调整：经董事会决议，原常务副总经理蒋宁拟任总经理。
 
-每经编辑|张锦河 6月16日，返利科技（600228）发布公告称，公司实际控制人及其一致行动人葛永昌、隗元元、上海享锐企业管理咨询事务所（有限合伙）、上海鹄睿企业管理咨询事务所（有限合伙）正在筹划股份协议转让事宜，可能导致公司控制权发生变更。
+原总经理郭剑霓因达退休年龄，在此次高管换届中正常荣休。
 
-为保证公平信息披露，避免股价异常波动，公司股票自2026年6月17日开市起停牌，预计停牌时间不超过2个交易日。
+蒋宁兼具深厚技术背景、业务经营、运营能力以及合规与消保治理经验，是典型的复合型管理者，本次人事调整，传递出马上消费持续深耕数智化、稳步推进“人机协同”发展的战略导向。
 
-公开资料显示，返利科技是一家互联网企业，公司业务体系包含在线导购、广告推广和平台技术服务。
+当前，消费金融行业已从规模扩张转向质量深耕新阶段，在持续做好合规，消保，风控和高质效经营的行业导向下，自研智能化的数字化体系对业务全链条的高质效赋能将成为构筑机构核心竞争力的关键支撑。
 
-今年一季度公司营业收入1.42亿元，同比增长164.97%；归属于上市公司股东的净利润为-1402.2万元；基本每股收益为-0.0337元/股。
+二十年技术履历：从交易系统到消费金融全链路 公开资料显示，蒋宁拥有逾20年互联网架构与金融科技从业经验。
 
-值得注意的是，自6月9日撤销退市风险警示以来，返利科技股价连续大涨，涨幅累计超过40%，今日股价更是涨停。
+早年曾主导设计互联网金融领域的在线交易系统及核心金融交易系统，支撑了大规模高并发交易。
 
-此外，中广天择（603721）同日也发布公告称，公司收到控股股东长沙广播电视集团通知，其正在筹划涉及所持有公司股份转让事宜，该事项可能导致公司控股股东发生变更。
+2016年加入马上消费后，历任副总经理兼首席信息官、常务副总经理，完整经历了公司从0到1的自研技术体系建设。
 
-为保证公平信息披露，避免股价异常波动，公司股票自2026年6月17日起停牌，预计停牌时间不超过2个交易日。
+任职期间，蒋宁带领技术研发团队搭建起马上消费从贷前、贷中到贷后的全链路自研数智化体系，帮助公司实现了以科技驱动经营的特色发展模式的内核；带领团队累计申请发明专利超过3000件，位居行业前列；推动公司先后获得国家高新技术企业、国家企业技术中心及人社部国家级博士后科研工作站等重要资质。
 
 ## 相关推荐
 
-- 2026-06-30 03:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 03:04 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 03:19 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-30 03:16 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 03:00 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 03:01 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 02:54 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 03:15 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 03:08 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 03:15 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 03:03 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 02:56 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 02:56 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 03:02 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 03:16 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 03:18 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 03:19 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 03:28 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 03:00 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 03:04 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 03:00 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 03:29 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 03:09 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 03:10 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 03:19 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:13 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/1541891.shtml)
-- 2026-06-30 03:18 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/32666.shtml)
-- 2026-06-30 03:17 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/63617139.shtml)
-- 2026-06-30 03:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/752212990.shtml)
-- 2026-06-30 03:05 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/800388271758.shtml)
-- 2026-06-30 03:04 - [内马尔替补](http://www.blog.minike.top/Article/details/221706093.shtml)
-- 2026-06-30 03:11 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/910510201103.shtml)
-- 2026-06-30 02:56 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/48269.shtml)
-- 2026-06-30 02:55 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/813079269.shtml)
-- 2026-06-30 02:54 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/5059513.shtml)
-- 2026-06-30 03:02 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/8315151362.shtml)
-- 2026-06-30 02:56 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/609234.shtml)
-- 2026-06-30 02:54 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/385478.shtml)
-- 2026-06-30 03:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/48570.shtml)
-- 2026-06-30 03:20 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/283289.shtml)
+- 2026-06-30 03:07 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/482298.shtml)
+- 2026-06-30 03:06 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/04656787505.shtml)
+- 2026-06-30 03:04 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/8813569.shtml)
+- 2026-06-30 03:07 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/1782243318.shtml)
+- 2026-06-30 03:17 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/9224972.shtml)
+- 2026-06-30 03:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/642180433833.shtml)
+- 2026-06-30 03:13 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/3939621721.shtml)
+- 2026-06-30 03:07 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/25832583312.shtml)
+- 2026-06-30 03:24 - [日本领先巴西](https://www.share.minike.top/Article/details/518656699.shtml)
+- 2026-06-30 03:28 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/259999113.shtml)
+- 2026-06-30 03:24 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/4339375.shtml)
+- 2026-06-30 03:04 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/36294.shtml)
+- 2026-06-30 03:19 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/9815787126.shtml)
+- 2026-06-30 03:01 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/356062.shtml)
+- 2026-06-30 03:16 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/908619.shtml)

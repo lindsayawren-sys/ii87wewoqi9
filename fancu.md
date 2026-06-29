@@ -1,58 +1,60 @@
-# 预测市场交易员押注Anthropic或将很快恢复Fable 5的使用权限
+# 第十届中俄夏季青少年运动会开幕
 
-> 更新时间：2026-06-30 03:24:04 UTC+8
+> 更新时间：2026-06-30 03:30:02 UTC+8
 
 ## 摘要
 
-核心要点 人工智能巨头 Anthropic 上周五晚间官宣，为遵守美国政府的监管指令，公司关停了 Fable 5、Mythos 5 两款大模型的公开访问权限，这一举措令业内大为震惊。 不过预测交易平台卡尔希的交易员认为，Fable 系列模型大概率最快将于 7 月重新对美国普通用户开放。 交易数据显示，市场测算该公司在 7 月 1 日前恢复 Fable 5 访问权限的概率为 58
+中新社莫斯科5月26日电 第十届中俄夏季青少年运动会当地时间25日在俄罗斯加里宁格勒州开幕。 开幕式上，俄体育部长杰格佳廖夫宣读了俄总统普京向参赛者发来的贺信。贺信表示，该运动会自2006年启动以来，其凝聚力、创造性和教育意义极大提升，已成为集体育竞技、青年互动、创意交流与务实合作为一体的盛大节日。这项赛事的举办充分体现了俄中两国人民的深厚友好情谊，也是两国人文交流的重要组成部
 
 ## 正文
 
-核心要点 人工智能巨头 Anthropic 上周五晚间官宣，为遵守美国政府的监管指令，公司关停了 Fable 5、Mythos 5 两款大模型的公开访问权限，这一举措令业内大为震惊。
+中新社莫斯科5月26日电 第十届中俄夏季青少年运动会当地时间25日在俄罗斯加里宁格勒州开幕。
 
-不过预测交易平台卡尔希的交易员认为，Fable 系列模型大概率最快将于 7 月重新对美国普通用户开放。
+开幕式上，俄体育部长杰格佳廖夫宣读了俄总统普京向参赛者发来的贺信。
 
-交易数据显示，市场测算该公司在 7 月 1 日前恢复 Fable 5 访问权限的概率为 58%；若放宽至 7 月 10 日，恢复权限的概率则升至 74%。
+贺信表示，该运动会自2006年启动以来，其凝聚力、创造性和教育意义极大提升，已成为集体育竞技、青年互动、创意交流与务实合作为一体的盛大节日。
 
-只有当该 模型面向美国所有用户全面重新开放，这份事件预测合约才能判定为 “预测成立”。
+这项赛事的举办充分体现了俄中两国人民的深厚友好情谊，也是两国人文交流的重要组成部分。
 
-美国政府要求 Anthropic 禁止所有外籍人员使用该 AI 技术，无论外籍用户身处美国境内还是海外。
+相信此次赛事有助于进一步增进两国青少年之间的信任和相互了解，并拓展彼此间的交流。
 
-为确保合规落地，Anthropic 最终选择暂时对全部用户关停 Fable 5 模型访问通道。
+据悉，比赛项目共设12个大项。
 
-就在该模型正式发布数日之后，这一监管限制便接踵而至。
+来自俄罗斯和中国的11岁至20岁运动员将在羽毛球、篮球、排球、拳击、沙滩排球、乒乓球、花样游泳、攀岩、摔跤、艺术体操和武术等项目上展开奖牌争夺，将有超过300名运动员参赛。
 
-早在今年 3 月，美国国防部就曾将 Anthropic 列为供应链安全风险企业，彼时这家公司就曾与特朗普政府产生监管摩擦。
+据杰格佳廖夫介绍，俄传统体育项目桑搏首次被列为该赛事项目。
 
 ## 相关推荐
 
-- 2026-06-30 03:03 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 03:14 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 03:00 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 03:10 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 03:20 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 03:03 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 03:12 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 03:13 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 03:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 02:57 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 03:14 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 03:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-30 03:20 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 03:15 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 03:08 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 03:28 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 03:12 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 03:06 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 03:13 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 03:29 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 03:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 03:03 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 03:21 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 03:16 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-30 03:27 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 03:27 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:13 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/519451.shtml)
-- 2026-06-30 03:02 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/319113.shtml)
-- 2026-06-30 03:02 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/110048.shtml)
-- 2026-06-30 03:07 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/98087.shtml)
-- 2026-06-30 02:58 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/6553508.shtml)
-- 2026-06-30 03:02 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/192340320.shtml)
-- 2026-06-30 03:22 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/882941493022.shtml)
-- 2026-06-30 03:02 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/7695079.shtml)
-- 2026-06-30 03:21 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/69388972687.shtml)
-- 2026-06-30 03:06 - [毒液2](https://www.share.minike.top/Article/details/3448014.shtml)
-- 2026-06-30 03:07 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/18609.shtml)
-- 2026-06-30 02:58 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/00557.shtml)
-- 2026-06-30 03:17 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/61868605.shtml)
-- 2026-06-30 03:17 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/346882651220.shtml)
-- 2026-06-30 03:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/85165333243.shtml)
+- 2026-06-30 03:20 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/927772423.shtml)
+- 2026-06-30 03:07 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/676093444.shtml)
+- 2026-06-30 03:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/544938181.shtml)
+- 2026-06-30 03:11 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/259504358.shtml)
+- 2026-06-30 03:23 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/112708045.shtml)
+- 2026-06-30 03:12 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/989243.shtml)
+- 2026-06-30 03:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/620378573.shtml)
+- 2026-06-30 03:22 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/5557578404.shtml)
+- 2026-06-30 03:11 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/2503657.shtml)
+- 2026-06-30 03:21 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/20161642.shtml)
+- 2026-06-30 03:02 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/66479818.shtml)
+- 2026-06-30 03:20 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/227980.shtml)
+- 2026-06-30 03:08 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/8198087082.shtml)
+- 2026-06-30 03:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/8501790.shtml)
+- 2026-06-30 03:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/08204255.shtml)
