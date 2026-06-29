@@ -1,60 +1,58 @@
-# 解码宁波银行2025年报：新任董事长庄灵君面临的盈利、风险与资本三道考题
+# 英伟达CEO黄仁勋：AI 将创造就业 而非摧毁就业
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-（来源：东方资色）4月25日，宁波银行发布2025年报。截至2025年末，宁波银行总资产首次站上3.6万亿元台阶，较年初增长16.11%；全年营业收入719.69亿元，同比增长8.01%，实现归属于母公司股东的净利润293.33亿元，同比增长8.13%。在银行业普遍面临“低利率、低息差、低收益”的“三低”困境下，这一业绩无疑体现了头部城商行的韧性。然而，在亮眼的数据背后，一组不
+在米尔肯研究所近期主办的一场讨论中， 英伟达首席执行官黄仁勋表示，人工智能将创造而非摧毁就业机会。他认为，人工智能为美国再工业化带来了重大机遇，且 AI 行业正在催生需要劳动力的新型工业工厂。 黄仁勋驳斥了他所谓的“科幻故事”，这些故事让人们因恐惧而完全回避人工智能。他表示，自己最大的担忧是，过度夸大的恐惧会阻碍公众接触这项技术。他还指出，自动化工作中的某个特定任务并不会消除整
 
 ## 正文
 
-（来源：东方资色）4月25日，宁波银行发布2025年报。
+在米尔肯研究所近期主办的一场讨论中， 英伟达首席执行官黄仁勋表示，人工智能将创造而非摧毁就业机会。
 
-截至2025年末，宁波银行总资产首次站上3.6万亿元台阶，较年初增长16.11%；全年营业收入719.69亿元，同比增长8.01%，实现归属于母公司股东的净利润293.33亿元，同比增长8.13%。
+他认为，人工智能为美国再工业化带来了重大机遇，且 AI 行业正在催生需要劳动力的新型工业工厂。
 
-在银行业普遍面临“低利率、低息差、低收益”的“三低”困境下，这一业绩无疑体现了头部城商行的韧性。
+黄仁勋驳斥了他所谓的“科幻故事”，这些故事让人们因恐惧而完全回避人工智能。
 
-然而，在亮眼的数据背后，一组不容忽视的“暗流”浮出水面：净息差持续下降、个人贷款不良率突破9%、拨备覆盖率连续两年下滑、重组贷款激增1.5倍……这些指标共同指向一个核心命题：这家一直被市场视为“优等生”的城商行，正站在穿越周期的关键隘口。
+他表示，自己最大的担忧是，过度夸大的恐惧会阻碍公众接触这项技术。
 
-非息收入高增30%，规模扩张的“另一面”隐现2025年，宁波银行收入结构的优化是一大亮点。
+他还指出，自动化工作中的某个特定任务并不会消除整个岗位，因为工作的更广泛目的与任何单一任务都是截然不同的。
 
-手续费及佣金净收入同比大增30.72%，其中代理类业务增长35.68%，成为主要引擎，显示出大财富管理战略的成效。
+尽管黄仁勋保持乐观，但对话中也承认了人们对 AI 快速发展所带来的持续经济焦虑。
 
-与此同时，传统存贷业务持续承压。
+主持人提出疑问：这种速度是否可能比以往的技术变革造成更大的社会动荡和不平等？
 
-报告期内净息差降至1.74%，同比下降12个基点；贷款收益率从4.84%下滑至4.23%，降幅达61个基点，其中个人贷款收益率从5.76%降至4.85%。
+一些批评者指责 AI 行业本身制造末日言论，将其作为一种营销策略，为那些不具备此类警告所暗示能力的产品制造热度。
 
 ## 相关推荐
 
-- 2026-06-30 06:30 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 06:34 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 06:41 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 06:37 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-30 06:25 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 06:41 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 06:22 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 06:13 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 06:20 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 06:14 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 06:20 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 06:16 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 06:18 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 06:18 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 06:42 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 06:22 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 06:46 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 06:25 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 06:26 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 06:19 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 06:26 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 06:31 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 06:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 06:28 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 06:39 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 06:25 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:39 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/426179489507.shtml)
-- 2026-06-30 06:15 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/264953.shtml)
-- 2026-06-30 06:15 - [刘念回应](https://www.share.kurohicncr.top/Article/details/4192815.shtml)
-- 2026-06-30 06:32 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/17491.shtml)
-- 2026-06-30 06:21 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/08388261.shtml)
-- 2026-06-30 06:16 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/525777722.shtml)
-- 2026-06-30 06:23 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/09757087667.shtml)
-- 2026-06-30 06:13 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/907715.shtml)
-- 2026-06-30 06:31 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/67459078.shtml)
-- 2026-06-30 06:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/93461.shtml)
-- 2026-06-30 06:35 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/3327007.shtml)
-- 2026-06-30 06:24 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/5101307.shtml)
-- 2026-06-30 06:26 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/80818956.shtml)
-- 2026-06-30 06:12 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/7063578.shtml)
-- 2026-06-30 06:36 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/27641929.shtml)
+- 2026-06-30 06:47 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/0058133200.shtml)
+- 2026-06-30 06:23 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/22792250.shtml)
+- 2026-06-30 06:40 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/169114943.shtml)
+- 2026-06-30 06:39 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/874119.shtml)
+- 2026-06-30 06:46 - [日本进球](https://www.share.kurohicncr.top/Article/details/1095758.shtml)
+- 2026-06-30 06:40 - [巴西绝杀日本](http://www.share.minike.top/Article/details/09680742.shtml)
+- 2026-06-30 06:45 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/21092761.shtml)
+- 2026-06-30 06:30 - [日本进球](https://www.share.kurohicncr.top/Article/details/7916839.shtml)
+- 2026-06-30 06:21 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/621584770.shtml)
+- 2026-06-30 06:33 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/55348052101.shtml)
+- 2026-06-30 06:30 - [急先锋](https://www.blog.kurohicncr.top/Article/details/85760748407.shtml)
+- 2026-06-30 06:40 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/7776558.shtml)
+- 2026-06-30 06:45 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/7849784.shtml)
+- 2026-06-30 06:37 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/11664924.shtml)
+- 2026-06-30 06:18 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/52383425781.shtml)

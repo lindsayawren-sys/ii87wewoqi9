@@ -1,42 +1,48 @@
-# 平凡亦有光！“五一”为劳动者点赞
+# 裴奕根获批担任嘉兴银行独立董事
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 10:12 来源：央视新闻客户端 责任编辑：【王祎】
+5月6日金融一线消息，国家金融监督管理总局浙江监管局发布《关于裴奕根嘉兴银行独立董事任职资格的批复》，核准裴奕根嘉兴银行独立董事的任职资格。 责任编辑：曹睿潼
 
 ## 正文
 
-发布时间：2026年04月29日 10:12 来源：央视新闻客户端 责任编辑：【王祎】
+5月6日金融一线消息，国家金融监督管理总局浙江监管局发布《关于裴奕根嘉兴银行独立董事任职资格的批复》，核准裴奕根嘉兴银行独立董事的任职资格。
+
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 06:34 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 06:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 06:14 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-30 06:41 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 06:26 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 06:38 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-30 06:31 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-30 06:29 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 06:25 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 06:17 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 06:46 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 06:44 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 06:27 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 06:20 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 06:27 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 06:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 06:38 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 06:26 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 06:34 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 06:33 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 06:21 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 06:34 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 06:42 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 06:45 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:41 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/1276916848.shtml)
-- 2026-06-30 06:15 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/9485508302.shtml)
-- 2026-06-30 06:19 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/0435297.shtml)
-- 2026-06-30 06:20 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/39819874.shtml)
-- 2026-06-30 06:32 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/05052.shtml)
-- 2026-06-30 06:36 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/169687484463.shtml)
-- 2026-06-30 06:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/7010158860.shtml)
-- 2026-06-30 06:38 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/331596542232.shtml)
-- 2026-06-30 06:16 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/145531865884.shtml)
-- 2026-06-30 06:31 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/994449904.shtml)
-- 2026-06-30 06:18 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/893402096771.shtml)
-- 2026-06-30 06:34 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/3030525590.shtml)
-- 2026-06-30 06:26 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/489505603189.shtml)
-- 2026-06-30 06:24 - [沙丘](http://www.share.kurohicncr.top/Article/details/51666.shtml)
-- 2026-06-30 06:36 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/532086114519.shtml)
+- 2026-06-30 06:37 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/81919672.shtml)
+- 2026-06-30 06:18 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/05852589.shtml)
+- 2026-06-30 06:41 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/98194402408.shtml)
+- 2026-06-30 06:38 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/762881.shtml)
+- 2026-06-30 06:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/034843.shtml)
+- 2026-06-30 06:25 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/21292067.shtml)
+- 2026-06-30 06:28 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/7087918.shtml)
+- 2026-06-30 06:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/7525035972.shtml)
+- 2026-06-30 06:28 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/26901042530.shtml)
+- 2026-06-30 06:18 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/2803931471.shtml)
+- 2026-06-30 06:27 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/83644578.shtml)
+- 2026-06-30 06:27 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/175615083.shtml)
+- 2026-06-30 06:45 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/124564.shtml)
+- 2026-06-30 06:40 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/31030401881.shtml)
+- 2026-06-30 06:36 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/01407006.shtml)

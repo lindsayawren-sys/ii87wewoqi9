@@ -1,59 +1,56 @@
-# 广播业协会：FCC审查迪士尼牌照给全行业带来重大不确定性
+# 李松蔚：“爱情几乎掉到了鄙视链的最底端”
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-美国全国广播业者协会周三表示，美国联邦通信委员会要求迪士尼旗下ABC电视台提前续办牌照的做法，给所有广播公司带来了“重大不确定性”。 FCC本周二下令迪士尼为其拥有的八家地方电视台提前提交牌照续期申请，这些牌照原定于2028年至2031年间陆续到期，现被要求在30天内完成申请。FCC表示，此举与其对迪士尼多元化政策及潜在违规行为的调查有关。 这一决定紧随白宫与ABC深夜脱口秀主
+中国新闻周刊作者：赵汐贝 发于2026.5.4总第1234期《中国新闻周刊》杂志 如今，从短视频到情感博主，“高嫁秘籍”“拿捏优质男”成了个显性赛道。但这背后，或许不只是婚恋技巧的分享，而是一场精心设计的流量生意，折射出更深层的社会结构性变化与集体焦虑。北大心理学博士、资深心理咨询师李松蔚感慨，接受所谓婚恋技巧的咨询，看似赋予女性一种所谓的控制感，但其实它更像一种幻象，而另一方
 
 ## 正文
 
-美国全国广播业者协会周三表示，美国联邦通信委员会要求迪士尼旗下ABC电视台提前续办牌照的做法，给所有广播公司带来了“重大不确定性”。
+中国新闻周刊作者：赵汐贝 发于2026.5.4总第1234期《中国新闻周刊》杂志 如今，从短视频到情感博主，“高嫁秘籍”“拿捏优质男”成了个显性赛道。
 
-FCC本周二下令迪士尼为其拥有的八家地方电视台提前提交牌照续期申请，这些牌照原定于2028年至2031年间陆续到期，现被要求在30天内完成申请。
+但这背后，或许不只是婚恋技巧的分享，而是一场精心设计的流量生意，折射出更深层的社会结构性变化与集体焦虑。
 
-FCC表示，此举与其对迪士尼多元化政策及潜在违规行为的调查有关。
+北大心理学博士、资深心理咨询师李松蔚感慨，接受所谓婚恋技巧的咨询，看似赋予女性一种所谓的控制感，但其实它更像一种幻象，而另一方面，它又加剧了亲密关系的焦虑和不安全感。
 
-这一决定紧随白宫与ABC深夜脱口秀主持人吉米·坎摩尔的最新争执之后。
+以下为《中国新闻周刊》和李松蔚的对话： “无论你获得什么， 都已经把自己献祭出去” 《中国新闻周刊》：从“Ayawawa”到“曲曲大女人”再到前一阵走红的周媛，类似教导女性在婚恋中“拿大结果”的培训在最近10年一直有着庞大的需求，在你的心理咨询客户中，有这样的受众吗？
 
-坎摩尔在节目中调侃第一夫人梅拉尼娅·特朗普，引发特朗普总统的强烈批评。
+李松蔚：在我的职业范畴里，其实不太能遇到这类培训的受众。
 
-全国广播业者协会在声明中指出：“FCC媒体局要求一家公司迅速重新申请所有牌照的做法几乎前所未有，违背了牌照程序的公平与透明原则，给所有广播公司带来重大不确定性。
+因为这类培训的基础逻辑，跟心理学不太一样。
 
-” FCC内部也出现分歧，该机构唯一民主党委员安娜·戈麦斯批评此举“前所未有、违法且毫无意义”，是一场“政治噱头”。
+心理学认为，亲密关系要建立在两个人的真诚互信和深度沟通之上，它本质上不是靠技巧或单方面算计就能掌控的，而是一个比工具理性更大的东西。
 
-迪士尼方面则表示对获得续期充满信心，并准备通过法律渠道应对。
+所谓亲密关系，大于一个人的个体策略和理性框架。
 
 ## 相关推荐
 
-- 2026-06-30 06:34 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 06:37 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 06:41 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 06:31 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 06:26 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 06:14 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 06:13 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 06:27 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 06:26 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 06:27 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 06:17 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 06:25 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 06:27 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 06:18 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 06:43 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 06:37 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 06:25 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 06:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 06:35 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 06:30 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 06:36 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 06:33 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 06:30 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:17 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/550716.shtml)
-- 2026-06-30 06:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/5596626526.shtml)
-- 2026-06-30 06:27 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/931883.shtml)
-- 2026-06-30 06:31 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/233513822340.shtml)
-- 2026-06-30 06:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/4096886975.shtml)
-- 2026-06-30 06:15 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/616149605074.shtml)
-- 2026-06-30 06:29 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/10433755.shtml)
-- 2026-06-30 06:39 - [乔家的儿女](https://www.blog.minike.top/Article/details/8625055.shtml)
-- 2026-06-30 06:38 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/54565410561.shtml)
-- 2026-06-30 06:38 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/6864417.shtml)
-- 2026-06-30 06:13 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/1406964.shtml)
-- 2026-06-30 06:37 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/606039906964.shtml)
-- 2026-06-30 06:31 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/55574535.shtml)
-- 2026-06-30 06:36 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/47946.shtml)
-- 2026-06-30 06:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/517958.shtml)
+- 2026-06-30 06:33 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/248657.shtml)
+- 2026-06-30 06:39 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/180624.shtml)
+- 2026-06-30 06:22 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/140308269.shtml)
+- 2026-06-30 06:33 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/88885314.shtml)
+- 2026-06-30 06:23 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/478793944124.shtml)
+- 2026-06-30 06:32 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/827845989.shtml)
+- 2026-06-30 06:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/9116643792.shtml)
+- 2026-06-30 06:44 - [急先锋](http://www.blog.minike.top/Article/details/006239.shtml)
+- 2026-06-30 06:38 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/873173362373.shtml)
+- 2026-06-30 06:45 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/2195108945.shtml)
+- 2026-06-30 06:23 - [巴西绝杀日本](https://www.share.minike.top/Article/details/550718238.shtml)
+- 2026-06-30 06:45 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/819644.shtml)
+- 2026-06-30 06:30 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/2112281.shtml)
+- 2026-06-30 06:21 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/30229.shtml)
+- 2026-06-30 06:28 - [孙兴慜道歉](https://www.share.minike.top/Article/details/0736680722.shtml)

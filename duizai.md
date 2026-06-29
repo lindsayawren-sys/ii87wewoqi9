@@ -1,50 +1,60 @@
-# 中金公司牵头保荐曦智科技完成港股上市
+# “冰火两重天”反季体验成为天津“五一”假日新亮点
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-上证报中国证券网讯（记者 闫刘梦）上海曦智科技股份有限公司（以下简称“曦智科技”）4月28日正式在香港联交所主板上市。本次上市绿鞋前发行规模约3.23亿美元，绿鞋后发行规模约3.71亿美元（假设绿鞋全部行使）。中金公司担任本项目的牵头保荐人、整体协调人、联席全球协调人、联席账簿管理人、联席牵头经办人、后市稳定商及结算代理人。作为本项目的牵头保荐人，中金公司全程紧密把控项目时间表
+中国“五一”旅游热度攀升 消费潜力持续释放这个藏在云南深山的派出所 为何被游客设为导航目的地？“24小时打卡6地”！外国人偷偷爱上中国小城“一手驴火、一手咖啡” 年轻人混搭出街头新时尚博物馆“镇馆之宝”排队热 文博游何以持续火热？沉浸式观演走热京津冀百年中山装何以穿出“国潮”新生？全球出行新选择 世界爱上了“中国造”沙漠里的“追光者”：旅拍定制师为游客定制专属记忆五四 | 今天
 
 ## 正文
 
-上证报中国证券网讯（记者 闫刘梦）上海曦智科技股份有限公司（以下简称“曦智科技”）4月28日正式在香港联交所主板上市。
+中国“五一”旅游热度攀升 消费潜力持续释放这个藏在云南深山的派出所 为何被游客设为导航目的地？
 
-本次上市绿鞋前发行规模约3.23亿美元，绿鞋后发行规模约3.71亿美元（假设绿鞋全部行使）。
+“24小时打卡6地”！
 
-中金公司担任本项目的牵头保荐人、整体协调人、联席全球协调人、联席账簿管理人、联席牵头经办人、后市稳定商及结算代理人。
+外国人偷偷爱上中国小城“一手驴火、一手咖啡” 年轻人混搭出街头新时尚博物馆“镇馆之宝”排队热 文博游何以持续火热？
 
-作为本项目的牵头保荐人，中金公司全程紧密把控项目时间表，协助曦智科技解决项目执行中的技术要点，确保各关键节点精准落地，为项目的顺利完成夯实基础。
+沉浸式观演走热京津冀百年中山装何以穿出“国潮”新生？
 
-在市场推介及发行阶段，中金公司凭借对全球光电混合算力及AI基础设施行业的洞察，协助曦智科技挖掘独特的投资价值，面向全球顶级投资机构进行高质量推介，协助引入绝大部分基石投资者，并在启动发行后进一步转化更多顶级投资人的订单需求，助力实现理想定价。
+全球出行新选择 世界爱上了“中国造”沙漠里的“追光者”：旅拍定制师为游客定制专属记忆五四 | 今天为青年们喝彩！
+
+一只流浪狗，为何让这座安徽小城收获泼天流量？
+
+短评：欧洲议会的“选择性失明”东京审判为何关乎今天？
+
+爱奇艺，到底在急什么？
 
 ## 相关推荐
 
-- 2026-06-30 06:28 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 06:24 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 06:23 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 06:40 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 06:32 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 06:12 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 06:17 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 06:39 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 06:15 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-30 06:31 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 06:28 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 06:37 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 06:42 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 06:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 06:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 06:21 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 06:42 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 06:33 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 06:35 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-30 06:36 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 06:21 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 06:29 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 06:29 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 06:18 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:15 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/290513333954.shtml)
-- 2026-06-30 06:37 - [刘必安等16人非法集资案二审宣判](https://www.blog.kurohicncr.top/Article/details/572903907.shtml)
-- 2026-06-30 06:32 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/33419301.shtml)
-- 2026-06-30 06:28 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/960727715.shtml)
-- 2026-06-30 06:18 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/91433185.shtml)
-- 2026-06-30 06:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/9110946261.shtml)
-- 2026-06-30 06:40 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/841982.shtml)
-- 2026-06-30 06:41 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/94783.shtml)
-- 2026-06-30 06:28 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/809198993.shtml)
-- 2026-06-30 06:16 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/093366.shtml)
-- 2026-06-30 06:36 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/82036.shtml)
-- 2026-06-30 06:38 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/83008578.shtml)
-- 2026-06-30 06:38 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/05390625.shtml)
-- 2026-06-30 06:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/4180942.shtml)
-- 2026-06-30 06:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/613069380.shtml)
+- 2026-06-30 06:31 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/434285.shtml)
+- 2026-06-30 06:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/44742291.shtml)
+- 2026-06-30 06:33 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/03350595242.shtml)
+- 2026-06-30 06:18 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/929546326911.shtml)
+- 2026-06-30 06:25 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/582348.shtml)
+- 2026-06-30 06:42 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/843831399.shtml)
+- 2026-06-30 06:25 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/77888771.shtml)
+- 2026-06-30 06:28 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/73400151898.shtml)
+- 2026-06-30 06:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/439227.shtml)
+- 2026-06-30 06:37 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/1088302983.shtml)
+- 2026-06-30 06:35 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/625274615.shtml)
+- 2026-06-30 06:46 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/3541235.shtml)
+- 2026-06-30 06:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/86991753989.shtml)
+- 2026-06-30 06:42 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/89038246.shtml)
+- 2026-06-30 06:19 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/523122.shtml)

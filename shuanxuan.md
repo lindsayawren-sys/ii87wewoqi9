@@ -1,59 +1,61 @@
-# 微软即将发布财报，Azure增速、与OpenAI合作协议成市场最大悬念
+# 聚焦人工智能教育应用等 2026世界数字教育大会将发布八项成果
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 微软将于周三盘后公布第三季度财报，华尔街正密切关注公司能否跟上人工智能需求浪潮、稳固在 AI 赛道的竞争地位。 近几个月，受 Azure 云业务与 AI 增长放缓担忧拖累，微软股价大幅下挫。上个季度微软 Azure 业务同比增长 38%，公司坦言若不受算力产能瓶颈限制，增速本可达到 40%。 近几个月来，市场多重疑虑持续压制微软股价：Azu
+今天，教育部在京召开发布会，介绍2026年世界数字教育大会的筹备情况。 教育部科学技术与信息化司副司长舒华介绍，2026世界数字教育大会将按照前沿引领、实践赋能与全球共识三个篇章，共发布八项成果。 第一篇章前沿引领，共发布三项成果。包括《中国智慧教育发展报告(2025—2026)》《全球数字教育发展指数(2026)》《人工智能教育伦理：参考框架》。其中，《全球数字教育发展指数(
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 微软将于周三盘后公布第三季度财报，华尔街正密切关注公司能否跟上人工智能需求浪潮、稳固在 AI 赛道的竞争地位。
+今天，教育部在京召开发布会，介绍2026年世界数字教育大会的筹备情况。
 
-近几个月，受 Azure 云业务与 AI 增长放缓担忧拖累，微软股价大幅下挫。
+教育部科学技术与信息化司副司长舒华介绍，2026世界数字教育大会将按照前沿引领、实践赋能与全球共识三个篇章，共发布八项成果。
 
-上个季度微软 Azure 业务同比增长 38%，公司坦言若不受算力产能瓶颈限制，增速本可达到 40%。
+第一篇章前沿引领，共发布三项成果。
 
-近几个月来，市场多重疑虑持续压制微软股价：Azure 增长隐忧、Copilot 产品落地渗透率、企业软件业务潜在风险，以及与 OpenAI 的合作关系变数。
+包括《中国智慧教育发展报告(2025—2026)》《全球数字教育发展指数(2026)》《人工智能教育伦理：参考框架》。
 
-该股近六个月跌幅超 20%，在美股 “科技七雄” 中表现垫底。
+其中，《全球数字教育发展指数(2026)》参评的国家和地区从72个扩展至82个，首次将“超越人工智能的思维能力培养”纳入指数研究，深化对“人工智能+教育”的洞察。
 
-彭博分析师一致预期，微软本季度预计每股收益 4.04 美元，总营收 814.6 亿美元；去年同期每股收益 3.46 美元，营收 700.6 亿美元。
+第二篇章实践赋能，共发布四项成果。
 
-预计生产力与商业流程部门营收 344.8 亿美元，智能云业务营收 343.1 亿美元。
+中国智慧教育公共服务平台升级，发布《人工智能教育伦理：参考框架》，公布世界数字教育创新十大案例，以及发布两项世界数字教育联盟标准，包含《人工智能教育应用系统》和《人工智能赋能智慧校园基本要素》两项标准。
 
-Azure 营收预计同比增长 38.24%。
+第三篇章全球共识，发布一项成果，即《人工智能教育杭州倡议》，呼吁世界各国携手并进，加快落实联合国未来峰会《全球数字契约》，推动实现2030年教育可持续发展目标。
 
 ## 相关推荐
 
-- 2026-06-30 06:22 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 06:41 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 06:39 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 06:12 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 06:37 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-30 06:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 06:22 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 06:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 06:29 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 06:14 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-30 06:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 06:23 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 06:20 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 06:18 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 06:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 06:29 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 06:20 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 06:19 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 06:43 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 06:25 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 06:40 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 06:28 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 06:31 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 06:44 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 06:24 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 06:23 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 06:30 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 06:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/9936091.shtml)
-- 2026-06-30 06:16 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/91984436.shtml)
-- 2026-06-30 06:35 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/527860.shtml)
-- 2026-06-30 06:21 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/169464.shtml)
-- 2026-06-30 06:38 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/49312532.shtml)
-- 2026-06-30 06:39 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/09592.shtml)
-- 2026-06-30 06:32 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/987530131875.shtml)
-- 2026-06-30 06:15 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/37771085482.shtml)
-- 2026-06-30 06:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/783473718.shtml)
-- 2026-06-30 06:21 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/38487156.shtml)
-- 2026-06-30 06:35 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/568159845.shtml)
-- 2026-06-30 06:12 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/24095.shtml)
-- 2026-06-30 06:20 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/45309552352.shtml)
-- 2026-06-30 06:21 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/0409998.shtml)
-- 2026-06-30 06:27 - [沙丘](https://www.blog.kurohicncr.top/Article/details/224553817.shtml)
+- 2026-06-30 06:42 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/364887531.shtml)
+- 2026-06-30 06:32 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/4008111726.shtml)
+- 2026-06-30 06:31 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/6795386.shtml)
+- 2026-06-30 06:33 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/95510240.shtml)
+- 2026-06-30 06:35 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/7528225.shtml)
+- 2026-06-30 06:36 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/86470420.shtml)
+- 2026-06-30 06:24 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/27022640.shtml)
+- 2026-06-30 06:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/7754771408.shtml)
+- 2026-06-30 06:20 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/3010975.shtml)
+- 2026-06-30 06:43 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/13890.shtml)
+- 2026-06-30 06:35 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/6284744682.shtml)
+- 2026-06-30 06:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/3575012325.shtml)
+- 2026-06-30 06:28 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/6636394508.shtml)
+- 2026-06-30 06:31 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/226813335.shtml)
+- 2026-06-30 06:33 - [世界杯](https://www.blog.minike.top/Article/details/42560996753.shtml)

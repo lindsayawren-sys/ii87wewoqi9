@@ -1,61 +1,59 @@
-# 刚刚，集体跳水！伊朗、霍尔木兹海峡，传出新消息！特朗普突发威胁！
+# 新一轮石油危机，让我们学到什么？
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-市场情绪仍被伊朗局势主导！ 刚刚，欧洲股市、美股期货、黄金、白银均出现一波跳水。截至发稿，法国CAC40指数跌0.83%，英国富时100指数跌0.73%，德国DAX30指数跌0.40%；COMEX白银期货跌0.98%，COMEX黄金期货跌0.88%；道指期货、标普500指数期货翻绿；纳指期货涨幅收窄至0.20%，此前涨幅超过0.50%。 当地时间29日，美国总统特朗普威胁伊朗“
+中国新闻周刊记者：陈惟杉 发于2026.5.4总第1234期《中国新闻周刊》杂志 当前油价究竟有多高？准确回答这个问题并不容易，这取决于哪种石油、何时出售的石油。 石油市场被分为两个部分：一个是实物市场，在那里，一桶桶原油被买卖。另一个是金融市场，交易员们交易的是原油期货，而非实物，它的价格是人们愿意为未来特定时间获得一桶原油支付的价格，反映了人们对于未来的预期。人们最近经常看
 
 ## 正文
 
-市场情绪仍被伊朗局势主导！
+中国新闻周刊记者：陈惟杉 发于2026.5.4总第1234期《中国新闻周刊》杂志 当前油价究竟有多高？
 
-刚刚，欧洲股市、美股期货、黄金、白银均出现一波跳水。
+准确回答这个问题并不容易，这取决于哪种石油、何时出售的石油。
 
-截至发稿，法国CAC40指数跌0.83%，英国富时100指数跌0.73%，德国DAX30指数跌0.40%；COMEX白银期货跌0.98%，COMEX黄金期货跌0.88%；道指期货、标普500指数期货翻绿；纳指期货涨幅收窄至0.20%，此前涨幅超过0.50%。
+石油市场被分为两个部分：一个是实物市场，在那里，一桶桶原油被买卖。
 
-当地时间29日，美国总统特朗普威胁伊朗“放聪明点”。
+另一个是金融市场，交易员们交易的是原油期货，而非实物，它的价格是人们愿意为未来特定时间获得一桶原油支付的价格，反映了人们对于未来的预期。
 
-而此前一天，有美国官员称，特朗普已指示助手为长期封锁伊朗做准备。
+人们最近经常看到油价跳水或拉升的新闻，更多是在描述原油期货市场的情况。
 
-伊朗官员29日表示，伊朗不会放弃“对霍尔木兹海峡的主权权利”，与美谈判不是退缩，是“战斗的又一个阶段”。
+战争爆发后，原油期货经历多次暴涨暴跌，但是市场对于未来出奇地乐观，尤其是相比当下供应短缺而言。
 
-29日盘中，国际油价一度直线拉升，WTI原油期货涨幅一度超过3.60%。
+我们正在经历历史上最为严重的石油危机，已经有众多证据支持，比如霍尔木兹海峡危机导致的石油供应损失相当于全球需求的10%—15%，超过1973—1974年阿拉伯国家石油禁运时7%的水平；再比如经合组织(OECD)的数据显示，2月28日以来，近两个月，OECD石油库存下降6%，成为自1988年有记录以来幅度最大的双月降幅，预计到6月，降幅可能达到10%至12%。
 
-布伦特原油期货涨幅也一度超过3%。
+但这场危机仍然被低估，如今原油期货与现货价差已经达到10美元、15美元、20美元，甚至更高。
 
 ## 相关推荐
 
-- 2026-06-30 06:20 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 06:16 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 06:19 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 06:17 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 06:28 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 06:18 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 06:29 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-30 06:34 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 06:26 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 06:23 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 06:40 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 06:17 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 06:42 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 06:28 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 06:38 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 06:39 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 06:41 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 06:26 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 06:47 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-30 06:40 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 06:45 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 06:28 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 06:44 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 06:38 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-30 06:47 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 06:31 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 06:31 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 06:19 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:20 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/93251548688.shtml)
-- 2026-06-30 06:18 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/104553440595.shtml)
-- 2026-06-30 06:14 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/272259365.shtml)
-- 2026-06-30 06:14 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/816924678167.shtml)
-- 2026-06-30 06:34 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/9142870092.shtml)
-- 2026-06-30 06:27 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/97321411.shtml)
-- 2026-06-30 06:18 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/26391766352.shtml)
-- 2026-06-30 06:14 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/46303741202.shtml)
-- 2026-06-30 06:36 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/097104087.shtml)
-- 2026-06-30 06:31 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/7456298854.shtml)
-- 2026-06-30 06:15 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/3413977.shtml)
-- 2026-06-30 06:35 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/99861.shtml)
-- 2026-06-30 06:13 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/19977.shtml)
-- 2026-06-30 06:36 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/8681154.shtml)
-- 2026-06-30 06:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/32376106612.shtml)
+- 2026-06-30 06:37 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/7839838.shtml)
+- 2026-06-30 06:35 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/018554008.shtml)
+- 2026-06-30 06:26 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/81777.shtml)
+- 2026-06-30 06:20 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/3514816151.shtml)
+- 2026-06-30 06:36 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/69464082.shtml)
+- 2026-06-30 06:32 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/1984773514.shtml)
+- 2026-06-30 06:28 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/89761.shtml)
+- 2026-06-30 06:45 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/913744.shtml)
+- 2026-06-30 06:36 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/0120519228.shtml)
+- 2026-06-30 06:41 - [金牌调解](https://www.blog.minike.top/Article/details/602147.shtml)
+- 2026-06-30 06:42 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/017463639.shtml)
+- 2026-06-30 06:20 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/3909399.shtml)
+- 2026-06-30 06:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/931311160959.shtml)
+- 2026-06-30 06:24 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/734041.shtml)
+- 2026-06-30 06:34 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/942694704768.shtml)

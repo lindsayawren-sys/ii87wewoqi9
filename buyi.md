@@ -1,54 +1,59 @@
-# 2026年中国网络文明大会将于5月在广西南宁举办
+# 聚焦高质量发展 第六届中国（北京）广电媒体融合发展大会即启
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新社北京4月29日电 (记者 王梦瑶)2026年中国网络文明大会将于5月19日至20日在广西壮族自治区南宁市举办，会期一天半，主题为“文明网络空间 昂扬奋进力量”。 29日，国新办召开新闻发布会，中央网信办(国家网信办)副主任牛一兵在会上公布上述信息。 据介绍，主论坛将安排主流媒体、网络平台、MCN机构(多频道网络机构)、优质网络主播、正能量网络名人、中国好网民代表等分享交流
+中新网北京5月6日电 (记者 高凯)由中国广播电视社会组织联合会、中共北京市委宣传部、北京市广播电视局共同主办的第六届中国(北京)广电媒体融合发展大会将在北京举办。 据介绍，大会以“深融致远视听无界”为主题，采用“1+9+N”模式，设置10场主体活动及多项配套活动，聚焦主流媒体系统性变革，开展视听传播创新、全媒体传播运营、AI影视创作、视听赋能教育及视听赋能科普等多场主题研讨，
 
 ## 正文
 
-中新社北京4月29日电 (记者 王梦瑶)2026年中国网络文明大会将于5月19日至20日在广西壮族自治区南宁市举办，会期一天半，主题为“文明网络空间 昂扬奋进力量”。
+中新网北京5月6日电 (记者 高凯)由中国广播电视社会组织联合会、中共北京市委宣传部、北京市广播电视局共同主办的第六届中国(北京)广电媒体融合发展大会将在北京举办。
 
-29日，国新办召开新闻发布会，中央网信办(国家网信办)副主任牛一兵在会上公布上述信息。
+据介绍，大会以“深融致远视听无界”为主题，采用“1+9+N”模式，设置10场主体活动及多项配套活动，聚焦主流媒体系统性变革，开展视听传播创新、全媒体传播运营、AI影视创作、视听赋能教育及视听赋能科普等多场主题研讨，并配套设置政企对话会、村播兴农直播、视听+融合创新互动体验区等特色内容。
 
-据介绍，主论坛将安排主流媒体、网络平台、MCN机构(多频道网络机构)、优质网络主播、正能量网络名人、中国好网民代表等分享交流，发布2026年全国网络文明建设优秀案例，启动2026年全民数字素养与技能提升月活动。
+开幕式主论坛上，来自国家广播电视总局、北京市人民政府、中国广播电视社会组织联合会、北京市广播电视局等管理部门、协会代表，以及中央广播电视总台、头部网络视听平台、知名高校智库等机构代表将齐聚一堂，围绕主流媒体系统性变革、技术赋能内容生产力、网络视听平台赋能主流舆论新格局等核心议题展开深度分享。
 
-14场分论坛将重点围绕党的创新理论网络传播、互联网与文明乡风建设、网络文明培育、优化营商网络环境、中国好网民培育、走好网上群众路线、新大众文艺发展、网络辟谣、网络公益建设、互联网企业社会责任、全民数字素养与技能提升、人工智能赋能网络文明建设等主题展开，并将发布一系列网络文明建设成果。
+同时，主论坛还将举行京津冀节节高服务共同体成立仪式、2026年“京琅琊”人才专项遴选及名家工作室推荐申报启动仪式、全国首个城市取景地图点亮仪式等一系列重磅发布，以及《中国视听大数据(CVB)主流媒体视听作品收视报告》发布、《北京市促进“人工智能+视听”产业高质量发展重点项目支持管理办法(2026-2029)》等三项资金扶持政策发布，全景展示视听融合发展领域的最新成果与政策利好。
 
-“铸魂领航 清朗八桂”主题活动将于大会前在南宁市举办，以实景演绎、故事讲述等形式，多元展现人工智能(AI)等前沿科技推动网络空间天朗气清、生态良好的生动景象。
+大会设置九场主题研讨。
 
-牛一兵表示，目前大会的各项筹备工作已经基本就绪，欢迎大家相聚南宁、共襄盛会。
+分别聚焦内容创新与技术革新、全媒体传播运营全链升级、产业服务与生态共建、跨界赋能与场景融合等话题。
 
-(完)
+主体活动外，大会设置多项特色配套活动。
+
+“智赋视听·政通业兴——视听产业人工智能创新应用政企对话会”将邀请全国各省市视听主管机构与创新技术企业代表共同交流，围绕人工智能赋能视听产业创新发展探讨合作机遇。
 
 ## 相关推荐
 
-- 2026-06-30 06:40 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 06:28 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 06:24 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 06:28 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-30 06:29 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 06:28 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 06:24 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 06:32 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 06:12 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 06:29 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 06:36 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-30 06:46 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 06:24 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 06:33 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 06:18 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 06:24 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 06:39 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 06:41 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 06:37 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 06:25 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 06:29 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 06:36 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 06:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/821586332.shtml)
-- 2026-06-30 06:14 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/77310467.shtml)
-- 2026-06-30 06:26 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/617963.shtml)
-- 2026-06-30 06:13 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/267858544570.shtml)
-- 2026-06-30 06:21 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/744794375.shtml)
-- 2026-06-30 06:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/105949030.shtml)
-- 2026-06-30 06:20 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/0765211450.shtml)
-- 2026-06-30 06:17 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/85060.shtml)
-- 2026-06-30 06:33 - [《共患难》](http://www.share.minike.top/Article/details/34828076214.shtml)
-- 2026-06-30 06:13 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/661914556044.shtml)
-- 2026-06-30 06:30 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/562679613.shtml)
-- 2026-06-30 06:23 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/6502202.shtml)
-- 2026-06-30 06:29 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/9563704685.shtml)
-- 2026-06-30 06:19 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/35905.shtml)
-- 2026-06-30 06:27 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/293498.shtml)
+- 2026-06-30 06:33 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/35231042.shtml)
+- 2026-06-30 06:40 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/72457.shtml)
+- 2026-06-30 06:38 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/9746253775.shtml)
+- 2026-06-30 06:18 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/52385027.shtml)
+- 2026-06-30 06:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/794622.shtml)
+- 2026-06-30 06:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/7877818968.shtml)
+- 2026-06-30 06:27 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/92819.shtml)
+- 2026-06-30 06:21 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/329048288.shtml)
+- 2026-06-30 06:43 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/87509216375.shtml)
+- 2026-06-30 06:47 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/493552959.shtml)
+- 2026-06-30 06:20 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/16174189.shtml)
+- 2026-06-30 06:22 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/61272.shtml)
+- 2026-06-30 06:47 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/40245314512.shtml)
+- 2026-06-30 06:45 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/390591.shtml)
+- 2026-06-30 06:47 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/641371124.shtml)

@@ -1,50 +1,56 @@
-# 特朗普：伊朗希望美国尽快“开放霍尔木兹海峡”
+# 生物解决方案需求强劲 诺维信Q1销售增长7%
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月28日电美国总统特朗普28日在社交媒体发文称，伊朗希望美国“尽快开放霍尔木兹海峡”。（完）责任编辑：宋雅芳
+丹麦生物技术公司诺维信周二公布2026年第一季度财报，受益于各业务板块的广泛增长，公司实现有机销售增长7%，符合市场预期。管理层同时确认了全年业绩指引。 财报显示，公司第一季度销售额达11.2亿欧元，同比增长7%，有机增长7%。净利润从去年同期的1.86亿欧元增至1.991亿欧元，调整后每股收益为0.44欧元。调整后EBITDA利润率达到37.8%，自由现金流（收购前）增长9%
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+丹麦生物技术公司诺维信周二公布2026年第一季度财报，受益于各业务板块的广泛增长，公司实现有机销售增长7%，符合市场预期。
 
-新华社华盛顿4月28日电美国总统特朗普28日在社交媒体发文称，伊朗希望美国“尽快开放霍尔木兹海峡”。
+管理层同时确认了全年业绩指引。
 
-（完）责任编辑：宋雅芳
+财报显示，公司第一季度销售额达11.2亿欧元，同比增长7%，有机增长7%。
+
+净利润从去年同期的1.86亿欧元增至1.991亿欧元，调整后每股收益为0.44欧元。
+
+调整后EBITDA利润率达到37.8%，自由现金流（收购前）增长9%至7400万欧元。
+
+业绩增长呈现广泛基础。
+
+食品与健康生物解决方案部门实现9%的有机增长，地球健康生物解决方案部门增长5%。
+
+发达市场增长8%，新兴市场增长4%。
 
 ## 相关推荐
 
-- 2026-06-30 06:24 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 06:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 06:14 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-30 06:24 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 06:36 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 06:16 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 06:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 06:26 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 06:30 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 06:18 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 06:38 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 06:20 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 06:38 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 06:41 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 06:37 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 06:27 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 06:36 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 06:37 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 06:37 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 06:44 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 06:32 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 06:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 06:22 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 06:40 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:38 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/03219.shtml)
-- 2026-06-30 06:40 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/71416.shtml)
-- 2026-06-30 06:35 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/163109509.shtml)
-- 2026-06-30 06:21 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/8030281.shtml)
-- 2026-06-30 06:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/9177155608.shtml)
-- 2026-06-30 06:27 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/94724061291.shtml)
-- 2026-06-30 06:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/7677700921.shtml)
-- 2026-06-30 06:27 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/37590.shtml)
-- 2026-06-30 06:32 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/9830804.shtml)
-- 2026-06-30 06:24 - [女心理师](https://www.share.kurohicncr.top/Article/details/856008688400.shtml)
-- 2026-06-30 06:14 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/266276.shtml)
-- 2026-06-30 06:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/0668708.shtml)
-- 2026-06-30 06:22 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/73865.shtml)
-- 2026-06-30 06:33 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/84289397700.shtml)
-- 2026-06-30 06:20 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/7564688438.shtml)
+- 2026-06-30 06:35 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/6888810.shtml)
+- 2026-06-30 06:32 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/0728802965.shtml)
+- 2026-06-30 06:43 - [周生如故](http://www.blog.kurohicncr.top/Article/details/32618.shtml)
+- 2026-06-30 06:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/85641179179.shtml)
+- 2026-06-30 06:43 - [日本16强魔咒](http://www.share.minike.top/Article/details/29335624.shtml)
+- 2026-06-30 06:20 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/31400.shtml)
+- 2026-06-30 06:32 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/20431247.shtml)
+- 2026-06-30 06:45 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/40794.shtml)
+- 2026-06-30 06:36 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/19226.shtml)
+- 2026-06-30 06:33 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/68021936.shtml)
+- 2026-06-30 06:36 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/9892734.shtml)
+- 2026-06-30 06:18 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/3849395451.shtml)
+- 2026-06-30 06:23 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/538041.shtml)
+- 2026-06-30 06:21 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/502166502.shtml)
+- 2026-06-30 06:18 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/4584269.shtml)

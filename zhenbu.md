@@ -1,59 +1,58 @@
-# （寻味中华丨书香）当民间文学搬进石林山水：阿诗玛传说融入大众文化
+# “东莞首富”拿下190亿算力大单，是馅饼还是陷阱？
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新社昆明4月29日电 题：当民间文学搬进石林山水：阿诗玛传说融入大众文化 作者 陈静 在云南石林风景名胜区，大型实景歌舞剧《阿诗玛》每天上演。不远处，一座宛若少女侧影的石峰静静伫立——她是撒尼人心中的“阿诗玛”，是“断得弯不得”精神的象征。 彝族支系撒尼人叙事长诗《阿诗玛》是国家级非物质文化遗产代表性项目，流传于云南省石林彝族自治县，讲述了撒尼姑娘阿诗玛面对地主之子逼迫她嫁给
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源 | 野马财经 作者 | 孙梦圆 入局算力，能否接住泼天的富贵？ 宣布鲸吞280亿秦淮数据后，5月6日，东阳光（600673.SH）又接下了最高190亿元的算力大单。 公告称，东阳光控股子公司东莞东阳光云智算科技有限公司与某企业A公司签署的《算力服务采购
 
 ## 正文
 
-中新社昆明4月29日电 题：当民间文学搬进石林山水：阿诗玛传说融入大众文化 作者 陈静 在云南石林风景名胜区，大型实景歌舞剧《阿诗玛》每天上演。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-不远处，一座宛若少女侧影的石峰静静伫立——她是撒尼人心中的“阿诗玛”，是“断得弯不得”精神的象征。
+来源 | 野马财经 作者 | 孙梦圆 入局算力，能否接住泼天的富贵？
 
-彝族支系撒尼人叙事长诗《阿诗玛》是国家级非物质文化遗产代表性项目，流传于云南省石林彝族自治县，讲述了撒尼姑娘阿诗玛面对地主之子逼迫她嫁给自己，以“清水不愿和浑水搅在一起”表明立场。
+宣布鲸吞280亿秦淮数据后，5月6日，东阳光（600673.SH）又接下了最高190亿元的算力大单。
 
-地主与崖神勾结，引来洪水把阿诗玛卷走，她最终化为石峰。
+公告称，东阳光控股子公司东莞东阳光云智算科技有限公司与某企业A公司签署的《算力服务采购框架合同》，合同预计总金额区间为160亿元至190亿元（含税），合同期限为合同约定的订单验收通过后60个月。
 
-阿诗玛的兄长阿黑为救妹妹，先后与地主智斗、对歌、破铁门。
+东阳光表示，本次大额算力服务合同的成功签署，不仅为东阳光算力业务板块锁定了稳定且长期的收入来源，更成为公司深耕智算服务领域、夯实算力业务核心竞争力的关键里程碑，为公司打造强劲的第二增长曲线奠定坚实基础。
 
-云南民族大学社会学院教授吴兴帜向中新社记者介绍，《阿诗玛》采用了顺叙、倒叙、插叙、叠叙以及伏笔、夸张、讽刺等多种手法，语言生动，在世界民间文学史上实属罕见。
+消息一出，东阳光收获两连板，7日股价报42.83元/股，市值站上了1289亿元的高位。
 
-这部史诗最初以撒尼语口耳相传，1954年，经过系统搜集整理，长达1800余行的全诗得以用汉文完整呈现。
+但市场也对这笔买卖质疑声满满，首先，架构存疑：关联方刚斥资280亿收购成熟算力资产秦淮数据不用，却让一家无业绩的空壳子公司承接神秘“A公司”百亿大单，背景成谜令人联想海南华铁（维权）“烂尾”前车之鉴。
 
-此后，《阿诗玛》先后被翻译成英、法、德、西班牙、俄、日、韩等多种语言，还被改编成电影、京剧、歌剧、舞剧等多种艺术形式。
+其次，资金承压：公司负债率超66%，净利微薄，却需全额垫资数十亿买服务器，且回款周期长达五年，一旦融资受阻导致交付延期，客户便可无责解约。
 
 ## 相关推荐
 
-- 2026-06-30 06:30 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 06:15 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 06:40 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 06:22 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-30 06:34 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 06:18 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 06:28 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 06:25 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 06:22 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 06:41 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 06:13 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-30 06:39 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 06:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 06:18 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-30 06:30 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 06:21 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 06:29 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 06:45 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 06:41 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 06:18 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-30 06:42 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 06:27 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 06:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 06:26 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 06:23 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:22 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/565318.shtml)
-- 2026-06-30 06:29 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/524342127.shtml)
-- 2026-06-30 06:41 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/3583128.shtml)
-- 2026-06-30 06:19 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/6203347201.shtml)
-- 2026-06-30 06:23 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/888398818.shtml)
-- 2026-06-30 06:24 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/3839614633.shtml)
-- 2026-06-30 06:31 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/24649465.shtml)
-- 2026-06-30 06:27 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/90625.shtml)
-- 2026-06-30 06:28 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/6611325.shtml)
-- 2026-06-30 06:23 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/0447681.shtml)
-- 2026-06-30 06:36 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/25990348227.shtml)
-- 2026-06-30 06:19 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/321997074746.shtml)
-- 2026-06-30 06:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/7565168.shtml)
-- 2026-06-30 06:23 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/644479465277.shtml)
-- 2026-06-30 06:22 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/796999476.shtml)
+- 2026-06-30 06:22 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/4640121305.shtml)
+- 2026-06-30 06:29 - [美股](https://www.blog.kurohicncr.top/Article/details/4432307.shtml)
+- 2026-06-30 06:21 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/69598123401.shtml)
+- 2026-06-30 06:38 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/11922773.shtml)
+- 2026-06-30 06:19 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/5377321081.shtml)
+- 2026-06-30 06:34 - [千与千寻](http://www.share.kurohicncr.top/Article/details/506002.shtml)
+- 2026-06-30 06:25 - [恋与深空 日服](http://www.share.minike.top/Article/details/419390652479.shtml)
+- 2026-06-30 06:24 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/70145.shtml)
+- 2026-06-30 06:43 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/152891048229.shtml)
+- 2026-06-30 06:32 - [起风了](http://www.blog.minike.top/Article/details/5477382.shtml)
+- 2026-06-30 06:40 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/16082.shtml)
+- 2026-06-30 06:19 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/358814596.shtml)
+- 2026-06-30 06:32 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/1886438.shtml)
+- 2026-06-30 06:37 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/753797808.shtml)
+- 2026-06-30 06:21 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/46140583675.shtml)

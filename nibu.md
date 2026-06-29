@@ -1,59 +1,58 @@
-# 芬兰通力集团斥资294亿欧元收购蒂升电梯，将成全球最大电梯制造商
+# 2026年中国田径大众达标系列赛在肇庆举行
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-芬兰电梯制造商通力集团（Kone）周三宣布，已同意以294亿欧元（约合344亿美元）的价格收购其德国竞争对手蒂升电梯（TK Elevator），从而打造全球最大的电梯制造商。 此次交易由私募股权公司Advent International和Cinven牵头，是今年欧洲规模最大的收购案之一，也是芬兰历史上估值最高的公司收购案。 通力集团表示，此次合并预计将带来约7亿欧元的年度协同
+中新网肇庆5月6日电 (记者 张璐)据广东省田径协会5日消息，2026年中国田径大众达标系列赛暨广东省田径公开赛(第1站)4日在肇庆市体育中心体育场落幕。来自全国各地1440名田径爱好者齐聚“岭南名郡”——肇庆，用汗水与拼搏诠释了“全龄运动，青春不老”的赛事精神，奉献了一场速度与激情并存的田径盛宴。 本站比赛最小的参赛者仅3岁，最年长的参赛者54岁，穿越年龄的界限在同一片赛场上
 
 ## 正文
 
-芬兰电梯制造商通力集团（Kone）周三宣布，已同意以294亿欧元（约合344亿美元）的价格收购其德国竞争对手蒂升电梯（TK Elevator），从而打造全球最大的电梯制造商。
+中新网肇庆5月6日电 (记者 张璐)据广东省田径协会5日消息，2026年中国田径大众达标系列赛暨广东省田径公开赛(第1站)4日在肇庆市体育中心体育场落幕。
 
-此次交易由私募股权公司Advent International和Cinven牵头，是今年欧洲规模最大的收购案之一，也是芬兰历史上估值最高的公司收购案。
+来自全国各地1440名田径爱好者齐聚“岭南名郡”——肇庆，用汗水与拼搏诠释了“全龄运动，青春不老”的赛事精神，奉献了一场速度与激情并存的田径盛宴。
 
-通力集团表示，此次合并预计将带来约7亿欧元的年度协同效应。
+本站比赛最小的参赛者仅3岁，最年长的参赛者54岁，穿越年龄的界限在同一片赛场上同框竞技。
 
-通力集团首席执行官菲利普·德洛姆在一份声明中表示：“此次合并将显著提升我们满足客户日益增长的对可靠、可持续解决方案和服务需求的能力。
+从60米、100米的短距离对决，到5000米、10000米的长距离耐力比拼，赛事项目设置兼具竞技性与参与性，充分满足了不同年龄段田径爱好者的参赛需求。
 
-” 该集团表示，持有约 40.3% 流通股和约 74.3% 总投票权的通力股东已同意支持该交易并投票赞成董事会的提议。
+据了解，为了提升赛事水平和广大跑友的参赛体验，组委会邀请了广东田径名将、肇庆籍运动员莫家蝶，近期状态火热的广东短跑新星陈嘉浩和吴昊霖来到现场，为获奖运动员颁发奖牌与证书。
 
-如果获得批准，这一合并将使通力成为全球最大的电梯制造商，超越其最大的竞争对手，即美国奥的斯（市值297 亿美元），以及瑞士迅达（市值 362 亿美元）。
+此前，陈嘉浩在这里跑出10秒22的个人最好成绩，力压群雄夺得百米冠军；莫家蝶以13秒08的“跨项首秀”成绩，一举斩获职业生涯首个百米栏全国冠军。
 
-责任编辑：于健 SF069
+据介绍，本次赛事为广大田径爱好者提供了一个高水平、规范化的竞技交流平台，展示了广东田径蓬勃发展的群众基础和青少年后备人才储备。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:15 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 06:35 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 06:25 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 06:20 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 06:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-30 06:14 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 06:23 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 06:29 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-30 06:33 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 06:27 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 06:31 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 06:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 06:40 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 06:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 06:26 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 06:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 06:35 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 06:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 06:47 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 06:26 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 06:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 06:22 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 06:45 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-30 06:23 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 06:22 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 06:36 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 06:47 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:38 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/508585606822.shtml)
-- 2026-06-30 06:13 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/926146.shtml)
-- 2026-06-30 06:22 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/010590494330.shtml)
-- 2026-06-30 06:14 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/87847.shtml)
-- 2026-06-30 06:37 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/32781.shtml)
-- 2026-06-30 06:20 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/574298727757.shtml)
-- 2026-06-30 06:29 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/419946718231.shtml)
-- 2026-06-30 06:37 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/44139067.shtml)
-- 2026-06-30 06:24 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/399641478462.shtml)
-- 2026-06-30 06:15 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/04401.shtml)
-- 2026-06-30 06:25 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/186049472.shtml)
-- 2026-06-30 06:37 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/312617483226.shtml)
-- 2026-06-30 06:15 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/051591269.shtml)
-- 2026-06-30 06:25 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/38563108.shtml)
-- 2026-06-30 06:27 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/33758048.shtml)
+- 2026-06-30 06:37 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/643744.shtml)
+- 2026-06-30 06:31 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/110287587367.shtml)
+- 2026-06-30 06:45 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/62924466544.shtml)
+- 2026-06-30 06:19 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/657413291.shtml)
+- 2026-06-30 06:36 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/82527.shtml)
+- 2026-06-30 06:39 - [《共患难》](https://www.blog.minike.top/Article/details/847707.shtml)
+- 2026-06-30 06:39 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/4491476.shtml)
+- 2026-06-30 06:21 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/579150609.shtml)
+- 2026-06-30 06:23 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/00831609343.shtml)
+- 2026-06-30 06:36 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/88628638.shtml)
+- 2026-06-30 06:23 - [极限挑战第一季](http://www.blog.minike.top/Article/details/5298905690.shtml)
+- 2026-06-30 06:46 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/618259174.shtml)
+- 2026-06-30 06:39 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/849556.shtml)
+- 2026-06-30 06:20 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/241663081.shtml)
+- 2026-06-30 06:48 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/1325749.shtml)

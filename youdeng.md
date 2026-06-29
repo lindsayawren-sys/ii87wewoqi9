@@ -1,55 +1,57 @@
-# 以军称哈马斯军事情报总部作战部门负责人身亡
+# 北京警方严打涉电信网络诈骗黑灰产业
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社耶路撒冷4月29日电（记者王卓伦庞昕熠）以色列国防军与以色列国家安全总局（辛贝特）29日发表联合声明称，双方28日在加沙地带北部发动空袭，打死巴勒斯坦伊斯兰抵抗运动（哈马斯）军事情报总部作战部门负责人伊亚德·艾哈迈德·阿卜杜勒-拉赫曼·尚巴里。 声明称，尚巴里近年来负责汇总整个加沙地带的作战态势评估，
+中新网北京5月6日电 (记者 吕少威)为严打涉电信网络诈骗黑灰产业，切实斩断犯罪链条，北京警方坚持多维度综合治理，开展全链条打击，今年以来，已累计打掉取现运金“车队”48个，抓获犯罪嫌疑人280余名，拦截黄金8.23公斤，现金2990余万元。工作中，北京警方集中力量打击为诈骗提供技术、信息、洗钱等支持的各类犯罪团伙，并针对诈骗分子利用线下方式转移赃款的新手段开展专项行动，重点打
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京5月6日电 (记者 吕少威)为严打涉电信网络诈骗黑灰产业，切实斩断犯罪链条，北京警方坚持多维度综合治理，开展全链条打击，今年以来，已累计打掉取现运金“车队”48个，抓获犯罪嫌疑人280余名，拦截黄金8.23公斤，现金2990余万元。
 
-新华社耶路撒冷4月29日电（记者王卓伦庞昕熠）以色列国防军与以色列国家安全总局（辛贝特）29日发表联合声明称，双方28日在加沙地带北部发动空袭，打死巴勒斯坦伊斯兰抵抗运动（哈马斯）军事情报总部作战部门负责人伊亚德·艾哈迈德·阿卜杜勒-拉赫曼·尚巴里。
+工作中，北京警方集中力量打击为诈骗提供技术、信息、洗钱等支持的各类犯罪团伙，并针对诈骗分子利用线下方式转移赃款的新手段开展专项行动，重点打击通过取现、购买黄金等方式进行洗钱的“车队”，形成有效震慑。
 
-声明称，尚巴里近年来负责汇总整个加沙地带的作战态势评估，是哈马斯军事情报体系中的关键人物。
+同时，强化源头治理与协同管控，持续深化与电信、金融、银行、互联网等部门协作联动，紧抓涉诈电话卡银行卡、非法APP、网络账户等关键要素开展共同整治，进一步挤压黑灰产业的生存空间。
 
-他长期参与收集以军部队情报，用于制定并实施针对以军的袭击计划，对在该地区行动的以军构成“直接威胁”。
+日前，北京警方部署多警种联动、跨省市同步作战，成功打掉一个流窜全国多地，专门为诈骗犯罪洗钱的电诈黑灰产团伙，抓获涉案嫌疑人7人。
 
-此外，他还参与策划了哈马斯在2023年10月7日对以色列发动的大规模袭击。
+今年1月中旬，北京市公安局房山分局接到辖区一家金店工作人员报警，称有人异常预约购买价值高达百万元的黄金。
 
-声明称，以军南方司令部部队目前仍按相关协议部署在该地区，并将继续采取行动，以消除任何“即时威胁”。
+这一情况引起了警方关注，民警迅速开展核查，认定事主被境外诈骗分子深度“洗脑”，遭遇虚假网络投资理财诈骗，听信诈骗分子话术，执意通过线下购买黄金方式进行所谓“大额投资”。
 
-（完）责任编辑：宋雅芳
+最终，在民警和事主家人的共同劝阻下，事主未将购买的黄金送出，成功避免了财产损失。
+
+同时，办案民警将伺机“取金”的嫌疑人李某当场抓获。
 
 ## 相关推荐
 
-- 2026-06-30 06:34 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 06:16 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 06:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-30 06:30 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 06:28 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 06:32 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 06:15 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 06:39 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 06:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 06:34 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-30 06:32 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 06:18 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 06:43 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 06:37 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 06:42 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 06:20 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 06:43 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 06:36 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 06:33 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 06:46 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 06:37 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-30 06:44 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:33 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/7775310.shtml)
-- 2026-06-30 06:15 - [绘画区你赢了](https://www.share.minike.top/Article/details/748891404936.shtml)
-- 2026-06-30 06:16 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/3525783.shtml)
-- 2026-06-30 06:18 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/60023871.shtml)
-- 2026-06-30 06:22 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/95407.shtml)
-- 2026-06-30 06:33 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/060058.shtml)
-- 2026-06-30 06:18 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/72766.shtml)
-- 2026-06-30 06:21 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/5349807909.shtml)
-- 2026-06-30 06:13 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/202921476.shtml)
-- 2026-06-30 06:19 - [张凌赫 客串](https://www.blog.minike.top/Article/details/621437497.shtml)
-- 2026-06-30 06:18 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/01909291.shtml)
-- 2026-06-30 06:33 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/047553.shtml)
-- 2026-06-30 06:21 - [斗破苍穹](https://www.blog.minike.top/Article/details/001592520338.shtml)
-- 2026-06-30 06:24 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/610744766.shtml)
-- 2026-06-30 06:14 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/3549707.shtml)
+- 2026-06-30 06:29 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/4190319121.shtml)
+- 2026-06-30 06:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/08245719802.shtml)
+- 2026-06-30 06:38 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/69714654893.shtml)
+- 2026-06-30 06:35 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/876563529.shtml)
+- 2026-06-30 06:30 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/227141948.shtml)
+- 2026-06-30 06:26 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/121959588167.shtml)
+- 2026-06-30 06:21 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/947679364.shtml)
+- 2026-06-30 06:29 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/43700936222.shtml)
+- 2026-06-30 06:37 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/123937750967.shtml)
+- 2026-06-30 06:42 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/43586.shtml)
+- 2026-06-30 06:34 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/97734061032.shtml)
+- 2026-06-30 06:34 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/3878738.shtml)
+- 2026-06-30 06:40 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/583684.shtml)
+- 2026-06-30 06:21 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/92740166.shtml)
+- 2026-06-30 06:28 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/30316068.shtml)

@@ -1,59 +1,60 @@
-# 美伊最新局势速览：特朗普面临“大限”压力，以黎停火名存实亡
+# 现货黄金，日内大涨100美元！有色金属一季度利润增逾110%，华宝基金有色ETF（159876）强势拉升3.8%
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-美伊最新局势一文速览：特朗普面临“大限”压力，伊朗武装力量“手扣扳机”高度戒备，以黎停火名存实亡 美以伊战事爆发至今已有两个月的时间，美国和伊朗在谈判方面依然缺乏进展，在军事对峙中继续保持强硬姿态。昨夜今晨，美伊最新局势一文速览↓ 伊朗 伊朗军方：当前局势仍定性为战争状态伊朗军方发言人28日说，战事并未结束，当前局势仍定性为战争状态，伊朗武装部队已完成目标清单与作战装备的全面更
+今日（5月6日）现货黄金持续上涨，盘中最高涨超100美元。热门ETF方面，同标的指数规模最大的有色ETF华宝（159876）震荡上扬，午后继续猛攻，场内价格现涨3.81%，实时成交额超7400万元，交投火热，盘中收复10日、60日均线。 成份股方面，中金岭南、海亮股份、云南锗业、华锡有色4股涨停，权重股方面，紫金矿业涨超2%，洛阳钼业涨逾4%，中国铝业、北方稀土涨超3%。 今年
 
 ## 正文
 
-美伊最新局势一文速览：特朗普面临“大限”压力，伊朗武装力量“手扣扳机”高度戒备，以黎停火名存实亡 美以伊战事爆发至今已有两个月的时间，美国和伊朗在谈判方面依然缺乏进展，在军事对峙中继续保持强硬姿态。
+今日（5月6日）现货黄金持续上涨，盘中最高涨超100美元。
 
-昨夜今晨，美伊最新局势一文速览↓ 伊朗 伊朗军方：当前局势仍定性为战争状态伊朗军方发言人28日说，战事并未结束，当前局势仍定性为战争状态，伊朗武装部队已完成目标清单与作战装备的全面更新。
+热门ETF方面，同标的指数规模最大的有色ETF华宝（159876）震荡上扬，午后继续猛攻，场内价格现涨3.81%，实时成交额超7400万元，交投火热，盘中收复10日、60日均线。
 
-伊朗武装力量目前“手扣扳机”，处于高度戒备状态 伊朗伊斯兰革命卫队海军副司令28日表示，“伊朗已实现对霍尔木兹海峡的绝对控制，并要求过往船只缴纳通行费，外籍船只通过时必须遵守伊方规则，包括使用波斯语通讯。
+成份股方面，中金岭南、海亮股份、云南锗业、华锡有色4股涨停，权重股方面，紫金矿业涨超2%，洛阳钼业涨逾4%，中国铝业、北方稀土涨超3%。
 
-” 他表示，“如果没有伊朗最高领袖的命令和人民的意志，伊朗决不允许哪怕一升石油流出海峡。
+今年一季度，有色金属行业交出了一份亮眼的“成绩单”。
 
-伊朗武装力量目前‘手扣扳机’，处于高度戒备状态。
+以有色ETF华宝（159876）60只成份股为例来看，其中59只个股实现盈利，八成个股实现归母净利两位数增长，22只个股实现归母净利同比三位数大增！
 
-伊朗有能力应对任何形式的海上封锁，美军在波斯湾的霸权已经终结。
+在宏观经济承压与产业内部结构性机遇并存的背景下，行业整体盈利能力显著提升，部分品种获得国际投行上调预期，稀土等战略矿产的政策加码也引发市场高度关注。
 
-” 伊朗或向巴基斯坦提交调整版谈判方案 28日，据美国方面消息，知情人士披露，由于美国总统特朗普不满意伊朗提出的新谈判方案，伊朗可能会在接下来几天内向斡旋方巴基斯坦提交一份调整版方案。
+中国有色金属工业协会最新数据显示，2026年一季度，全国十种有色金属产量同比增长3.6%，行业固定资产投资同比增长10.7%。
 
-知情人士称，伊朗外交部长阿拉格齐28日结束对俄罗斯的访问后将返回德黑兰，预计他将向伊朗领导层汇报情况并进行磋商。
+更引人注目的是，规模以上有色金属企业实现利润总额1928.5亿元，同比增幅高达110.7%。
 
 ## 相关推荐
 
-- 2026-06-30 06:30 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 06:34 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 06:19 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 06:23 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 06:13 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 06:37 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 06:19 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 06:13 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 06:20 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 06:34 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 06:20 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 06:13 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 06:25 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 06:27 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 06:34 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 06:36 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 06:43 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 06:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 06:23 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 06:36 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 06:26 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 06:39 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 06:28 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 06:23 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 06:38 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 06:41 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 06:44 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:15 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/97940405.shtml)
-- 2026-06-30 06:23 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/372228145163.shtml)
-- 2026-06-30 06:26 - [恋与深空 日服](http://www.blog.minike.top/Article/details/672393738762.shtml)
-- 2026-06-30 06:20 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/8837790249.shtml)
-- 2026-06-30 06:12 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/261958729.shtml)
-- 2026-06-30 06:35 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/51881732042.shtml)
-- 2026-06-30 06:40 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/858112.shtml)
-- 2026-06-30 06:35 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/20194383.shtml)
-- 2026-06-30 06:13 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/603466217.shtml)
-- 2026-06-30 06:16 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/49591980010.shtml)
-- 2026-06-30 06:17 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/921276314.shtml)
-- 2026-06-30 06:41 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/529797049.shtml)
-- 2026-06-30 06:14 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/07899531.shtml)
-- 2026-06-30 06:13 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/121253369922.shtml)
-- 2026-06-30 06:28 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/731231888.shtml)
+- 2026-06-30 06:27 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/95011002413.shtml)
+- 2026-06-30 06:34 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/976143.shtml)
+- 2026-06-30 06:26 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/43635609.shtml)
+- 2026-06-30 06:23 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/3709159294.shtml)
+- 2026-06-30 06:44 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/34895148.shtml)
+- 2026-06-30 06:45 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/396708198939.shtml)
+- 2026-06-30 06:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/549932634.shtml)
+- 2026-06-30 06:30 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/5401109.shtml)
+- 2026-06-30 06:45 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/51037357.shtml)
+- 2026-06-30 06:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/3019439399.shtml)
+- 2026-06-30 06:39 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/3092953936.shtml)
+- 2026-06-30 06:46 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/9766697.shtml)
+- 2026-06-30 06:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/5876813354.shtml)
+- 2026-06-30 06:35 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/524548849150.shtml)
+- 2026-06-30 06:37 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/7618985836.shtml)

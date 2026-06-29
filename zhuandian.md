@@ -1,54 +1,56 @@
-# 青岛银行绩后涨逾5% 第一季度归母净利润同比增长21.16%
+# 邦达亚洲:市场的风险情绪转暖 美元指数大幅回落
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-青岛银行（03866）绩后涨逾5%，截至发稿，股价上涨4.90%，现报5.14港元，成交额2202.28万港元。 4月28日，青岛银行发布公告，2026年第一季度，公司实现归属于母公司股东的净利润15.24亿元，同比增加2.66亿元，增长21.16%；营业收入43.42亿元，同比增加3.00亿元，增长7.43%；加权平均净资产收益率（年化）14.63%，同比提高1.40个百分点
+5月7日，美国4月私人就业增长超预期，但劳动力市场整体仍处于低雇佣、低裁员状态，为美联储维持利率不变提供了更多依据。ADP周三公布数据显示，4月私人部门新增就业10.9万人，高于路透调查经济学家预期的9.9万人，也较3月经下修后的6.1万人大幅提速，为连续第十个月录得就业增长，亦是去年1月以来最强单月表现。ADP首席经济学家Nela Richardson表示，大型和小型雇主均在
 
 ## 正文
 
-青岛银行（03866）绩后涨逾5%，截至发稿，股价上涨4.90%，现报5.14港元，成交额2202.28万港元。
+5月7日，美国4月私人就业增长超预期，但劳动力市场整体仍处于低雇佣、低裁员状态，为美联储维持利率不变提供了更多依据。
 
-4月28日，青岛银行发布公告，2026年第一季度，公司实现归属于母公司股东的净利润15.24亿元，同比增加2.66亿元，增长21.16%；营业收入43.42亿元，同比增加3.00亿元，增长7.43%；加权平均净资产收益率（年化）14.63%，同比提高1.40个百分点。
+ADP周三公布数据显示，4月私人部门新增就业10.9万人，高于路透调查经济学家预期的9.9万人，也较3月经下修后的6.1万人大幅提速，为连续第十个月录得就业增长，亦是去年1月以来最强单月表现。
 
-2026年第一季度，利息净收入30.21亿元，同比增加3.71亿元，增长14.00%；其中，利息收入60.27亿元，增加4.16亿元，利息支出30.06亿元，增加0.45亿元。
+ADP首席经济学家Nela Richardson表示，大型和小型雇主均在招聘，但中型企业表现疲软。
 
-非利息净收入13.20亿元，同比减少0.71亿元。
+数据发布后，市场注意力已转向周五美国劳工统计局将公布的非农就业报告。
 
-截至2026年3月末，公司不良贷款率0.96%，比上年末下降0.01个百分点；拨备覆盖率305.61%，比上年末提高13.31个百分点。
+路透调查显示，经济学家预计4月非农就业人数增加约6.2万，失业率维持4.3%不变。
 
-核心一级资本充足率8.70%，比上年末提高0.03个百分点；资本充足率12.43%，比上年末下降0.94个百分点。
+当前通胀高企、就业市场韧性持续，美联储上周再度按兵不动，降息预期受到压制。
 
-责任编辑：卢昱君
+另外，美国总统唐纳德·特朗普周三在椭圆形办公室表示，过去24小时内美国与伊朗进行了“非常好的谈判”。
+
+据美国有线电视新闻网报道，尽管外界关注德黑兰何时会对美方结束战争的提案作出回复，但特朗普明确表示，“从未有截止日期”。
 
 ## 相关推荐
 
-- 2026-06-30 06:20 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 06:28 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 06:36 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 06:21 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 06:29 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 06:40 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 06:33 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 06:28 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 06:13 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 06:23 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 06:40 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 06:42 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 06:25 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 06:18 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 06:25 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 06:29 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 06:29 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 06:18 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 06:39 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 06:28 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:22 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/2952776.shtml)
-- 2026-06-30 06:39 - [日本进球](http://www.share.minike.top/Article/details/70247640221.shtml)
-- 2026-06-30 06:29 - [天道](https://www.share.minike.top/Article/details/34935308.shtml)
-- 2026-06-30 06:37 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/8822866761.shtml)
-- 2026-06-30 06:37 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/82011291.shtml)
-- 2026-06-30 06:34 - [扬名立万](https://www.blog.minike.top/Article/details/21090212.shtml)
-- 2026-06-30 06:17 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/871350702.shtml)
-- 2026-06-30 06:14 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/2332251.shtml)
-- 2026-06-30 06:20 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/331106447.shtml)
-- 2026-06-30 06:22 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/1765640297.shtml)
-- 2026-06-30 06:28 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/81425.shtml)
-- 2026-06-30 06:13 - [起风了](https://www.share.minike.top/Article/details/04827.shtml)
-- 2026-06-30 06:21 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/7467862.shtml)
-- 2026-06-30 06:38 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/699269.shtml)
-- 2026-06-30 06:31 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/0803564.shtml)
+- 2026-06-30 06:36 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/591411.shtml)
+- 2026-06-30 06:22 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/480178894.shtml)
+- 2026-06-30 06:41 - [日本反击率先破门](https://www.share.minike.top/Article/details/670634948042.shtml)
+- 2026-06-30 06:20 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/9222009217.shtml)
+- 2026-06-30 06:39 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/805127.shtml)
+- 2026-06-30 06:33 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/979218334125.shtml)
+- 2026-06-30 06:29 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/75510803.shtml)
+- 2026-06-30 06:24 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/936476518.shtml)
+- 2026-06-30 06:40 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/993385555.shtml)
+- 2026-06-30 06:38 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/133012.shtml)
+- 2026-06-30 06:45 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/8574858.shtml)
+- 2026-06-30 06:36 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/921801.shtml)
+- 2026-06-30 06:36 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/633377388066.shtml)
+- 2026-06-30 06:38 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/48589070.shtml)
+- 2026-06-30 06:42 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/9945143660.shtml)

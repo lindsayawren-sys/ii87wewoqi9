@@ -1,54 +1,59 @@
-# 凯投宏观：泰国央行维持利率不变，但降息之门似乎已经打开
+# 上海久事队获2026年超三联赛深圳争霸赛冠军
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-泰国央行在早些时候的会议上暗示其不急于降息，但凯投宏观仍认为该央行将在今年晚些时候恢复宽松政策。经济学家Gareth Leather表示，泰国央行追随菲律宾和新加坡的脚步收紧政策的可能性很小。 虽然泰国不提供能源补贴，这意味着成本会直接传导为更高的价格，但在经历了长期的通缩之后，基本通胀压力依然疲弱。 即使未来几个月CPI料将上涨，也不太可能超出泰国央行的目标区间。决策者似乎也
+中新网5月7日电 2026年中国男子三人篮球联赛(超三联赛)深圳争霸赛6日在深圳市体育中心收官。历经3天共40场比赛的激烈对决，上海久事队最终获得冠军。 2026年超三联赛深圳争霸赛暨新赛季揭幕战于4日正式打响。这不仅是联赛新赛季的开端，也是中国三人篮球冲击洛杉矶奥运会积分周期的起点。 经过角逐，本站决赛在上海久事队与上海横沙誉民队之间展开，这两支劲旅瓜分了联赛过去四年的全部总
 
 ## 正文
 
-泰国央行在早些时候的会议上暗示其不急于降息，但凯投宏观仍认为该央行将在今年晚些时候恢复宽松政策。
+中新网5月7日电 2026年中国男子三人篮球联赛(超三联赛)深圳争霸赛6日在深圳市体育中心收官。
 
-经济学家Gareth Leather表示，泰国央行追随菲律宾和新加坡的脚步收紧政策的可能性很小。
+历经3天共40场比赛的激烈对决，上海久事队最终获得冠军。
 
-虽然泰国不提供能源补贴，这意味着成本会直接传导为更高的价格，但在经历了长期的通缩之后，基本通胀压力依然疲弱。
+2026年超三联赛深圳争霸赛暨新赛季揭幕战于4日正式打响。
 
-即使未来几个月CPI料将上涨，也不太可能超出泰国央行的目标区间。
+这不仅是联赛新赛季的开端，也是中国三人篮球冲击洛杉矶奥运会积分周期的起点。
 
-决策者似乎也担心能源价格上涨对经济活动造成的拖累。
+经过角逐，本站决赛在上海久事队与上海横沙誉民队之间展开，这两支劲旅瓜分了联赛过去四年的全部总冠军。
 
-鉴于此，凯投宏观坚持其今年至少再降息一次的看法，这与市场普遍认为到2026年底都将维持利率不变的看法相反。
+本次争霸赛，两队均派出全新阵容：作为卫冕冠军，上海久事队在保留颜鹏、温亚德、齐浩彤三位夺冠核心的基础上，迎来年轻球员刘梓鹏的加盟；上海横沙誉民队则引入李浩南与外援安德鲁两名新援。
 
-责任编辑：何云
+比赛伊始，两队不仅进攻高效，防守强度同样拉满，比分交替上升。
+
+比赛还剩2分12秒时，温亚德暴扣得手，将比分追至15平。
 
 ## 相关推荐
 
-- 2026-06-30 06:21 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 06:29 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 06:18 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 06:34 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 06:26 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 06:17 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 06:36 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 06:31 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 06:25 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 06:27 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 06:22 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 06:21 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 06:42 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 06:30 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 06:27 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-30 06:24 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 06:46 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 06:47 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 06:46 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 06:18 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 06:21 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 06:41 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 06:37 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:21 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/74523283174.shtml)
-- 2026-06-30 06:30 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/85046721274.shtml)
-- 2026-06-30 06:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/4061704.shtml)
-- 2026-06-30 06:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/8353556304.shtml)
-- 2026-06-30 06:39 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/1782879.shtml)
-- 2026-06-30 06:31 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/1207140760.shtml)
-- 2026-06-30 06:39 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/092374403653.shtml)
-- 2026-06-30 06:20 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/301137.shtml)
-- 2026-06-30 06:15 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/79830321.shtml)
-- 2026-06-30 06:34 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/75960.shtml)
-- 2026-06-30 06:20 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/7940070117.shtml)
-- 2026-06-30 06:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/82206.shtml)
-- 2026-06-30 06:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/1096059025.shtml)
-- 2026-06-30 06:41 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/82488725884.shtml)
-- 2026-06-30 06:38 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/04235.shtml)
+- 2026-06-30 06:26 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/0652146818.shtml)
+- 2026-06-30 06:37 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/75236421916.shtml)
+- 2026-06-30 06:47 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/412962913780.shtml)
+- 2026-06-30 06:25 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/65861623820.shtml)
+- 2026-06-30 06:33 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/0493930.shtml)
+- 2026-06-30 06:39 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/37876006380.shtml)
+- 2026-06-30 06:44 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/17853467.shtml)
+- 2026-06-30 06:31 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/6832264789.shtml)
+- 2026-06-30 06:39 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/788503.shtml)
+- 2026-06-30 06:24 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/164420.shtml)
+- 2026-06-30 06:46 - [房价什么时候能涨](https://www.share.minike.top/Article/details/2983429829.shtml)
+- 2026-06-30 06:44 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/303564631992.shtml)
+- 2026-06-30 06:32 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/1359481.shtml)
+- 2026-06-30 06:35 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/771499.shtml)
+- 2026-06-30 06:29 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/93511560.shtml)

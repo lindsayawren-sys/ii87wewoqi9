@@ -1,56 +1,60 @@
-# 黄金受避险需求与利率隐忧双向压制 底层需求保持坚挺
+# 快手-W盘中涨超8% 花旗给予“买入”评级
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-黄金再度置身地缘政治博弈焦点，深陷避险买盘需求与长期高利率前景的双向拉扯之中。 世界黄金协会表示，持续的地缘政治不确定性，有望在今年提振黄金投资需求与各国央行购金力度。但与此同时，地缘冲突推高油价、加剧通胀压力，进一步强化市场对高利率长期维持的预期——而高利率历来是黄金这类无息资产的利空因素。 黄金此前一路狂飙的行情已遭遇剧烈反转：2025年金价累计大涨65%，并于今年早些时候
+快手-W（01024）盘中涨超8%，截至发稿，股价上涨6.62%，现报47.98港元，成交额26.55亿港元。 近日，据快手-W旗下大模型可灵AI官微消息，可灵AI在视频3.0系列模型中推出原生4K直出功能，支持一键生成院线级质感视频，为业内首个原生4K直出的视频模型。该功能面向影视及广告等专业视频行业客户，可在无需复杂后期处理的情况下，直接输出高分辨率画面，实现影视工业级视觉
 
 ## 正文
 
-黄金再度置身地缘政治博弈焦点，深陷避险买盘需求与长期高利率前景的双向拉扯之中。
+快手-W（01024）盘中涨超8%，截至发稿，股价上涨6.62%，现报47.98港元，成交额26.55亿港元。
 
-世界黄金协会表示，持续的地缘政治不确定性，有望在今年提振黄金投资需求与各国央行购金力度。
+近日，据快手-W旗下大模型可灵AI官微消息，可灵AI在视频3.0系列模型中推出原生4K直出功能，支持一键生成院线级质感视频，为业内首个原生4K直出的视频模型。
 
-但与此同时，地缘冲突推高油价、加剧通胀压力，进一步强化市场对高利率长期维持的预期——而高利率历来是黄金这类无息资产的利空因素。
+该功能面向影视及广告等专业视频行业客户，可在无需复杂后期处理的情况下，直接输出高分辨率画面，实现影视工业级视觉效果。
 
-黄金此前一路狂飙的行情已遭遇剧烈反转：2025年金价累计大涨65%，并于今年早些时候首次突破每金衡盎司5000美元大关；自伊朗冲突爆发以来，黄金价格已暴跌近11%。
+花旗发布研报称，预计快手-W（01024）将于5月底公布2026年首季业绩。
 
-能源价格持续上涨重新点燃通胀担忧，压缩了美联储的降息空间。
+该行预期，公司收入及经调整盈利大致符合市场共识。
 
-由于黄金不产生利息收益，长期高利率环境会削弱其配置吸引力，投资者可在其他资产中获取更高回报。
+受2025年第四季度电商行业新税务政策影响，该行维持此前预测，预期2026首季商品交易总额（GMV）增长将放缓至高单位数。
 
-盛宝银行大宗商品策略主管指出：“黄金、白银此前迎来一轮暴涨行情，双双创下历史新高。
+花旗认为，基于可灵AI的巨大潜力，仍看好快手； 给予“买入” 评级； 目标价72港元。
 
-而目前两类贵金属价格回落，并非长期基本面出现实质性恶化，而是伊朗冲突爆发后，宏观环境发生了急剧转变。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:18 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 06:13 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 06:38 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 06:40 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 06:40 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 06:37 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 06:22 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 06:33 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 06:15 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 06:16 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 06:46 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 06:39 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 06:24 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 06:25 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 06:18 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 06:21 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 06:33 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 06:30 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 06:30 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 06:28 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 06:37 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 06:30 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 06:28 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 06:35 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:28 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/2350055873.shtml)
-- 2026-06-30 06:22 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/986877601.shtml)
-- 2026-06-30 06:32 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/750080.shtml)
-- 2026-06-30 06:13 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/1040289.shtml)
-- 2026-06-30 06:18 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/329792336313.shtml)
-- 2026-06-30 06:39 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/26666.shtml)
-- 2026-06-30 06:21 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/6471002.shtml)
-- 2026-06-30 06:21 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/43175659927.shtml)
-- 2026-06-30 06:26 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/178646.shtml)
-- 2026-06-30 06:41 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/73331116.shtml)
-- 2026-06-30 06:30 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/8686956.shtml)
-- 2026-06-30 06:29 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/9838709.shtml)
-- 2026-06-30 06:28 - [我和我的家乡](http://www.blog.minike.top/Article/details/635370829903.shtml)
-- 2026-06-30 06:36 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/44466707458.shtml)
-- 2026-06-30 06:19 - [一生一世](http://www.blog.minike.top/Article/details/220991.shtml)
+- 2026-06-30 06:36 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/6777433.shtml)
+- 2026-06-30 06:37 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/85778.shtml)
+- 2026-06-30 06:46 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/0444041870.shtml)
+- 2026-06-30 06:37 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/26400495303.shtml)
+- 2026-06-30 06:26 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/41380.shtml)
+- 2026-06-30 06:37 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/74862316.shtml)
+- 2026-06-30 06:43 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/826269.shtml)
+- 2026-06-30 06:22 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/42958.shtml)
+- 2026-06-30 06:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/22555791483.shtml)
+- 2026-06-30 06:32 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/146897460008.shtml)
+- 2026-06-30 06:47 - [请回答王牌2019](https://www.share.minike.top/Article/details/422317.shtml)
+- 2026-06-30 06:19 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/343035927.shtml)
+- 2026-06-30 06:43 - [苗族银饰](http://www.blog.minike.top/Article/details/1962338.shtml)
+- 2026-06-30 06:38 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/107066.shtml)
+- 2026-06-30 06:24 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/62959479339.shtml)

@@ -1,58 +1,59 @@
-# 阿联酋退出OPEC，对油价意味着什么？
+# 品德昂茶香 传非遗技艺──《德昂族茶俗（上集）》
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：华尔街见闻 阿联酋宣布退出OPEC，油市却几乎无动于衷——这一悖论本身，已道尽了这个成立66年的石油卡特尔今日的处境。一场历史性的中东冲突正在重塑全球能源格局，而阿联酋的离去，不过是让本已摇摇欲坠的OPEC权威再失一根支柱。 4月28日，阿联酋宣布将于5月1日正式退出OPEC及OPEC+联盟，一夜之间
+发布时间：2026年05月07日 14:02 来源：中国新闻网 一片茶叶，承载一个民族的千年记忆；一缕茶香，诉说一段非遗传承的动人故事。近日，云南省哲学社会科学规划科普视频《德昂族茶俗》正式在中国新闻网上线播出，以影像为桥向海内外全面展现德昂族深厚独特的茶文化魅力。 德昂族被誉为“古老的茶农”，世代居于云南德宏等地，种茶、制茶、饮茶、礼茶的历史绵延数千年，形成完整而独特的茶文化
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年05月07日 14:02 来源：中国新闻网 一片茶叶，承载一个民族的千年记忆；一缕茶香，诉说一段非遗传承的动人故事。
 
-来源：华尔街见闻 阿联酋宣布退出OPEC，油市却几乎无动于衷——这一悖论本身，已道尽了这个成立66年的石油卡特尔今日的处境。
+近日，云南省哲学社会科学规划科普视频《德昂族茶俗》正式在中国新闻网上线播出，以影像为桥向海内外全面展现德昂族深厚独特的茶文化魅力。
 
-一场历史性的中东冲突正在重塑全球能源格局，而阿联酋的离去，不过是让本已摇摇欲坠的OPEC权威再失一根支柱。
+德昂族被誉为“古老的茶农”，世代居于云南德宏等地，种茶、制茶、饮茶、礼茶的历史绵延数千年，形成完整而独特的茶文化体系。
 
-4月28日，阿联酋宣布将于5月1日正式退出OPEC及OPEC+联盟，一夜之间，这一卡特尔失去了其第三大产油国。
+其中，德昂族酸茶制作技艺于2021年入选国家级非物质文化遗产代表性项目名录，2022年作为“中国传统制茶技艺及其相关习俗”组成部分，列入联合国教科文组织人类非物质文化遗产代表作名录，是德昂族民族传统技艺的珍贵瑰宝。
 
-消息落地后，布伦特原油延续此前连续七日的涨势，市场目光几乎全部锁定在美伊战争及霍尔木兹海峡的局势变化上——当日有报道称特朗普对伊朗的停战方案不满，推动6月布伦特原油收盘涨2.8%至111.26美元/桶，WTI原油涨3.7%至99.93美元/桶。
+此次上线的《德昂族茶俗》视频分为上下两集，从技艺与礼俗两大维度，完整解码德昂茶文化。
 
-瑞银（UBS）在最新研报中判断，由于霍尔木兹海峡目前封闭，阿联酋暂时无法提升出口，此次退出对近期油价不构成实质影响；但着眼中期，随着阿联酋获得自主定产权限，油价面临下行压力。
+上集《一叶匠心——德昂酸茶非遗技艺》，深入茶山与村寨，全景呈现鲜叶采摘、摊晾、蒸青、揉捻、竹筒密封、土坑发酵、干燥成型等完整流程，展现酸茶“可饮、可食、可酵、可养”的独特风味与生态智慧，让观众直观感受非遗技艺的精妙与传承；下集《一叶承礼——德昂茶俗礼仪与社会功能》，聚焦茶在德昂社会中的重要作用，讲述迎客茶、敬客茶、婚恋茶、和睦茶、祭祀茶等丰富茶俗，展现茶作为情感纽带、礼仪载体、精神寄托的深厚内涵，呈现“茶到意到、以茶立心、以礼待人”的民族文化品格。
 
-“这是OPEC走向终结的开始，“MST Financial能源分析师Saul Kavonic直言，”沙特将很难将其余成员凝聚在一起，包括委内瑞拉在内的其他成员可能步阿联酋后尘。
+项目团队表示，《德昂族茶俗》立足云南丰富民族文化资源，坚持学术性与普及性相统一，将专业研究成果转化为大众易懂、传播力强的视频产品，以鲜活的形式传播中华优秀传统文化，为新时代非遗保护、文化振兴及铸牢中华民族共同体意识贡献力量。
 
-“ 油市冷眼旁观：霍尔木兹才是当下主角 阿联酋宣布退出的震动，在油价上几乎找不到痕迹，原因并不难理解。
+(云南师范大学艺术学院供稿） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 06:38 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 06:17 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 06:13 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 06:18 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 06:13 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 06:17 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 06:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-30 06:40 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 06:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 06:14 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 06:29 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 06:19 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 06:32 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 06:28 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 06:39 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 06:44 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 06:27 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 06:44 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 06:26 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 06:41 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 06:44 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 06:37 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 06:43 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 06:22 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 06:39 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:35 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/395701389865.shtml)
-- 2026-06-30 06:37 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/7078126664.shtml)
-- 2026-06-30 06:16 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/429128562381.shtml)
-- 2026-06-30 06:28 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/889202933549.shtml)
-- 2026-06-30 06:16 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/210744970.shtml)
-- 2026-06-30 06:31 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/25933743763.shtml)
-- 2026-06-30 06:28 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/449569150458.shtml)
-- 2026-06-30 06:38 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/5494188951.shtml)
-- 2026-06-30 06:23 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/2574999004.shtml)
-- 2026-06-30 06:16 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/98869.shtml)
-- 2026-06-30 06:22 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/6224415.shtml)
-- 2026-06-30 06:23 - [毒液2](http://www.share.minike.top/Article/details/96111743895.shtml)
-- 2026-06-30 06:36 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/83315131813.shtml)
-- 2026-06-30 06:14 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/920545211.shtml)
-- 2026-06-30 06:14 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/4984518027.shtml)
+- 2026-06-30 06:22 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/600448908482.shtml)
+- 2026-06-30 06:26 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/7928120.shtml)
+- 2026-06-30 06:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/13008.shtml)
+- 2026-06-30 06:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/985640282734.shtml)
+- 2026-06-30 06:20 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/636195081664.shtml)
+- 2026-06-30 06:37 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/5879560.shtml)
+- 2026-06-30 06:36 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/6875286624.shtml)
+- 2026-06-30 06:41 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/6484662618.shtml)
+- 2026-06-30 06:37 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/8380976.shtml)
+- 2026-06-30 06:18 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/571795804.shtml)
+- 2026-06-30 06:19 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/07361899464.shtml)
+- 2026-06-30 06:39 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/809732034807.shtml)
+- 2026-06-30 06:24 - [月亮](http://www.share.minike.top/Article/details/82421324.shtml)
+- 2026-06-30 06:47 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/7186100793.shtml)
+- 2026-06-30 06:32 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/114170904739.shtml)

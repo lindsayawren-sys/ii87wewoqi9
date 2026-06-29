@@ -1,61 +1,61 @@
-# 从《江河赋》到《鹊之桥》 苏州芭蕾舞团深化“江南芭蕾”风格体系
+# “AI+多因子”模型精选中盘核心资产 长城智悦均衡即将发行
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网苏州4月29日电 苏州芭蕾舞团原创舞蹈诗剧《江河赋》日前在泰州大剧院成功首演后，29日晚将亮相沈阳盛京大剧院，开启全国巡演的第一站。 《江河赋》是一部以“水”为魂、以“江”为脉、以“河”为韵的舞蹈诗剧。作品从“一滴水”出发，通过“水、墨、歌、月”四种情感原型，舞者们以身体为笔、以舞台为卷，用灵动的诗意和独特的舞蹈语汇勾勒出一幅流动的江河画卷。该剧由苏芭团长助理兼首席演员敖
+登录新浪财经APP 搜索【信披】查看更多考评等级 面对市场风格轮动加剧、板块热点快速切换的市场环境，如何多维捕捉投资主线、穿越震荡行情，已然成为投资者的核心关注焦点。在此背景下，拟由主动量化能手雷俊掌舵、布局中盘核心资产的主动量化基金——长城智悦均衡混合（A类：027035；C类：027036）即将于5月8日启动发行，旨在助力投资者“左右逢源”，均衡把握多元投资机遇。 产品设计
 
 ## 正文
 
-中新网苏州4月29日电 苏州芭蕾舞团原创舞蹈诗剧《江河赋》日前在泰州大剧院成功首演后，29日晚将亮相沈阳盛京大剧院，开启全国巡演的第一站。
+登录新浪财经APP 搜索【信披】查看更多考评等级 面对市场风格轮动加剧、板块热点快速切换的市场环境，如何多维捕捉投资主线、穿越震荡行情，已然成为投资者的核心关注焦点。
 
-《江河赋》是一部以“水”为魂、以“江”为脉、以“河”为韵的舞蹈诗剧。
+在此背景下，拟由主动量化能手雷俊掌舵、布局中盘核心资产的主动量化基金——长城智悦均衡混合（A类：027035；C类：027036）即将于5月8日启动发行，旨在助力投资者“左右逢源”，均衡把握多元投资机遇。
 
-作品从“一滴水”出发，通过“水、墨、歌、月”四种情感原型，舞者们以身体为笔、以舞台为卷，用灵动的诗意和独特的舞蹈语汇勾勒出一幅流动的江河画卷。
+产品设计层面，在强化基金管理人与投资者利益绑定的行业背景下，长城智悦均衡采取浮动费率机制，将按照持有期限和基金业绩分档收取管理费，费率双向浮动，与投资者持有体验深度绑定、利益共担。
 
-该剧由苏芭团长助理兼首席演员敖定雯任总导演与编舞，舞美、灯光、服装、演员，全部由苏芭自有人才担纲完成。
+长城智悦均衡的投资策略同样特色鲜明。
 
-苏州芭蕾舞团团长王全兴此前表示：“《江河赋》既是对祖国大好河山的深情礼赞，也是对生命力量、文化传承的诗意表达。
+该基金拟采用长城基金量化团队自研的中证500指数增强量化模型，将选股范围扩大到全市场，力争构建中盘均衡策略组合，追求更高的Alpha收益。
 
-苏州芭蕾舞团将以精益求精的艺术呈现，把《江河赋》打磨成兼具思想性、艺术性与观赏性的舞台力作。
+该基金之所以锚定中证500指数风格构建核心组合，核心源于中盘成长风格领跑市场的业绩表现与持续凸显的配置价值。
 
-”该剧此后还将赴太原、长沙、福州等地巡演15场。
+Wind数据显示，2025年全年，中盘成长风格的代表指数中证500指数涨幅达30.39%，显著跑赢大盘代表指数上证50（12.90%）、沪深300（17.66%），以及小盘代表指数中证1000（27.49%）；截至4月30日，2026年以来中证500指数实现11.84%的涨幅，同样跑赢同期沪深300（3.83%）、中证1000（10.36%）等。
 
-在《江河赋》开启巡演征程后，苏芭的另一颗“明珠”也已蓄势待发。
+（指数过往业绩不代表其未来表现，不等于产品实际收益，基金有风险，投资需谨慎。
 
 ## 相关推荐
 
-- 2026-06-30 06:21 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 06:32 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 06:39 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 06:12 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 06:30 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 06:29 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 06:31 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 06:38 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 06:13 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 06:41 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 06:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 06:14 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 06:30 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 06:41 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 06:15 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 06:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 06:47 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 06:21 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 06:41 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 06:30 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 06:38 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 06:45 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 06:29 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 06:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 06:34 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 06:18 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 06:45 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 06:31 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 06:35 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 06:43 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:16 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/043546886389.shtml)
-- 2026-06-30 06:12 - [刘念回应](https://www.share.kurohicncr.top/Article/details/90588219101.shtml)
-- 2026-06-30 06:18 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/065413539.shtml)
-- 2026-06-30 06:13 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/91324631882.shtml)
-- 2026-06-30 06:35 - [世界杯](http://www.blog.minike.top/Article/details/064479592943.shtml)
-- 2026-06-30 06:41 - [日本领先巴西](http://www.share.minike.top/Article/details/90829589974.shtml)
-- 2026-06-30 06:28 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/385237042.shtml)
-- 2026-06-30 06:39 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/484126873.shtml)
-- 2026-06-30 06:34 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/98740.shtml)
-- 2026-06-30 06:14 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/233306891289.shtml)
-- 2026-06-30 06:24 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/898258113787.shtml)
-- 2026-06-30 06:13 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/32367261.shtml)
-- 2026-06-30 06:12 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/5248317.shtml)
-- 2026-06-30 06:32 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/5905933811.shtml)
-- 2026-06-30 06:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/039480245447.shtml)
+- 2026-06-30 06:28 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/90583.shtml)
+- 2026-06-30 06:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/22071607193.shtml)
+- 2026-06-30 06:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/965586.shtml)
+- 2026-06-30 06:21 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/445579344501.shtml)
+- 2026-06-30 06:23 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/773919582966.shtml)
+- 2026-06-30 06:30 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/035610.shtml)
+- 2026-06-30 06:38 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/03143110.shtml)
+- 2026-06-30 06:43 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/789164.shtml)
+- 2026-06-30 06:46 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/331833292577.shtml)
+- 2026-06-30 06:29 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/630493.shtml)
+- 2026-06-30 06:38 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/476018695515.shtml)
+- 2026-06-30 06:35 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/7666711582.shtml)
+- 2026-06-30 06:28 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/32615530.shtml)
+- 2026-06-30 06:21 - [毒液2](https://www.share.kurohicncr.top/Article/details/21233989890.shtml)
+- 2026-06-30 06:47 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/715370426.shtml)

@@ -1,57 +1,60 @@
-# 重庆法院发布首例承认欧洲仲裁机构裁决案件
+# 观影体验迭代升级 “电影+”加出产业链新可能
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网重庆4月28日电 (梁钦卿)4月29日是重庆国际商事法庭成立一周年。该法庭28日发布一批典型案例，其中包括重庆隆某机车公司申请承认外国仲裁裁决案。该案件是重庆法院审理的首例承认欧洲仲裁机构所作仲裁裁决的案件。2019年7月25日，重庆隆某机车公司与意大利奥某摩托车公司签订《350供应协议》《800供应协议》《800许可协议》，约定重庆隆某机车公司将其350cc型号的发动机
+据国家电影局统计，今年五一档电影票房为7.58亿元，比去年同档期增长1.41%。五天观影人次达2084.19万，放映场次237.6万场，同比增长分别为10.23%和2%。 今年“五一”假期，融合科技与互动的新式观影体验也受到了不少观众的欢迎。从观影到制作，“电影+科技”不仅为观众带来全方位的视听变化，更重构产业生态。 “五一”期间，西影集团“无界XR影院”成为“热门打卡地”。“
 
 ## 正文
 
-中新网重庆4月28日电 (梁钦卿)4月29日是重庆国际商事法庭成立一周年。
+据国家电影局统计，今年五一档电影票房为7.58亿元，比去年同档期增长1.41%。
 
-该法庭28日发布一批典型案例，其中包括重庆隆某机车公司申请承认外国仲裁裁决案。
+五天观影人次达2084.19万，放映场次237.6万场，同比增长分别为10.23%和2%。
 
-该案件是重庆法院审理的首例承认欧洲仲裁机构所作仲裁裁决的案件。
+今年“五一”假期，融合科技与互动的新式观影体验也受到了不少观众的欢迎。
 
-2019年7月25日，重庆隆某机车公司与意大利奥某摩托车公司签订《350供应协议》《800供应协议》《800许可协议》，约定重庆隆某机车公司将其350cc型号的发动机及主梁系统提供给意大利奥某摩托车公司使用，意大利奥某摩托车公司独家向重庆隆某机车公司采购800cc型号发动机及相关备件，并将其800cc型号发动机及车架独家授权给重庆隆某机车公司使用。
+从观影到制作，“电影+科技”不仅为观众带来全方位的视听变化，更重构产业生态。
 
-此三份协议均约定争议由瑞士仲裁中心仲裁，仲裁语言为英语。
+“五一”期间，西影集团“无界XR影院”成为“热门打卡地”。
 
-后来，意大利奥某摩托车公司认为重庆隆某机车公司的350cc摩托车涉嫌侵犯第三方知识产权，单方面终止上述协议。
+“无界XR影院”实现了“一把椅子就是一个影院”，打破了传统影院的银幕限制。
 
-意大利奥某摩托车公司根据《350供应协议》的仲裁条款，向瑞士仲裁中心提起仲裁，请求确认《350供应协议》无效或因重庆隆某机车公司违约而终止，并要求重庆隆某机车公司赔偿损失。
+观众入座，戴上双目8K、180克重的轻量化头显设备，可体验到超高清画面360°铺满的视野效果，座椅可以随着剧情观看自由旋转。
 
-重庆隆某机车公司依据《800供应协议》及《800许可协议》的仲裁条款，向瑞士仲裁中心提起仲裁，请求确认意大利奥某摩托车公司违约，并要求意大利奥某摩托车公司赔偿损失。
+根据实际运营数据测算，5月1日至3日，无界XR影院单座椅日均产值573元，单座椅日均观影达10.5人次。
 
 ## 相关推荐
 
-- 2026-06-30 06:28 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 06:36 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 06:19 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-30 06:15 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 06:18 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 06:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 06:16 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 06:30 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 06:13 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 06:26 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-30 06:34 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 06:40 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 06:25 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 06:47 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 06:41 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 06:47 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 06:40 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 06:18 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 06:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 06:36 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 06:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 06:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 06:45 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 06:38 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 06:36 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:29 - [天道](http://www.blog.kurohicncr.top/Article/details/249533449.shtml)
-- 2026-06-30 06:35 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/19928329.shtml)
-- 2026-06-30 06:33 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/98894043.shtml)
-- 2026-06-30 06:16 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/284062179806.shtml)
-- 2026-06-30 06:27 - [日本 高位逼抢](http://www.share.minike.top/Article/details/39698.shtml)
-- 2026-06-30 06:21 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/58533602654.shtml)
-- 2026-06-30 06:23 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/7186885359.shtml)
-- 2026-06-30 06:15 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/582257.shtml)
-- 2026-06-30 06:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/306896.shtml)
-- 2026-06-30 06:13 - [巴西绝杀日本](https://www.share.minike.top/Article/details/719573218.shtml)
-- 2026-06-30 06:28 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/8681509.shtml)
-- 2026-06-30 06:16 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/83217599793.shtml)
-- 2026-06-30 06:38 - [日本淘汰](http://www.share.minike.top/Article/details/274787.shtml)
-- 2026-06-30 06:26 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/009695478.shtml)
-- 2026-06-30 06:12 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/51736.shtml)
+- 2026-06-30 06:39 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/7152104.shtml)
+- 2026-06-30 06:33 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/401768961.shtml)
+- 2026-06-30 06:31 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/610415.shtml)
+- 2026-06-30 06:43 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/850942.shtml)
+- 2026-06-30 06:27 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/105137252.shtml)
+- 2026-06-30 06:35 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/372489983.shtml)
+- 2026-06-30 06:33 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/613290892.shtml)
+- 2026-06-30 06:46 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/536179659676.shtml)
+- 2026-06-30 06:46 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/5150722.shtml)
+- 2026-06-30 06:35 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/517137.shtml)
+- 2026-06-30 06:19 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/63074646.shtml)
+- 2026-06-30 06:29 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/42596517.shtml)
+- 2026-06-30 06:34 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/3533570870.shtml)
+- 2026-06-30 06:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/4986903849.shtml)
+- 2026-06-30 06:34 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/3621826979.shtml)

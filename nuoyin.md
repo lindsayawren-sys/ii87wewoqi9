@@ -1,57 +1,56 @@
-# 从渠道提质到C端共鸣，从一季度报看汾酒经营模式的“转身”
+# 中央财经大学举办第三届龙马保险论坛
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月29日，山西汾酒2026年一季度报如期披露。报告期内，公司实现营业收入149.23亿元，净利润53.83亿元。省内市场营收60.87亿元，同比上涨0.06%，成功守住大本营市场，省外市场营收87.94亿元，全国化开拓成绩犹可见。与此同时，一季度存货有效减少7.42亿元，合同负债增加8.97亿元，经销商信
+4月25日，第三届龙马保险论坛在中央财经大学学院南路校区举办。本次论坛以“‘5·17’讲话十周年与‘十五五’开局：保险自主知识体系构建与保险业的新使命、新路径、新篇章”为主题，共设3场主旨演讲、19个分论坛，报告内容广泛覆盖社保精算、民生保障、智能技术与保险创新、风险监测与智能农险、保险决策分析、农业保险、保险相关交叉前沿、养老保险、健康保险等多个领域。论坛由中央财经大学保险学
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+4月25日，第三届龙马保险论坛在中央财经大学学院南路校区举办。
 
-4月29日，山西汾酒2026年一季度报如期披露。
+本次论坛以“‘5·17’讲话十周年与‘十五五’开局：保险自主知识体系构建与保险业的新使命、新路径、新篇章”为主题，共设3场主旨演讲、19个分论坛，报告内容广泛覆盖社保精算、民生保障、智能技术与保险创新、风险监测与智能农险、保险决策分析、农业保险、保险相关交叉前沿、养老保险、健康保险等多个领域。
 
-报告期内，公司实现营业收入149.23亿元，净利润53.83亿元。
+论坛由中央财经大学保险学院、中国精算研究院主办，君龙人寿保险有限公司为论坛合作伙伴，《保险研究》《中央财经大学学报》与 Risk Sciences 期刊提供学术支持。
 
-省内市场营收60.87亿元，同比上涨0.06%，成功守住大本营市场，省外市场营收87.94亿元，全国化开拓成绩犹可见。
+本届论坛自启动以来广受业界与学界关注，吸引了来自北京大学、清华大学、香港大学、伦敦大学、中国人民大学、复旦大学、浙江大学、南开大学、中国社会科学院大学、北京师范大学、武汉大学、湖南大学、中山大学、重庆大学、山东大学、中国农业大学、中央民族大学、对外经济贸易大学、中南财经政法大学、辽宁大学、上海外国语大学等50余所国内外知名高校师生、40余家政府部门及金融保险机构专家参会，累计征集学术论文百余篇，为保险理论研究与行业实践搭建了高水平交流平台。
 
-与此同时，一季度存货有效减少7.42亿元，合同负债增加8.97亿元，经销商信心充足，且渠道回款良性，现金流稳定。
+上午，论坛在学术会堂202报告厅开幕。
 
-当关注点从利润与增速的表象转向长远价值，会发现数据的背后，是汾酒在清香复兴关键期，一场关于“稳根基、优结构、谋长远”的主动变革。
+中央财经大学党委常委、副校长蔡艳艳，君龙人寿保险有限公司总经理廖明宏分别致辞。
 
-相较于短期利润的亮眼，更值得行业关注的是汾酒围绕渠道秩序、产品结构、消费触达所展开的系统性重构。
+保险学院、中国精算研究院院长周桦主持开幕式。
 
-主动优化渠道，从规模驱动转向生态优先 在行业深度调整期，“稳”比“快”更具价值。
+蔡艳艳对第三届龙马保险论坛的召开表示祝贺，代表学校对参会嘉宾表示欢迎和感谢。
 
 ## 相关推荐
 
-- 2026-06-30 06:18 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 06:34 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 06:33 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 06:28 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 06:40 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 06:24 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 06:32 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 06:13 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 06:27 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 06:25 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 06:21 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 06:43 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 06:28 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 06:26 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 06:27 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 06:43 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 06:35 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 06:27 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 06:39 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 06:33 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-30 06:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:16 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/096631256390.shtml)
-- 2026-06-30 06:21 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/75046567921.shtml)
-- 2026-06-30 06:36 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/4053837.shtml)
-- 2026-06-30 06:17 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/4720360650.shtml)
-- 2026-06-30 06:37 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/495915.shtml)
-- 2026-06-30 06:33 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/897088.shtml)
-- 2026-06-30 06:36 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/49018546523.shtml)
-- 2026-06-30 06:16 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/67249.shtml)
-- 2026-06-30 06:16 - [斛珠夫人](https://www.blog.minike.top/Article/details/33907021253.shtml)
-- 2026-06-30 06:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/547916474.shtml)
-- 2026-06-30 06:19 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/33560721.shtml)
-- 2026-06-30 06:22 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/748061866082.shtml)
-- 2026-06-30 06:27 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/332993.shtml)
-- 2026-06-30 06:23 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/47032317.shtml)
-- 2026-06-30 06:29 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/3185575331.shtml)
+- 2026-06-30 06:26 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/949708240.shtml)
+- 2026-06-30 06:38 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/899709.shtml)
+- 2026-06-30 06:18 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/0265469169.shtml)
+- 2026-06-30 06:33 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/33214897.shtml)
+- 2026-06-30 06:25 - [小娘惹](http://www.share.minike.top/Article/details/233149.shtml)
+- 2026-06-30 06:33 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/2011134.shtml)
+- 2026-06-30 06:40 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/820144305.shtml)
+- 2026-06-30 06:19 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/45053013.shtml)
+- 2026-06-30 06:29 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/748590373607.shtml)
+- 2026-06-30 06:19 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/951493438.shtml)
+- 2026-06-30 06:19 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/107811.shtml)
+- 2026-06-30 06:40 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/930078.shtml)
+- 2026-06-30 06:41 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/83859.shtml)
+- 2026-06-30 06:43 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/4124513865.shtml)
+- 2026-06-30 06:42 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/878317033335.shtml)

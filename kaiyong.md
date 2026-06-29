@@ -1,58 +1,59 @@
-# 招商基金十年老将清仓式离任！李崟卸任4只产品，年化回报超12%，下一站公募？
+# 今夜，沸腾！直线拉升！英伟达，彻底引爆！
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-4月29日，招商行业精选、招商安泰平衡、招商匠心优选A、招商安庆发布基金经理变更公告，投资管理一部总监、任职超10年的老将李崟因“个人原因”离任基金经理职务。此前的4月17日，李崟已先后卸任招商瑞智优选、招商稳健平衡A、招商睿逸3只基金，至此其名下已无在管公募产品，10年招商投研生涯就此画上句号。 招商基金10年老将李崟离任：7只产品清仓卸任，年化回报12%远超沪深300 公开
+光通信领域，传来重磅消息！ 北京时间6日晚间消息，英伟达宣布与康宁建立长期合作伙伴关系，康宁将把其在美国的光连接制造能力扩大10倍，并将其在美国的光纤产能提升超过50%，以支持下一代人工智能基础设施的发展。另外，康宁与英伟达达成5亿美元股权融资协议，以深化长期合作伙伴关系。 受上述利好消息刺激，康宁在美股盘前直线拉升，盘中涨幅一度超过20%；英伟达股价也有异动，盘中一度涨超3%
 
 ## 正文
 
-4月29日，招商行业精选、招商安泰平衡、招商匠心优选A、招商安庆发布基金经理变更公告，投资管理一部总监、任职超10年的老将李崟因“个人原因”离任基金经理职务。
+光通信领域，传来重磅消息！
 
-此前的4月17日，李崟已先后卸任招商瑞智优选、招商稳健平衡A、招商睿逸3只基金，至此其名下已无在管公募产品，10年招商投研生涯就此画上句号。
+北京时间6日晚间消息，英伟达宣布与康宁建立长期合作伙伴关系，康宁将把其在美国的光连接制造能力扩大10倍，并将其在美国的光纤产能提升超过50%，以支持下一代人工智能基础设施的发展。
 
-招商基金10年老将李崟离任：7只产品清仓卸任，年化回报12%远超沪深300 公开资料显示，李崟职业生涯经历银行、基金、财务公司等多个阶段，2015年12月正式加入招商基金。
+另外，康宁与英伟达达成5亿美元股权融资协议，以深化长期合作伙伴关系。
 
-截至离任前，其公募基金经理年限已超10年，一季度末管理规模约69.91亿元。
+受上述利好消息刺激，康宁在美股盘前直线拉升，盘中涨幅一度超过20%；英伟达股价也有异动，盘中一度涨超3%。
 
-旗下管理的多只平衡型产品在业内中长期业绩出众，招商稳健平衡、招商安泰平衡、招商匠心优选A等任职回报在同期同类型产品中居前甚至排在首位。
+截至记者发稿时，康宁、英伟达股价分别上涨18.62%、1.92%。
 
-其中，管理时间最长的招商睿逸累计任职近7年，任职回报高达118%，年化收益率12%；招商安泰平衡与招商匠心优选A任期回报分别为149.11%、86.26%，跑赢业绩比较基准。
+自去年4月22日以来，康宁股价累计涨幅超过300%，英伟达涨幅也超过100%。
 
-Wind数据显示，截至4月28日，李崟过往管理产品年化回报达12.13%，远超同期沪深300指数表现。
+英伟达与康宁合作 周三，英伟达与康宁公司（GLW）宣布达成一项多年期商业与技术合作伙伴关系，旨在大幅扩展美国本土先进光连接解决方案的制造能力，以支持下一代人工智能基础设施的发展。
 
-据业内消息，李崟此次卸任后将离开招商基金，下一站或仍在公募基金发展。
+根据最新公告，康宁将把其在美国的光连接制造能力扩大10倍，并将其在美国的光纤产能提升超过50%，以满足人工智能工厂建设所带来的加速增长需求。
 
 ## 相关推荐
 
-- 2026-06-30 06:28 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 06:14 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 06:40 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 06:40 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 06:12 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 06:18 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 06:22 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 06:21 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 06:28 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 06:18 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 06:39 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 06:39 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 06:25 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 06:43 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 06:30 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 06:47 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 06:47 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 06:18 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 06:32 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 06:25 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 06:32 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 06:28 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 06:42 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 06:20 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 06:28 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:26 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/03442222827.shtml)
-- 2026-06-30 06:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/6649150552.shtml)
-- 2026-06-30 06:32 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/96347760.shtml)
-- 2026-06-30 06:39 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/398791736705.shtml)
-- 2026-06-30 06:25 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/306931371065.shtml)
-- 2026-06-30 06:13 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/99150265.shtml)
-- 2026-06-30 06:13 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/9675593743.shtml)
-- 2026-06-30 06:12 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/2509512.shtml)
-- 2026-06-30 06:18 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/11813.shtml)
-- 2026-06-30 06:24 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/542588145.shtml)
-- 2026-06-30 06:35 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/5995264.shtml)
-- 2026-06-30 06:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/044006.shtml)
-- 2026-06-30 06:28 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/748741958.shtml)
-- 2026-06-30 06:25 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/16087.shtml)
-- 2026-06-30 06:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/3548207809.shtml)
+- 2026-06-30 06:39 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/85437641787.shtml)
+- 2026-06-30 06:45 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/2555306.shtml)
+- 2026-06-30 06:22 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/778385.shtml)
+- 2026-06-30 06:29 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/35915.shtml)
+- 2026-06-30 06:28 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/0428231.shtml)
+- 2026-06-30 06:20 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/26614463.shtml)
+- 2026-06-30 06:20 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/2131477.shtml)
+- 2026-06-30 06:26 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/220287434.shtml)
+- 2026-06-30 06:25 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/36732746.shtml)
+- 2026-06-30 06:38 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/401375569892.shtml)
+- 2026-06-30 06:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/81012376.shtml)
+- 2026-06-30 06:27 - [天道](https://www.share.minike.top/Article/details/7267541156.shtml)
+- 2026-06-30 06:28 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/91466.shtml)
+- 2026-06-30 06:34 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/92276713.shtml)
+- 2026-06-30 06:25 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/24071818845.shtml)

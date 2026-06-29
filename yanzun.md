@@ -1,58 +1,44 @@
-# 大湾区采购商赴广西百色考察 推动优质芒果产销对接
+# 建滔系延续近期涨势 建滔积层板涨逾9%建滔集团涨逾7%
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网广州4月28日电 (记者 程景伟)据广东区域协作消费帮扶产品交易中心消息，多家粤港澳大湾区重点采购商代表近日深入广西百色革命老区腹地——田东县、田阳区，展开了“农副产品直采直供基地”专项调研考察，重点推动百色优质芒果销往大湾区。 此次调研考察活动由粤桂协作办公室、粤桂协作工作队组织，广东区域协作消费帮扶产品交易中心运营合作方牵头带队，是粤桂协作落实助农增收行动、深化消费帮
+建滔系延续近期涨势，截至发稿，建滔积层板（01888）上涨8.96%，报41.58港元；建滔集团（00148）上涨6.81%，报49.22港元。责任编辑：卢昱君
 
 ## 正文
 
-中新网广州4月28日电 (记者 程景伟)据广东区域协作消费帮扶产品交易中心消息，多家粤港澳大湾区重点采购商代表近日深入广西百色革命老区腹地——田东县、田阳区，展开了“农副产品直采直供基地”专项调研考察，重点推动百色优质芒果销往大湾区。
+建滔系延续近期涨势，截至发稿，建滔积层板（01888）上涨8.96%，报41.58港元；建滔集团（00148）上涨6.81%，报49.22港元。
 
-此次调研考察活动由粤桂协作办公室、粤桂协作工作队组织，广东区域协作消费帮扶产品交易中心运营合作方牵头带队，是粤桂协作落实助农增收行动、深化消费帮扶的重要举措。
-
-粤桂协作工作队以打造“订单农业+机械化生产+冷链加工+全渠道销售”高标准直采直供基地为抓手，把大湾区市场需求“送”到田间地头，推动生产端提质升级，降低中间流通成本，切实解决农产品“丰收滞销、淡季缺货”痛点。
-
-在百色田东县，年产量40.42万吨的“田东香芒”不仅是中国-欧盟互认地理标志农产品，更是三十余万亩土地上农户们的“金饭碗”。
-
-在田东县林逢镇福兰村，2万亩芒果林蔚为壮观。
-
-“这正是大湾区市场渴求的高品质产品源头。
-
-”广东中荔农业集团代表称，将导入成熟的品牌运营与线上销售网络，让百色好芒果卖出应有的价格。
-
-在林锋镇公靖村的3665亩高标准香芒种植基地，水肥一体化灌溉、山顶产业路等配套设施齐全。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:32 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 06:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 06:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 06:31 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 06:39 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 06:18 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 06:32 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 06:40 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 06:34 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-30 06:14 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 06:34 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 06:36 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 06:44 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 06:19 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 06:27 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 06:44 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 06:30 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 06:19 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-30 06:46 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 06:26 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 06:27 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 06:42 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:28 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/189283535.shtml)
-- 2026-06-30 06:34 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/419171473668.shtml)
-- 2026-06-30 06:38 - [《共患难》](http://www.share.kurohicncr.top/Article/details/703398.shtml)
-- 2026-06-30 06:33 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/586532242.shtml)
-- 2026-06-30 06:27 - [蔚来车主罚站](http://www.share.minike.top/Article/details/12842666467.shtml)
-- 2026-06-30 06:25 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/02028.shtml)
-- 2026-06-30 06:34 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/89297.shtml)
-- 2026-06-30 06:37 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/5102011214.shtml)
-- 2026-06-30 06:40 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/9514508105.shtml)
-- 2026-06-30 06:26 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/096688436614.shtml)
-- 2026-06-30 06:26 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/6122224594.shtml)
-- 2026-06-30 06:12 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/07507.shtml)
-- 2026-06-30 06:21 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/272964821.shtml)
-- 2026-06-30 06:38 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/4744559.shtml)
-- 2026-06-30 06:38 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/99017.shtml)
+- 2026-06-30 06:43 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/3606746.shtml)
+- 2026-06-30 06:25 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/4719888.shtml)
+- 2026-06-30 06:39 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/0988638.shtml)
+- 2026-06-30 06:44 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/79667608145.shtml)
+- 2026-06-30 06:34 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/72456829416.shtml)
+- 2026-06-30 06:30 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/76676466.shtml)
+- 2026-06-30 06:39 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/14999.shtml)
+- 2026-06-30 06:22 - [巴西扳平比分](http://www.blog.minike.top/Article/details/7554687.shtml)
+- 2026-06-30 06:46 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/78767.shtml)
+- 2026-06-30 06:32 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/7285212.shtml)
+- 2026-06-30 06:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/02083092877.shtml)
+- 2026-06-30 06:43 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/350699372.shtml)
+- 2026-06-30 06:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/4634957.shtml)
+- 2026-06-30 06:26 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/31846145774.shtml)
+- 2026-06-30 06:33 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/4692001.shtml)

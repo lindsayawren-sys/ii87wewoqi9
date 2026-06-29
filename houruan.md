@@ -1,53 +1,61 @@
-# 特朗普称乌克兰在军事上已被击败
+# 当“随时在线”成为常态 司法如何界定加班新形态
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网4月30日电 综合外媒报道，美国总统特朗普4月29日表示，从军事角度来看乌克兰已经被击败。 据俄罗斯卫星通讯社报道，记者在白宫向特朗普提问，乌克兰冲突和伊朗冲突哪一个会更快结束。特朗普说：“我不知道。也许它们结束的时间会大致相同。我认为，从军事角度来看，乌克兰已经失败。”
+移动办公日益普及，下班后回复工作微信、节假日参加线上会议、休息时间随时待命，成为不少职场人的日常。近日，多家法院发布劳动争议典型案例，厘清“隐形加班”相关法律问题。 北京市第二中级人民法院日前通报一起“隐形加班”案。王某因加班工资问题与公司产生争议，起诉公司称，公司频繁在工作时间外安排线上会议和培训，并规定如不参与需“自愿捐款”200元。王某提交线上参会记录、聊天截图、自制统计
 
 ## 正文
 
-中新网4月30日电 综合外媒报道，美国总统特朗普4月29日表示，从军事角度来看乌克兰已经被击败。
+移动办公日益普及，下班后回复工作微信、节假日参加线上会议、休息时间随时待命，成为不少职场人的日常。
 
-据俄罗斯卫星通讯社报道，记者在白宫向特朗普提问，乌克兰冲突和伊朗冲突哪一个会更快结束。
+近日，多家法院发布劳动争议典型案例，厘清“隐形加班”相关法律问题。
 
-特朗普说：“我不知道。
+北京市第二中级人民法院日前通报一起“隐形加班”案。
 
-也许它们结束的时间会大致相同。
+王某因加班工资问题与公司产生争议，起诉公司称，公司频繁在工作时间外安排线上会议和培训，并规定如不参与需“自愿捐款”200元。
 
-我认为，从军事角度来看，乌克兰已经失败。
+王某提交线上参会记录、聊天截图、自制统计表等证据，主张公司应支付加班费8.5万余元。
 
-”
+公司辩称，公司制度规定加班需审批，且线上会议员工无需发言甚至无需听会，不能证明实际提供劳动，“捐款”规定与参会无关。
+
+北京市第二中级人民法院审理认为，王某提交的证据能够证明公司在非工作时间安排了线上活动。
+
+活动由用人单位安排，员工具有服从义务，所谓“捐款”规定进一步佐证强制性，活动挤占员工休息时间、消耗个人精力，应认定为加班。
 
 ## 相关推荐
 
-- 2026-06-30 06:19 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 06:31 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 06:23 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 06:39 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 06:35 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 06:32 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 06:24 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 06:40 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 06:36 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 06:35 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 06:33 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 06:44 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 06:42 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 06:30 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 06:38 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 06:25 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 06:40 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 06:36 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 06:22 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 06:33 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 06:19 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 06:32 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 06:39 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 06:45 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 06:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 06:44 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:18 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/00006825972.shtml)
-- 2026-06-30 06:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/3550316.shtml)
-- 2026-06-30 06:19 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/337187928741.shtml)
-- 2026-06-30 06:38 - [蔚来车主罚站](http://www.share.minike.top/Article/details/08534502855.shtml)
-- 2026-06-30 06:36 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/3545684.shtml)
-- 2026-06-30 06:40 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/522573643.shtml)
-- 2026-06-30 06:26 - [周生如故](https://www.share.kurohicncr.top/Article/details/229716408530.shtml)
-- 2026-06-30 06:28 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/88638.shtml)
-- 2026-06-30 06:23 - [毒液2](https://www.share.minike.top/Article/details/4307841338.shtml)
-- 2026-06-30 06:41 - [点菜也要教吗](https://www.share.minike.top/Article/details/285860959823.shtml)
-- 2026-06-30 06:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/2166651.shtml)
-- 2026-06-30 06:21 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/315332986880.shtml)
-- 2026-06-30 06:35 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/0239723022.shtml)
-- 2026-06-30 06:37 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/0301163.shtml)
-- 2026-06-30 06:39 - [刘宇宁高情商化解谁站C位](http://www.blog.minike.top/Article/details/42060340747.shtml)
+- 2026-06-30 06:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/572222904.shtml)
+- 2026-06-30 06:36 - [明星大侦探第一季](http://www.share.minike.top/Article/details/5455247.shtml)
+- 2026-06-30 06:34 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/513114.shtml)
+- 2026-06-30 06:25 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/49634509.shtml)
+- 2026-06-30 06:46 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/98256742452.shtml)
+- 2026-06-30 06:37 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/155960729.shtml)
+- 2026-06-30 06:45 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/481590820.shtml)
+- 2026-06-30 06:44 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/472458427.shtml)
+- 2026-06-30 06:25 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/3465837.shtml)
+- 2026-06-30 06:21 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/56849.shtml)
+- 2026-06-30 06:36 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/626388970327.shtml)
+- 2026-06-30 06:21 - [人类...完蛋了...](http://www.share.minike.top/Article/details/24254.shtml)
+- 2026-06-30 06:47 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/365261336.shtml)
+- 2026-06-30 06:31 - [沙丘](https://www.blog.minike.top/Article/details/03232688.shtml)
+- 2026-06-30 06:34 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/7128774.shtml)

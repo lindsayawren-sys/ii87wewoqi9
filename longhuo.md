@@ -1,59 +1,59 @@
-# 心悦汇扣费399元引发投诉风暴，富友支付、快钱被指“抢钱帮凶”
+# 星空卫视因运营陷入困境，明起停播
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-来源：消费日报财经 消费日报讯（记者 刘锦桃） “完全不知情，银行卡就被扣了399元”、“从未下载过App，会员费却每月自动划扣”、“没有订购心悦汇，却被扣了三个月的会员费，总计999元。”最近，一个名为“心悦汇”的APP被大量投诉存在乱扣会员费的问题。 有多位消费者向本报记者投诉称，自己下载了心悦汇商城，在画面跳转之后不小心点击页面便被强制开通会员，分三次一共扣了999元。还
+界面新闻 5月6日，星空卫视官方微博发布公告，正式宣告因运营陷入困境，卫星合作方已通知该频道将于5月8日暂停卫星传输服务。公告同时明确表示，频道将积极推进业务重组，寻求频道资产收购、内容平台合作等多种发展可能，以新的模式延续品牌初心。 此次卫星传输暂停的直接原因是星空卫视持续面临的运营压力，核心在于高昂的卫星传输成本与萎缩的收入来源难以平衡。 卫星传输服务并非无偿，单转发器年租
 
 ## 正文
 
-来源：消费日报财经 消费日报讯（记者 刘锦桃） “完全不知情，银行卡就被扣了399元”、“从未下载过App，会员费却每月自动划扣”、“没有订购心悦汇，却被扣了三个月的会员费，总计999元。
+界面新闻 5月6日，星空卫视官方微博发布公告，正式宣告因运营陷入困境，卫星合作方已通知该频道将于5月8日暂停卫星传输服务。
 
-”最近，一个名为“心悦汇”的APP被大量投诉存在乱扣会员费的问题。
+公告同时明确表示，频道将积极推进业务重组，寻求频道资产收购、内容平台合作等多种发展可能，以新的模式延续品牌初心。
 
-有多位消费者向本报记者投诉称，自己下载了心悦汇商城，在画面跳转之后不小心点击页面便被强制开通会员，分三次一共扣了999元。
+此次卫星传输暂停的直接原因是星空卫视持续面临的运营压力，核心在于高昂的卫星传输成本与萎缩的收入来源难以平衡。
 
-还有消费者称，自己从来没订心悦汇会员，也没有购买任何东西，竟然莫名被从卡里扣了3次333元会员费，总计999元。
+卫星传输服务并非无偿，单转发器年租金就超过千万元。
 
-这些消费者称，在不知情、非主观自愿开通会员的情况下，被心悦汇以先享后付、误导点击等方式开通了自动扣费。
+近年来短视频、流媒体平台快速崛起，大幅挤压传统卫星电视的生存空间，导致电视广告市场份额持续下滑，星空卫视的广告收入也随之大幅缩减，进一步加剧运营压力。
 
-从2025年到现在，大量消费者在黑猫投诉 【下载黑猫投诉客户端】、消费保密集投诉，矛头指向一个名为“心悦汇”的分期商城平台，形成了一股投诉风暴，而背后的支付通道合作伙伴——富友支付、快钱支付等持牌支付机构亦被指控为“抢钱帮凶”。
+同时，星空卫视自身转型滞后，长期依赖传统卫星传输模式，未能及时适应媒介迭代趋势，缺乏独立线上传播平台和用户数据积累，内容制作与传播渠道脱节，即便拥有经典内容资源，也难以有效触达观众，逐渐被市场边缘化。
 
-399元会员费被扣背后 今年1月，消费者李先生收到了一条来自银行的通知短信，提示其尾号为7120的银行卡发生了一笔333元的交易，收款方备注为“富友支付-心悦汇”。
+近年来，海外综艺、剧集的引进门槛提高，一定程度上也限制了星空卫视的内容供给，而星空卫视其自身内容创新不足，难以持续吸引观众，进一步影响收入增长。
 
-李先生反复确认，自己从未下载过名为“心悦汇”的App，也未在任何平台上点击过会员开通或代扣授权。
+有网友看到公告后评论，感慨这是“时代的眼泪”、“天呐，以为你们早就不营业了，小时候老想看你们了”，“改成星空电影台或许还有一线生机”。
 
 ## 相关推荐
 
-- 2026-06-30 06:31 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 06:20 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 06:32 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 06:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 06:21 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 06:15 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-30 06:21 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 06:20 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 06:35 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 06:14 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 06:12 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 06:25 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 06:35 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 06:39 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 06:34 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 06:19 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 06:46 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 06:22 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 06:41 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 06:19 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 06:21 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 06:42 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 06:25 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 06:19 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 06:38 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 06:31 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:20 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/978660839.shtml)
-- 2026-06-30 06:34 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/321305070533.shtml)
-- 2026-06-30 06:35 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/02269781.shtml)
-- 2026-06-30 06:35 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/928528.shtml)
-- 2026-06-30 06:40 - [周生如故](https://www.blog.minike.top/Article/details/4017307.shtml)
-- 2026-06-30 06:27 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/19033.shtml)
-- 2026-06-30 06:19 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/570115321.shtml)
-- 2026-06-30 06:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/2406161121.shtml)
-- 2026-06-30 06:40 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/102368962317.shtml)
-- 2026-06-30 06:33 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/306846232615.shtml)
-- 2026-06-30 06:19 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/35653.shtml)
-- 2026-06-30 06:38 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/7241613.shtml)
-- 2026-06-30 06:35 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/601621.shtml)
-- 2026-06-30 06:20 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/94272661558.shtml)
-- 2026-06-30 06:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/99484287505.shtml)
+- 2026-06-30 06:44 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/35266927.shtml)
+- 2026-06-30 06:41 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/803101092487.shtml)
+- 2026-06-30 06:29 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/3090997.shtml)
+- 2026-06-30 06:24 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/5611926463.shtml)
+- 2026-06-30 06:30 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/048427127.shtml)
+- 2026-06-30 06:41 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/230098199.shtml)
+- 2026-06-30 06:42 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/91491159.shtml)
+- 2026-06-30 06:23 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/51561.shtml)
+- 2026-06-30 06:34 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/252034065581.shtml)
+- 2026-06-30 06:22 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/96970185665.shtml)
+- 2026-06-30 06:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/51017.shtml)
+- 2026-06-30 06:21 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/0107285273.shtml)
+- 2026-06-30 06:21 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/14601143743.shtml)
+- 2026-06-30 06:44 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/79531527483.shtml)
+- 2026-06-30 06:23 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/4565913.shtml)

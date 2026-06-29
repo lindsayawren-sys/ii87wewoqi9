@@ -1,61 +1,60 @@
-# 双环科技2025年归母净利润由盈转亏 钠离子电池材料将视情况启动产业化
+# 财经聚焦｜零关税助力非洲好物拥抱中国大市场
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|王琳 每经编辑|毕陆名 4月28日晚间，双环科技（SZ000707）发布2025年年报和2026年一季报，其在2025年营业收入同比下降21.73%，其归母净利润和扣非后归母净利润分别同比下降129.82%和160.50%，双双由盈转亏。到了2026年一季度，双环科技的亏损情况进一步恶化。 双环科
+南非鲜苹果、埃及鲜橙、肯尼亚鲜牛油果……2026年“五一”假期，随着零关税范围扩大到我国对所有非洲建交国，一批非洲好物以更具竞争力的价格抢登中国市场，为中非经贸往来开辟更大合作空间。 5月1日凌晨，深圳欧恒进出口有限公司向广州海关所属广州白云机场海关申报一批超6900千克的肯尼亚鲜牛油果，经海关关员现场审核、验放完成后顺利通关，当天就端上了大湾区消费者的餐桌。 “本次进口的牛油
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+南非鲜苹果、埃及鲜橙、肯尼亚鲜牛油果……2026年“五一”假期，随着零关税范围扩大到我国对所有非洲建交国，一批非洲好物以更具竞争力的价格抢登中国市场，为中非经贸往来开辟更大合作空间。
 
-每经记者|王琳 每经编辑|毕陆名 4月28日晚间，双环科技（SZ000707）发布2025年年报和2026年一季报，其在2025年营业收入同比下降21.73%，其归母净利润和扣非后归母净利润分别同比下降129.82%和160.50%，双双由盈转亏。
+5月1日凌晨，深圳欧恒进出口有限公司向广州海关所属广州白云机场海关申报一批超6900千克的肯尼亚鲜牛油果，经海关关员现场审核、验放完成后顺利通关，当天就端上了大湾区消费者的餐桌。
 
-到了2026年一季度，双环科技的亏损情况进一步恶化。
+“本次进口的牛油果果香浓郁、果肉紧实、果核较小，因几乎全年可供应而深受国内消费者青睐。
 
-双环科技也在积极通过新品研发和并购等方式寻求破局，其中公司已送下游客户检验的钠离子电池材料备受投资者关注。
+”公司销售经理袁成杰告诉记者，此前肯尼亚鲜牛油果出口到我国的关税税率为7%，此次零关税举措落地实施有利于提升产品市场竞争力，帮助企业降低经营成本。
 
-双环科技在2025年年报中表示，公司将根据研发及检验情况择机启动产业化。
+资源丰沛的非洲大陆孕育了种类繁多的产品物资，既有贝宁菠萝、卢旺达干辣椒、马达加斯加羊肉，还有加纳黑皂、突尼斯迷迭香、尼日利亚决明子。
 
-双环科技主要生产与销售纯碱、氯化铵及其他化工产品，纯碱广泛用于玻璃、无机盐、冶金、医药、石油、制革、纺织印染、食品、造纸等行业，氯化铵则是氮肥的一种，在工业领域也可用于电池、电镀等领域。
+如今，中国以更大力度向非洲敞开大门，不仅针对最不发达国家，对包括南非、埃及、尼日利亚、阿尔及利亚等相对具备较强经济实力的国家也全部实施零关税，这就意味着，更多非洲好物将加速走进中国千家万户。
 
-年报显示，双环科技在2025年实现营业收入20.78亿元，同比下降21.73%，其归母净利润和扣非后归母净利润分别为-8889.54万元和-1.47亿元，分别同比下降129.82%和160.50%，双双由盈转亏。
+据海关总署统计，2025年，我国与53个非洲建交国双边贸易总值达3480.8亿美元，创历史新高。
 
-具体到2025年第四季度，双环科技的营业收入为5.28亿元，较上年同期下降超两成，其归母净利润和扣非后归母净利润分别为-6266.07万元和-7635.18万元，较上年同期的-4813.02万元和-5670.39万元亏损额进一步扩大。
+2026年一季度，这一贸易额为921.6亿美元，同比增长26.8%。
 
 ## 相关推荐
 
-- 2026-06-30 06:37 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 06:30 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 06:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 06:20 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 06:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 06:34 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 06:36 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-30 06:24 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 06:24 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 06:21 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 06:19 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 06:41 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 06:19 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 06:14 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 06:27 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 06:45 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 06:42 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 06:20 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 06:43 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 06:20 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 06:33 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 06:28 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 06:27 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 06:20 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 06:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 06:27 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 06:18 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 06:20 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 06:27 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/6974319.shtml)
-- 2026-06-30 06:23 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/039356308532.shtml)
-- 2026-06-30 06:29 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/3025289.shtml)
-- 2026-06-30 06:21 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.kurohicncr.top/Article/details/634798793518.shtml)
-- 2026-06-30 06:18 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/642419.shtml)
-- 2026-06-30 06:31 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/93558.shtml)
-- 2026-06-30 06:40 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/79797180.shtml)
-- 2026-06-30 06:23 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/174484.shtml)
-- 2026-06-30 06:41 - [起风了](http://www.blog.kurohicncr.top/Article/details/279811.shtml)
-- 2026-06-30 06:16 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/301223616.shtml)
-- 2026-06-30 06:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/2618143280.shtml)
-- 2026-06-30 06:39 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/43385.shtml)
-- 2026-06-30 06:35 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/75086950082.shtml)
-- 2026-06-30 06:34 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/096535698701.shtml)
-- 2026-06-30 06:38 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/95530763309.shtml)
+- 2026-06-30 06:44 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/6591875.shtml)
+- 2026-06-30 06:39 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/385640085311.shtml)
+- 2026-06-30 06:43 - [小娘惹](http://www.share.kurohicncr.top/Article/details/37173.shtml)
+- 2026-06-30 06:25 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/882377274.shtml)
+- 2026-06-30 06:19 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/185835841295.shtml)
+- 2026-06-30 06:26 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/16376230198.shtml)
+- 2026-06-30 06:19 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/94114394118.shtml)
+- 2026-06-30 06:46 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/1548053086.shtml)
+- 2026-06-30 06:29 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/6718357.shtml)
+- 2026-06-30 06:29 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/72013278349.shtml)
+- 2026-06-30 06:28 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/07917978620.shtml)
+- 2026-06-30 06:34 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/0187122871.shtml)
+- 2026-06-30 06:21 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/3325222401.shtml)
+- 2026-06-30 06:25 - [一见倾心](https://www.blog.minike.top/Article/details/22782161035.shtml)
+- 2026-06-30 06:39 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/8799763.shtml)

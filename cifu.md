@@ -1,51 +1,60 @@
-# 博雷顿早盘涨近10% 接获控股股东及一致行动人士自愿延长禁售期
+# 王毅会见美国国会参议员代表团：希望美方切实尊重中国核心利益
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-博雷顿（01333）早盘涨近10%，截至发稿，股价上涨9.83%，现报23.92港元，成交额4528.41万港元。 4月28日，博雷顿发布公告，就公司股份在首次公开发售前，其全体股东（包括控股股东）所持有的股份须受禁售期限制，该等禁售期限均将于2026年5月6日届满，近日，公司接获控股股东及一致行动人士的通知，据此，其各自承诺自原禁售期届满日期至其后的6个月延长禁售期期间，不会
+中新社北京5月7日电 5月7日，中共中央政治局委员、外交部长王毅在北京会见来华访问的美国国会参议员代表团戴安斯一行。 王毅说，此访是特朗普总统就任以来首个访华的美国国会两党参议员代表团，具有重要象征意义。希望你们通过此访感受中国发展新气象，搭建沟通新桥梁，探讨合作新领域，为中美关系稳定健康可持续发展增添新动力。 王毅表示，中美关系攸关两国人民福祉，牵动世界格局稳定。中方对美政策
 
 ## 正文
 
-博雷顿（01333）早盘涨近10%，截至发稿，股价上涨9.83%，现报23.92港元，成交额4528.41万港元。
+中新社北京5月7日电 5月7日，中共中央政治局委员、外交部长王毅在北京会见来华访问的美国国会参议员代表团戴安斯一行。
 
-4月28日，博雷顿发布公告，就公司股份在首次公开发售前，其全体股东（包括控股股东）所持有的股份须受禁售期限制，该等禁售期限均将于2026年5月6日届满，近日，公司接获控股股东及一致行动人士的通知，据此，其各自承诺自原禁售期届满日期至其后的6个月延长禁售期期间，不会以任何方式减持彼等各自持有的公司股份。
+王毅说，此访是特朗普总统就任以来首个访华的美国国会两党参议员代表团，具有重要象征意义。
 
-公司认为，禁售期延长表明前述股东对公司的未来前景及长期价值充满信心。
+希望你们通过此访感受中国发展新气象，搭建沟通新桥梁，探讨合作新领域，为中美关系稳定健康可持续发展增添新动力。
 
-前述股东亦将持续审阅公司的业绩，且或基于公司的业务发展情况考虑进一步延长禁售期。
+王毅表示，中美关系攸关两国人民福祉，牵动世界格局稳定。
 
-责任编辑：卢昱君
+中方对美政策一以贯之，两国应以相互尊重为基石，以和平共处为准则，以合作共赢为目标，探索出一条大国正确相处之道，共同为世界和平与稳定作出贡献。
+
+一年多来习近平主席同特朗普总统多次通话会晤，在关键时刻校准了两国关系方向。
+
+中方愿同美方共同落实好两国元首重要共识，让中美关系真正稳下来、好起来，造福两国，惠及世界。
+
+王毅说，要真正找到中美两个大国正确相处之道，关键是持续不断解决彼此认知问题，扣好两国关系“第一粒纽扣”。
 
 ## 相关推荐
 
-- 2026-06-30 06:19 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 06:15 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 06:41 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 06:34 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 06:15 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 06:19 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 06:24 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 06:36 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 06:41 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 06:28 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 06:34 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 06:22 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 06:40 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 06:37 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 06:37 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 06:46 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 06:22 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 06:26 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 06:23 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 06:43 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 06:18 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 06:21 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 06:45 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 06:37 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 06:46 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:33 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/691960207077.shtml)
-- 2026-06-30 06:18 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/55080.shtml)
-- 2026-06-30 06:29 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/50613414967.shtml)
-- 2026-06-30 06:32 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/61401966.shtml)
-- 2026-06-30 06:18 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/9534930.shtml)
-- 2026-06-30 06:34 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/786870473.shtml)
-- 2026-06-30 06:23 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/08615.shtml)
-- 2026-06-30 06:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/6207165633.shtml)
-- 2026-06-30 06:22 - [乔家的儿女](http://www.share.minike.top/Article/details/744080788.shtml)
-- 2026-06-30 06:32 - [天道](https://www.blog.minike.top/Article/details/5595494.shtml)
-- 2026-06-30 06:12 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/646621854379.shtml)
-- 2026-06-30 06:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/196080.shtml)
-- 2026-06-30 06:14 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/25837.shtml)
-- 2026-06-30 06:29 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/492881820.shtml)
-- 2026-06-30 06:13 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/3162027.shtml)
+- 2026-06-30 06:40 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/353228271.shtml)
+- 2026-06-30 06:42 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/14467059285.shtml)
+- 2026-06-30 06:43 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/109712.shtml)
+- 2026-06-30 06:27 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/9359498.shtml)
+- 2026-06-30 06:28 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/894810.shtml)
+- 2026-06-30 06:36 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/56154402355.shtml)
+- 2026-06-30 06:40 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/769612726385.shtml)
+- 2026-06-30 06:18 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/4582518.shtml)
+- 2026-06-30 06:45 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/521909425.shtml)
+- 2026-06-30 06:28 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/040375.shtml)
+- 2026-06-30 06:34 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/79957972.shtml)
+- 2026-06-30 06:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/941246376043.shtml)
+- 2026-06-30 06:33 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/25543.shtml)
+- 2026-06-30 06:44 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/551076262.shtml)
+- 2026-06-30 06:29 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/722405904.shtml)

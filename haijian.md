@@ -1,61 +1,61 @@
-# 芯片、油价大幅飙升，通用电气医疗下调业绩预期
+# 已经还清的逾期欠款，会影响后续贷款吗？
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-通用医疗下调了本年度盈利预期。近期季度内，存储芯片、原油及货运价格大幅上涨，对公司业绩造成冲击。 这家医疗科技企业于周三公布，全年调整后每股收益预期由此前的4.95至5.15美元，下调至4.80至5美元。市场研究机构FactSet调查的分析师平均预期为每股调整后收益5.06美元。 公司维持全年3%至4%的有机营收增长目标不变。 首席执行官就下调盈利预期表示：“我们正采取审慎的经
+来源：金融时报 近日，网友“还行”给本报留言：“以前有过逾期，但后来都还清了，现在如果想办理房贷的话，会有影响吗？”这是一个让许多有过类似经历的网友感到担忧的问题。在与银行个人信贷业务从业人员交流时，《金融时报》记者发现，带着相似疑问来银行网点咨询的客户也不在少数。 “是不是有过逾期就再也申请不到房贷了？”“已经还清了逾期欠款，为什么银行还不能‘既往不咎’？”“不小心逾期了，不
 
 ## 正文
 
-通用医疗下调了本年度盈利预期。
+来源：金融时报 近日，网友“还行”给本报留言：“以前有过逾期，但后来都还清了，现在如果想办理房贷的话，会有影响吗？
 
-近期季度内，存储芯片、原油及货运价格大幅上涨，对公司业绩造成冲击。
+”这是一个让许多有过类似经历的网友感到担忧的问题。
 
-这家医疗科技企业于周三公布，全年调整后每股收益预期由此前的4.95至5.15美元，下调至4.80至5美元。
+在与银行个人信贷业务从业人员交流时，《金融时报》记者发现，带着相似疑问来银行网点咨询的客户也不在少数。
 
-市场研究机构FactSet调查的分析师平均预期为每股调整后收益5.06美元。
+“是不是有过逾期就再也申请不到房贷了？
 
-公司维持全年3%至4%的有机营收增长目标不变。
+”“已经还清了逾期欠款，为什么银行还不能‘既往不咎’？
 
-首席执行官就下调盈利预期表示：“我们正采取审慎的经营策略。
+”“不小心逾期了，不良征信记录能想办法消除吗？
 
-”他补充提到，企业将通过调价、成本管控等举措，抵消过半通胀带来的负面影响。
+”带着这些大家关心的问题，记者专门采访了业内人士。
 
-他表示：“值得关注的是，新一轮创新战略落地推进顺利、成果显著，将助力未来营收扩张与利润率提升。
+首先要明确的是，已结清的逾期欠款，其负面影响会随时间推移而逐步减弱，但短期内确实无法消除逾期欠款记录。
 
 ## 相关推荐
 
-- 2026-06-30 06:32 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 06:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 06:13 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 06:29 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 06:19 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 06:13 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 06:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 06:41 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 06:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 06:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 06:26 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 06:15 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 06:39 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 06:32 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 06:24 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 06:20 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 06:46 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 06:45 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 06:29 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 06:20 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-30 06:36 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 06:45 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 06:47 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 06:23 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 06:24 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 06:34 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 06:30 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 06:32 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 06:43 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 06:26 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:32 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/97816874520.shtml)
-- 2026-06-30 06:15 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/301544.shtml)
-- 2026-06-30 06:18 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/1404609.shtml)
-- 2026-06-30 06:15 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/77110.shtml)
-- 2026-06-30 06:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/859557587.shtml)
-- 2026-06-30 06:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/944420049831.shtml)
-- 2026-06-30 06:12 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/19932571225.shtml)
-- 2026-06-30 06:24 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/7729560842.shtml)
-- 2026-06-30 06:36 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/818651921973.shtml)
-- 2026-06-30 06:39 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/430572569939.shtml)
-- 2026-06-30 06:38 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/7418161554.shtml)
-- 2026-06-30 06:15 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/36528770494.shtml)
-- 2026-06-30 06:30 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/217030.shtml)
-- 2026-06-30 06:40 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/82148854.shtml)
-- 2026-06-30 06:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/75418138057.shtml)
+- 2026-06-30 06:44 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/25231402110.shtml)
+- 2026-06-30 06:31 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/3628432082.shtml)
+- 2026-06-30 06:41 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/91845741686.shtml)
+- 2026-06-30 06:24 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/860876046699.shtml)
+- 2026-06-30 06:39 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/89649.shtml)
+- 2026-06-30 06:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/706439378065.shtml)
+- 2026-06-30 06:27 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/3544527.shtml)
+- 2026-06-30 06:32 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/29697.shtml)
+- 2026-06-30 06:38 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/5292222.shtml)
+- 2026-06-30 06:32 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/64416.shtml)
+- 2026-06-30 06:25 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/65166343.shtml)
+- 2026-06-30 06:36 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/5025791.shtml)
+- 2026-06-30 06:39 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/2745174.shtml)
+- 2026-06-30 06:21 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/0418939920.shtml)
+- 2026-06-30 06:47 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/50999937.shtml)

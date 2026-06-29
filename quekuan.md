@@ -1,60 +1,57 @@
-# 广东以科技创新筑牢韧性城市地震安全防线
+# 壁仞科技早盘涨逾7%创上市新高 光大证券给予“买入”评级
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网广州4月29日电 (记者 王坚)2026年广东省地震局媒体座谈会29日在广州举行。会上介绍，该局立足广东地处东南沿海地震带中部、地震风险复杂严峻的实际，以科技创新为核心引擎，全面构建全域化、智能化、精准化的地震灾害风险感知体系，在重大基础设施监测、城乡房屋安全预警、地震灾害风险评估等领域取得突破性进展，为粤港澳大湾区韧性城市建设筑牢坚实科技屏障。 广东地处东南沿海地震带中
+壁仞科技（06082）盘中涨超9%，高见55.90港元，创上市新高。截至发稿，股价上涨6.96%，现报54.55港元，成交额2.61亿港元。 光大证券指出，壁仞科技未来潜在催化包括：BR166和BR20X等高性能芯片放量；中国先进制程产能的持续爬升，公司的供应链将在2026年底到2027年明显改善；期待公司开启向互联网等更多元客户的商业化进程。考虑到国产算力出货和公司商业化开启
 
 ## 正文
 
-中新网广州4月29日电 (记者 王坚)2026年广东省地震局媒体座谈会29日在广州举行。
+壁仞科技（06082）盘中涨超9%，高见55.90港元，创上市新高。
 
-会上介绍，该局立足广东地处东南沿海地震带中部、地震风险复杂严峻的实际，以科技创新为核心引擎，全面构建全域化、智能化、精准化的地震灾害风险感知体系，在重大基础设施监测、城乡房屋安全预警、地震灾害风险评估等领域取得突破性进展，为粤港澳大湾区韧性城市建设筑牢坚实科技屏障。
+截至发稿，股价上涨6.96%，现报54.55港元，成交额2.61亿港元。
 
-广东地处东南沿海地震带中部，陆地及近海分布多条深大断裂带，地震灾害风险防范任务艰巨。
+光大证券指出，壁仞科技未来潜在催化包括：BR166和BR20X等高性能芯片放量；中国先进制程产能的持续爬升，公司的供应链将在2026年底到2027年明显改善；期待公司开启向互联网等更多元客户的商业化进程。
 
-会上，广东省地震局表示，该局聚焦城市安全发展需求，加快构建全域覆盖、智能感知、精准预警、高效处置的现代化防震减灾技术支撑体系，推动地震灾害防治从“被动应对”向“主动防范”转变，从“传统管理”向“数字治理”升级。
+考虑到国产算力出货和公司商业化开启，看好公司业绩增长和估值抬升。
 
-其中，在地震灾害风险评估与情景构建方面，广东省已建成集实景三维建模、大数据分析、专业模型演算于一体的城市地震灾害风险评估及情景构建系统，实现震前风险底数摸清、震害情景模拟、震后应急辅助决策一体化支撑。
+首次覆盖，给予公司“买入”评级。
 
-系统可精准模拟不同地震场景下建筑物、生命线工程损毁情况，科学评估人员伤亡与经济损失，为城市规划、抗震设防、应急资源配置提供科学依据，有效提升城市地震灾害综合防范与应急准备能力。
-
-值得一提的是，广东省地震局打造重大工程地震安全在线监测与健康诊断系统，为港珠澳大桥、中国散裂中子源、虎门大桥、乐昌峡水利枢纽、江门中微子实验室等20余项国家及省重大基础设施提供长期振动监测、地震影响评估、结构健康诊断服务。
-
-广东省地震局相关负责人表示，当前，该局抢抓新一代信息技术发展机遇，全力推进人工智能+泛在感知技术创新与落地应用，加快构建结构安全监测网、地震烈度速报与预警网、震后灾情速报网“三网合一”的新型监测预警体系，建设广东省地震灾害风险监测预警中心。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:39 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-30 06:18 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 06:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 06:32 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 06:30 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 06:23 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 06:24 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 06:39 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 06:20 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 06:13 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-30 06:34 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 06:14 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 06:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 06:20 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 06:25 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-30 06:28 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 06:27 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 06:25 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 06:45 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 06:30 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 06:19 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 06:26 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 06:38 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 06:31 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 06:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 06:34 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 06:27 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 06:38 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 06:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:33 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/50260536818.shtml)
-- 2026-06-30 06:37 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/90058.shtml)
-- 2026-06-30 06:25 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/057594.shtml)
-- 2026-06-30 06:20 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/932259007.shtml)
-- 2026-06-30 06:36 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/130100943023.shtml)
-- 2026-06-30 06:25 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/4262743015.shtml)
-- 2026-06-30 06:16 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/8285627.shtml)
-- 2026-06-30 06:17 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/6156765289.shtml)
-- 2026-06-30 06:30 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/80511075.shtml)
-- 2026-06-30 06:13 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/942267420.shtml)
-- 2026-06-30 06:38 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/2389323040.shtml)
-- 2026-06-30 06:21 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/4294107351.shtml)
-- 2026-06-30 06:20 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/3050259810.shtml)
-- 2026-06-30 06:25 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/907993.shtml)
-- 2026-06-30 06:19 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/1207788.shtml)
+- 2026-06-30 06:44 - [毒液2](http://www.share.kurohicncr.top/Article/details/8116154436.shtml)
+- 2026-06-30 06:32 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/591330466.shtml)
+- 2026-06-30 06:26 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/7893538.shtml)
+- 2026-06-30 06:31 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/08334.shtml)
+- 2026-06-30 06:44 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/603249133.shtml)
+- 2026-06-30 06:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/5509891372.shtml)
+- 2026-06-30 06:44 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/16421822.shtml)
+- 2026-06-30 06:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/54239172226.shtml)
+- 2026-06-30 06:45 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/1943538.shtml)
+- 2026-06-30 06:42 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/78460514252.shtml)
+- 2026-06-30 06:21 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/9413629558.shtml)
+- 2026-06-30 06:18 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/94343721294.shtml)
+- 2026-06-30 06:46 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/81671313784.shtml)
+- 2026-06-30 06:26 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/3279881.shtml)
+- 2026-06-30 06:41 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/13452849.shtml)

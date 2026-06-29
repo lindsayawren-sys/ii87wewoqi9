@@ -1,61 +1,57 @@
-# 南方航空联手厦门航空斥资214亿美元订购137架空客A320neo
+# 保险“龙虾”养成记：两核、风控场景率先落地，人机协同时代加速到来
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-南方航空及其控股子公司厦门航空与空客公司签订协议，共购买137架A320neo系列飞机，目录价约213.78亿美元，以加速机队更新换代。 百亿级大单详情，交付期排至2032年 根据南方航空4月29日晚间发布的公告，南方航空将购买102架A320neo系列飞机，厦门航空将购买35架，合计目录价格约213.78亿美元。该金额为含机身和发动机的目录价格，实际交易中空客公司给予较大优惠
+每经记者|涂颖浩 当前，以“龙虾”为代表的AI智能体（Agent）热潮席卷各行各业，一场由技术驱动的行业变革正在发生，传统人工主导的作业体系被逐步重构，人机协同、效率倍增的新运营时代已在眼前。 “人工智能正在重塑保险业全新运营范式，尤其像‘龙虾’这样的AI智能体兴起后，行业原有运营模式或将迎来根本性变革。” 某保险机构高管近日在接受《每日经济新闻》记者（以下简称每经记者）采访时
 
 ## 正文
 
-南方航空及其控股子公司厦门航空与空客公司签订协议，共购买137架A320neo系列飞机，目录价约213.78亿美元，以加速机队更新换代。
+每经记者|涂颖浩 当前，以“龙虾”为代表的AI智能体（Agent）热潮席卷各行各业，一场由技术驱动的行业变革正在发生，传统人工主导的作业体系被逐步重构，人机协同、效率倍增的新运营时代已在眼前。
 
-百亿级大单详情，交付期排至2032年 根据南方航空4月29日晚间发布的公告，南方航空将购买102架A320neo系列飞机，厦门航空将购买35架，合计目录价格约213.78亿美元。
+“人工智能正在重塑保险业全新运营范式，尤其像‘龙虾’这样的AI智能体兴起后，行业原有运营模式或将迎来根本性变革。
 
-该金额为含机身和发动机的目录价格，实际交易中空客公司给予较大优惠，最终成交价将更低。
+” 某保险机构高管近日在接受《每日经济新闻》记者（以下简称每经记者）采访时称，保险业传统业务多依赖多人分工协同作业，而随着智能体技术成熟，未来将形成人为主导、AI承接大部分标准化流程的全新格局。
 
-这批飞机的交付时间跨度较长：南方航空的102架计划于2028年至2032年分批交付，厦门航空的35架则安排在2029年至2032年之间，这将为公司未来数年的运力增长提供明确规划。
+这种行业生产关系的深度重构，正率先在核保、核赔、合规、风控等核心业务场景加速落地。
 
-疫情后需求复苏，一季度业绩强劲反弹 受疫情影响，中国航司一度放缓了扩张步伐，但近期开始密集补充运力。
+《保险“龙虾”技能洞察报告》（以下简称《报告》）显示，当前保险领域 Skill（智能体技能）的市场供给正明显提速，业务重心高度集中于两核业务与风险合规等规则密集、材料量大、审核频次高、专业口径要求严格的关键场景。
 
-值得注意的是，南方航空同日还披露了定增预案，拟向包括控股股东南航集团在内的特定投资者募集不超过150亿元资金，用于购买46架飞机及补充流动资金。
+当前，大模型技术正推动保险行业从“对话交互”向“业务赋能”深度转型，以“AI智能体+智能体技能”为核心的应用模式在保险领域蓬勃兴起，成为行业智能化升级的核心引擎。
 
-在民航市场快速回暖的背景下，南航财务表现已大幅改善。
+所谓Skill，简言之，就是给AI智能体提前装好的“专业技能包”，把业务知识、操作流程、合规要求打包成可直接调用的模块，让AI遇到同类任务时不用从头学习，直接按标准流程高效完成。
 
-南航发布的业绩报告显示，2026年第一季度净利润达14.81亿元，较去年同期7.47亿元的亏损实现强势扭亏，为此次大规模采购提供了坚实的资金保障。
+对于天然具有强专业性、强流程性和强合规性的保险行业而言，仅靠通用模型的能力往往难以稳定适配真实业务场景，因而Skill的意义尤其突出——能够把条款理解、监管要求、核保逻辑、理赔规则、审查口径等垂域经验沉淀为可调用的能力，从而显著增强智能体在专业深度、输出稳定性和场景适配性上的表现。
 
 ## 相关推荐
 
-- 2026-06-30 06:23 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 06:15 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 06:16 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 06:17 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 06:41 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 06:40 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 06:29 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 06:29 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 06:35 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 06:37 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 06:20 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 06:23 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 06:35 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 06:26 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 06:18 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 06:32 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 06:38 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 06:41 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 06:27 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 06:46 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 06:33 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 06:32 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 06:35 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 06:35 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 06:38 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-30 06:24 - [日本反击率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:30 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/133295.shtml)
-- 2026-06-30 06:29 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/1106835333.shtml)
-- 2026-06-30 06:29 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/277935890.shtml)
-- 2026-06-30 06:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/49920.shtml)
-- 2026-06-30 06:15 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/918885916118.shtml)
-- 2026-06-30 06:35 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/0416390510.shtml)
-- 2026-06-30 06:21 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/1614918.shtml)
-- 2026-06-30 06:20 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/7762983.shtml)
-- 2026-06-30 06:27 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/38637.shtml)
-- 2026-06-30 06:12 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/28541202804.shtml)
-- 2026-06-30 06:36 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/759723336.shtml)
-- 2026-06-30 06:19 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/289681.shtml)
-- 2026-06-30 06:17 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/67753659774.shtml)
-- 2026-06-30 06:34 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/614505172.shtml)
-- 2026-06-30 06:16 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/94543529.shtml)
+- 2026-06-30 06:39 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/7921944.shtml)
+- 2026-06-30 06:45 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/28918095997.shtml)
+- 2026-06-30 06:39 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/12809.shtml)
+- 2026-06-30 06:44 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/6316581.shtml)
+- 2026-06-30 06:19 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/01627292844.shtml)
+- 2026-06-30 06:47 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/52551.shtml)
+- 2026-06-30 06:20 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/402858780698.shtml)
+- 2026-06-30 06:44 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/23143092.shtml)
+- 2026-06-30 06:44 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/204738192629.shtml)
+- 2026-06-30 06:36 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/1403486.shtml)
+- 2026-06-30 06:27 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/8113043.shtml)
+- 2026-06-30 06:42 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/9447419.shtml)
+- 2026-06-30 06:42 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/92247376891.shtml)
+- 2026-06-30 06:21 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/58757.shtml)
+- 2026-06-30 06:26 - [千与千寻](https://www.blog.minike.top/Article/details/5796141085.shtml)

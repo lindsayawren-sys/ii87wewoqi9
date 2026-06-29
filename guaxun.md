@@ -1,61 +1,61 @@
-# 股海导航_2026年4月30日_沪深股市公告与交易提示
+# 4只皮皮虾卖1035元，外出就餐遇到天价菜单怎么办
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【停牌】 600421 *ST华嵘（维权） 603557 ST起步 603021 ST华鹏（维权） 002193 如意集团（维权） 603718 海利生物 688033 天宜新材（维权） 600107 ST尔雅（维权） 600491 龙元建设 601718 际华集团（维权） 600696 *
+“4只皮皮虾1035元”——这个价格标签最近冲上了微博热搜，引发大量网友讨论。据媒体报道，有消费者在某海鲜店消费时遭遇了令人咋舌的定价：仅仅4只皮皮虾，账单上就显示1035元，平均一只超过250元。涉事海鲜店事后回应称是“明码标价”，但消费者显然并不买账。类似的天价菜单事件并非个例，此前也有游客在景区被“天价鱼”“天价虾”坑过的经历，每次曝光都会引发一轮关于消费维权 【下载黑猫
 
 ## 正文
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+“4只皮皮虾1035元”——这个价格标签最近冲上了微博热搜，引发大量网友讨论。
 
-【停牌】 600421 *ST华嵘（维权） 603557 ST起步 603021 ST华鹏（维权） 002193 如意集团（维权） 603718 海利生物 688033 天宜新材（维权） 600107 ST尔雅（维权） 600491 龙元建设 601718 际华集团（维权） 600696 *ST岩石 600965 福成股份 603189 网达软件（维权） 688066 航天宏图 600608 *ST沪科（维权） 600636 *ST国化（维权） 600187 国中水务 600599 *ST熊猫（维权） 603378 亚士创能 688022 瀚川智能（维权） 605081 *ST太和（维权） 600340 华夏幸福 600302 标准股份 600745 闻泰科技（维权） 002667 威领股份 300430 诚益通 300010 豆神教育（维权） 30
+据媒体报道，有消费者在某海鲜店消费时遭遇了令人咋舌的定价：仅仅4只皮皮虾，账单上就显示1035元，平均一只超过250元。
 
-公司股票自2026年4月30日起停牌，上海证券交易所将在停牌后5个交易日内发出拟终止上市的事先告知书。
+涉事海鲜店事后回应称是“明码标价”，但消费者显然并不买账。
 
-花王股份：拟变更证券简称为“顺景科技” 花王股份公告称，公司拟将证券简称由“花王股份”变更为“顺景科技”，证券代码“603007”保持不变。
+类似的天价菜单事件并非个例，此前也有游客在景区被“天价鱼”“天价虾”坑过的经历，每次曝光都会引发一轮关于消费维权 【下载黑猫投诉客户端】的广泛讨论。
 
-此举旨在反映公司主营业务已转向新能源汽车关键零部件等智能制造业，该业务收入占2025年营收的73.70%。
+事实上，外出就餐、尤其是去旅游景区或沿海城市吃海鲜时，消费者确实更容易遇到这类问题。
 
-【观业绩】 工商银行：第一季度净利润869.41亿元同比增长3.31% 工商银行公告称，2026年第一季度实现营业收入2303.70亿元，同比增长8.27%；归属于母公司股东的净利润为869.41亿元，同比增长3.31%。
+有的商家在菜单上玩文字游戏，用“时价”“面议”等模糊字眼代替具体价格；有的在称重环节做手脚，缺斤短两或者连壳带水一起称；还有的则是先低价引客、再通过隐形消费层层加价。
 
-业绩变动主要系利息净收入增长7.49%，非利息收入增长10.45%所致。
+对于普通消费者来说，出门在外本来图的是开心，结果一顿饭吃出一场纠纷，确实让人头疼。
 
-农业银行：第一季度净利润751.9亿元，同比增长4.5% 农业银行公告，第一季度净利润751.9亿元，同比增长4.5%。
+那么，当我们在消费过程中遇到不合理的收费或价格欺诈时，有哪些渠道可以帮助我们维权呢？
 
 ## 相关推荐
 
-- 2026-06-30 06:13 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 06:28 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 06:37 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 06:27 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 06:38 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 06:40 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 06:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 06:24 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 06:35 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-30 06:38 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 06:15 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-30 06:13 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 06:20 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-30 06:35 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 06:28 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 06:39 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 06:31 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 06:26 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 06:33 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 06:32 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 06:30 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 06:34 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 06:30 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 06:44 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 06:24 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 06:44 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 06:36 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 06:40 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 06:18 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 06:26 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:37 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/824145771676.shtml)
-- 2026-06-30 06:21 - [扫黑风暴](http://www.blog.minike.top/Article/details/055060924.shtml)
-- 2026-06-30 06:38 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/1970108737.shtml)
-- 2026-06-30 06:25 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/892041865.shtml)
-- 2026-06-30 06:29 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/0941605112.shtml)
-- 2026-06-30 06:28 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/293604061.shtml)
-- 2026-06-30 06:37 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/144898210.shtml)
-- 2026-06-30 06:21 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/523534339.shtml)
-- 2026-06-30 06:22 - [送你一朵小红花](http://www.blog.minike.top/Article/details/714443050114.shtml)
-- 2026-06-30 06:13 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/1603477.shtml)
-- 2026-06-30 06:23 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/58797.shtml)
-- 2026-06-30 06:34 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/39302140520.shtml)
-- 2026-06-30 06:20 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/6584008263.shtml)
-- 2026-06-30 06:38 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/19738777.shtml)
-- 2026-06-30 06:28 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/6899073.shtml)
+- 2026-06-30 06:47 - [小娘惹](https://www.blog.minike.top/Article/details/6744225.shtml)
+- 2026-06-30 06:40 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/547871171.shtml)
+- 2026-06-30 06:44 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/691586223011.shtml)
+- 2026-06-30 06:39 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/044713882402.shtml)
+- 2026-06-30 06:32 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/0822823.shtml)
+- 2026-06-30 06:37 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/40947454.shtml)
+- 2026-06-30 06:37 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/21691192.shtml)
+- 2026-06-30 06:42 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/632478809078.shtml)
+- 2026-06-30 06:30 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/017409123496.shtml)
+- 2026-06-30 06:18 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/5604881.shtml)
+- 2026-06-30 06:38 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/57691985.shtml)
+- 2026-06-30 06:18 - [蔚来车主罚站](https://www.share.minike.top/Article/details/31861236482.shtml)
+- 2026-06-30 06:34 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/4117496663.shtml)
+- 2026-06-30 06:22 - [沙丘](http://www.share.minike.top/Article/details/3913908.shtml)
+- 2026-06-30 06:42 - [一生一世](http://www.blog.kurohicncr.top/Article/details/57648.shtml)

@@ -1,53 +1,56 @@
-# 我国自2026年5月1日起对所有非洲建交国实施零关税
+# 香港3月零售业总销货价值同比升12.8% 汽车销售增长强劲
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-国务院关税税则委员会发布公告，自2026年5月1日至2028年4月30日，对同中国建交的20个不属于最不发达国家的非洲国家以特惠税率形式实施零关税；其中关税配额产品仅将配额内关税税率降为零，配额外关税税率不变。2年实施期内，中方将继续推动与相关非洲国家商签共同发展经济伙伴关系协定。 对于同中国建交的33个非洲最不发达国家，中方已自2024年12月1日起对其100%税目产品实施零
+中新社香港5月6日电 香港特区政府统计处6日公布，2026年3月香港零售业总销货价值的临时估计为339亿港元，同比上升12.8%。各类别中，汽车及汽车零件销售增速明显。 3月零售业总销货价值中，网上销售占9.7%。3月零售业网上销售价值的临时估计为33亿港元，同比上升35.1%。 与去年3月各类别销货价值相比，汽车及汽车零件上升80.8%、电器及其他未分类耐用消费品上升30.1
 
 ## 正文
 
-国务院关税税则委员会发布公告，自2026年5月1日至2028年4月30日，对同中国建交的20个不属于最不发达国家的非洲国家以特惠税率形式实施零关税；其中关税配额产品仅将配额内关税税率降为零，配额外关税税率不变。
+中新社香港5月6日电 香港特区政府统计处6日公布，2026年3月香港零售业总销货价值的临时估计为339亿港元，同比上升12.8%。
 
-2年实施期内，中方将继续推动与相关非洲国家商签共同发展经济伙伴关系协定。
+各类别中，汽车及汽车零件销售增速明显。
 
-对于同中国建交的33个非洲最不发达国家，中方已自2024年12月1日起对其100%税目产品实施零关税。
+3月零售业总销货价值中，网上销售占9.7%。
 
-此次进一步对其余20个非洲建交国实施零关税，体现了中国扩大高水平对外开放的积极姿态，对加强中非经贸合作纽带、推动共筑新时代全天候中非命运共同体将发挥重要作用。
+3月零售业网上销售价值的临时估计为33亿港元，同比上升35.1%。
+
+与去年3月各类别销货价值相比，汽车及汽车零件上升80.8%、电器及其他未分类耐用消费品上升30.1%、珠宝首饰、钟表及名贵礼物上升27.2%，大部分主要零售商类别的销货价值均有增长；燃料、中药以及鞋类、有关制品及其他衣物配件的销货价值则下降。
+
+特区政府发言人表示，汽车销售强劲，受惠于电动私家车首次登记税宽减在今年3月底届满、订单在限期前急升。
+
+展望未来，受惠于本地需求复苏、访港旅游业持续增长，以及宏观金融环境利好，零售销售的短期前景大致正面。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:29 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 06:15 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 06:14 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 06:13 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 06:33 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 06:40 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 06:30 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 06:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 06:20 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 06:23 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 06:16 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 06:39 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 06:38 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 06:24 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 06:38 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 06:36 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 06:27 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 06:33 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 06:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 06:42 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 06:26 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 06:32 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 06:37 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 06:32 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 06:42 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:36 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/7465315045.shtml)
-- 2026-06-30 06:24 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/56165238.shtml)
-- 2026-06-30 06:32 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/456524654285.shtml)
-- 2026-06-30 06:39 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/45684.shtml)
-- 2026-06-30 06:14 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/799546.shtml)
-- 2026-06-30 06:18 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/327971681.shtml)
-- 2026-06-30 06:14 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/7952137319.shtml)
-- 2026-06-30 06:15 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/1265412.shtml)
-- 2026-06-30 06:29 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/64070776713.shtml)
-- 2026-06-30 06:15 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/60636905984.shtml)
-- 2026-06-30 06:36 - [流金岁月](http://www.share.kurohicncr.top/Article/details/68883612181.shtml)
-- 2026-06-30 06:19 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/953612.shtml)
-- 2026-06-30 06:20 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/38762031.shtml)
-- 2026-06-30 06:34 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/8447971.shtml)
-- 2026-06-30 06:37 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/587416.shtml)
+- 2026-06-30 06:19 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/769652577976.shtml)
+- 2026-06-30 06:33 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/877724680.shtml)
+- 2026-06-30 06:28 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/9499731.shtml)
+- 2026-06-30 06:26 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/6873216.shtml)
+- 2026-06-30 06:19 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/19083914.shtml)
+- 2026-06-30 06:22 - [周生如故](http://www.share.minike.top/Article/details/76108866828.shtml)
+- 2026-06-30 06:40 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/76159984.shtml)
+- 2026-06-30 06:30 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/1658489.shtml)
+- 2026-06-30 06:20 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/28297.shtml)
+- 2026-06-30 06:19 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/626680995376.shtml)
+- 2026-06-30 06:35 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/3029481692.shtml)
+- 2026-06-30 06:42 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/7813013.shtml)
+- 2026-06-30 06:35 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/631902.shtml)
+- 2026-06-30 06:44 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/78446.shtml)
+- 2026-06-30 06:42 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/061610299836.shtml)

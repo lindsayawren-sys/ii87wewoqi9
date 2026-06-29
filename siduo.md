@@ -1,46 +1,59 @@
-# 行走重大项目一线丨探秘一线：新疆“水能充电宝”的硬核担当
+# 白宫记者协会晚宴嫌犯被控袭击特工
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 10:17 来源：石榴云/新疆日报 责任编辑：【王祎】
+美国联邦检察官周二对被控企图暗杀总统特朗普的男子追加了一项指控，称他上个月在华盛顿一场新闻界晚宴外冲闯安检站时，用霰弹枪击中了一名特勤局特工。 这份由华盛顿一个大陪审团提交的起诉书，在针对科尔·艾伦（Cole Allen）的刑事案件中增加了第四项指控。根据一份刑事诉状，31岁的艾伦此前在华盛顿希尔顿酒店被捕后，已被控企图暗杀特朗普以及两项枪支犯罪，其中包括在暴力犯罪期间开枪。代
 
 ## 正文
 
-发布时间：2026年04月29日 10:17 来源：石榴云/新疆日报 责任编辑：【王祎】
+美国联邦检察官周二对被控企图暗杀总统特朗普的男子追加了一项指控，称他上个月在华盛顿一场新闻界晚宴外冲闯安检站时，用霰弹枪击中了一名特勤局特工。
+
+这份由华盛顿一个大陪审团提交的起诉书，在针对科尔·艾伦（Cole Allen）的刑事案件中增加了第四项指控。
+
+根据一份刑事诉状，31岁的艾伦此前在华盛顿希尔顿酒店被捕后，已被控企图暗杀特朗普以及两项枪支犯罪，其中包括在暴力犯罪期间开枪。
+
+代理司法部长托德．布兰奇（Todd Blanche）是出席白宫记者协会晚宴的特朗普政府官员之一。
+
+他表示，艾伦当时全副武装，“冲闯安保防线并开枪击中了一名特勤局特工，企图暗杀总统特朗普，但由于执法人员勇敢而迅速的反应，他被制止了。
+
+”布兰奇在周二的一份声明中补充道：“在总统特朗普的领导下，暴力的政治行动者永远不会获胜，我们将依法在最大程度上起诉任何参与这些可怕行为的人。
+
+”此前，对于击中参与晚宴安保工作的那名特勤局特工的子弹是否为艾伦所发，外界最初存在一些疑虑。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 06:32 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 06:31 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 06:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 06:13 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 06:30 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 06:18 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 06:36 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 06:15 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 06:30 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 06:28 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 06:18 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 06:24 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 06:38 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 06:20 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 06:28 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 06:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 06:37 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-30 06:19 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 06:19 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 06:38 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 06:44 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 06:31 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 06:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 06:36 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 06:28 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 06:33 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-30 06:24 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:25 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/44653205928.shtml)
-- 2026-06-30 06:12 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/171744.shtml)
-- 2026-06-30 06:21 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/15935406853.shtml)
-- 2026-06-30 06:25 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/82890212644.shtml)
-- 2026-06-30 06:31 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/56697324201.shtml)
-- 2026-06-30 06:27 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/4314673.shtml)
-- 2026-06-30 06:15 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/979852948.shtml)
-- 2026-06-30 06:40 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/393015530217.shtml)
-- 2026-06-30 06:33 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/07003578537.shtml)
-- 2026-06-30 06:31 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/0976380734.shtml)
-- 2026-06-30 06:31 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/95942.shtml)
-- 2026-06-30 06:22 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/8362475.shtml)
-- 2026-06-30 06:22 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/79547158192.shtml)
-- 2026-06-30 06:30 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/410851.shtml)
-- 2026-06-30 06:23 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/85692.shtml)
+- 2026-06-30 06:29 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/03655081592.shtml)
+- 2026-06-30 06:31 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/514378927003.shtml)
+- 2026-06-30 06:27 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/9686374529.shtml)
+- 2026-06-30 06:19 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/458867924.shtml)
+- 2026-06-30 06:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/22806893315.shtml)
+- 2026-06-30 06:22 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/244099.shtml)
+- 2026-06-30 06:46 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/57210872479.shtml)
+- 2026-06-30 06:21 - [日本进球](https://www.share.kurohicncr.top/Article/details/73904705.shtml)
+- 2026-06-30 06:31 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/80872.shtml)
+- 2026-06-30 06:47 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/017786.shtml)
+- 2026-06-30 06:22 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/718088.shtml)
+- 2026-06-30 06:28 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/2745558380.shtml)
+- 2026-06-30 06:31 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/5083799838.shtml)
+- 2026-06-30 06:21 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/25301.shtml)
+- 2026-06-30 06:41 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/231994909024.shtml)

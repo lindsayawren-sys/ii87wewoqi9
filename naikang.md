@@ -1,56 +1,60 @@
-# 雪域破极 “沈阳造”氢能无人机飞越 “生命禁区”
+# 东方证券拟通过发行A股股份及支付现金方式购买上海证券100%股权
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网沈阳4月28日电 (记者 赵桂华)4月28日，记者由沈阳市沈北新区获悉，盛科航宇研发的适用于高原高寒环境的氢能燃料电池动力系统及氢能无人机，近日在西藏极寒高海拔地区试飞圆满成功。 此次试飞的成功，不仅标志着我国氢动力航空技术在极端环境下的应用瓶颈被成功突破，更填补了高原高寒地区长续航、零污染无人作业的市场空白，为我国低空经济在特殊场景的拓展定了坚实基础。 据了解，作为低空
+东方证券（03958）公布，公司拟通过发行 A 股股份及支付现金的方式购买百联集团、国泰海通、国际投资、国际集团、上海城投合计持有的上海证券 100%的股权。其中，拟通过发行 A 股股份的方式购买百联集团持有的上海证券 50%股权、国际投资持有的上海证券16.3333%股权、国际集团持有的上海证券 7.6767%股权、上海城投持有的上海证券 1%股权；拟通过发行 A 股股份的方
 
 ## 正文
 
-中新网沈阳4月28日电 (记者 赵桂华)4月28日，记者由沈阳市沈北新区获悉，盛科航宇研发的适用于高原高寒环境的氢能燃料电池动力系统及氢能无人机，近日在西藏极寒高海拔地区试飞圆满成功。
+东方证券（03958）公布，公司拟通过发行 A 股股份及支付现金的方式购买百联集团、国泰海通、国际投资、国际集团、上海城投合计持有的上海证券 100%的股权。
 
-此次试飞的成功，不仅标志着我国氢动力航空技术在极端环境下的应用瓶颈被成功突破，更填补了高原高寒地区长续航、零污染无人作业的市场空白，为我国低空经济在特殊场景的拓展定了坚实基础。
+其中，拟通过发行 A 股股份的方式购买百联集团持有的上海证券 50%股权、国际投资持有的上海证券16.3333%股权、国际集团持有的上海证券 7.6767%股权、上海城投持有的上海证券 1%股权；拟通过发行 A 股股份的方式购买国泰海通持有的上海证券 18.7400%股权，通过支付现金的方式购买国泰海通持有的上海证券 6.2500%股权。
 
-据了解，作为低空经济领域的新锐力量，盛科航宇于2023年在沈北新区正式成立，是一家由哈尔滨工业大学沈轶岭博士领衔核心技术团队、专注于氢动力无人机研发制造的高新技术企业。
+本次发行的股份发行价格为10.29 元/股。
 
-公司深耕固定翼、多旋翼氢能无人机研发制造领域，凭借顶尖的技术研发实力，在短时间内实现了从技术研发到产品落地的跨越式发展，取得了业内领先的技术成果。
+上海证券主要从事的业务包括经纪业务、证券自营业务、期货业务、信用业务等，还包括投资银行、资产管理、基金评价研究等业务。
 
-不久前，已获得沈阳产业技术研究院通过市场化投资平台完成的Pre-A轮投资。
+截至2025 年12 月31日，上海证券控制 2 家全资子公司和 1 家全资二级子公司，拥有9 家分公司以及72 家证券营业部，形成以上海为中心，以长三角、珠三角、京津冀、成渝经济圈为主体的经营网络，为广大客户提供全方位、系统性、多层次、专业化的综合金融服务。
 
-盛科航宇总经理秦健告诉记者，此次西藏试飞是对氢动力无人机极端环境适应能力的终极考验，环境极为恶劣。
+本次交易完成后，上市公司的主营业务将保持不变。
 
-西藏作为“生命禁区”，冬季气温-20℃~-40℃，昼夜温差大，传统锂电无人机易容量暴跌、无法启动。
+上市公司将通过整合双方资源形成优势互补，扩大公司资产规模和资本实力，进一步提升综合金融服务能力和上市公司在财富管理、投资银行、机构服务等领域的竞争力，巩固综合竞争优势和行业地位，提升金融服务实体经济质效和服务经济社会发展能级。
 
-试飞区域海拔4000-5500米，空气稀薄、氧含量仅为平原60%-70%，不仅导致传统动力大幅衰减，还对无人机核心系统提出高要求，八级强风裹挟乱流更加剧了试飞难度。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:12 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 06:19 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 06:15 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-30 06:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 06:32 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 06:15 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 06:23 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-30 06:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 06:31 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 06:31 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 06:34 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 06:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-30 06:29 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 06:43 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 06:46 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 06:34 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 06:31 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 06:37 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 06:36 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 06:41 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 06:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 06:30 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-30 06:32 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 06:29 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:16 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/84759410258.shtml)
-- 2026-06-30 06:41 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/200033.shtml)
-- 2026-06-30 06:16 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/920316061466.shtml)
-- 2026-06-30 06:31 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/78116.shtml)
-- 2026-06-30 06:36 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/020388.shtml)
-- 2026-06-30 06:37 - [第一炉香](http://www.share.minike.top/Article/details/60673404144.shtml)
-- 2026-06-30 06:16 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/03908443.shtml)
-- 2026-06-30 06:35 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/362418.shtml)
-- 2026-06-30 06:24 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/5506703.shtml)
-- 2026-06-30 06:27 - [日本 高位逼抢](http://www.share.minike.top/Article/details/873074.shtml)
-- 2026-06-30 06:37 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/3843349715.shtml)
-- 2026-06-30 06:27 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/4682192171.shtml)
-- 2026-06-30 06:12 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/581245074.shtml)
-- 2026-06-30 06:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/6702498.shtml)
-- 2026-06-30 06:23 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/469558280.shtml)
+- 2026-06-30 06:30 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/5511334474.shtml)
+- 2026-06-30 06:30 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/172549702126.shtml)
+- 2026-06-30 06:23 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/558281847857.shtml)
+- 2026-06-30 06:38 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/956488.shtml)
+- 2026-06-30 06:47 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/764360.shtml)
+- 2026-06-30 06:23 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/462026.shtml)
+- 2026-06-30 06:19 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/4805492190.shtml)
+- 2026-06-30 06:43 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/89419500.shtml)
+- 2026-06-30 06:41 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/109187.shtml)
+- 2026-06-30 06:37 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/263980103110.shtml)
+- 2026-06-30 06:23 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/92612.shtml)
+- 2026-06-30 06:41 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/01777177.shtml)
+- 2026-06-30 06:33 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/919758.shtml)
+- 2026-06-30 06:41 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/230176781841.shtml)
+- 2026-06-30 06:42 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/1987854269.shtml)

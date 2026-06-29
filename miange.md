@@ -1,57 +1,58 @@
-# 美媒：巴基斯坦预计将收到伊朗调整版谈判方案
+# 阿根廷将在涉疫邮轮出发地开展啮齿动物捕捉与检测工作
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网4月29日电 据美国有线电视新闻网(CNN)28日报道，据接近调解进程的消息人士透露，在美国总统特朗普表示不会接受伊朗此前提出的提案后，巴基斯坦的调解人员预计将在未来几天内收到伊朗提交的旨在结束战争的调整版提案。消息人士称，伊朗外交部长阿拉格齐结束对俄罗斯的访问返回德黑兰后，预计将与伊朗领导层进行磋商。 据报道，特朗普已明确表示，他不会接受伊朗此前提交的提案版本。该提案主
+阿根廷卫生部6日发布声明表示，将在出现汉坦病毒病例的“洪迪厄斯”号邮轮出发地、该国最南部城市乌斯怀亚开展啮齿动物捕捉与检测工作。同时，相关人员正在回溯数名荷兰公民在阿根廷和智利的行程路线。这些人员曾乘坐涉事邮轮，随后出现汉坦病毒症状。阿根廷卫生部：今年以来累计新增42例汉坦病毒感染病例 据阿根廷卫生部最新发布的报告，自2026年以来，累计新增42例汉坦病毒感染病例。自去年7月至
 
 ## 正文
 
-中新网4月29日电 据美国有线电视新闻网(CNN)28日报道，据接近调解进程的消息人士透露，在美国总统特朗普表示不会接受伊朗此前提出的提案后，巴基斯坦的调解人员预计将在未来几天内收到伊朗提交的旨在结束战争的调整版提案。
+阿根廷卫生部6日发布声明表示，将在出现汉坦病毒病例的“洪迪厄斯”号邮轮出发地、该国最南部城市乌斯怀亚开展啮齿动物捕捉与检测工作。
 
-消息人士称，伊朗外交部长阿拉格齐结束对俄罗斯的访问返回德黑兰后，预计将与伊朗领导层进行磋商。
+同时，相关人员正在回溯数名荷兰公民在阿根廷和智利的行程路线。
 
-据报道，特朗普已明确表示，他不会接受伊朗此前提交的提案版本。
+这些人员曾乘坐涉事邮轮，随后出现汉坦病毒症状。
 
-该提案主张先结束战争，再在后续阶段解决与伊朗核计划相关的问题。
+阿根廷卫生部：今年以来累计新增42例汉坦病毒感染病例 据阿根廷卫生部最新发布的报告，自2026年以来，累计新增42例汉坦病毒感染病例。
 
-消息人士称，谈判进程仍在进行且充满变数，很大程度上取决于伊朗能否提出一份更符合美国要求的调整版方案。
+自去年7月至今年6月的本轮流行季，全国累计报告病例101例，其中32例死亡，病死率为31.7%，高于以往水平。
 
-特朗普28日在社交媒体发文声称，伊朗已告知美国，其正处于“崩溃状态”，并坚称德黑兰方面希望霍尔木兹海峡保持畅通。
+其中，大部分病例集中在该国中部地区，布宜诺斯艾利斯省累计确诊42例，为全国最多。
+
+卫生部称，该国南部里奥内格罗省里奥科罗拉多市出现一例历史非流行区病例。
+
+相关部门已开展环境调查，在多个潜在暴露区域进行啮齿动物监测，但未捕获汉坦病毒宿主物种，所获样本血清学检测结果也为阴性。
 
 ## 相关推荐
 
-- 2026-06-30 06:37 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 06:34 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 06:39 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 06:21 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 06:28 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 06:32 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 06:28 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 06:31 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 06:18 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 06:24 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 06:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 06:20 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 06:15 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 06:32 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 06:17 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 06:23 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 06:26 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 06:24 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-30 06:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 06:31 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 06:44 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 06:40 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 06:22 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 06:25 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 06:21 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 06:45 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 06:29 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:39 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/298659.shtml)
-- 2026-06-30 06:40 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/2382798700.shtml)
-- 2026-06-30 06:18 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/24045.shtml)
-- 2026-06-30 06:40 - [逃狱兄弟](https://www.blog.minike.top/Article/details/90766070.shtml)
-- 2026-06-30 06:35 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/7620394718.shtml)
-- 2026-06-30 06:37 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/882038153004.shtml)
-- 2026-06-30 06:17 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/84571532.shtml)
-- 2026-06-30 06:17 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/149835.shtml)
-- 2026-06-30 06:33 - [一见倾心](https://www.share.minike.top/Article/details/4820330.shtml)
-- 2026-06-30 06:36 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/813798967153.shtml)
-- 2026-06-30 06:16 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/58164496685.shtml)
-- 2026-06-30 06:38 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/40398.shtml)
-- 2026-06-30 06:20 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/5858210.shtml)
-- 2026-06-30 06:35 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/238483.shtml)
-- 2026-06-30 06:23 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/7448456.shtml)
+- 2026-06-30 06:18 - [一见倾心](https://www.blog.minike.top/Article/details/648919.shtml)
+- 2026-06-30 06:19 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/73340710.shtml)
+- 2026-06-30 06:23 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/952021.shtml)
+- 2026-06-30 06:26 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/9218880047.shtml)
+- 2026-06-30 06:24 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/259678823719.shtml)
+- 2026-06-30 06:33 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/48511018890.shtml)
+- 2026-06-30 06:18 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/194446047.shtml)
+- 2026-06-30 06:23 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/852182.shtml)
+- 2026-06-30 06:46 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/911605534391.shtml)
+- 2026-06-30 06:21 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/7389072.shtml)
+- 2026-06-30 06:31 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/44832534.shtml)
+- 2026-06-30 06:44 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.kurohicncr.top/Article/details/53844882.shtml)
+- 2026-06-30 06:30 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/14542.shtml)
+- 2026-06-30 06:35 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/5002915.shtml)
+- 2026-06-30 06:20 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/53644018027.shtml)

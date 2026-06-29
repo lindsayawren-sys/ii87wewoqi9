@@ -1,53 +1,58 @@
-# 中方期待更多志同道合的国家加入“全球治理之友小组”
+# 与“稻”相伴13年 民革党员将青春种在田野里
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-4月29日，外交部发言人林剑主持例行记者会。有记者问：中国常驻维也纳代表团昨日宣布维也纳“全球治理之友小组”正式成立。发言人能否进一步介绍有关情况？ 林剑表示，这是继去年12月纽约、今年2月日内瓦之后，中方依托联合国平台成立的又一“全球治理之友小组”，在不到五个月的时间里，“全球治理之友小组”从无到有，在纽约、日内瓦、维也纳三地落地生根，小组的成员不断壮大，影响力和凝聚力持续提
+中新网宁波5月5日电 题：与“稻”相伴13年 民革党员将青春种在田野里 作者 吴怡欣 五月气温渐升，浙江省宁波市鄞州区姜山镇归本水稻农场里，四月初栽种的稻苗已拔节生长，嫩绿铺满田地，一片生机盎然。 春季插秧、夏季管护、秋季收获、冬季备耕——水稻贯穿了“90后”农创客、民革党员汪琰斌的四季，也见证着他扎根乡土、逐梦田野的13年时光。 回乡逐梦 深耕一方田野 对于汪琰斌而言，投身农
 
 ## 正文
 
-4月29日，外交部发言人林剑主持例行记者会。
+中新网宁波5月5日电 题：与“稻”相伴13年 民革党员将青春种在田野里 作者 吴怡欣 五月气温渐升，浙江省宁波市鄞州区姜山镇归本水稻农场里，四月初栽种的稻苗已拔节生长，嫩绿铺满田地，一片生机盎然。
 
-有记者问：中国常驻维也纳代表团昨日宣布维也纳“全球治理之友小组”正式成立。
+春季插秧、夏季管护、秋季收获、冬季备耕——水稻贯穿了“90后”农创客、民革党员汪琰斌的四季，也见证着他扎根乡土、逐梦田野的13年时光。
 
-发言人能否进一步介绍有关情况？
+回乡逐梦 深耕一方田野 对于汪琰斌而言，投身农业是深思熟虑后的选择。
 
-林剑表示，这是继去年12月纽约、今年2月日内瓦之后，中方依托联合国平台成立的又一“全球治理之友小组”，在不到五个月的时间里，“全球治理之友小组”从无到有，在纽约、日内瓦、维也纳三地落地生根，小组的成员不断壮大，影响力和凝聚力持续提升。
+他回忆：“在上大学之前，我查阅了很多资料，觉得农业这条道路值得尝试，于是选择了园艺技术专业。
 
-中方期待更多志同道合的国家加入“全球治理之友小组”，支持加强联合国的权威和地位，共同为改革完善全球治理作出努力。
+” 经过几年的专业学习，汪琰斌从事农业生产的心愈发坚定。
 
-(总台央视记者 赵晶)
+2013年，汪琰斌一毕业便回到家乡宁波鄞州，在姜山镇创办归本水稻农场，开启了种稻生涯。
+
+最初，经验尚浅的汪琰斌还摸不透稻田的脾性。
+
+幸运的是，鄞州区种植业发展成熟，较早建立了系统的农户培训体系，让他这位新手有了成长的平台。
 
 ## 相关推荐
 
-- 2026-06-30 06:38 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 06:41 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 06:24 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 06:21 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 06:28 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 06:31 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 06:41 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 06:28 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 06:22 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 06:34 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 06:32 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 06:26 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 06:23 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 06:30 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 06:23 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 06:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 06:36 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 06:29 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 06:36 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 06:32 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 06:18 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 06:45 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 06:19 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:20 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/90775719.shtml)
-- 2026-06-30 06:14 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/81939.shtml)
-- 2026-06-30 06:13 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/0328987637.shtml)
-- 2026-06-30 06:41 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/1445052.shtml)
-- 2026-06-30 06:33 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/610286677125.shtml)
-- 2026-06-30 06:36 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/816490764500.shtml)
-- 2026-06-30 06:28 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/512590218099.shtml)
-- 2026-06-30 06:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/6152897154.shtml)
-- 2026-06-30 06:19 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/13594947.shtml)
-- 2026-06-30 06:25 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/3163266.shtml)
-- 2026-06-30 06:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/062846413.shtml)
-- 2026-06-30 06:18 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/10847253233.shtml)
-- 2026-06-30 06:24 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/9863442.shtml)
-- 2026-06-30 06:29 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/24417291.shtml)
-- 2026-06-30 06:40 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/180104877.shtml)
+- 2026-06-30 06:20 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/79733158700.shtml)
+- 2026-06-30 06:41 - [巴西绝杀](http://www.blog.minike.top/Article/details/484668.shtml)
+- 2026-06-30 06:30 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/54453.shtml)
+- 2026-06-30 06:47 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/39915562.shtml)
+- 2026-06-30 06:26 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/62411826.shtml)
+- 2026-06-30 06:39 - [毒液2](https://www.share.kurohicncr.top/Article/details/362468.shtml)
+- 2026-06-30 06:19 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/9890716.shtml)
+- 2026-06-30 06:21 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/7041080.shtml)
+- 2026-06-30 06:44 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/4457115906.shtml)
+- 2026-06-30 06:26 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/40042426739.shtml)
+- 2026-06-30 06:35 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/37522139.shtml)
+- 2026-06-30 06:24 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/0278795.shtml)
+- 2026-06-30 06:31 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/2159592.shtml)
+- 2026-06-30 06:30 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/7845975.shtml)
+- 2026-06-30 06:21 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/041354568587.shtml)

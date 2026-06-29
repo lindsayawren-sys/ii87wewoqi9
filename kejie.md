@@ -1,58 +1,46 @@
-# 通用汽车上调全年盈利指引，最高法院关税裁决带来5亿美元利好
+# 美国能源部长：无论是否达成协议 美国都将实现霍尔木兹自由通行
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-通用汽车周二公布第一季度财报，得益于核心市场对皮卡和SUV车型的强劲需求以及美国最高法院关税裁决带来的5亿美元利好，公司净利润超预期并随即上调全年业绩指引。 关税裁决带来5亿美元“意外之财” 今年2月，美国最高法院以6比3的投票结果裁定，特朗普政府援引《国际紧急经济权力法》实施的大规模关税政策违法。根据这一裁决，通用汽车预计将获得约5亿美元的关税退款。 公司首席财务官表示，这笔
+美国能源部长克里斯·赖特在福克斯商业频道表示，无论如何，美国都将实现霍尔木兹海峡的自由通行。 他说：“这可以通过与伊朗达成协议来实现，也可以在与伊朗没有协议的情况下实现”。责任编辑：刘明亮
 
 ## 正文
 
-通用汽车周二公布第一季度财报，得益于核心市场对皮卡和SUV车型的强劲需求以及美国最高法院关税裁决带来的5亿美元利好，公司净利润超预期并随即上调全年业绩指引。
+美国能源部长克里斯·赖特在福克斯商业频道表示，无论如何，美国都将实现霍尔木兹海峡的自由通行。
 
-关税裁决带来5亿美元“意外之财” 今年2月，美国最高法院以6比3的投票结果裁定，特朗普政府援引《国际紧急经济权力法》实施的大规模关税政策违法。
+他说：“这可以通过与伊朗达成协议来实现，也可以在与伊朗没有协议的情况下实现”。
 
-根据这一裁决，通用汽车预计将获得约5亿美元的关税退款。
-
-公司首席财务官表示，这笔预期退款是一个“有利调整”。
-
-虽然公司尚未实际收到退款，但已将其计入一季度业绩并据此上调全年指引。
-
-通用汽车目前预计全年总关税成本将从此前的30亿至40亿美元降至25亿至35亿美元。
-
-核心业务保持强劲 财报显示，通用汽车一季度营收436.2亿美元，净利润26亿美元，调整后每股收益3.70美元，远超市场预期的2.62美元。
-
-强劲表现得益于北美核心业务的稳固增长——公司在北美全尺寸皮卡市场占有42%的份额，调整后息税前利润率从上年同期的8.8%提升至10.1%。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 06:22 - [苗族银饰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 06:39 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 06:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 06:36 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 06:17 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 06:19 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 06:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 06:37 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 06:31 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 06:30 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 06:30 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 06:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 06:21 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 06:29 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 06:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 06:46 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 06:24 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 06:22 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-30 06:24 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 06:37 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 06:23 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 06:45 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:21 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/112402215874.shtml)
-- 2026-06-30 06:41 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/533098920.shtml)
-- 2026-06-30 06:28 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/279184728820.shtml)
-- 2026-06-30 06:18 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/42784582.shtml)
-- 2026-06-30 06:22 - [金刚川](https://www.blog.kurohicncr.top/Article/details/265494.shtml)
-- 2026-06-30 06:21 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/0253643853.shtml)
-- 2026-06-30 06:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/9123168081.shtml)
-- 2026-06-30 06:17 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/72334.shtml)
-- 2026-06-30 06:13 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/479252526.shtml)
-- 2026-06-30 06:16 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/86071515023.shtml)
-- 2026-06-30 06:14 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/33767.shtml)
-- 2026-06-30 06:40 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/532624.shtml)
-- 2026-06-30 06:22 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/78390373.shtml)
-- 2026-06-30 06:40 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/148702255453.shtml)
-- 2026-06-30 06:18 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/351117408.shtml)
+- 2026-06-30 06:31 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/1437690066.shtml)
+- 2026-06-30 06:18 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/0906966.shtml)
+- 2026-06-30 06:22 - [千与千寻](https://www.share.kurohicncr.top/Article/details/6168801892.shtml)
+- 2026-06-30 06:43 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/772298365600.shtml)
+- 2026-06-30 06:24 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/9968932.shtml)
+- 2026-06-30 06:36 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/563135710161.shtml)
+- 2026-06-30 06:22 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/53164697.shtml)
+- 2026-06-30 06:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/87532343035.shtml)
+- 2026-06-30 06:28 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/195814967144.shtml)
+- 2026-06-30 06:38 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/98636.shtml)
+- 2026-06-30 06:25 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/8307983.shtml)
+- 2026-06-30 06:37 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/682054813676.shtml)
+- 2026-06-30 06:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/4047027.shtml)
+- 2026-06-30 06:31 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/8078155.shtml)
+- 2026-06-30 06:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/82369705691.shtml)

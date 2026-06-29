@@ -1,54 +1,56 @@
-# 蔚来-SW盘中涨超8% 机构料2026公司全年销量有望持续上行
+# 张之臻错失两个赛点 止步ATP1000罗马站首轮
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-蔚来-SW（09866）盘中涨超8%，截至发稿，股价上涨7.19%，现报51.75港元，成交额1.23亿港元。 4月28日，蔚来旗下智能双舱大五座旗舰SUV乐道L80开启预售。整车购买24.58万元起，采用BaaS电池租用方式购买15.98万元起。将于5月15日正式上市。 中泰证券此前指出，公司2026年将推出多款新车，全年新品周期强势。考虑到乐道L90及蔚来ES8分别于202
+北京时间5月6日，2026年ATP1000罗马站正赛拉开帷幕，张之臻在首轮1∶2负于德国选手阿尔特迈尔。 第一盘：张之臻开局进入状态很快，快速破发并保持比赛到第一盘结束。以6∶4先拿一盘。 第二盘：张之臻错失两个赛点后，抢七被对手逆转。 第三盘：张之臻以4∶6不敌对手。最终，张之臻以1∶2负于阿尔特迈尔，止步ATP1000罗马站首轮。
 
 ## 正文
 
-蔚来-SW（09866）盘中涨超8%，截至发稿，股价上涨7.19%，现报51.75港元，成交额1.23亿港元。
+北京时间5月6日，2026年ATP1000罗马站正赛拉开帷幕，张之臻在首轮1∶2负于德国选手阿尔特迈尔。
 
-4月28日，蔚来旗下智能双舱大五座旗舰SUV乐道L80开启预售。
+第一盘：张之臻开局进入状态很快，快速破发并保持比赛到第一盘结束。
 
-整车购买24.58万元起，采用BaaS电池租用方式购买15.98万元起。
+以6∶4先拿一盘。
 
-将于5月15日正式上市。
+第二盘：张之臻错失两个赛点后，抢七被对手逆转。
 
-中泰证券此前指出，公司2026年将推出多款新车，全年新品周期强势。
+第三盘：张之臻以4∶6不敌对手。
 
-考虑到乐道L90及蔚来ES8分别于2025年7月及2025年9月上市，并未全年销售，两款产品也有望在2026年贡献更多销量增量，2026公司全年销量有望持续上行。
-
-责任编辑：卢昱君
+最终，张之臻以1∶2负于阿尔特迈尔，止步ATP1000罗马站首轮。
 
 ## 相关推荐
 
-- 2026-06-30 06:25 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 06:33 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 06:34 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 06:25 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-30 06:13 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 06:20 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 06:41 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 06:21 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 06:25 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-30 06:39 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 06:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 06:27 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 06:24 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 06:36 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 06:24 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 06:30 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 06:21 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 06:46 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 06:31 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 06:34 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 06:27 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 06:46 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 06:19 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 06:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:38 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/274942975650.shtml)
-- 2026-06-30 06:24 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/6246734653.shtml)
-- 2026-06-30 06:25 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/615954612216.shtml)
-- 2026-06-30 06:28 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/35330987728.shtml)
-- 2026-06-30 06:33 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/26363.shtml)
-- 2026-06-30 06:32 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/353238819.shtml)
-- 2026-06-30 06:41 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/5711656239.shtml)
-- 2026-06-30 06:21 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/52238597.shtml)
-- 2026-06-30 06:20 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/09192470018.shtml)
-- 2026-06-30 06:21 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/069133.shtml)
-- 2026-06-30 06:29 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/75504629.shtml)
-- 2026-06-30 06:41 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/57106274668.shtml)
-- 2026-06-30 06:23 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/135973.shtml)
-- 2026-06-30 06:20 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/311308576374.shtml)
-- 2026-06-30 06:33 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/855093.shtml)
+- 2026-06-30 06:24 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/894373545.shtml)
+- 2026-06-30 06:38 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/89295576547.shtml)
+- 2026-06-30 06:32 - [刘宇宁高情商化解谁站C位](http://www.blog.kurohicncr.top/Article/details/15741773.shtml)
+- 2026-06-30 06:26 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/46339904.shtml)
+- 2026-06-30 06:37 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/90303871667.shtml)
+- 2026-06-30 06:35 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/33273.shtml)
+- 2026-06-30 06:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/8998137.shtml)
+- 2026-06-30 06:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/313464562.shtml)
+- 2026-06-30 06:42 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/3723713472.shtml)
+- 2026-06-30 06:33 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/608492339565.shtml)
+- 2026-06-30 06:27 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/896292736.shtml)
+- 2026-06-30 06:32 - [世界杯](http://www.blog.kurohicncr.top/Article/details/60266.shtml)
+- 2026-06-30 06:43 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/812608941.shtml)
+- 2026-06-30 06:43 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/6774957.shtml)
+- 2026-06-30 06:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/126178860.shtml)

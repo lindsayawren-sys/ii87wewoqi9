@@ -1,50 +1,58 @@
-# 预计伊朗很快将提交修订后的和平提议
+# AMD营收及业绩指引均超预期，股价暴涨16%
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-CNN援引接近调解进程的消息人士报道称，巴基斯坦的调解方预计将在未来几天收到伊朗为结束战争而提出的修订版方案。 伊朗外长阿巴斯·阿拉格齐在访问俄罗斯后定于今日返回德黑兰，预计将与政权高层进行磋商。 由于与行踪保密的最高领袖穆杰塔巴·哈梅内伊沟通存在困难，磋商进展缓慢。责任编辑：李桐
+专题：聚焦美股2026年第一季度财报 核心要点 超威半导体于周二发布一季度财报，业绩全线超出市场预期；受人工智能芯片需求激增拉动，公司营收展望同样超越分析师预估。 该股周三盘中大涨 16%。 以下为截至 3 月底的一季度业绩，对比路孚特市场一致预期： 公司在周二发布的公告中表示，营收较去年同期 74.44 亿美元同比增长 38%；数据中心业务营收从上年同期 36.7 亿美元增至
 
 ## 正文
 
-CNN援引接近调解进程的消息人士报道称，巴基斯坦的调解方预计将在未来几天收到伊朗为结束战争而提出的修订版方案。
+专题：聚焦美股2026年第一季度财报 核心要点 超威半导体于周二发布一季度财报，业绩全线超出市场预期；受人工智能芯片需求激增拉动，公司营收展望同样超越分析师预估。
 
-伊朗外长阿巴斯·阿拉格齐在访问俄罗斯后定于今日返回德黑兰，预计将与政权高层进行磋商。
+该股周三盘中大涨 16%。
 
-由于与行踪保密的最高领袖穆杰塔巴·哈梅内伊沟通存在困难，磋商进展缓慢。
+以下为截至 3 月底的一季度业绩，对比路孚特市场一致预期： 公司在周二发布的公告中表示，营收较去年同期 74.44 亿美元同比增长 38%；数据中心业务营收从上年同期 36.7 亿美元增至 58 亿美元，同比大涨 57%。
 
-责任编辑：李桐
+一季度净利润升至 13.8 亿美元，折合每股收益 0.84 美元；去年同期净利润为 7.09 亿美元，每股收益 0.44 美元。
+
+据路孚特数据，AMD 预计第二季度营收约 112 亿美元，市场预期为 105.2 亿美元。
+
+AMD 首席执行官苏姿丰在声明中表示，数据中心业务现已成为公司营收和盈利增长的核心驱动力。
+
+她指出：“展望未来，随着我们扩大产能以匹配市场需求，服务器业务增速将显著加快。
+
+” 在财报电话会议事先准备发言稿中，苏姿丰称，公司愈发坚信明年数据中心 AI 业务营收有望达成数百亿美元规模，并有望在未来数年突破 80% 的长期增长目标。
 
 ## 相关推荐
 
-- 2026-06-30 06:34 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-30 06:22 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-30 06:12 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 06:14 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 06:37 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-30 06:24 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 06:39 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 06:19 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 06:13 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 06:41 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 06:22 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 06:13 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 06:25 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 06:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 06:43 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 06:20 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 06:38 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 06:25 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 06:42 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 06:19 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 06:35 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 06:30 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 06:41 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 06:35 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/6787462123.shtml)
-- 2026-06-30 06:41 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/91910.shtml)
-- 2026-06-30 06:12 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/5988556530.shtml)
-- 2026-06-30 06:40 - [沉睡花园](https://www.share.minike.top/Article/details/822521408.shtml)
-- 2026-06-30 06:22 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/21746468.shtml)
-- 2026-06-30 06:25 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/0639485622.shtml)
-- 2026-06-30 06:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/966726.shtml)
-- 2026-06-30 06:39 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/872854669.shtml)
-- 2026-06-30 06:18 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/3896403617.shtml)
-- 2026-06-30 06:27 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/59655.shtml)
-- 2026-06-30 06:38 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/097825050982.shtml)
-- 2026-06-30 06:20 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/351503679482.shtml)
-- 2026-06-30 06:38 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/793222163118.shtml)
-- 2026-06-30 06:31 - [我们的少年时代2](https://www.blog.minike.top/Article/details/112427.shtml)
-- 2026-06-30 06:17 - [沙丘](http://www.blog.kurohicncr.top/Article/details/979631854260.shtml)
+- 2026-06-30 06:30 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/91354527520.shtml)
+- 2026-06-30 06:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/816956712.shtml)
+- 2026-06-30 06:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/22440134683.shtml)
+- 2026-06-30 06:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/178025.shtml)
+- 2026-06-30 06:41 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/87961510.shtml)
+- 2026-06-30 06:33 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/04771.shtml)
+- 2026-06-30 06:29 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/6369001.shtml)
+- 2026-06-30 06:24 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/5566729851.shtml)
+- 2026-06-30 06:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/56518230.shtml)
+- 2026-06-30 06:32 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/102067.shtml)
+- 2026-06-30 06:46 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/7884972.shtml)
+- 2026-06-30 06:34 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/11075.shtml)
+- 2026-06-30 06:21 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/190675005.shtml)
+- 2026-06-30 06:42 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/384872834.shtml)
+- 2026-06-30 06:39 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/693174201246.shtml)

@@ -1,61 +1,60 @@
-# 一季度全国规模以上文化及相关产业企业营业收入增长6.4%
+# 中方敦促欧方取消对中国产品的不公平、歧视性做法
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网4月29日电 据国家统计局网站消息，据对全国8.2万家规模以上文化及相关产业企业(以下简称“文化企业”)调查，2026年一季度，文化企业实现营业收入35569亿元，按可比口径计算，比上年同期增长6.4%。其中，文化新业态特征较为明显的16个行业小类实现营业收入16782亿元，比上年同期增长11.2%，快于全部规模以上文化企业4.8个百分点。分产业类型看，文化制造业实现营业
+中新社北京5月7日电 (记者 尹倩芸)就欧盟禁止对使用中国逆变器项目提供资金支持相关问题，中国商务部新闻发言人7日表示，中方敦促欧方立即停止对中国的污名化行为，取消对中国产品的不公平、歧视性做法。 据媒体报道，有欧盟官员称，对于使用中国等“高风险国家”逆变器的项目，欧盟将禁止提供资金支持。 发言人称，欧方在没有任何实际证据的情况下，首次将中国划定为所谓“高风险国家”，并以此为由
 
 ## 正文
 
-中新网4月29日电 据国家统计局网站消息，据对全国8.2万家规模以上文化及相关产业企业(以下简称“文化企业”)调查，2026年一季度，文化企业实现营业收入35569亿元，按可比口径计算，比上年同期增长6.4%。
+中新社北京5月7日电 (记者 尹倩芸)就欧盟禁止对使用中国逆变器项目提供资金支持相关问题，中国商务部新闻发言人7日表示，中方敦促欧方立即停止对中国的污名化行为，取消对中国产品的不公平、歧视性做法。
 
-其中，文化新业态特征较为明显的16个行业小类实现营业收入16782亿元，比上年同期增长11.2%，快于全部规模以上文化企业4.8个百分点。
+据媒体报道，有欧盟官员称，对于使用中国等“高风险国家”逆变器的项目，欧盟将禁止提供资金支持。
 
-分产业类型看，文化制造业实现营业收入8830亿元，比上年同期增长1.5%；文化批发和零售业6024亿元，增长2.6%；文化服务业20715亿元，增长9.9%。
+发言人称，欧方在没有任何实际证据的情况下，首次将中国划定为所谓“高风险国家”，并以此为由禁止对使用中国逆变器的项目提供资金支持，这是对中国的污名化行为，且对中国产品构成不公平、歧视性待遇。
 
-分领域看，文化核心领域实现营业收入25193亿元，比上年同期增长9.2%；文化相关领域10377亿元，增长0.2%。
+中方拒绝接受，并坚决反对。
 
-分行业类别看，新闻信息服务实现营业收入5198亿元，比上年同期增长10.3%；内容创作生产8412亿元，增长10.7%；创意设计服务6771亿元，增长12.0%；文化传播渠道4253亿元，增长1.4%；文化投资运营115亿元，增长9.1%；文化娱乐休闲服务443亿元，增长8.3%；文化辅助生产和中介服务3615亿元，增长1.3%；文化装备生产1513亿元，增长3.2%；文化消费终端生产5249亿元，下降1.5%。
+发言人表示，欧盟将中国划定为“高风险国家”，将影响中欧互信，破坏双边经贸合作，不利于中欧乃至全球产供链稳定，甚至带来“脱钩断链”的风险。
 
-分区域看，东部地区文化企业实现营业收入28917亿元，比上年同期增长6.9%；中部地区3754亿元，增长3.8%；西部地区2605亿元，增长6.4%；东北地区293亿元，下降8.3%。
+欧盟强行采取措施排挤中国产品，违背市场规律和公平原则，不仅损害中国企业利益，更将反噬自身，影响欧盟绿色转型和能源安全。
 
-一季度，文化企业实现利润总额2572亿元，比上年同期下降5.6%；营业收入利润率为7.23%，比上年同期下降0.92个百分点。
+发言人强调，中方敦促欧方立即停止将中国列为“高风险国家”的污名化行为，取消对中国产品的不公平、歧视性做法。
 
-一季度末，文化企业资产总计229829亿元，比上年同期增长8.1%；每百元资产实现营业收入为61.9元，同比减少1.0元。
+中方将密切关注，并认真评估欧方政策对中国企业利益和中欧产供链的影响，将采取措施维护中国企业正当合法权益。
 
 ## 相关推荐
 
-- 2026-06-30 06:27 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 06:35 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 06:27 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-30 06:27 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-30 06:35 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 06:39 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 06:34 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 06:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 06:30 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 06:12 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-30 06:19 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 06:29 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 06:37 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 06:20 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 06:30 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 06:34 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 06:18 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 06:30 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 06:23 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 06:26 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 06:44 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 06:38 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 06:33 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 06:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 06:30 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 06:38 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 06:33 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 06:47 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 06:37 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:41 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/176053322346.shtml)
-- 2026-06-30 06:16 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/3993218.shtml)
-- 2026-06-30 06:41 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/79473.shtml)
-- 2026-06-30 06:24 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/716154489194.shtml)
-- 2026-06-30 06:29 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/399093825706.shtml)
-- 2026-06-30 06:37 - [扫黑风暴](https://www.blog.minike.top/Article/details/321075.shtml)
-- 2026-06-30 06:17 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/65060.shtml)
-- 2026-06-30 06:41 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/60463463093.shtml)
-- 2026-06-30 06:34 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/862209965122.shtml)
-- 2026-06-30 06:21 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/2381439674.shtml)
-- 2026-06-30 06:25 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/504072148.shtml)
-- 2026-06-30 06:29 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/69077.shtml)
-- 2026-06-30 06:12 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/237546195969.shtml)
-- 2026-06-30 06:25 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/148921447200.shtml)
-- 2026-06-30 06:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/0231226760.shtml)
+- 2026-06-30 06:38 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/69436.shtml)
+- 2026-06-30 06:40 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/6545065.shtml)
+- 2026-06-30 06:46 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/80413.shtml)
+- 2026-06-30 06:47 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/47602228.shtml)
+- 2026-06-30 06:24 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/199373915.shtml)
+- 2026-06-30 06:27 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/42306.shtml)
+- 2026-06-30 06:24 - [逃狱兄弟](https://www.blog.minike.top/Article/details/930874344.shtml)
+- 2026-06-30 06:42 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/532992005.shtml)
+- 2026-06-30 06:36 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/3976861290.shtml)
+- 2026-06-30 06:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/456713754822.shtml)
+- 2026-06-30 06:41 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/520775593576.shtml)
+- 2026-06-30 06:33 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/62424298.shtml)
+- 2026-06-30 06:29 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/18342178373.shtml)
+- 2026-06-30 06:37 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/1465695811.shtml)
+- 2026-06-30 06:27 - [速度与激情9](http://www.blog.minike.top/Article/details/69577696321.shtml)

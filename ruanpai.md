@@ -1,61 +1,60 @@
-# “债市一姐”刘郁告别华西证券，拟转任兴业证券固收首席
+# 小众稀有剧 亮相大舞台（感知文化里的中国）
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月29日，有消息称，华西证券原首席经济学家兼研究所副所长刘郁已离职，中国证券协会官网的证券从业系统已经查不到其信息。这位在固收研究领域享有“债市一姐”声誉的明星分析师，在加盟华西证券仅两年后再度选择新平台，其动向引发市场高度关注。 中国证券报记者经多方核实了解到，刘郁确已从华西证券离职，其下一站拟转任兴业
+在中华戏曲百花园中，稀有剧种虽然不为大部分人所熟知，却承载着戏曲艺术的基因密码与地域文化的鲜活记忆。中共中央宣传部等5部门联合印发的《戏剧振兴三年行动计划（2026—2028年）》指出，“加大稀有、濒危戏曲剧种人才培养力度”“支持弱小剧种恢复整理传统剧目”。作为中国戏剧家协会“稀有剧种保护传承项目”帮扶剧种，福建邵武三角戏、河南邓州罗卷戏等实现复排、展演，让观众在古朴与新颖交织
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+在中华戏曲百花园中，稀有剧种虽然不为大部分人所熟知，却承载着戏曲艺术的基因密码与地域文化的鲜活记忆。
 
-4月29日，有消息称，华西证券原首席经济学家兼研究所副所长刘郁已离职，中国证券协会官网的证券从业系统已经查不到其信息。
+中共中央宣传部等5部门联合印发的《戏剧振兴三年行动计划（2026—2028年）》指出，“加大稀有、濒危戏曲剧种人才培养力度”“支持弱小剧种恢复整理传统剧目”。
 
-这位在固收研究领域享有“债市一姐”声誉的明星分析师，在加盟华西证券仅两年后再度选择新平台，其动向引发市场高度关注。
+作为中国戏剧家协会“稀有剧种保护传承项目”帮扶剧种，福建邵武三角戏、河南邓州罗卷戏等实现复排、展演，让观众在古朴与新颖交织、古老却鲜活的观感中，体会到稀有剧种保护与传承的深远意义。
 
-中国证券报记者经多方核实了解到，刘郁确已从华西证券离职，其下一站拟转任兴业证券固收首席分析师。
+——编 者 福建邵武三角戏建立表演人才梯队 古韵稀声迎来青春之音 本报记者 施 钰 福建省邵武市古城路，小公园前围满了观众——邵武市三角戏（傩舞）民俗文化研究中心（以下简称“民研中心”）的演员们正在开展公益性惠民演出。
 
-公开资料显示，刘郁系复旦大学经济学博士，拥有多年固收研究经验。
+伴着锣鼓的节奏，何志璇迈着小碎步亮相，演的是传统剧目《雇长工》，讲述了地主女儿秀英冲破阻碍，与长工结为连理的故事。
 
-在加入华西证券前，刘郁先后在国泰君安、招商证券、国盛证券及广发证券等券商研究所任职。
+“这就是我小时候看的三角戏。
 
-2024年3月，刘郁高调加盟华西证券，出任首席经济学家兼研究所副所长，被市场视为华西证券强化研究实力，尤其是在固收领域寻求突破的关键举措。
+”唱腔、道白有韵味，观众连连叫好。
 
-刘郁此次职业转换的两端——华西证券与兴业证券，在2025年及2026年一季度的业绩表现均呈现显著增长态势。
+邵武三角戏起源于明清时期，演出时大多只有生、旦、丑3个角色，且台位调度呈三角形，因而得名。
 
 ## 相关推荐
 
-- 2026-06-30 06:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 06:26 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 06:29 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 06:31 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 06:40 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 06:28 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 06:38 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 06:40 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 06:22 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 06:36 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 06:32 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 06:13 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 06:35 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 06:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 06:40 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 06:38 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 06:23 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 06:21 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 06:37 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 06:19 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 06:18 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 06:29 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 06:44 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 06:44 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 06:27 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 06:34 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 06:31 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 06:47 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 06:25 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/53235213.shtml)
-- 2026-06-30 06:35 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/700429677921.shtml)
-- 2026-06-30 06:17 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/076212385.shtml)
-- 2026-06-30 06:23 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/5775547812.shtml)
-- 2026-06-30 06:33 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/47106.shtml)
-- 2026-06-30 06:39 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/649076728.shtml)
-- 2026-06-30 06:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/80548.shtml)
-- 2026-06-30 06:34 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/84161897161.shtml)
-- 2026-06-30 06:29 - [斛珠夫人](https://www.share.minike.top/Article/details/03370.shtml)
-- 2026-06-30 06:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/27344900919.shtml)
-- 2026-06-30 06:30 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/4718512.shtml)
-- 2026-06-30 06:23 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/754026841.shtml)
-- 2026-06-30 06:16 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/12469312.shtml)
-- 2026-06-30 06:41 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/80154371949.shtml)
-- 2026-06-30 06:19 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/057076.shtml)
+- 2026-06-30 06:19 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/72162182.shtml)
+- 2026-06-30 06:42 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/811058.shtml)
+- 2026-06-30 06:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/47441081.shtml)
+- 2026-06-30 06:24 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/50450163612.shtml)
+- 2026-06-30 06:21 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/658795003.shtml)
+- 2026-06-30 06:18 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/642602.shtml)
+- 2026-06-30 06:22 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/835894.shtml)
+- 2026-06-30 06:19 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/630594.shtml)
+- 2026-06-30 06:46 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/54147.shtml)
+- 2026-06-30 06:25 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/04819431.shtml)
+- 2026-06-30 06:18 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/2805713947.shtml)
+- 2026-06-30 06:26 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/38046721.shtml)
+- 2026-06-30 06:31 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/7663116.shtml)
+- 2026-06-30 06:40 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/24850.shtml)
+- 2026-06-30 06:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/3629042492.shtml)

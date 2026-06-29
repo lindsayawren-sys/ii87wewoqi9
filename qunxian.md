@@ -1,59 +1,57 @@
-# 索尼在英国胜诉：法院裁定历史协议有效
+# 从蚕桑剥茧到机器人互动 外国游客“一程多站”感受多彩中国
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-伦敦高等法院周二作出裁决，索尼音乐娱乐公司在与吉米·亨德里克斯体验乐队已故成员遗产管理方的版权诉讼中获胜。这场备受瞩目的官司围绕《Are You Experienced》等三张经典1960年代专辑的表演者权展开，如果原告胜诉，可能为音乐产业带来连锁反应。 核心争议：历史协议是否涵盖流媒体 吉他手诺埃尔·雷丁和鼓手米奇·米切尔于1966年与亨德里克斯共同组建乐队，三人合作推出了《
+今年“五一”假期，入境游也持续升温，越来越多外国游客感受到中国的多彩魅力。 在线旅游平台数据显示，这个“五一”假期，上海、北京、广州、深圳等核心城市仍是外国游客的首选目的地，同时三亚、揭阳等城市外国游客量同比增长1.1倍，太原、常州、昆明等城市同比增幅均超过三成。 越来越多外国游客的足迹向“小城深度游”延伸。在浙江绍兴上虞区，多国游客深入乡村观摩蚕桑剥茧工艺，体验传统竹编、叶雕
 
 ## 正文
 
-伦敦高等法院周二作出裁决，索尼音乐娱乐公司在与吉米·亨德里克斯体验乐队已故成员遗产管理方的版权诉讼中获胜。
+今年“五一”假期，入境游也持续升温，越来越多外国游客感受到中国的多彩魅力。
 
-这场备受瞩目的官司围绕《Are You Experienced》等三张经典1960年代专辑的表演者权展开，如果原告胜诉，可能为音乐产业带来连锁反应。
+在线旅游平台数据显示，这个“五一”假期，上海、北京、广州、深圳等核心城市仍是外国游客的首选目的地，同时三亚、揭阳等城市外国游客量同比增长1.1倍，太原、常州、昆明等城市同比增幅均超过三成。
 
-核心争议：历史协议是否涵盖流媒体 吉他手诺埃尔·雷丁和鼓手米奇·米切尔于1966年与亨德里克斯共同组建乐队，三人合作推出了《Are You Experienced》、《Axis： Bold As Love》和《Electric Ladyland》三张录音室专辑。
+越来越多外国游客的足迹向“小城深度游”延伸。
 
-这些作品不仅开创了迷幻摇滚时代，也让亨德里克斯在1970年去世前成为摇滚巨星。
+在浙江绍兴上虞区，多国游客深入乡村观摩蚕桑剥茧工艺，体验传统竹编、叶雕等非遗技艺，走进科技创新基地，与具身智能机器人互动，“一程多站”体验中国传统韵味与前沿科技。
 
-雷丁于2003年去世，米切尔于2008年去世。
+秘鲁游客 艾利克斯：这种感觉就像置身未来世界，中国的科技发展实在太快了，我都不知道接下来还会有什么新惊喜。
 
-两人的遗产管理方将可能拥有的权利转让给两家公司，后者于2022年起诉索尼，主张对这三张专辑的音像版权和表演者权拥有份额。
+政策与服务升级 入境旅游产品持续丰富 这个“五一”假期，入境旅游产品持续丰富，工业游、研学游等特色旅游产品也不断涌现，加上政策与服务升级，让外国游客“中国游”“中国购”愈发顺畅。
 
-他们声称，乐队成员在1967年左右达成口头协议，收益按亨德里克斯50%、雷丁和米切尔各25%的比例分配。
+在海南，环岛高铁串联起12个主要市县，铁路部门主动对接旅行社，优化入境团队票务办理流程，并增设多语种翻译服务，外籍旅客出行量显著增加。
 
-原告律师指出，1960年代和1970年代签署的协议“发生在互联网彻底改变音乐产业之前”，不能自动延伸到流媒体等“根本不同”的数字利用方式。
+自今年4月起，广东、福建实现离境退税“即买即退”跨区域互认，在两省，境外旅客不再受购物地点限制，可选择任一离境退税口岸办理业务。
 
 ## 相关推荐
 
-- 2026-06-30 06:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 06:29 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 06:36 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 06:20 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 06:14 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 06:15 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 06:16 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 06:28 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 06:35 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 06:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 06:34 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-30 06:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 06:35 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 06:44 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 06:18 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 06:36 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 06:36 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 06:34 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 06:33 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 06:22 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 06:42 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 06:19 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 06:35 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 06:39 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:37 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/942794430601.shtml)
-- 2026-06-30 06:41 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/307161945915.shtml)
-- 2026-06-30 06:16 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/487286076.shtml)
-- 2026-06-30 06:20 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/35512500.shtml)
-- 2026-06-30 06:33 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/242413.shtml)
-- 2026-06-30 06:18 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/3585502.shtml)
-- 2026-06-30 06:28 - [天道](http://www.blog.minike.top/Article/details/0741410.shtml)
-- 2026-06-30 06:33 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/24542245683.shtml)
-- 2026-06-30 06:31 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/623499522.shtml)
-- 2026-06-30 06:26 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/28651604.shtml)
-- 2026-06-30 06:24 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/546668.shtml)
-- 2026-06-30 06:15 - [世界杯](https://www.blog.minike.top/Article/details/80010138204.shtml)
-- 2026-06-30 06:16 - [时光音乐会](https://www.blog.minike.top/Article/details/30264.shtml)
-- 2026-06-30 06:33 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/924910258.shtml)
-- 2026-06-30 06:34 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/983337090113.shtml)
+- 2026-06-30 06:37 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/7153670097.shtml)
+- 2026-06-30 06:22 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/332010899.shtml)
+- 2026-06-30 06:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/7833226185.shtml)
+- 2026-06-30 06:27 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/24150868.shtml)
+- 2026-06-30 06:46 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/8080865180.shtml)
+- 2026-06-30 06:28 - [巴西扳平比分](https://www.blog.minike.top/Article/details/017284040.shtml)
+- 2026-06-30 06:32 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/4428988.shtml)
+- 2026-06-30 06:25 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/87871471.shtml)
+- 2026-06-30 06:30 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/82647912840.shtml)
+- 2026-06-30 06:18 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/6960074.shtml)
+- 2026-06-30 06:43 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/15180927.shtml)
+- 2026-06-30 06:25 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/00360.shtml)
+- 2026-06-30 06:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/943781013.shtml)
+- 2026-06-30 06:34 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/5822752.shtml)
+- 2026-06-30 06:40 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/102399356.shtml)

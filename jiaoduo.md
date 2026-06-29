@@ -1,57 +1,56 @@
-# 山东省知联会“山东知联讲堂”活动举办
+# 中国海外发展早盘涨超5% 花旗现予目标价14.20港元
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网济南4月29日电(王采怡)山东省党外知识分子联谊会(以下简称山东省知联会)29日在山东省社会主义学院举办2026年第一期“山东知联讲堂”活动。山东省政协副主席、山东省知联会会长刘均刚，山东省委统战部副部长、山东省社会主义学院党组书记、第一副院长孙传尚出席活动。山东省委统战部副部长、山东省知联会常务副会长孙中亮主持活动。 本次活动邀请无党派人士、山东省知联会常务理事、神思电
+中国海外发展（00688）早盘涨超5%，截至发稿，股价上涨5.15%，现报14.71港元，成交额5.55亿港元。 近日，中国海外发展发布2026年第一季度业绩，收入为人民币370.4亿元，经营溢利为人民币41.1亿元。期内，该集团连同其联营公司及合营公司实现合约物业销售额人民币515.2亿元，同比上升11%，相应销售面积为182万平方米。集团在中国内地两个城市和中国香港新增三幅
 
 ## 正文
 
-中新网济南4月29日电(王采怡)山东省党外知识分子联谊会(以下简称山东省知联会)29日在山东省社会主义学院举办2026年第一期“山东知联讲堂”活动。
+中国海外发展（00688）早盘涨超5%，截至发稿，股价上涨5.15%，现报14.71港元，成交额5.55亿港元。
 
-山东省政协副主席、山东省知联会会长刘均刚，山东省委统战部副部长、山东省社会主义学院党组书记、第一副院长孙传尚出席活动。
+近日，中国海外发展发布2026年第一季度业绩，收入为人民币370.4亿元，经营溢利为人民币41.1亿元。
 
-山东省委统战部副部长、山东省知联会常务副会长孙中亮主持活动。
+期内，该集团连同其联营公司及合营公司实现合约物业销售额人民币515.2亿元，同比上升11%，相应销售面积为182万平方米。
 
-本次活动邀请无党派人士、山东省知联会常务理事、神思电子技术股份有限公司首席科学家闵万里，作题为《人工智能推动产业链价值重构与能级跃迁的实践探索》的辅导报告。
+集团在中国内地两个城市和中国香港新增三幅土地，新增土地储备权益建筑面积为13万平方米，权益地价为人民币21.3亿元。
 
-闵万里作为产业AI的先行者，结合自身工作经历，系统阐释了人工智能从“技术变量”转化为“产业增量”的底层逻辑与行动路径，深刻剖析了当前数智化转型中“数据、算力、算法”三座孤岛的深层矛盾，详细讲述了AI重构生产关系、催生系统性变革的生动实践，并向与会者分享了以精准融合推动产业链能级跃迁的实践经验，以及基于行业经验开发专家智能体用于实战的案例等。
+花旗发布研报称，对中国海外发展（00688）开启30日正面催化因素观察，因公司去年的土地收购金额为行业最高，在15个城市投入924亿元人民币。
 
-山东省社会主义学院部分领导班子成员，山东省知联会理事会、监事会成员，山东省第二十五期党外领导干部进修班暨第十一期党外中青年领导干部培训班和山东省无党派代表人士培训班全体学员等，共220余人参加活动。
+该行现予目标价14.2港元及“买入”评级。
 
-山东省知联会“山东知联讲堂”活动，聚焦支持无党派人士、党外知识分子开展主题教育，以凝聚共识、展示风采、激发活力为宗旨，以无党派代表人士现身说法、互学互鉴为主要方式，引导广大无党派人士、党外知识分子发扬“自觉、自主、自为”精神，继承弘扬“与党同心、爱国为民、精诚合作、敬业奉献”的优良传统，为助推山东省经济社会高质量发展集聚智慧力量。
+公司今年首季销售强劲，达511亿元人民币，同比增长11%。
 
-(完)
+该行预期在3月强劲销售后，次季销售将持续强劲。
 
 ## 相关推荐
 
-- 2026-06-30 06:15 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 06:18 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 06:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-30 06:32 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 06:39 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 06:37 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 06:35 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 06:12 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 06:21 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 06:13 - [点菜也要教吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 06:31 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 06:34 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 06:39 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 06:44 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 06:42 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 06:29 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 06:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 06:28 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 06:36 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 06:30 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 06:18 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:12 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/769644690890.shtml)
-- 2026-06-30 06:30 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/45968062.shtml)
-- 2026-06-30 06:26 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/6671611191.shtml)
-- 2026-06-30 06:25 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/715012.shtml)
-- 2026-06-30 06:33 - [《共患难》](https://www.share.kurohicncr.top/Article/details/255918774420.shtml)
-- 2026-06-30 06:24 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/153559591738.shtml)
-- 2026-06-30 06:25 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/38911559.shtml)
-- 2026-06-30 06:29 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/912371634.shtml)
-- 2026-06-30 06:40 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/97789472.shtml)
-- 2026-06-30 06:17 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/23697476725.shtml)
-- 2026-06-30 06:26 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/7837516.shtml)
-- 2026-06-30 06:18 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/268171668.shtml)
-- 2026-06-30 06:33 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/26960710.shtml)
-- 2026-06-30 06:15 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/130838462277.shtml)
-- 2026-06-30 06:31 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/154890778707.shtml)
+- 2026-06-30 06:21 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/61311.shtml)
+- 2026-06-30 06:30 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/771506.shtml)
+- 2026-06-30 06:23 - [小娘惹](http://www.blog.minike.top/Article/details/30129655.shtml)
+- 2026-06-30 06:19 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/1819734.shtml)
+- 2026-06-30 06:31 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/551227088990.shtml)
+- 2026-06-30 06:29 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/3719243.shtml)
+- 2026-06-30 06:46 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/5439497839.shtml)
+- 2026-06-30 06:36 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/64800918.shtml)
+- 2026-06-30 06:42 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/55261611.shtml)
+- 2026-06-30 06:18 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/9395188422.shtml)
+- 2026-06-30 06:43 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/4069689.shtml)
+- 2026-06-30 06:33 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/7674101550.shtml)
+- 2026-06-30 06:28 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/51640648.shtml)
+- 2026-06-30 06:39 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/94037211.shtml)
+- 2026-06-30 06:40 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/82488.shtml)

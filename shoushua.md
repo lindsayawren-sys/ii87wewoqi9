@@ -1,53 +1,57 @@
-# 南京银行周文凯：持续拓宽客群基础 强化产业生态合作
+# 美元兑日元汇率大跌，干预传闻四起，美伊协议乐观情绪升温
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-4月29日金融一线消息，南京银行今日召开2025年度暨2026年一季度业绩说明会。副行长周文凯表示，南京银行始终坚守金融服务实体经济初心，扎根地方发展，赋能产业转型升级，以务实举措践行好银行发展理念，稳步实现自身高质量可持续发展。 周文凯表示，2026年作为全新五年规划起步之年，南京银行重点落实五项工作举措：持续深化产业研究，依托南京研究院，聚焦重点产业赛道，落实一区域一产业一
+周三，美元兑大多数主要货币走低。此前美国释放信号，或即将与伊朗达成协议；与此同时，日元兑美元汇率突然飙升至两个多月来新高，市场预期日本当局或将再度入市干预。 日元早盘一度大涨 1.8%，推动美元兑日元跌至 155 的日内低点，创 2 月 24 日以来最弱水平。早盘美元曾普遍走强，但随后兑日元突然下挫，引发新一轮干预猜测。 日本财务大臣片山皋月本周稍早警告，警惕外汇市场投机行为。
 
 ## 正文
 
-4月29日金融一线消息，南京银行今日召开2025年度暨2026年一季度业绩说明会。
+周三，美元兑大多数主要货币走低。
 
-副行长周文凯表示，南京银行始终坚守金融服务实体经济初心，扎根地方发展，赋能产业转型升级，以务实举措践行好银行发展理念，稳步实现自身高质量可持续发展。
+此前美国释放信号，或即将与伊朗达成协议；与此同时，日元兑美元汇率突然飙升至两个多月来新高，市场预期日本当局或将再度入市干预。
 
-周文凯表示，2026年作为全新五年规划起步之年，南京银行重点落实五项工作举措：持续深化产业研究，依托南京研究院，聚焦重点产业赛道，落实一区域一产业一策略；持续拓宽客群基础，依托客户倍增计划及专项行动，开展场景化、生态化获客；持续研发特色金融产品，丰富企业全生命周期服务工具箱；持续升级线上服务平台，完善对公系统建设，打造数字化综合服务体系；持续强化产业生态合作，联动创投机构、产业平台、科研院所，构建多元协同格局。
+日元早盘一度大涨 1.8%，推动美元兑日元跌至 155 的日内低点，创 2 月 24 日以来最弱水平。
 
-责任编辑：张文
+早盘美元曾普遍走强，但随后兑日元突然下挫，引发新一轮干预猜测。
+
+日本财务大臣片山皋月本周稍早警告，警惕外汇市场投机行为。
+
+此前日元短暂急涨，市场猜测东京当局已再度出手支撑日元。
+
+“我多次强调，我们将依据去年日美两国签署的声明，对外汇市场投机行为采取果断措施。
+
+” 片山皋月在乌兹别克斯坦出席亚洲开发银行年会后对记者表示。
 
 ## 相关推荐
 
-- 2026-06-30 06:32 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 06:18 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 06:20 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-30 06:40 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 06:20 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 06:23 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 06:30 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 06:21 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 06:35 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-30 06:13 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-30 06:23 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 06:15 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-30 06:31 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-30 06:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 06:18 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 06:47 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 06:28 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 06:20 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 06:22 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 06:43 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 06:22 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 06:28 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 06:27 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 06:24 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 06:46 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 06:24 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:22 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/34203816940.shtml)
-- 2026-06-30 06:31 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/27865330036.shtml)
-- 2026-06-30 06:28 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/565793174947.shtml)
-- 2026-06-30 06:12 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/43676214.shtml)
-- 2026-06-30 06:20 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/551447593.shtml)
-- 2026-06-30 06:32 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/373101620.shtml)
-- 2026-06-30 06:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/2344632.shtml)
-- 2026-06-30 06:33 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/3583694.shtml)
-- 2026-06-30 06:15 - [一见倾心](http://www.share.minike.top/Article/details/3855907.shtml)
-- 2026-06-30 06:20 - [周生如故](https://www.blog.minike.top/Article/details/22224574477.shtml)
-- 2026-06-30 06:15 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/610169.shtml)
-- 2026-06-30 06:12 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/91809881.shtml)
-- 2026-06-30 06:22 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/97117.shtml)
-- 2026-06-30 06:18 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/419761.shtml)
-- 2026-06-30 06:31 - [速度与激情9](http://www.blog.minike.top/Article/details/6648182.shtml)
+- 2026-06-30 06:28 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/8871770104.shtml)
+- 2026-06-30 06:34 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/38028783.shtml)
+- 2026-06-30 06:42 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/573788360.shtml)
+- 2026-06-30 06:19 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/30920.shtml)
+- 2026-06-30 06:28 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/0662685.shtml)
+- 2026-06-30 06:20 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/804880225853.shtml)
+- 2026-06-30 06:25 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/93927.shtml)
+- 2026-06-30 06:37 - [扬名立万](https://www.share.kurohicncr.top/Article/details/27032707806.shtml)
+- 2026-06-30 06:28 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/021714.shtml)
+- 2026-06-30 06:42 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/98709871912.shtml)
+- 2026-06-30 06:25 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/70291.shtml)
+- 2026-06-30 06:26 - [毒液2](https://www.blog.minike.top/Article/details/28168094.shtml)
+- 2026-06-30 06:24 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/66662.shtml)
+- 2026-06-30 06:26 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/63366707031.shtml)
+- 2026-06-30 06:42 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/2168887.shtml)

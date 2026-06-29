@@ -1,56 +1,57 @@
-# Moneta Markets亿汇:黄金长期上行趋势仍未结束
+# 谷歌向欧盟提交整改方案，寻求避免新闻搜索案罚款
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-4月29日，国际机构对黄金的中长期看涨立场依然坚定。Moneta Markets亿汇表示，尽管短期金价回调至4600美元附近，但主要投行对2026年底黄金价格预期普遍维持乐观区间。摩根大通最新报告将年终目标价上调至6300美元/盎司，法国巴黎银行预计均价5620美元，德国商业银行看至5000美元，麦格理则相对保守给出4323美元的预测，机构观点存在分歧但整体偏多。 从结构性因素
+谷歌已向欧盟委员会提交提案，寻求修改其搜索引擎的新闻结果展示方式，以避免因潜在的违反《数字市场法案》行为而面临罚款。 据知情人士透露，谷歌近期提交的方案旨在解决监管机构对其“网站信誉滥用”政策的担忧。欧盟此前调查认为，该政策可能不公正地降级了那些包含商业合作伙伴广告或内容的新闻出版商网页。作为整改核心，谷歌提议调整其反垃圾政策，可能允许新闻网站在不面临搜索排名降级风险的情况下，
 
 ## 正文
 
-4月29日，国际机构对黄金的中长期看涨立场依然坚定。
+谷歌已向欧盟委员会提交提案，寻求修改其搜索引擎的新闻结果展示方式，以避免因潜在的违反《数字市场法案》行为而面临罚款。
 
-Moneta Markets亿汇表示，尽管短期金价回调至4600美元附近，但主要投行对2026年底黄金价格预期普遍维持乐观区间。
+据知情人士透露，谷歌近期提交的方案旨在解决监管机构对其“网站信誉滥用”政策的担忧。
 
-摩根大通最新报告将年终目标价上调至6300美元/盎司，法国巴黎银行预计均价5620美元，德国商业银行看至5000美元，麦格理则相对保守给出4323美元的预测，机构观点存在分歧但整体偏多。
+欧盟此前调查认为，该政策可能不公正地降级了那些包含商业合作伙伴广告或内容的新闻出版商网页。
 
-从结构性因素看，全球货币体系再平衡仍在持续。
+作为整改核心，谷歌提议调整其反垃圾政策，可能允许新闻网站在不面临搜索排名降级风险的情况下，托管来自第三方广告商的特定内容。
 
-Moneta Markets亿汇认为，全球央行连续多年保持净购金趋势，美元资产替代性需求上升，加之主要经济体债务扩张未现拐点，使得贵金属作为终极价值储存工具的角色更为突出。
+若该方案能获得市场竞争对手及欧盟监管机构的批准，谷歌将有望避免被正式裁定违规，并免于根据《数字市场法案》处以全球年营业额10%的高额罚款。
 
-世界银行报告显示，金银价格虽面临短期天花板，但中长期仍受货币贬值担忧与避险需求驱动。
+欧盟委员会目前正就相关提议征询各方反馈意见，尚未作出最终决定。
 
-从交易层面看，黄金当前回调空间相对有限。
+目前，谷歌因各类欧盟竞争案件累积的罚款总额已高达约95亿欧元。
 
-短期波动主要受美联储政策预期及美元强势影响，但深度回调位的买盘支撑较为扎实，4500美元一线被多家投行视为关键中期支撑位。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 06:39 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 06:14 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 06:19 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 06:20 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 06:12 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 06:29 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 06:17 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 06:34 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 06:14 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 06:21 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-30 06:34 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 06:23 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 06:46 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 06:28 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 06:20 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 06:42 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 06:34 - [内马尔替补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 06:46 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 06:41 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 06:39 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 06:26 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:38 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/8687381675.shtml)
-- 2026-06-30 06:29 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/5314634.shtml)
-- 2026-06-30 06:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/970467310009.shtml)
-- 2026-06-30 06:41 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/686051.shtml)
-- 2026-06-30 06:24 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/0344110716.shtml)
-- 2026-06-30 06:17 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/98287735602.shtml)
-- 2026-06-30 06:16 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/59022.shtml)
-- 2026-06-30 06:33 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/1903577.shtml)
-- 2026-06-30 06:30 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/98273134692.shtml)
-- 2026-06-30 06:23 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/2454210250.shtml)
-- 2026-06-30 06:18 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/62577554903.shtml)
-- 2026-06-30 06:32 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/097290760566.shtml)
-- 2026-06-30 06:27 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/26014034912.shtml)
-- 2026-06-30 06:35 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/08932.shtml)
-- 2026-06-30 06:29 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/976526970.shtml)
+- 2026-06-30 06:40 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/1636994.shtml)
+- 2026-06-30 06:47 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/50986780232.shtml)
+- 2026-06-30 06:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/637127667.shtml)
+- 2026-06-30 06:38 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/32605475030.shtml)
+- 2026-06-30 06:29 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/72168112657.shtml)
+- 2026-06-30 06:31 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/43760.shtml)
+- 2026-06-30 06:31 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/348263111507.shtml)
+- 2026-06-30 06:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/52836569693.shtml)
+- 2026-06-30 06:41 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/20810789207.shtml)
+- 2026-06-30 06:38 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/47827414.shtml)
+- 2026-06-30 06:18 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/046832691.shtml)
+- 2026-06-30 06:31 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/533743285617.shtml)
+- 2026-06-30 06:24 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/84934266838.shtml)
+- 2026-06-30 06:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/158858.shtml)
+- 2026-06-30 06:35 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/729716843.shtml)

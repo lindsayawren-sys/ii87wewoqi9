@@ -1,56 +1,54 @@
-# 2025年资产证券化发展报告
+# 欧洲债市：英国30年期国债收益率创1998年以来新高
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-◇ 作者：中央结算公司中债研发中心李劼杜通 ◇ 本文原载《债券》2026年3月刊 摘 要 我国“十五五”规划将资产证券化（ABS）写入其中，提出要稳步发展ABS。本文梳理了2025年我国ABS市场的监管动态、运行情况，分析了业务发展动向，针对市场发展现状和面临的问题，建议认真落实“十五五”规划要求，围绕金融“五篇大文章”做优增量，积极服务实体经济，精准支持重点领域，充分发挥AB
+英国市场在公共假期后重新开市，英国国债大跌，追随周一全球债券市场的跌势，推动长期国债收益率升至1998年以来最高水平。 30年期国债收益率一度上升13个基点至5.78%，为1998年以来最高，随后涨幅有所收窄；10年期收益率也重新升至5%以上。 美国长期收益率同样处于高位，30年期收益率在周一于今年以来首次突破关键的5%水平后，目前徘徊在该水平附近。 交易员上调了对英国央行今年
 
 ## 正文
 
-◇ 作者：中央结算公司中债研发中心李劼杜通 ◇ 本文原载《债券》2026年3月刊 摘 要 我国“十五五”规划将资产证券化（ABS）写入其中，提出要稳步发展ABS。
+英国市场在公共假期后重新开市，英国国债大跌，追随周一全球债券市场的跌势，推动长期国债收益率升至1998年以来最高水平。
 
-本文梳理了2025年我国ABS市场的监管动态、运行情况，分析了业务发展动向，针对市场发展现状和面临的问题，建议认真落实“十五五”规划要求，围绕金融“五篇大文章”做优增量，积极服务实体经济，精准支持重点领域，充分发挥ABS市场功能。
+30年期国债收益率一度上升13个基点至5.78%，为1998年以来最高，随后涨幅有所收窄；10年期收益率也重新升至5%以上。
 
-关键词 资产证券化信贷ABS绿色ABS金融“五篇大文章” 2025年，我国资产证券化（ABS）市场全年发行各类产品（不含不动产投资信托基金）约为2.28万亿元，年末存量规模约为4.01万亿元；不动产投资信托基金（REITs）全年发行473.28亿元，年末市场存量为2151.03亿元1。
+美国长期收益率同样处于高位，30年期收益率在周一于今年以来首次突破关键的5%水平后，目前徘徊在该水平附近。
 
-市场运行平稳，发行规模有所上升，产品继续呈现创新和多元化发展。
+交易员上调了对英国央行今年加息的预期，利率互换显示年底前将累计加息约70个基点，其中6月会议已计入15个基点。
 
-融资租赁债权ABS发行规模领跑，不良贷款ABS发行增速较快，绿色ABS产品创新不断深化。
+欧元区债券上涨，主要由短端领涨，此前布伦特原油价格在周一剧烈波动后回落至约111美元。
 
-ABS市场发挥自身优势，对服务实体经济、盘活存量资产、优化资源配置起到了积极作用。
+市场： 德国债券收益率下降2个基点，至3.06%； 意大利10年期国债收益率跌8个基点，至3.86%； 意大利与德国国债利差收窄6个基点，至80个基点； 法国10年期国债收益率下降5个基点，至3.71%； 10年期英国国债收益率上涨10个基点，至5.06%。
 
-监管动态 （一）支持金融“五篇大文章”领域信贷ABS业务 2025年3月，国务院办公厅印发《关于做好金融“五篇大文章”的指导意见》，要求到2027年，金融“五篇大文章”发展取得显著成效，重大战略、重点领域和薄弱环节的融资可得性和金融产品服务供需适配度持续提升。
-
-其中第十一条“充分发挥债券市场融资功能”提出，“支持金融机构开展金融‘五篇大文章’领域信贷ABS业务”。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 06:18 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 06:33 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 06:13 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 06:25 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 06:16 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 06:28 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-30 06:12 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 06:40 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 06:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 06:16 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 06:44 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 06:21 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 06:22 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 06:29 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 06:21 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 06:26 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 06:40 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 06:27 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 06:19 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 06:20 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:28 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/04904470472.shtml)
-- 2026-06-30 06:15 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/45272.shtml)
-- 2026-06-30 06:32 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/20536.shtml)
-- 2026-06-30 06:34 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/58068571711.shtml)
-- 2026-06-30 06:18 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/60952268.shtml)
-- 2026-06-30 06:20 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/633574686.shtml)
-- 2026-06-30 06:32 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/06782791.shtml)
-- 2026-06-30 06:25 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/798692725626.shtml)
-- 2026-06-30 06:20 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/730673380.shtml)
-- 2026-06-30 06:32 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/6568152592.shtml)
-- 2026-06-30 06:35 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/8322135.shtml)
-- 2026-06-30 06:32 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/26370430371.shtml)
-- 2026-06-30 06:22 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/973603.shtml)
-- 2026-06-30 06:25 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/32465695065.shtml)
-- 2026-06-30 06:14 - [速度与激情9](http://www.share.minike.top/Article/details/982001094293.shtml)
+- 2026-06-30 06:28 - [日本领先巴西](https://www.share.minike.top/Article/details/007668920.shtml)
+- 2026-06-30 06:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/8923664.shtml)
+- 2026-06-30 06:38 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/5125110657.shtml)
+- 2026-06-30 06:47 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/642700155.shtml)
+- 2026-06-30 06:21 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/77659.shtml)
+- 2026-06-30 06:30 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/64916.shtml)
+- 2026-06-30 06:37 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/53897.shtml)
+- 2026-06-30 06:20 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/424683488.shtml)
+- 2026-06-30 06:34 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/2671754.shtml)
+- 2026-06-30 06:37 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/947114267.shtml)
+- 2026-06-30 06:36 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/86041617.shtml)
+- 2026-06-30 06:40 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/8094084.shtml)
+- 2026-06-30 06:27 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/275926070.shtml)
+- 2026-06-30 06:18 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/192354.shtml)
+- 2026-06-30 06:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/5329973.shtml)

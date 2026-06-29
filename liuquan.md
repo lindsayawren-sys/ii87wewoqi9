@@ -1,59 +1,47 @@
-# 传承“老工匠”精神，发挥“新阶层”作用 这个艺术街区谱写统战工作新篇章
+# 特朗普称暂停“自由计划”行动
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-这个由老工业基地蜕变而来的全国实践创新基地，正以其独特的“双向赋能”模式，谱写着新时代统战工作的生动篇章。 在安徽省合肥市瑶海区长江东路180号，粗犷的钢铁骨架、斑驳的砖墙与明快的现代玻璃幕墙交错共生。这里曾是轰鸣的恒通机械厂老厂房，如今是潮人聚集的长江180艺术街区。 变化的不仅是空间，更是一群人身份的转变：从“统战对象”到“统战力量”。这个由老工业基地蜕变而来的全国实践创新
+美东时间5日傍晚，美国总统特朗普在社交媒体发文，称“疏导”霍尔木兹海峡船舶通行的“自由计划”将在短期内暂停。(央视新闻客户端)
 
 ## 正文
 
-这个由老工业基地蜕变而来的全国实践创新基地，正以其独特的“双向赋能”模式，谱写着新时代统战工作的生动篇章。
+美东时间5日傍晚，美国总统特朗普在社交媒体发文，称“疏导”霍尔木兹海峡船舶通行的“自由计划”将在短期内暂停。
 
-在安徽省合肥市瑶海区长江东路180号，粗犷的钢铁骨架、斑驳的砖墙与明快的现代玻璃幕墙交错共生。
-
-这里曾是轰鸣的恒通机械厂老厂房，如今是潮人聚集的长江180艺术街区。
-
-变化的不仅是空间，更是一群人身份的转变：从“统战对象”到“统战力量”。
-
-这个由老工业基地蜕变而来的全国实践创新基地，正以其独特的“双向赋能”模式，谱写着新时代统战工作的生动篇章。
-
-空间再造：让老厂房“活起来” 恒通机械厂是一座始建于20世纪的老军工厂。
-
-它曾代表着“敬业、精益、专注、创新”的工匠精神，是城市工业记忆的厚重注脚。
-
-随着时代变迁，机器的轰鸣逐渐沉寂。
+(央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-30 06:32 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 06:33 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 06:17 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 06:18 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 06:37 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 06:16 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 06:33 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 06:29 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 06:33 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 06:24 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 06:35 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 06:15 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 06:18 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 06:37 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 06:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 06:34 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 06:39 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-30 06:34 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 06:47 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 06:41 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 06:45 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 06:23 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 06:44 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 06:35 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 06:44 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 06:39 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:27 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/9750803089.shtml)
-- 2026-06-30 06:18 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/71193634.shtml)
-- 2026-06-30 06:27 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/1897326031.shtml)
-- 2026-06-30 06:19 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/815244719.shtml)
-- 2026-06-30 06:26 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/67837.shtml)
-- 2026-06-30 06:37 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/9341179103.shtml)
-- 2026-06-30 06:36 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/31228773668.shtml)
-- 2026-06-30 06:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/661224430.shtml)
-- 2026-06-30 06:19 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/37997.shtml)
-- 2026-06-30 06:37 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/144847502643.shtml)
-- 2026-06-30 06:39 - [金刚川](http://www.share.minike.top/Article/details/43834599808.shtml)
-- 2026-06-30 06:17 - [千香](https://www.share.kurohicncr.top/Article/details/670165.shtml)
-- 2026-06-30 06:22 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/195866.shtml)
-- 2026-06-30 06:13 - [森保一 保守](https://www.blog.minike.top/Article/details/25578119808.shtml)
-- 2026-06-30 06:27 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/473392.shtml)
+- 2026-06-30 06:35 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/07645.shtml)
+- 2026-06-30 06:45 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/1765420.shtml)
+- 2026-06-30 06:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/101845916.shtml)
+- 2026-06-30 06:31 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/25771655.shtml)
+- 2026-06-30 06:44 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/02398125.shtml)
+- 2026-06-30 06:44 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/60963591.shtml)
+- 2026-06-30 06:31 - [千香](https://www.share.minike.top/Article/details/012962615450.shtml)
+- 2026-06-30 06:25 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/4859045587.shtml)
+- 2026-06-30 06:45 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/913509.shtml)
+- 2026-06-30 06:26 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/3888527084.shtml)
+- 2026-06-30 06:40 - [斗破苍穹](https://www.share.minike.top/Article/details/6152116402.shtml)
+- 2026-06-30 06:18 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/29778.shtml)
+- 2026-06-30 06:36 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/835520.shtml)
+- 2026-06-30 06:27 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/1203028.shtml)
+- 2026-06-30 06:38 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/117803.shtml)

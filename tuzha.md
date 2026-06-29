@@ -1,60 +1,59 @@
-# 交通运输部：“五一”假期 全社会跨区域人员流动量将创历史新高
+# 宜美智历经21期超长辅导收入确认仍存瑕疵 销售数据与客户采购数据出入较大
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-今天，交通运输部举行新闻发布会，交通运输部运输服务司副司长高博介绍，“五一”假期，全社会跨区域人员流动量将创历史同期新高。 “五一”假期，全社会跨区域人员流动量预计将达15.2亿人次，日均3.04亿人次，同比增长4%。假期首日人流车流将创历史同期新高。预计5月1日全社会跨区域人员流动量将达3.44亿人次，同比增长3.3%；高速公路车流量将达到7000万辆，同比增长3.5%。 假
+登录新浪财经APP 搜索【信披】查看更多考评等级 出品：新浪财经上市公司研究院 作者：渚 4月1日，深圳宜美智科技股份有限公司（下称“宜美智”或“公司”）首次向联交所主板提交上市申请，中金公司及招商证券国际担任联席保荐人。 在此之前，宜美智曾尝试在A股上市，历时5年完成21期超长辅导。但截至最后一期辅导，宜美智对验收单等收入确认单据的日常管理仍存在瑕疵，部分验收单据不符合要求。
 
 ## 正文
 
-今天，交通运输部举行新闻发布会，交通运输部运输服务司副司长高博介绍，“五一”假期，全社会跨区域人员流动量将创历史同期新高。
+登录新浪财经APP 搜索【信披】查看更多考评等级 出品：新浪财经上市公司研究院 作者：渚 4月1日，深圳宜美智科技股份有限公司（下称“宜美智”或“公司”）首次向联交所主板提交上市申请，中金公司及招商证券国际担任联席保荐人。
 
-“五一”假期，全社会跨区域人员流动量预计将达15.2亿人次，日均3.04亿人次，同比增长4%。
+在此之前，宜美智曾尝试在A股上市，历时5年完成21期超长辅导。
 
-假期首日人流车流将创历史同期新高。
+但截至最后一期辅导，宜美智对验收单等收入确认单据的日常管理仍存在瑕疵，部分验收单据不符合要求。
 
-预计5月1日全社会跨区域人员流动量将达3.44亿人次，同比增长3.3%；高速公路车流量将达到7000万辆，同比增长3.5%。
+此外，宜美智多处租赁物业存在合规瑕疵，包括尚未向当地房屋管理主管部门办理租赁协议备案、尚未获出租方提供相关的产权证、实际用途与物业产权证所列的指定用途不符。
 
-假期期间，公路出行占主导。
+主营业务方面，宜美智披露的销售数据与客户披露的采购数据存在较大出入，信息披露的准确性、真实性待考。
 
-预计假期期间公路人员流动量占比将达91.6%，全国高速公路日均车流量约6400万辆。
+例如，2023年红板科技曾向宜美智采购机器设备7844.25万元。
 
-其中日均新能源车约1540万辆，占比24%，同比增长33%。
+而宜美智2023年来自最大客户的收入仅为2620.3万元，远低于红板科技同期向宜美智的采购额。
 
-此外，铁路、民航保持高位运行。
+历经21期超长辅导收入确认仍存瑕疵 宜美智成立于2008年，致力于半导体、PCB及IC基板领域的光学技术及机器视觉的智能研发。
 
 ## 相关推荐
 
-- 2026-06-30 06:40 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 06:41 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 06:39 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 06:26 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 06:23 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 06:40 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 06:22 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 06:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 06:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 06:28 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 06:32 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 06:24 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 06:15 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 06:33 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 06:46 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 06:21 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 06:47 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 06:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 06:44 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 06:42 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 06:21 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 06:45 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 06:27 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 06:32 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 06:46 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 06:26 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 06:19 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:33 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/114768528235.shtml)
-- 2026-06-30 06:20 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/9637455328.shtml)
-- 2026-06-30 06:28 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/04579264.shtml)
-- 2026-06-30 06:14 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/95394816132.shtml)
-- 2026-06-30 06:32 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/7298443303.shtml)
-- 2026-06-30 06:24 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/78709335.shtml)
-- 2026-06-30 06:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/5249677328.shtml)
-- 2026-06-30 06:41 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/961737850.shtml)
-- 2026-06-30 06:41 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/689299.shtml)
-- 2026-06-30 06:29 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/821082894980.shtml)
-- 2026-06-30 06:29 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/934616.shtml)
-- 2026-06-30 06:12 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/959512.shtml)
-- 2026-06-30 06:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/27158.shtml)
-- 2026-06-30 06:25 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/43643.shtml)
-- 2026-06-30 06:22 - [恋与深空 日服](http://www.share.minike.top/Article/details/03543.shtml)
+- 2026-06-30 06:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/03609597.shtml)
+- 2026-06-30 06:35 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/253321.shtml)
+- 2026-06-30 06:18 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/54441652.shtml)
+- 2026-06-30 06:44 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/991650.shtml)
+- 2026-06-30 06:36 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/59370537612.shtml)
+- 2026-06-30 06:29 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/242194.shtml)
+- 2026-06-30 06:20 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/5558980.shtml)
+- 2026-06-30 06:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/67040222.shtml)
+- 2026-06-30 06:37 - [第一炉香](http://www.share.kurohicncr.top/Article/details/522645.shtml)
+- 2026-06-30 06:35 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/08679.shtml)
+- 2026-06-30 06:24 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/2348705507.shtml)
+- 2026-06-30 06:41 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/521664014482.shtml)
+- 2026-06-30 06:39 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/2152184897.shtml)
+- 2026-06-30 06:27 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/680466740.shtml)
+- 2026-06-30 06:43 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/33213763829.shtml)

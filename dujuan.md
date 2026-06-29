@@ -1,59 +1,55 @@
-# 中国平安一季度归母营运利润增7.6%，8年长期服务计划购股金额超300亿元
+# 发生工伤，是否都需要劳动能力鉴定？人社部解答
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-4月28日，中国平安（601318.SH，02318.HK）公布2026年一季报。一季度，中国平安实现营业收入2384.77亿元，同比下降7.1%；归母营运利润407.80亿元，同比增长7.6%；归母净利润250.22亿元，同比下降7.4%。 其中，在寿险方面，2026年第一季度，平安寿险及健康险业务实现归母营业利润296.96亿元，同比增长6.43%，新业务价值达成155.7
+中新网5月7日电 发生工伤，是否都需要劳动能力鉴定？人社部5月7日通过官方微信公众号作出解答。具体如下： 《工伤保险条例》第二十一条规定：“职工发生工伤，经治疗伤情相对稳定后存在残疾、影响劳动能力的，应当进行劳动能力鉴定。”也就是说，只有当职工因工致残、影响劳动能力时，才应当进行劳动能力鉴定。 如果职工只是受到轻微伤害，并不影响劳动能力，则无须进行劳动能力鉴定。
 
 ## 正文
 
-4月28日，中国平安（601318.SH，02318.HK）公布2026年一季报。
+中新网5月7日电 发生工伤，是否都需要劳动能力鉴定？
 
-一季度，中国平安实现营业收入2384.77亿元，同比下降7.1%；归母营运利润407.80亿元，同比增长7.6%；归母净利润250.22亿元，同比下降7.4%。
+人社部5月7日通过官方微信公众号作出解答。
 
-其中，在寿险方面，2026年第一季度，平安寿险及健康险业务实现归母营业利润296.96亿元，同比增长6.43%，新业务价值达成155.74亿元，同比增长20.8%；新业务首年保费增长45.5%。
+具体如下： 《工伤保险条例》第二十一条规定：“职工发生工伤，经治疗伤情相对稳定后存在残疾、影响劳动能力的，应当进行劳动能力鉴定。
 
-另外，银保渠道、社区金融服务及其他等渠道对平安寿险新业务价值的贡献占比同比提升6.8个百分点。
+”也就是说，只有当职工因工致残、影响劳动能力时，才应当进行劳动能力鉴定。
 
-在产险业务方面，2026年第一季度，平安产险原保险保费收入909.51亿元，同比增长6.8%。
-
-其中，新能源车业务原保险保费收入同比提升16.1%；非机动车辆保险原保险保费收入375.14亿元，同比增长19.5%。
-
-保险服务收入843.34亿元，同比增长3.9%。
-
-财产险实现归母营业利润28.15亿元，同比下滑13.41%。
+如果职工只是受到轻微伤害，并不影响劳动能力，则无须进行劳动能力鉴定。
 
 ## 相关推荐
 
-- 2026-06-30 06:22 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 06:12 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 06:21 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 06:38 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 06:23 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 06:25 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 06:40 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 06:38 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 06:36 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 06:22 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 06:14 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 06:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 06:23 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 06:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 06:43 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 06:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 06:28 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 06:21 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 06:46 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 06:22 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 06:40 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 06:28 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 06:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-30 06:22 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 06:20 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 06:44 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 06:34 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 06:30 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:16 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/1364192.shtml)
-- 2026-06-30 06:23 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/55412625473.shtml)
-- 2026-06-30 06:36 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/6112821302.shtml)
-- 2026-06-30 06:40 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/07312.shtml)
-- 2026-06-30 06:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/90629.shtml)
-- 2026-06-30 06:26 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/7128375718.shtml)
-- 2026-06-30 06:35 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/758796545.shtml)
-- 2026-06-30 06:16 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/24201311859.shtml)
-- 2026-06-30 06:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/000294782082.shtml)
-- 2026-06-30 06:27 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/664126.shtml)
-- 2026-06-30 06:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/00228649028.shtml)
-- 2026-06-30 06:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/7711448099.shtml)
-- 2026-06-30 06:24 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/067211.shtml)
-- 2026-06-30 06:17 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/003970211308.shtml)
-- 2026-06-30 06:31 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/48852.shtml)
+- 2026-06-30 06:36 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/06880208331.shtml)
+- 2026-06-30 06:23 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/01266.shtml)
+- 2026-06-30 06:20 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/19235023.shtml)
+- 2026-06-30 06:32 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/93914707.shtml)
+- 2026-06-30 06:27 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/786577.shtml)
+- 2026-06-30 06:39 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/0426163710.shtml)
+- 2026-06-30 06:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/94715741784.shtml)
+- 2026-06-30 06:18 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/037134.shtml)
+- 2026-06-30 06:39 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/9653549941.shtml)
+- 2026-06-30 06:37 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/68543.shtml)
+- 2026-06-30 06:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/3834159691.shtml)
+- 2026-06-30 06:28 - [扬名立万](http://www.share.kurohicncr.top/Article/details/839370867348.shtml)
+- 2026-06-30 06:44 - [安切洛蒂 换人](http://www.blog.kurohicncr.top/Article/details/12173098.shtml)
+- 2026-06-30 06:22 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/5040635435.shtml)
+- 2026-06-30 06:18 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/612869829799.shtml)

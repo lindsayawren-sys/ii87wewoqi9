@@ -1,60 +1,57 @@
-# 380亿美元天价罚单之后，谁是下一个苹果？
+# Anthropic在消费级市场发力 提升Claude聊天机器人对普通用户吸引力
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网北京4月29日电 从被追缴巨额税款的大众汽车，到深陷合规纠纷的亚马逊，再到遭遇税收指控的起亚汽车，印度对外资的“收割”早已屡见不鲜。而此次苹果遭遇的380亿美元天价罚单，更成为了一场系统性围猎的里程碑——印度对跨国巨头的收割愈发肆无忌惮。当背靠美国、实力雄厚的苹果都难以在规则的随意变动中全身而退，一个尖锐的问题浮出水面：380亿美元天价罚单之后，谁会成为下一个被瞄准的“苹
+人工智能初创公司Anthropic PBC最初将其Claude聊天机器人的目标客户锁定在企业，如今则寻求乘着近期在消费者市场取得进展的东风，提升该软件对普通用户的吸引力。 该公司实验室团队的联合负责人Mike Krieger称，自去年底以来，Anthropic就要求员工改进聊天机器人处理个人咨询的方式，比如有关健康、旅行和食谱的问题。 在旧金山一场公司会议的间隙，Krieger
 
 ## 正文
 
-中新网北京4月29日电 从被追缴巨额税款的大众汽车，到深陷合规纠纷的亚马逊，再到遭遇税收指控的起亚汽车，印度对外资的“收割”早已屡见不鲜。
+人工智能初创公司Anthropic PBC最初将其Claude聊天机器人的目标客户锁定在企业，如今则寻求乘着近期在消费者市场取得进展的东风，提升该软件对普通用户的吸引力。
 
-而此次苹果遭遇的380亿美元天价罚单，更成为了一场系统性围猎的里程碑——印度对跨国巨头的收割愈发肆无忌惮。
+该公司实验室团队的联合负责人Mike Krieger称，自去年底以来，Anthropic就要求员工改进聊天机器人处理个人咨询的方式，比如有关健康、旅行和食谱的问题。
 
-当背靠美国、实力雄厚的苹果都难以在规则的随意变动中全身而退，一个尖锐的问题浮出水面：380亿美元天价罚单之后，谁会成为下一个被瞄准的“苹果”？
+在旧金山一场公司会议的间隙，Krieger表示Anthropic专注于提升聊天机器人的“质量、完善度和性能”。
 
-科技领域，三星、小米等智能手机巨头首当其冲。
+这包括缩短用户打开移动应用后向Claude发起询问所需的时间。
 
-作为全球智能手机市场的核心玩家，三星与小米在印度的布局深度丝毫不逊色于苹果。
+“今天，我们把这个时间从五六秒缩短到了一秒左右，” Krieger在周三的一次采访中说。
 
-据全球权威科技调研机构 IDC、Counterpoint统计数据显示，2025年三星与小米合计占据印度智能手机市场近27%的份额；其中三星市场占有率约15%，小米占比约12%，两项数据均稳步高于苹果9%的市场份额。
+为满足对其软件日益增长的需求，Anthropic周三还宣布与马斯克的SpaceX签署一项算力协议。
 
-与苹果一样，它们均投入巨额资金在印度布局生产线、搭建供应链，深度绑定“印度制造”战略。
+协议条款未予披露。
 
-更值得警惕的是，据印度竞争委员会(CCI)2024年9月发布的反垄断调查报告显示，CCI早已对三星、小米等头部手机厂商启动反垄断调查。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 06:38 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-30 06:26 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 06:32 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 06:40 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 06:26 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 06:35 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 06:23 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 06:12 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-30 06:24 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 06:41 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 06:32 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 06:18 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 06:18 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 06:38 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 06:44 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 06:44 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 06:31 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 06:24 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 06:22 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 06:45 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 06:41 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 06:33 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 06:42 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 06:21 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 06:30 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:41 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/12022240191.shtml)
-- 2026-06-30 06:23 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/524003539049.shtml)
-- 2026-06-30 06:37 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/6401233281.shtml)
-- 2026-06-30 06:38 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/51461858.shtml)
-- 2026-06-30 06:13 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/581781954.shtml)
-- 2026-06-30 06:30 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/07778091571.shtml)
-- 2026-06-30 06:12 - [一生一世](http://www.blog.minike.top/Article/details/53774032.shtml)
-- 2026-06-30 06:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/537235517.shtml)
-- 2026-06-30 06:14 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/01416.shtml)
-- 2026-06-30 06:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/951391.shtml)
-- 2026-06-30 06:32 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/03006958925.shtml)
-- 2026-06-30 06:17 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/483594305931.shtml)
-- 2026-06-30 06:26 - [扫黑风暴](https://www.blog.minike.top/Article/details/197853578.shtml)
-- 2026-06-30 06:24 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/07925862418.shtml)
-- 2026-06-30 06:32 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/206668768.shtml)
+- 2026-06-30 06:26 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/667701.shtml)
+- 2026-06-30 06:39 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/454291.shtml)
+- 2026-06-30 06:21 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/77341294.shtml)
+- 2026-06-30 06:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/1166681.shtml)
+- 2026-06-30 06:30 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/371454.shtml)
+- 2026-06-30 06:43 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/56997573073.shtml)
+- 2026-06-30 06:26 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/441300614.shtml)
+- 2026-06-30 06:34 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/7625615.shtml)
+- 2026-06-30 06:43 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/259264200199.shtml)
+- 2026-06-30 06:25 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/20706.shtml)
+- 2026-06-30 06:31 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/8998685646.shtml)
+- 2026-06-30 06:43 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/959585694968.shtml)
+- 2026-06-30 06:44 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/38923504.shtml)
+- 2026-06-30 06:33 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/79383914730.shtml)
+- 2026-06-30 06:26 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/6842875817.shtml)

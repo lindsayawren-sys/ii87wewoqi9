@@ -1,53 +1,60 @@
-# 黄河流域今年汛期预计旱涝并重
+# 中国银行牵头华平投资20亿元人民币银团贷款落地
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新社郑州4月29日电 (记者 阚力)据中国水利部黄河水利委员会(以下简称黄委)29日消息，预计今年黄河流域汛期气候状况总体偏差，降水时空分布不均，旱涝并重，区域性、阶段性旱涝风险较高。 据黄河流域气象中心预测，预计今年汛期龙羊峡以上、中游中东部、下游降水偏多，其中源头、中游东部和下游大部分地区偏多二至三成，流域其他大部分地区偏少零至二成。降水集中时段出现在7月中旬中期、7月下
+来源：中国银行 近日，中国银行作为独家牵头行，成功筹组美国华平投资集团（Warburg Pincus）超20亿元人民币跨境银团贷款。本次资金用于支持华平集团投资新质生产力数字科技企业。 近年来，中国银行以跨境投融资为切入点，精准对接境内优质资产与离岸人民币资金，在拓宽中国企业融资渠道的同时，持续助力全球领先投资机构在华投资布局。 本次跨境银团的落地，是中国银行依托全球网络布局优
 
 ## 正文
 
-中新社郑州4月29日电 (记者 阚力)据中国水利部黄河水利委员会(以下简称黄委)29日消息，预计今年黄河流域汛期气候状况总体偏差，降水时空分布不均，旱涝并重，区域性、阶段性旱涝风险较高。
+来源：中国银行 近日，中国银行作为独家牵头行，成功筹组美国华平投资集团（Warburg Pincus）超20亿元人民币跨境银团贷款。
 
-据黄河流域气象中心预测，预计今年汛期龙羊峡以上、中游中东部、下游降水偏多，其中源头、中游东部和下游大部分地区偏多二至三成，流域其他大部分地区偏少零至二成。
+本次资金用于支持华平集团投资新质生产力数字科技企业。
 
-降水集中时段出现在7月中旬中期、7月下旬中后期至8月上旬前期、8月中旬中后期。
+近年来，中国银行以跨境投融资为切入点，精准对接境内优质资产与离岸人民币资金，在拓宽中国企业融资渠道的同时，持续助力全球领先投资机构在华投资布局。
 
-流域大部气温偏高，其中黄河中游南部、下游地区高温日数偏多明显。
+本次跨境银团的落地，是中国银行依托全球网络布局优势、发挥集团境内外机构高效联动的又一成功实践。
 
-黄委方面称，今年汛期黄河流域需密切注意防范区域性、阶段性强降水及其引发的中小河流洪水风险；要紧盯局地强对流天气，做好城市内涝、山洪、地质灾害等次生灾害应对；要防范台风暴雨灾害对流域中下游地区的不利影响；要关注中下游地区高温天气影响，警惕可能出现的区域性、阶段性干旱风险。
+中国银行澳门分子行担任独家牵头行，统筹完成方案设计、跨区域协调与全流程管理，成功组建银团，实现人民币资金的跨境流动与高效配置。
 
-(完)
+这一举措在满足优质企业市场化融资需求的同时，也为境外投资者提供了以人民币计价的优质资产标的。
+
+该项目作为中国银行服务产业基金、推进人民币跨境使用的标杆案例，在多个领域起到了良好的示范作用： 树立行业标杆：项目为国际投资者参与人民币投融资提供了可参考标杆，对提升人民币资产的全球吸引力具有积极推动作用； 赋能区域发展：此次合作为澳门特别行政区政府推动产业基金发展、促进经济适度多元提供了可复制、可实践的实践范例，有力支持了澳门特区高质量发展； 服务国家战略：本项目契合金融“五篇大文章”导向，通过引入离岸人民币“活水”赋能境内科创企业，进一步拓展了人民币在跨境融资领域的应用场景。
+
+中国银行将继续发挥跨境金融专业优势，深耕人民币跨境使用关键场景，持续以高质量金融服务助力高水平对外开放。
 
 ## 相关推荐
 
-- 2026-06-30 06:15 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 06:24 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 06:39 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 06:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 06:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 06:28 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 06:20 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 06:40 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 06:19 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-30 06:16 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 06:38 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 06:36 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 06:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 06:39 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 06:26 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 06:31 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 06:28 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 06:26 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 06:40 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 06:32 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 06:44 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 06:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 06:23 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 06:31 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 06:42 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:32 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/371385462589.shtml)
-- 2026-06-30 06:13 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/3831954398.shtml)
-- 2026-06-30 06:13 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/325575389467.shtml)
-- 2026-06-30 06:32 - [恋与深空制作组回应近期争议](https://www.blog.kurohicncr.top/Article/details/70326959983.shtml)
-- 2026-06-30 06:38 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/9693892419.shtml)
-- 2026-06-30 06:22 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/833388505.shtml)
-- 2026-06-30 06:13 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/226222020.shtml)
-- 2026-06-30 06:32 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/70175966390.shtml)
-- 2026-06-30 06:12 - [锐评T1零封KC](https://www.share.minike.top/Article/details/696592654.shtml)
-- 2026-06-30 06:30 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/454815062.shtml)
-- 2026-06-30 06:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/53049356.shtml)
-- 2026-06-30 06:40 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/818802153.shtml)
-- 2026-06-30 06:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/49319266.shtml)
-- 2026-06-30 06:24 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/33243.shtml)
-- 2026-06-30 06:21 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/4863818.shtml)
+- 2026-06-30 06:39 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/18763610675.shtml)
+- 2026-06-30 06:42 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/1483628432.shtml)
+- 2026-06-30 06:32 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/53443902300.shtml)
+- 2026-06-30 06:18 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/47351239.shtml)
+- 2026-06-30 06:45 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/09319340.shtml)
+- 2026-06-30 06:35 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/7344319440.shtml)
+- 2026-06-30 06:20 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/691364822.shtml)
+- 2026-06-30 06:43 - [勇敢的心第二部](https://www.share.minike.top/Article/details/997845.shtml)
+- 2026-06-30 06:32 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/664340.shtml)
+- 2026-06-30 06:31 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/1307710.shtml)
+- 2026-06-30 06:29 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/4141535102.shtml)
+- 2026-06-30 06:23 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/764037791.shtml)
+- 2026-06-30 06:38 - [爱很美味](https://www.blog.minike.top/Article/details/157664416916.shtml)
+- 2026-06-30 06:20 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/519770224.shtml)
+- 2026-06-30 06:23 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/683352440.shtml)

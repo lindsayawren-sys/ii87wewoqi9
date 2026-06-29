@@ -1,61 +1,57 @@
-# 东方甄选股权激励！300名员工人均获授市值141万元股份，俞敏洪超4400万元！
+# 伊朗战争重创惠而浦利润，家电涨价潮即将来临
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-4月28日，东方甄选公告，公司根据“2023年计划”授出股份奖励。 公司此次共计向302人授出奖励股份1930.14万股，占公告日公司已发行股份总数的1.82%，授出的股份归属时价格为零，而授出日期东方甄选每股收盘价达28.44港元。 按照收盘价计算，东方甄选此次授出奖励股份的市值约5.49亿港元。按照获授总人数计算，人均获授股份市值超过180万港元。 302名获授对象中，包括
+专题：聚焦美股2026年第一季度财报 消费者信心跌至历史低位，民众纷纷放弃选购该公司高端家电 内容速览 受伊朗战争拖累，行业陷入衰退级低迷，惠而浦将全年盈利指引下调近五成，并宣布暂停派息。 对大多数美国人而言，伊朗战争意味着加油站油价飙升；而对家电巨头惠而浦来说，这场战争直接造成公司口中衰退级的行业下行，家电产品涨价也随之而来。 这家总部位于密歇根州的冰箱、洗衣机制造商于周三将
 
 ## 正文
 
-4月28日，东方甄选公告，公司根据“2023年计划”授出股份奖励。
+专题：聚焦美股2026年第一季度财报 消费者信心跌至历史低位，民众纷纷放弃选购该公司高端家电 内容速览 受伊朗战争拖累，行业陷入衰退级低迷，惠而浦将全年盈利指引下调近五成，并宣布暂停派息。
 
-公司此次共计向302人授出奖励股份1930.14万股，占公告日公司已发行股份总数的1.82%，授出的股份归属时价格为零，而授出日期东方甄选每股收盘价达28.44港元。
+对大多数美国人而言，伊朗战争意味着加油站油价飙升；而对家电巨头惠而浦来说，这场战争直接造成公司口中衰退级的行业下行，家电产品涨价也随之而来。
 
-按照收盘价计算，东方甄选此次授出奖励股份的市值约5.49亿港元。
+这家总部位于密歇根州的冰箱、洗衣机制造商于周三将全年每股收益指引下调近一半，从原先的 6 美元下调至 3–3.5 美元区间，并宣布暂停股息派发，将经营重心转向偿债。
 
-按照获授总人数计算，人均获授股份市值超过180万港元。
+消息公布后，惠而浦盘前股价大跌16.6%。
 
-302名获授对象中，包括公司执行董事、董事会主席兼首席执行官俞敏洪。
+公司首席财务官罗克珊・沃纳表示，自 2 月 28 日战事爆发后，生活成本上涨引发民众担忧，美国消费者信心暴跌至历史低位。
 
-他获得180万股股份，按东方甄选当前股价，市值约5119万港元（约合人民币4465万元）。
+公司高管称，本就疲软的楼市进一步雪上加霜。
 
-新东方执行董事、首席财务官尹强也获授45万股，当前市值超过1200万港元。
+消费者仍会更换老旧、故障的基础款平价家电，但已避开惠而浦定价更高、利润更丰厚的高端机型。
 
-在剔除俞敏洪和尹强获授股份后，剩余300人获授1705万股，市值约4.85亿港元，人均获授股份市值约161.6万港元（约合人民币141万元）。
+沃纳表示：“我们认为核心原因是消费者支出趋于谨慎，大概率正在缩减大额耐用品消费。
 
 ## 相关推荐
 
-- 2026-06-30 06:26 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 06:42 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 06:40 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 06:15 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 06:37 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 06:19 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 06:41 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 06:26 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 06:26 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 06:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 06:16 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 06:40 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-30 06:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 06:24 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 06:17 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 06:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 06:45 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-30 06:36 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 06:43 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 06:40 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 06:44 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 06:45 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-30 06:21 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 06:25 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 06:27 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 06:41 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:34 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/02547351.shtml)
-- 2026-06-30 06:18 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/784364293315.shtml)
-- 2026-06-30 06:15 - [85花告别古偶](http://www.share.minike.top/Article/details/12654744240.shtml)
-- 2026-06-30 06:22 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/50267.shtml)
-- 2026-06-30 06:37 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/410014897004.shtml)
-- 2026-06-30 06:22 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/2578298.shtml)
-- 2026-06-30 06:12 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/94612.shtml)
-- 2026-06-30 06:34 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/4873882409.shtml)
-- 2026-06-30 06:33 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/139985500139.shtml)
-- 2026-06-30 06:14 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/0862211702.shtml)
-- 2026-06-30 06:15 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/751331830.shtml)
-- 2026-06-30 06:23 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/273280.shtml)
-- 2026-06-30 06:39 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/02427.shtml)
-- 2026-06-30 06:24 - [日本淘汰](https://www.blog.minike.top/Article/details/850454222.shtml)
-- 2026-06-30 06:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/43151377.shtml)
+- 2026-06-30 06:33 - [千香](https://www.blog.kurohicncr.top/Article/details/4662361.shtml)
+- 2026-06-30 06:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/250476.shtml)
+- 2026-06-30 06:33 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/99151438150.shtml)
+- 2026-06-30 06:45 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/68557453912.shtml)
+- 2026-06-30 06:40 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/873010574.shtml)
+- 2026-06-30 06:35 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/439251215869.shtml)
+- 2026-06-30 06:23 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/6660232.shtml)
+- 2026-06-30 06:39 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/698784946894.shtml)
+- 2026-06-30 06:31 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/25657390.shtml)
+- 2026-06-30 06:40 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/256968.shtml)
+- 2026-06-30 06:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/541144052.shtml)
+- 2026-06-30 06:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/01873.shtml)
+- 2026-06-30 06:39 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/526164722321.shtml)
+- 2026-06-30 06:42 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/907110.shtml)
+- 2026-06-30 06:21 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/457683037.shtml)

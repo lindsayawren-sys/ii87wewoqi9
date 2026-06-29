@@ -1,55 +1,51 @@
-# 西藏社科院举办专题研讨：以法治力量夯实民族团结进步根基
+# 【澜湄印象】“五一”假期5200余人次乘坐中老铁路跨境游
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月28日 18:41 来源：中国新闻网 4月27日，西藏自治区社科院举办专题研讨会，聚焦学习贯彻《中华人民共和国民族团结进步促进法》，推动中华民族共有精神家园建设。 研讨会上，与会代表先后分享了非遗保护、双语普法，以及推进互嵌式社区建设等实践经验。他们认为，《中华人民共和国民族团结进步促进法》是新时代民族工作的法治基石。法律需通过进课堂、社区、农牧区，促
+发布时间：2026年05月07日 08:40 来源：中国新闻网 5月1日至5日，据磨憨出入境边防检查站统计，磨憨铁路口岸累计验放出入境人员超5200人次，与去年持平。其中查验来自25个国家和地区的外籍人员超550人次，免签入境的外国人占比超61%。 (黄远飞 卫海林 雷雨 制作 陆星羽 视频来源 磨憨边检站) 责任编辑：【张燕玲】
 
 ## 正文
 
-发布时间：2026年04月28日 18:41 来源：中国新闻网 4月27日，西藏自治区社科院举办专题研讨会，聚焦学习贯彻《中华人民共和国民族团结进步促进法》，推动中华民族共有精神家园建设。
+发布时间：2026年05月07日 08:40 来源：中国新闻网 5月1日至5日，据磨憨出入境边防检查站统计，磨憨铁路口岸累计验放出入境人员超5200人次，与去年持平。
 
-研讨会上，与会代表先后分享了非遗保护、双语普法，以及推进互嵌式社区建设等实践经验。
+其中查验来自25个国家和地区的外籍人员超550人次，免签入境的外国人占比超61%。
 
-他们认为，《中华人民共和国民族团结进步促进法》是新时代民族工作的法治基石。
-
-法律需通过进课堂、社区、农牧区，促实践等方式，让条文“活”起来，成为凝聚人心的纽带。
-
-会议强调，要深化文化认同，促进各民族全方位嵌入，像石榴籽一样紧紧抱在一起，共同维护平等、团结、互助、和谐的民族关系。
-
-(记者 贡桑拉姆 赵朗） 责任编辑：【周驰】
+(黄远飞 卫海林 雷雨 制作 陆星羽 视频来源 磨憨边检站) 责任编辑：【张燕玲】
 
 ## 相关推荐
 
-- 2026-06-30 06:28 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 06:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 06:19 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 06:40 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 06:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 06:15 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 06:37 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-30 06:30 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 06:32 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-30 06:38 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 06:24 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 06:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 06:26 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 06:42 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 06:45 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 06:45 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 06:43 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 06:21 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 06:23 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 06:34 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 06:38 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 06:19 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 06:26 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 06:37 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 06:41 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 06:34 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 06:30 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 06:20 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:22 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/242683914.shtml)
-- 2026-06-30 06:13 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/919916390320.shtml)
-- 2026-06-30 06:37 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/9147681103.shtml)
-- 2026-06-30 06:19 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/550201249778.shtml)
-- 2026-06-30 06:17 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/0038369.shtml)
-- 2026-06-30 06:25 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/459656.shtml)
-- 2026-06-30 06:19 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/31386249923.shtml)
-- 2026-06-30 06:12 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/4368949.shtml)
-- 2026-06-30 06:17 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/3676100593.shtml)
-- 2026-06-30 06:15 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/030011108706.shtml)
-- 2026-06-30 06:37 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/939749973792.shtml)
-- 2026-06-30 06:27 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/40215.shtml)
-- 2026-06-30 06:35 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/9557749.shtml)
-- 2026-06-30 06:38 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/86393823.shtml)
-- 2026-06-30 06:28 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/5213538.shtml)
+- 2026-06-30 06:20 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/15892.shtml)
+- 2026-06-30 06:36 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/6884566645.shtml)
+- 2026-06-30 06:30 - [千香](http://www.blog.kurohicncr.top/Article/details/364893936999.shtml)
+- 2026-06-30 06:24 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/002335314086.shtml)
+- 2026-06-30 06:41 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/791222966.shtml)
+- 2026-06-30 06:23 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/4980063675.shtml)
+- 2026-06-30 06:35 - [美人鱼](https://www.share.kurohicncr.top/Article/details/0754885.shtml)
+- 2026-06-30 06:45 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/52253267.shtml)
+- 2026-06-30 06:41 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/97524.shtml)
+- 2026-06-30 06:29 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/28721.shtml)
+- 2026-06-30 06:35 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/03019699.shtml)
+- 2026-06-30 06:45 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/19505688.shtml)
+- 2026-06-30 06:21 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/24287139522.shtml)
+- 2026-06-30 06:27 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/373083458.shtml)
+- 2026-06-30 06:23 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/60314.shtml)

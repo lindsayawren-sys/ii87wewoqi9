@@ -1,58 +1,58 @@
-# 多名美共和党人批对伊战争：耗国力伤民生，民众付出现实代价
+# 东西问｜中国拒绝“漫天要价”的背后：不是中国离不开世界杯，是世界杯更需要中国
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网4月29日电 围绕特朗普政府对伊朗发动军事行动，美国保守派阵营内部的分歧持续扩大。多名共和党人、特朗普昔日盟友及右翼媒体人士近期公开批评政府让美国卷入对伊战争，认为此举不仅背离了特朗普竞选期间“美国优先”和“不再发动新战争”的承诺，也正在让美国民众付出现实代价。美国共和党籍前联邦众议员玛乔丽·泰勒·格林曾是特朗普的盟友，后转变为批评者。她近日在社交媒体上谴责美国对伊朗的战
+中新网北京5月7日电 题：中国拒绝“漫天要价”的背后：不是中国离不开世界杯，是世界杯更需要中国 作者 贺劭清 李嘉茵 1978年，中央电视台转播了在阿根廷举办的第11届世界杯，不少中国球迷在黑白电视机上，第一次看到了世界如何为足球疯狂。 “河床体育场那个看台上，纸片像雪花一样飞下来，我一下就感觉，这个足球怎么这么了不起呀。”知名解说黄健翔，曾这样回忆那个炎热的夏天。 从那时起，
 
 ## 正文
 
-中新网4月29日电 围绕特朗普政府对伊朗发动军事行动，美国保守派阵营内部的分歧持续扩大。
+中新网北京5月7日电 题：中国拒绝“漫天要价”的背后：不是中国离不开世界杯，是世界杯更需要中国 作者 贺劭清 李嘉茵 1978年，中央电视台转播了在阿根廷举办的第11届世界杯，不少中国球迷在黑白电视机上，第一次看到了世界如何为足球疯狂。
 
-多名共和党人、特朗普昔日盟友及右翼媒体人士近期公开批评政府让美国卷入对伊战争，认为此举不仅背离了特朗普竞选期间“美国优先”和“不再发动新战争”的承诺，也正在让美国民众付出现实代价。
+“河床体育场那个看台上，纸片像雪花一样飞下来，我一下就感觉，这个足球怎么这么了不起呀。
 
-美国共和党籍前联邦众议员玛乔丽·泰勒·格林曾是特朗普的盟友，后转变为批评者。
+”知名解说黄健翔，曾这样回忆那个炎热的夏天。
 
-她近日在社交媒体上谴责美国对伊朗的战争，并指出这场战争对美国农民造成的影响。
+从那时起，央视连续转播了12届世界杯。
 
-她在X平台发文称：“未来某一天，父母们会告诉他们的孩子，正是由于特朗普对伊朗发起的战争才导致了农场关闭，因为农民们无力承担化肥费用以及高昂的耕作成本。
+对许多中国球迷而言，四年一度的世界杯，不仅是顶级的足球盛宴，更是不可替代的青春记忆。
 
-” 保守派主持人塔克·卡尔森也在节目中表达了对当前局势的担忧。
+然而，因为国际足联的“漫天要价”与“看人下菜碟”，如今中国大陆的世界杯转播权谈判陷入僵局。
 
-3月18日，他在节目中采访了美国前国家反恐中心主任肯特。
+若僵局持续，中国大陆球迷或无法在电视收看本届世界杯了。
 
-肯特表示，动用武力必须极为谨慎、周密。
+FIFA于5月4日发表声明称，已与全球超过175个地区的转播商达成协议，但中国大陆和印度的版权谈判仍在进行中。
 
 ## 相关推荐
 
-- 2026-06-30 06:38 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 06:37 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 06:38 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 06:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 06:20 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 06:17 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 06:15 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 06:32 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 06:41 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 06:27 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-30 06:36 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 06:23 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 06:22 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 06:34 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 06:33 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 06:29 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-30 06:43 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-30 06:25 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 06:30 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 06:29 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 06:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 06:33 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 06:29 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 06:31 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:24 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/39944410.shtml)
-- 2026-06-30 06:19 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/925178612800.shtml)
-- 2026-06-30 06:36 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/68100.shtml)
-- 2026-06-30 06:23 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/59871289912.shtml)
-- 2026-06-30 06:14 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/2890910.shtml)
-- 2026-06-30 06:33 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/752712.shtml)
-- 2026-06-30 06:12 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/938010912472.shtml)
-- 2026-06-30 06:37 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/464014757.shtml)
-- 2026-06-30 06:40 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/263245733895.shtml)
-- 2026-06-30 06:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/931334134.shtml)
-- 2026-06-30 06:19 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/89571.shtml)
-- 2026-06-30 06:39 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/7649638.shtml)
-- 2026-06-30 06:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/001028751.shtml)
-- 2026-06-30 06:16 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/145746870434.shtml)
-- 2026-06-30 06:16 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/85918257320.shtml)
+- 2026-06-30 06:47 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/73488437.shtml)
+- 2026-06-30 06:48 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/5913656285.shtml)
+- 2026-06-30 06:41 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/49340126484.shtml)
+- 2026-06-30 06:21 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/0217774853.shtml)
+- 2026-06-30 06:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/24376801.shtml)
+- 2026-06-30 06:33 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/1603105966.shtml)
+- 2026-06-30 06:31 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/10296517694.shtml)
+- 2026-06-30 06:22 - [巴西扳平比分](http://www.share.minike.top/Article/details/5204133537.shtml)
+- 2026-06-30 06:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/089296976.shtml)
+- 2026-06-30 06:22 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/79294440.shtml)
+- 2026-06-30 06:43 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/4140331.shtml)
+- 2026-06-30 06:47 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/5139926.shtml)
+- 2026-06-30 06:20 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/50532671.shtml)
+- 2026-06-30 06:30 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/055029339017.shtml)
+- 2026-06-30 06:40 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/28335721261.shtml)

@@ -1,56 +1,61 @@
-# 鸣鸣很忙午后涨超7% 机构指中长期零食量贩仍有4万家潜在开店空间
+# 新华鲜报｜交易笔数大增 从支付数据看假期消费活力迸发
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-鸣鸣很忙（01768）盘中涨超9%，截至发稿，股价上涨7.05%，现报431港元，成交额1.18亿港元。 中泰证券发布研报称，以湖南为对标基准，综合考量城镇化水平、人口密度、气候特征及经济基础等核心变量，该行测算量贩零食行业仍存在4万余家的潜在开店空间。中性预期下，综合考虑业态替代与渠道转化，该行预计便利店及超市存量场景仍可为零食量贩行业贡献近4万家潜在开店空间。 中泰证券发布
+消费市场活力十足，尽显中国经济强劲韧性。中国人民银行5月6日发布的数据显示，今年“五一”假期支付交易持续增长，5月1日至5日，银联、网联共处理支付交易289.37亿笔，金额7.85万亿元，较去年“五一”假期分别增长23.45%和2.74%。这超两成的交易笔数增长，覆盖“吃住行游购玩”的生活全场景，体现了百姓消费意愿不断增强，为经济发展注入强劲动能。 “五一”假期，海南离岛免税购
 
 ## 正文
 
-鸣鸣很忙（01768）盘中涨超9%，截至发稿，股价上涨7.05%，现报431港元，成交额1.18亿港元。
+消费市场活力十足，尽显中国经济强劲韧性。
 
-中泰证券发布研报称，以湖南为对标基准，综合考量城镇化水平、人口密度、气候特征及经济基础等核心变量，该行测算量贩零食行业仍存在4万余家的潜在开店空间。
+中国人民银行5月6日发布的数据显示，今年“五一”假期支付交易持续增长，5月1日至5日，银联、网联共处理支付交易289.37亿笔，金额7.85万亿元，较去年“五一”假期分别增长23.45%和2.74%。
 
-中性预期下，综合考虑业态替代与渠道转化，该行预计便利店及超市存量场景仍可为零食量贩行业贡献近4万家潜在开店空间。
+这超两成的交易笔数增长，覆盖“吃住行游购玩”的生活全场景，体现了百姓消费意愿不断增强，为经济发展注入强劲动能。
 
-中泰证券发布研报称，短期看，零食量贩龙头单店趋势向好，规模化竞争壁垒稳固难撼，其利润率提升与开店空间均具备乐观基础；同时龙头积极迭代新店型，内部创新尝试持续落地，行业可挖掘的增量方向丰富，具备新业态跑通的期权价值。
+“五一”假期，海南离岛免税购物金额5.54亿元，较去年同期增长10.4%；假期前三天微信支付景区交易笔数环比大涨277%，演出赛事交易笔数环比增长153%；银联推出“苏超”赛事专属促消费活动，“五一”期间处理当地人均消费金额较去年同期提升44%……人潮涌动、消费活跃，一笔笔支付交易描绘出火热的假日消费图景。
 
-建议关注万辰集团（300972.SZ）、鸣鸣很忙（01768）。
+假日经济活力足的背后，是多部门打出政策“组合拳”：商务部等主办的2026“购在中国”国际消费季，计划在“五一”、端午假期等节点举办超百场重点活动；国家发展改革委会同财政部，已及时向地方下达今年第二批625亿元超长期特别国债资金，支持消费品以旧换新……一系列政策举措持续优化消费生态、完善支付配套，为消费提供源源不断的动力。
 
-责任编辑：卢昱君
+与此同时，越来越多外国游客跨越山海而来，感受中国之美。
+
+中国人民银行的数据显示，“五一”假期，银联、网联共处理境外来华人员支付交易笔数、金额较去年同期分别增长45.15%和36.96%。
+
+这也从一些支付机构的数据中得到印证：5月1日至3日，入境游客使用支付宝在华的消费金额比去年同期增长近70%，境外人士使用微信支付“外卡内绑”交易笔数同比上涨58%。
 
 ## 相关推荐
 
-- 2026-06-30 06:17 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 06:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 06:34 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 06:20 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 06:18 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 06:19 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 06:26 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 06:14 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-30 06:25 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 06:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 06:29 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 06:18 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 06:13 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 06:17 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 06:29 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 06:35 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 06:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 06:46 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 06:43 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 06:40 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 06:31 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 06:36 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 06:26 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 06:44 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 06:47 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 06:46 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 06:29 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 06:24 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 06:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/04023.shtml)
-- 2026-06-30 06:25 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/23834986482.shtml)
-- 2026-06-30 06:39 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/69507884039.shtml)
-- 2026-06-30 06:30 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/01294785747.shtml)
-- 2026-06-30 06:40 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/40583626.shtml)
-- 2026-06-30 06:20 - [逃狱兄弟](https://www.share.minike.top/Article/details/2890596.shtml)
-- 2026-06-30 06:22 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/4576599.shtml)
-- 2026-06-30 06:21 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/6106261230.shtml)
-- 2026-06-30 06:27 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/651028765.shtml)
-- 2026-06-30 06:40 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/281908.shtml)
-- 2026-06-30 06:21 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/3462092.shtml)
-- 2026-06-30 06:25 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/2885636266.shtml)
-- 2026-06-30 06:25 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/4216292.shtml)
-- 2026-06-30 06:27 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/550057590019.shtml)
-- 2026-06-30 06:39 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/2286906.shtml)
+- 2026-06-30 06:35 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/880092933108.shtml)
+- 2026-06-30 06:22 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/590248855.shtml)
+- 2026-06-30 06:21 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/48465046927.shtml)
+- 2026-06-30 06:34 - [森保一 保守](https://www.share.minike.top/Article/details/1210548.shtml)
+- 2026-06-30 06:32 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/809337874.shtml)
+- 2026-06-30 06:37 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/59959.shtml)
+- 2026-06-30 06:31 - [《共患难》](https://www.share.kurohicncr.top/Article/details/7953763308.shtml)
+- 2026-06-30 06:24 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/54968898783.shtml)
+- 2026-06-30 06:19 - [巴西扳平比分](http://www.blog.minike.top/Article/details/249454771347.shtml)
+- 2026-06-30 06:34 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/91456645.shtml)
+- 2026-06-30 06:25 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/5328389.shtml)
+- 2026-06-30 06:32 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/644472.shtml)
+- 2026-06-30 06:44 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/441292.shtml)
+- 2026-06-30 06:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/553957853.shtml)
+- 2026-06-30 06:20 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/41465.shtml)

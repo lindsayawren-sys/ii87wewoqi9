@@ -1,56 +1,52 @@
-# 空客一季度营收超预期但利润腰斩，防务业务抵消交付下滑
+# 外交部回应日本在海外发射进攻型导弹
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-飞机制造商空中客车周二公布的第一季度财报喜忧参半：尽管营收略高于市场预期，但受商用飞机交付量下降及供应链瓶颈拖累，核心利润同比暴跌逾50%，不过防务与航天业务的强劲增长在一定程度上抵消了不利影响。 财报显示，空客第一季度营收为126.5亿欧元，同比下降7%，但略低于分析师预期的128.7亿欧元。经调整后的息税前利润为3亿欧元，较去年同期的6.24亿欧元暴跌52%，远低于市场预期
+新华社北京5月6日电(记者董雪、邵艺博)据报道，5月6日，日本的88式岸基反舰导弹在美菲“肩并肩”军演中发射，这是战后日本首次在境外发射进攻型导弹。外交部发言人林剑6日在例行记者会上答问时表示，曾经的侵略者不仅未能深刻反省历史罪行，反而打着所谓“安全合作”的幌子，向海外派遣军事力量、发射进攻型导弹。这一动向再次说明，日本的右翼势力正在推动日本加速“再军事化”进程，不断突破“专守
 
 ## 正文
 
-飞机制造商空中客车周二公布的第一季度财报喜忧参半：尽管营收略高于市场预期，但受商用飞机交付量下降及供应链瓶颈拖累，核心利润同比暴跌逾50%，不过防务与航天业务的强劲增长在一定程度上抵消了不利影响。
+新华社北京5月6日电(记者董雪、邵艺博)据报道，5月6日，日本的88式岸基反舰导弹在美菲“肩并肩”军演中发射，这是战后日本首次在境外发射进攻型导弹。
 
-财报显示，空客第一季度营收为126.5亿欧元，同比下降7%，但略低于分析师预期的128.7亿欧元。
+外交部发言人林剑6日在例行记者会上答问时表示，曾经的侵略者不仅未能深刻反省历史罪行，反而打着所谓“安全合作”的幌子，向海外派遣军事力量、发射进攻型导弹。
 
-经调整后的息税前利润为3亿欧元，较去年同期的6.24亿欧元暴跌52%，远低于市场预期的约3.78亿至4.44亿欧元区间。
+这一动向再次说明，日本的右翼势力正在推动日本加速“再军事化”进程，不断突破“专守防卫”和国际法、国内法相关规制，一些政策和行动已经远远超出了“自卫”的范畴。
 
-商用飞机交付受阻，防务业务成亮点 交付数据方面，空客第一季度共交付114架商用飞机，较去年同期的136架下降16%。
-
-其中A320系列交付81架，A220交付19架，A350交付11架，A330交付3架。
-
-交付放缓的主要原因是核心供应商普惠的发动机持续短缺，以及A320机身整流罩生产缺陷导致的修复工作。
-
-空客首席执行官在声明中表示：“第一季度业绩反映了民用飞机交付量的下降以及防务与航天的强劲表现。
-
-”国防与航天部门成为本季度的亮点，收入增长7%至28亿欧元，调整后息税前利润激增69%至1.3亿欧元，主要得益于订单量同比大增91%至约50亿欧元。
+林剑表示，历史教育的严重欠账、历史观的根本性错误叠加强军备战的战略图谋，日本的“新型军国主义”成势为患，威胁地区和平稳定。
 
 ## 相关推荐
 
-- 2026-06-30 06:12 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 06:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 06:37 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 06:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-30 06:28 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 06:21 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-30 06:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 06:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 06:39 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 06:41 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 06:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 06:26 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 06:38 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 06:31 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 06:40 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 06:41 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 06:42 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 06:26 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 06:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 06:30 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 06:26 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 06:45 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 06:46 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 06:34 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/813449.shtml)
-- 2026-06-30 06:34 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/86885031250.shtml)
-- 2026-06-30 06:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/199161642682.shtml)
-- 2026-06-30 06:33 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/74177077.shtml)
-- 2026-06-30 06:30 - [日本进球](http://www.blog.kurohicncr.top/Article/details/03051.shtml)
-- 2026-06-30 06:23 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/892899308310.shtml)
-- 2026-06-30 06:28 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/7393560.shtml)
-- 2026-06-30 06:20 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/79732690545.shtml)
-- 2026-06-30 06:23 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/580198897.shtml)
-- 2026-06-30 06:31 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/43961.shtml)
-- 2026-06-30 06:35 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/939662275.shtml)
-- 2026-06-30 06:36 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/660245892413.shtml)
-- 2026-06-30 06:17 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/534863155394.shtml)
-- 2026-06-30 06:24 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/3174601111.shtml)
-- 2026-06-30 06:22 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/08593432.shtml)
+- 2026-06-30 06:22 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/592640.shtml)
+- 2026-06-30 06:34 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/744298137.shtml)
+- 2026-06-30 06:45 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/568478777.shtml)
+- 2026-06-30 06:33 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/5941249525.shtml)
+- 2026-06-30 06:27 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/9815266.shtml)
+- 2026-06-30 06:42 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/8258557.shtml)
+- 2026-06-30 06:28 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/297119.shtml)
+- 2026-06-30 06:47 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/98371279232.shtml)
+- 2026-06-30 06:24 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/219780819563.shtml)
+- 2026-06-30 06:25 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/296785721201.shtml)
+- 2026-06-30 06:19 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/2011158932.shtml)
+- 2026-06-30 06:32 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/751542.shtml)
+- 2026-06-30 06:19 - [苗族银饰](http://www.blog.minike.top/Article/details/9212855316.shtml)
+- 2026-06-30 06:42 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/728837314675.shtml)
+- 2026-06-30 06:41 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/0316077023.shtml)

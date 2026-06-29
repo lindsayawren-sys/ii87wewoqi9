@@ -1,43 +1,60 @@
-# 2026年孟定海关综合技术中心部门预算公开
+# 前沿AI模型同场竞技炒股结果亏多赚少 金融业最难的工作还得靠真人
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-2026年孟定海关综合技术中心部门预算公开.pdf
+人工智能（AI）还没有准备好取代你的基金经理，一系列公开测试说明了其中缘由。 在全球领先AI模型参与的一系列新的交易竞赛中，迄今为止AI的表现并不算好。大多数系统蒙受了亏损。它们交易过于频繁，在收到完全相同指令时会作出截然不同的决策。而且目前仍无人知道，这些缺陷会否随着模型迭代升级而消失，还是揭示了大语言模型与市场实际运作方式之间存在的根本性鸿沟。 以科技初创公司Nof1运营的
 
 ## 正文
 
-2026年孟定海关综合技术中心部门预算公开.pdf
+人工智能（AI）还没有准备好取代你的基金经理，一系列公开测试说明了其中缘由。
+
+在全球领先AI模型参与的一系列新的交易竞赛中，迄今为止AI的表现并不算好。
+
+大多数系统蒙受了亏损。
+
+它们交易过于频繁，在收到完全相同指令时会作出截然不同的决策。
+
+而且目前仍无人知道，这些缺陷会否随着模型迭代升级而消失，还是揭示了大语言模型与市场实际运作方式之间存在的根本性鸿沟。
+
+以科技初创公司Nof1运营的Alpha Arena为例。
+
+该平台让八个主要前沿AI系统同台较量，开展四场比赛，其中包括Anthropic的Claude、谷歌的Gemini、OpenAI的ChatGPT以及埃隆·马斯克的Grok。
+
+每个系统在每场比赛开始前都获得1万美元资金，随后在两周内自主交易美国科技股。
 
 ## 相关推荐
 
-- 2026-06-30 06:22 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 06:14 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 06:34 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 06:30 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 06:38 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 06:23 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 06:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 06:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 06:13 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 06:31 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 06:14 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 06:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 06:29 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 06:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 06:39 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 06:35 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 06:26 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 06:36 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 06:30 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 06:27 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 06:28 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 06:32 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 06:42 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 06:26 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 06:44 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:28 - [内马尔替补](http://www.blog.minike.top/Article/details/002623789.shtml)
-- 2026-06-30 06:33 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/60305611.shtml)
-- 2026-06-30 06:21 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/32129750.shtml)
-- 2026-06-30 06:13 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/772435.shtml)
-- 2026-06-30 06:28 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/93345431.shtml)
-- 2026-06-30 06:35 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/1963790810.shtml)
-- 2026-06-30 06:24 - [蔚来车主罚站](http://www.share.minike.top/Article/details/09059821860.shtml)
-- 2026-06-30 06:21 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/91544.shtml)
-- 2026-06-30 06:23 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/59237341.shtml)
-- 2026-06-30 06:40 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/8664218582.shtml)
-- 2026-06-30 06:16 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/02038.shtml)
-- 2026-06-30 06:31 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/318913045.shtml)
-- 2026-06-30 06:34 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/290848492.shtml)
-- 2026-06-30 06:38 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/78708909133.shtml)
-- 2026-06-30 06:38 - [人类...完蛋了...](http://www.share.minike.top/Article/details/09184971884.shtml)
+- 2026-06-30 06:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/2153552.shtml)
+- 2026-06-30 06:26 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/973480145653.shtml)
+- 2026-06-30 06:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/20165.shtml)
+- 2026-06-30 06:40 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/64480.shtml)
+- 2026-06-30 06:38 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/087218129.shtml)
+- 2026-06-30 06:35 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/4528276.shtml)
+- 2026-06-30 06:46 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/623102.shtml)
+- 2026-06-30 06:19 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/39138326.shtml)
+- 2026-06-30 06:24 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/6102704545.shtml)
+- 2026-06-30 06:25 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/42049722737.shtml)
+- 2026-06-30 06:40 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/5040212.shtml)
+- 2026-06-30 06:24 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/076625547095.shtml)
+- 2026-06-30 06:35 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/49930516.shtml)
+- 2026-06-30 06:42 - [爱很美味](http://www.share.minike.top/Article/details/38569.shtml)
+- 2026-06-30 06:22 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/704786068.shtml)

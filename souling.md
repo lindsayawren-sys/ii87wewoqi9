@@ -1,60 +1,57 @@
-# 北京大兴机场“五一”假期预计运送旅客超85万人次
+# 赵建平重仓！这条赛道夏季、秋季会继续迎来加速上涨行情！
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新社北京4月29日电 (记者 刘文文)中国“五一”假期即将来临，旅客出行需求日益高涨。记者29日从北京大兴国际机场获悉，5月1日至5日，大兴机场预计执行航班5249架次，运送旅客85.76万人次，日均航班量、旅客量达1050架次、17.15万人次，分别较去年增长8.67%、12.16%。 假期出行高峰预计出现在5月1日，当天计划保障进出港航班超1100架次，运送旅客超18万人
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券市场周刊市场号 没有经常“点赞”“在看”“留言”的 ，也会慢慢收不到推送。 文 | 尚扬 “五一”小长假后，A股上演了“红五月”行情，指数集体高开高走，全程单边上行，丝毫不给回调机会。 市场情绪拉满，资金跑步入场，5月6日节后首个交易日，市场成交额达3.25万亿元，比节前最后一个交易日猛增近500
 
 ## 正文
 
-中新社北京4月29日电 (记者 刘文文)中国“五一”假期即将来临，旅客出行需求日益高涨。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-记者29日从北京大兴国际机场获悉，5月1日至5日，大兴机场预计执行航班5249架次，运送旅客85.76万人次，日均航班量、旅客量达1050架次、17.15万人次，分别较去年增长8.67%、12.16%。
+来源：证券市场周刊市场号 没有经常“点赞”“在看”“留言”的 ，也会慢慢收不到推送。
 
-假期出行高峰预计出现在5月1日，当天计划保障进出港航班超1100架次，运送旅客超18万人次。
+文 | 尚扬 “五一”小长假后，A股上演了“红五月”行情，指数集体高开高走，全程单边上行，丝毫不给回调机会。
 
-大兴机场运行管理部主管李孺一对中新社记者表示，“五一”假期期间，预计大兴机场与长三角、珠三角、成渝等城市群的传统热门航线将迎来客流高峰，前往三亚、贵阳、西安、哈尔滨等地客流也将有明显增长。
+市场情绪拉满，资金跑步入场，5月6日节后首个交易日，市场成交额达3.25万亿元，比节前最后一个交易日猛增近5000亿元，赚钱效应明显。
 
-今年以来，大兴机场通航国家共29个，通航国际及地区航点45个，包括吉隆坡、曼谷、伦敦、赫尔辛基、阿姆斯特丹、卡萨布兰卡、伊斯坦布尔等特色旅游城市，近期新开德国法兰克福航线，后续还将新增意大利米兰、葡萄牙里斯本、印尼巴厘岛等航线。
+5月7日，成交额仍在3万亿元以上。
 
-为满足旅客假期出行需求，驻场航司多措并举加大运力投放。
+板块方面，科技成长赛道携手继续上行，AI算力、半导体、存储芯片掀起涨停潮，硬科技成为了资金主攻方向。
 
-南航在北京大兴至伊宁、桂林、揭阳、合肥、上海浦东、常德、长春等国内航线和北京大兴至比什凯克国际航线累计实施增班136班次，在北京大兴至厦门、三亚、重庆、宁波等航线增投宽体机运力；中联航加密北京大兴至延吉、白城、鸡西、福州、台州、宁波、舟山等航线；厦航与河北航空重点布局三亚、昆明、嘉峪关、重庆等热门航点。
+资深市场人士彭祖表示，牛市行情会在夏秋两季继续演绎，4月是开始，5月会加速，秋季则还有一轮大攻势。
 
-(完)
+AI驱动周期远超以往，客户订单能见度延伸至未来两年，行业尚看不到终点。
 
 ## 相关推荐
 
-- 2026-06-30 06:13 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 06:39 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-30 06:20 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 06:16 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-30 06:41 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 06:15 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 06:23 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 06:37 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 06:26 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-30 06:24 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 06:13 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 06:36 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 06:32 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 06:30 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 06:47 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 06:37 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 06:25 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 06:39 - [《共患难》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 06:20 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 06:30 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-30 06:23 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-30 06:29 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 06:38 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 06:29 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 06:36 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:21 - [绘画区你赢了](http://www.share.minike.top/Article/details/203966.shtml)
-- 2026-06-30 06:32 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/196270.shtml)
-- 2026-06-30 06:40 - [速度与激情9](https://www.blog.minike.top/Article/details/40389.shtml)
-- 2026-06-30 06:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/549774.shtml)
-- 2026-06-30 06:37 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/56400.shtml)
-- 2026-06-30 06:13 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/8269447605.shtml)
-- 2026-06-30 06:38 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/01016561867.shtml)
-- 2026-06-30 06:16 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/532571459340.shtml)
-- 2026-06-30 06:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/93323098.shtml)
-- 2026-06-30 06:18 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/985642362814.shtml)
-- 2026-06-30 06:38 - [一生一世](https://www.share.minike.top/Article/details/795044.shtml)
-- 2026-06-30 06:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/95071.shtml)
-- 2026-06-30 06:28 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/95887738901.shtml)
-- 2026-06-30 06:25 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/7728786.shtml)
-- 2026-06-30 06:18 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/40176772.shtml)
+- 2026-06-30 06:22 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/205123778.shtml)
+- 2026-06-30 06:46 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/884614.shtml)
+- 2026-06-30 06:18 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/7574982071.shtml)
+- 2026-06-30 06:41 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/071327.shtml)
+- 2026-06-30 06:47 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/734634358.shtml)
+- 2026-06-30 06:26 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/02194449.shtml)
+- 2026-06-30 06:37 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/97731612776.shtml)
+- 2026-06-30 06:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/6929199003.shtml)
+- 2026-06-30 06:25 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/045655301.shtml)
+- 2026-06-30 06:46 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/59428.shtml)
+- 2026-06-30 06:26 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/11461548200.shtml)
+- 2026-06-30 06:30 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/05553616.shtml)
+- 2026-06-30 06:19 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/54257545.shtml)
+- 2026-06-30 06:42 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/6441029.shtml)
+- 2026-06-30 06:47 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/29902748.shtml)

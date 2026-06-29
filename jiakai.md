@@ -1,56 +1,48 @@
-# OpenAI将最新AI模型与Codex编程代理引入亚马逊Bedrock平台
+# 先正达考虑2026年下半年在香港IPO 估值可能达到500亿美元
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-在结束与微软的独家云合作关系仅一天后，OpenAI迅速宣布与亚马逊云科技达成深度合作，将其最新的前沿AI模型以及AI编程代理Codex引入Amazon Bedrock平台。此举标志着OpenAI正式开启多云战略，为企业客户提供了在AWS上构建AI应用的新选择。 合作核心：三项新服务 根据合作协议，Amazon Bedrock平台将新增三项服务，均处于“有限预览”阶段： Open
+德国商报援引消息人士的话报道，总部位于瑞士的种子和农用化学品公司先正达计划于9月或10月在香港交易所上市。报道称，这家由中国国有企业中化控股的公司估值可能达到500亿美元。责任编辑：王永生
 
 ## 正文
 
-在结束与微软的独家云合作关系仅一天后，OpenAI迅速宣布与亚马逊云科技达成深度合作，将其最新的前沿AI模型以及AI编程代理Codex引入Amazon Bedrock平台。
+德国商报援引消息人士的话报道，总部位于瑞士的种子和农用化学品公司先正达计划于9月或10月在香港交易所上市。
 
-此举标志着OpenAI正式开启多云战略，为企业客户提供了在AWS上构建AI应用的新选择。
+报道称，这家由中国国有企业中化控股的公司估值可能达到500亿美元。
 
-合作核心：三项新服务 根据合作协议，Amazon Bedrock平台将新增三项服务，均处于“有限预览”阶段： OpenAI模型首次登陆Bedrock。
-
-AWS客户可以使用企业级安全与合规控制来访问和微调OpenAI模型。
-
-客户在Bedrock上使用OpenAI模型的支出还可计入其现有的AWS云消费承诺。
-
-Codex编程代理上线。
-
-OpenAI的AI编程代理Codex现可通过Bedrock API访问，被集成到Codex CLI、桌面应用和VS Code扩展中，让企业开发者能在熟悉的AWS环境中利用AI辅助编码、调试和测试。
-
-Bedrock托管代理。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 06:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 06:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 06:29 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 06:29 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-30 06:25 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 06:29 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 06:20 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 06:30 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 06:36 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 06:16 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 06:29 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 06:18 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 06:47 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-30 06:36 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 06:24 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 06:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 06:47 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 06:47 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 06:39 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 06:25 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 06:46 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 06:18 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:24 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/074115.shtml)
-- 2026-06-30 06:31 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/42011471785.shtml)
-- 2026-06-30 06:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/9863110695.shtml)
-- 2026-06-30 06:39 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/802101822.shtml)
-- 2026-06-30 06:30 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/339766176778.shtml)
-- 2026-06-30 06:36 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/801427249.shtml)
-- 2026-06-30 06:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/890305515035.shtml)
-- 2026-06-30 06:17 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/49852.shtml)
-- 2026-06-30 06:13 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/0793144254.shtml)
-- 2026-06-30 06:26 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/247161.shtml)
-- 2026-06-30 06:29 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/5899553149.shtml)
-- 2026-06-30 06:30 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/690205668.shtml)
-- 2026-06-30 06:19 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/84680041290.shtml)
-- 2026-06-30 06:21 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/78255.shtml)
-- 2026-06-30 06:29 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/621757.shtml)
+- 2026-06-30 06:19 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/92912606091.shtml)
+- 2026-06-30 06:20 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/512479.shtml)
+- 2026-06-30 06:28 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/51174330.shtml)
+- 2026-06-30 06:47 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/98423856.shtml)
+- 2026-06-30 06:31 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/14220.shtml)
+- 2026-06-30 06:25 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/631605925.shtml)
+- 2026-06-30 06:38 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/6882140.shtml)
+- 2026-06-30 06:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/224558100957.shtml)
+- 2026-06-30 06:41 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/3034225.shtml)
+- 2026-06-30 06:47 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/285856562303.shtml)
+- 2026-06-30 06:29 - [逃狱兄弟](http://www.share.minike.top/Article/details/7213321.shtml)
+- 2026-06-30 06:18 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/396564094.shtml)
+- 2026-06-30 06:45 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/031182887.shtml)
+- 2026-06-30 06:32 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/541040243991.shtml)
+- 2026-06-30 06:29 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/94270487193.shtml)

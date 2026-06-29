@@ -1,60 +1,54 @@
-# 华泰期货：地缘局势仍紧张，带动聚丙烯丙烯上涨
+# 国台办回应台企与颜文群“切割”：搞“台独”害人害己 必遭惩治
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 化工组 4月28日午后收盘，丙烯主力期货合约PL2607上涨3.35%，聚丙烯PP2609合约上涨3.17%。 昨日上涨的主要驱动仍在于地缘局势仍紧张带动原油及丙烷等原料价格的走强，烯烃类成本端支撑再度明显抬升。美国方面表示，特朗普对伊朗的谈判提议感到不满，因为提议没有涉及伊朗的核项目。当前美伊谈判没有实质性改善，霍尔木兹海峡封锁持续时间不断延长，全球原
+国务院台办发言人陈斌华答记者问。 问：“台独”顽固分子刘世芳外甥颜文群所在的公司昨天发表与其切割的声明，解除颜文群在台湾总公司和大陆分公司的所有职务。请问发言人对此有何评论？ 答：“台独”破坏台海和平稳定、损害两岸同胞利益，是一条走不通的绝路，搞“台独”害人害己，必遭惩治。我们决不允许“台独”顽固分子及其亲属在大陆投资经商谋利，决不允许支持“台独”、破坏两岸关系的人一边在大陆赚
 
 ## 正文
 
-来源：华泰期货 作者： 化工组 4月28日午后收盘，丙烯主力期货合约PL2607上涨3.35%，聚丙烯PP2609合约上涨3.17%。
+国务院台办发言人陈斌华答记者问。
 
-昨日上涨的主要驱动仍在于地缘局势仍紧张带动原油及丙烷等原料价格的走强，烯烃类成本端支撑再度明显抬升。
+问：“台独”顽固分子刘世芳外甥颜文群所在的公司昨天发表与其切割的声明，解除颜文群在台湾总公司和大陆分公司的所有职务。
 
-美国方面表示，特朗普对伊朗的谈判提议感到不满，因为提议没有涉及伊朗的核项目。
+请问发言人对此有何评论？
 
-当前美伊谈判没有实质性改善，霍尔木兹海峡封锁持续时间不断延长，全球原油市场供应中断担忧再次升温，油价短期再度大幅上涨，带动丙烷价格继续走强。
+答：“台独”破坏台海和平稳定、损害两岸同胞利益，是一条走不通的绝路，搞“台独”害人害己，必遭惩治。
 
-丙烯方面，近端供应仍是偏紧格局，丙烷价格再度走强带动PDH利润回落，后续PDH装置回归预期再度存疑。
+我们决不允许“台独”顽固分子及其亲属在大陆投资经商谋利，决不允许支持“台独”、破坏两岸关系的人一边在大陆赚钱、一边支持“台独”分裂活动。
 
-需求端下游跟进买盘尚可，近端需求支撑；但亦需关注下游利润近期持续受压后需求端跟进或不及前期。
+我们的惩“独”举措只针对极少数“台独”分子，不涉及广大台胞台企，我们将一如既往欢迎、支持广大台胞台企扎根祖国大陆发展，分享中国式现代化发展机遇与成果，让台胞台企更有幸福感、获得感。
 
-后期继续关注PDH装置开工情况以及下游需求跟进情况。
-
-PP方面，供应端开工存见底回升预期，但海峡局势再度紧张，且由于前期检修偏多，供应端回归进程仍偏慢，继续支撑近端价格。
+(总台央视记者 赵超逸)
 
 ## 相关推荐
 
-- 2026-06-30 06:32 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 06:39 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 06:40 - [日本反击率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 06:24 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 06:38 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 06:35 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 06:33 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 06:29 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 06:14 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 06:41 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 06:23 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 06:38 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 06:12 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 06:24 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 06:19 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 06:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 06:32 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 06:24 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 06:35 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 06:18 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 06:36 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 06:40 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 06:34 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 06:40 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:20 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/45318120.shtml)
-- 2026-06-30 06:21 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/3713503.shtml)
-- 2026-06-30 06:15 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/382174156.shtml)
-- 2026-06-30 06:41 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/55254175.shtml)
-- 2026-06-30 06:39 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/2034311116.shtml)
-- 2026-06-30 06:22 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/400835952.shtml)
-- 2026-06-30 06:14 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/82297508670.shtml)
-- 2026-06-30 06:26 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/0391371214.shtml)
-- 2026-06-30 06:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/716420862.shtml)
-- 2026-06-30 06:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/374181.shtml)
-- 2026-06-30 06:27 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/82643343932.shtml)
-- 2026-06-30 06:31 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/386677876.shtml)
-- 2026-06-30 06:33 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/26107216.shtml)
-- 2026-06-30 06:38 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/8795223876.shtml)
-- 2026-06-30 06:18 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/456550644.shtml)
+- 2026-06-30 06:26 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/99899.shtml)
+- 2026-06-30 06:41 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/79826.shtml)
+- 2026-06-30 06:31 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/26428136.shtml)
+- 2026-06-30 06:26 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/318216.shtml)
+- 2026-06-30 06:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/60949.shtml)
+- 2026-06-30 06:34 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/76143258.shtml)
+- 2026-06-30 06:19 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/44403116.shtml)
+- 2026-06-30 06:36 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/21380972.shtml)
+- 2026-06-30 06:23 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/819644174.shtml)
+- 2026-06-30 06:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/952979.shtml)
+- 2026-06-30 06:27 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/2433950109.shtml)
+- 2026-06-30 06:47 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/69958.shtml)
+- 2026-06-30 06:25 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/83882256.shtml)
+- 2026-06-30 06:40 - [亚洲球队全部告别世界杯](https://www.blog.minike.top/Article/details/3139012.shtml)
+- 2026-06-30 06:30 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/434529.shtml)

@@ -1,50 +1,53 @@
-# 植田和男：通胀预期上调后 仍有政策制定者认为价格存在上行风险
+# 2026年“五一”假期全社会跨区域人员流动量超15.17亿人次
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-日本央行行长植田和男周二在利率决定公布后的新闻发布会上表示，日本央行在今日会议上上调通胀预期后，仍有部分政策制定者认为物价存在上行风险。 植田和男表示，日本央行并非试图通过新数据来控制有关价格的讨论。责任编辑：江学思
+发布时间：2026年05月06日 18:55 来源：中国新闻网 5月6日，记者从交通运输部获悉，2026年5月1日至5日，全社会跨区域人员流动超15.17亿人次，日均超3.03亿人次，同比增长3.49%。 假期期间，铁路客运总量超1.06亿人次，日均2127.54万人次，同比增长4.6%。公路人员流动总量(包括高速公路及普通国省道非营业性小客车人员出行量、公路营业性客运量)超1
 
 ## 正文
 
-日本央行行长植田和男周二在利率决定公布后的新闻发布会上表示，日本央行在今日会议上上调通胀预期后，仍有部分政策制定者认为物价存在上行风险。
+发布时间：2026年05月06日 18:55 来源：中国新闻网 5月6日，记者从交通运输部获悉，2026年5月1日至5日，全社会跨区域人员流动超15.17亿人次，日均超3.03亿人次，同比增长3.49%。
 
-植田和男表示，日本央行并非试图通过新数据来控制有关价格的讨论。
+假期期间，铁路客运总量超1.06亿人次，日均2127.54万人次，同比增长4.6%。
 
-责任编辑：江学思
+公路人员流动总量(包括高速公路及普通国省道非营业性小客车人员出行量、公路营业性客运量)超13.91亿人次，日均超2.78亿人次，同比增长3.51%。
+
+水路客运总量849.2万人次，日均为169.84万人次，同比下降1.37%。
+
+民航客运总量1054万人次，日均为210.8万人次，同比下降5.74%。
+
+(记者 刘超） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-30 06:30 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 06:30 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 06:29 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 06:19 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 06:12 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 06:38 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 06:39 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 06:37 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 06:41 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 06:15 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 06:38 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 06:23 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 06:17 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 06:24 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 06:31 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 06:33 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 06:46 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 06:21 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 06:39 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 06:27 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 06:19 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 06:31 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 06:36 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-30 06:44 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 06:26 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:21 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/2960966.shtml)
-- 2026-06-30 06:12 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/8071021405.shtml)
-- 2026-06-30 06:30 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/4193512942.shtml)
-- 2026-06-30 06:37 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/032927.shtml)
-- 2026-06-30 06:20 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/54725535.shtml)
-- 2026-06-30 06:37 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/368583777513.shtml)
-- 2026-06-30 06:16 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/57639806396.shtml)
-- 2026-06-30 06:35 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/432353889433.shtml)
-- 2026-06-30 06:28 - [起风了](https://www.blog.kurohicncr.top/Article/details/2952346767.shtml)
-- 2026-06-30 06:33 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/12245971630.shtml)
-- 2026-06-30 06:13 - [小娘惹](https://www.share.minike.top/Article/details/93962.shtml)
-- 2026-06-30 06:16 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/9330883.shtml)
-- 2026-06-30 06:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/292265005.shtml)
-- 2026-06-30 06:29 - [毒液2](http://www.blog.kurohicncr.top/Article/details/061441.shtml)
-- 2026-06-30 06:22 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/25657.shtml)
+- 2026-06-30 06:22 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/881490977.shtml)
+- 2026-06-30 06:30 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/983746224879.shtml)
+- 2026-06-30 06:19 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/56299032.shtml)
+- 2026-06-30 06:29 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/527962.shtml)
+- 2026-06-30 06:37 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/646973.shtml)
+- 2026-06-30 06:21 - [美人鱼](https://www.share.minike.top/Article/details/8673379126.shtml)
+- 2026-06-30 06:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/02502620469.shtml)
+- 2026-06-30 06:19 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/583600.shtml)
+- 2026-06-30 06:23 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/7896026640.shtml)
+- 2026-06-30 06:32 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/03520842.shtml)
+- 2026-06-30 06:45 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/08109123.shtml)
+- 2026-06-30 06:37 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/65528.shtml)
+- 2026-06-30 06:20 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/404093756.shtml)
+- 2026-06-30 06:46 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/378620.shtml)
+- 2026-06-30 06:31 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/01293.shtml)

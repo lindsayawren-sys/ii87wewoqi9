@@ -1,56 +1,56 @@
-# 美国2月房价涨幅放缓
+# 东珠生态除了“变脸”，又追溯调整6年财报！
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-受购房负担压力影响，美国2月房价涨幅有所放缓。 衡量全美房价走势的标普凯斯-席勒全国房价指数数据显示，截至2月的12个月里，房价同比上涨**0.7%**，而1月同比涨幅为0.8%。 标普道琼斯指数公司分析师表示：“2月，美国超半数主要都市圈房价同比下跌，这表明楼市降温态势已不再局限于阳光地带，而是呈现大范围蔓延之势。” 报告指出，美国通胀涨幅已连续九个月超过全国房价涨幅。 在本
+公司现已发展成为集投资运营、规划咨询、设计研发、生态环境治理为一体的综合性强、专业度高的生态修复与治理服务商，其中生态湿地保护、水环境治理、森林公园、矿山修复、美丽乡村建设等业务板块多点开花，全面助力绿水青山、美丽中国建设。 按照申万行业分类（2021），东珠生态属于建筑装饰-基础建设-园林工程。 2026年4月24日，公司披露了《关于2025年年度业绩预告补充暨股票可能被实施
 
 ## 正文
 
-受购房负担压力影响，美国2月房价涨幅有所放缓。
+公司现已发展成为集投资运营、规划咨询、设计研发、生态环境治理为一体的综合性强、专业度高的生态修复与治理服务商，其中生态湿地保护、水环境治理、森林公园、矿山修复、美丽乡村建设等业务板块多点开花，全面助力绿水青山、美丽中国建设。
 
-衡量全美房价走势的标普凯斯-席勒全国房价指数数据显示，截至2月的12个月里，房价同比上涨**0.7%**，而1月同比涨幅为0.8%。
+按照申万行业分类（2021），东珠生态属于建筑装饰-基础建设-园林工程。
 
-标普道琼斯指数公司分析师表示：“2月，美国超半数主要都市圈房价同比下跌，这表明楼市降温态势已不再局限于阳光地带，而是呈现大范围蔓延之势。
+2026年4月24日，公司披露了《关于2025年年度业绩预告补充暨股票可能被实施退市风险警示的风险提示公告》。
 
-” 报告指出，美国通胀涨幅已连续九个月超过全国房价涨幅。
+新增了预计2025年实现扣除与主营业务无关的业务收入和不具备商业实质的收入后的营业收入2.90亿元，低于3亿元。
 
-在本次统计的20座城市中，芝加哥2月房价同比涨幅最高，达5.04%；纽约、克利夫兰紧随其后，同比涨幅分别为4.74%、4.15%。
+公告披露后，股票的表现如下： 初步判断索赔条件为：2026年1月17日至2026年4月24日之间买入，且2026年4月25日及以后卖出或继续持有的投资者，包括个人投资者和机构投资者。
 
-丹佛表现垫底，房价同比下跌2.18%。
+2026年4月28日，公司披露了《关于前期会计差错更正的公告》：公司2018、2019、2021及2023年度营业收入、营业成本等科目，并追溯调整2018年末及之后各年度末的未分配利润等科目。
 
-责任编辑：何云
+针对会计差错索赔条件：2019年4月19日至2026年4月28日，且2026年4月29日及以后卖出或继续持有的投资者，包括个人投资者和机构投资者。
+
+（东珠生态维权入口） （本文由万商天勤（上海）律师事务所刘彦梅律师供稿，不代表新浪财经的观点。
 
 ## 相关推荐
 
-- 2026-06-30 06:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 06:17 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 06:25 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 06:27 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-30 06:27 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 06:33 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 06:27 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-30 06:36 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 06:22 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-30 06:12 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 06:20 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 06:32 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 06:41 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 06:24 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 06:23 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 06:21 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 06:18 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 06:18 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 06:24 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 06:29 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 06:42 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 06:38 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:38 - [扫黑风暴](http://www.blog.minike.top/Article/details/422164.shtml)
-- 2026-06-30 06:37 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/396060036078.shtml)
-- 2026-06-30 06:27 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/17631963094.shtml)
-- 2026-06-30 06:33 - [月亮](https://www.share.kurohicncr.top/Article/details/01523215.shtml)
-- 2026-06-30 06:37 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/87775.shtml)
-- 2026-06-30 06:27 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/7193201.shtml)
-- 2026-06-30 06:19 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/8606655.shtml)
-- 2026-06-30 06:14 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/87680.shtml)
-- 2026-06-30 06:26 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/097518754166.shtml)
-- 2026-06-30 06:38 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/98227.shtml)
-- 2026-06-30 06:20 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/4098386065.shtml)
-- 2026-06-30 06:18 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/536379869.shtml)
-- 2026-06-30 06:23 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/284493849185.shtml)
-- 2026-06-30 06:28 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/584788148568.shtml)
-- 2026-06-30 06:35 - [日本进球](https://www.blog.minike.top/Article/details/75903922.shtml)
+- 2026-06-30 06:46 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/177750070.shtml)
+- 2026-06-30 06:44 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/4661833.shtml)
+- 2026-06-30 06:23 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/0936708180.shtml)
+- 2026-06-30 06:22 - [我们的少年时代2](http://www.blog.minike.top/Article/details/25980952262.shtml)
+- 2026-06-30 06:38 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/632670.shtml)
+- 2026-06-30 06:39 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/963065326447.shtml)
+- 2026-06-30 06:29 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/49639215.shtml)
+- 2026-06-30 06:24 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/61720885030.shtml)
+- 2026-06-30 06:43 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/2814517662.shtml)
+- 2026-06-30 06:42 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/9274136.shtml)
+- 2026-06-30 06:32 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/688323.shtml)
+- 2026-06-30 06:45 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/241179.shtml)
+- 2026-06-30 06:19 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/9907530015.shtml)
+- 2026-06-30 06:34 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/83154.shtml)
+- 2026-06-30 06:35 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/8381918842.shtml)

@@ -1,60 +1,58 @@
-# 花旗英国区首席执行官：市场韧性“极强”，暂时遏制衰退风险
+# 301083，终止收购机器人公司！
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-核心要点 花旗英国区首席执行官蒂娜・李预计，今年全球经济增长将保持韧性，并向美国消费者新闻与商业频道（CNBC）明确表示，衰退局面不在基准预判之内。 李指出，伊朗冲突已于周二进入第 60 天，虽引发经济与地缘政治动荡，但市场整体运行秩序良好。 她看好人工智能、数据基建、能源领域的成熟投资机会，同时提到，今年一季度全球并购交易规模创下历史新高。 不过，李周二在做客 CNBC《欧洲
+来源：中国基金报 【导读】百胜智能宣布终止收购中科深谷股权 中国基金报记者 忆山 5月6日，百胜智能发布公告，宣布终止收购合肥中科深谷科技发展有限公司（以下简称中科深谷）股权事项。 未能在关键条款上达成一致 去年12月，百胜智能表示，公司筹划以支付现金方式收购中科深谷不低于51%股权，收购价格暂定1亿元。交易完成后，中科深谷将成为其控股子公司。 中科深谷长期致力于具身智能机器人
 
 ## 正文
 
-核心要点 花旗英国区首席执行官蒂娜・李预计，今年全球经济增长将保持韧性，并向美国消费者新闻与商业频道（CNBC）明确表示，衰退局面不在基准预判之内。
+来源：中国基金报 【导读】百胜智能宣布终止收购中科深谷股权 中国基金报记者 忆山 5月6日，百胜智能发布公告，宣布终止收购合肥中科深谷科技发展有限公司（以下简称中科深谷）股权事项。
 
-李指出，伊朗冲突已于周二进入第 60 天，虽引发经济与地缘政治动荡，但市场整体运行秩序良好。
+未能在关键条款上达成一致 去年12月，百胜智能表示，公司筹划以支付现金方式收购中科深谷不低于51%股权，收购价格暂定1亿元。
 
-她看好人工智能、数据基建、能源领域的成熟投资机会，同时提到，今年一季度全球并购交易规模创下历史新高。
+交易完成后，中科深谷将成为其控股子公司。
 
-不过，李周二在做客 CNBC《欧洲财经早间秀》时承认，冲突持续升级、时间拉长，仍是威胁市场与全球经济的现实风险。
+中科深谷长期致力于具身智能机器人底层技术研发与产业化应用，是人工智能领域国家工信部专精特新“小巨人”企业。
 
-受战事推动，布伦特原油价格从 2 月约 70 美元 / 桶，突破 100 美元大关。
+百胜智能产品涵盖了智慧停车场、电动汽车充电、安防、自动门控所需要的所有设备，并拥有自主的物联网管理云平台，可为客户提供一站式出入口控制与汽车共享充电管理统一平台的整体解决方案。
 
-若敌对行动延续至今年年底甚至 2027 年，油价或飙升至 120 至 150 美元。
+百胜智能曾表示，公司在智慧停车、充电及通行物联网领域的“硬件+平台+服务”战略，与中科深谷的人才储备、底层研发实力及场景落地能力高度契合，形成“能力互补—价值共创”的深度协同。
 
-她表示：“届时形势将截然不同。
+在最新公告中，百胜智能表示，签署《股权收购框架协议》后，公司积极推进股权收购相关工作，聘请了中介机构对标的公司展开全面财务、法律尽职调查、审计等相关工作。
 
-” 周二早盘，国际原油基准布伦特原油价格已攀升至 111 美元 / 桶。
+同时，交易双方就本次股权收购事项的交易方案及核心条款进行了多轮磋商，但因交易双方未能就交易相关的关键条款达成一致意见，为维护公司及全体股东的合法权益，经公司审慎研究，决定终止本次收购。
 
 ## 相关推荐
 
-- 2026-06-30 06:40 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 06:30 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 06:20 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-30 06:36 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 06:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-30 06:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 06:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 06:41 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-30 06:14 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 06:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 06:23 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 06:40 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 06:39 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 06:25 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 06:22 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 06:47 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 06:39 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 06:36 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 06:31 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 06:31 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 06:28 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 06:38 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 06:26 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 06:38 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 06:37 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 06:19 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:31 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/6336886039.shtml)
-- 2026-06-30 06:19 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/318951866545.shtml)
-- 2026-06-30 06:26 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/8486021643.shtml)
-- 2026-06-30 06:23 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/2108474.shtml)
-- 2026-06-30 06:28 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/41689445.shtml)
-- 2026-06-30 06:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/83596574485.shtml)
-- 2026-06-30 06:29 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/779421631.shtml)
-- 2026-06-30 06:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/46042.shtml)
-- 2026-06-30 06:18 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/01812.shtml)
-- 2026-06-30 06:14 - [扬名立万](http://www.share.kurohicncr.top/Article/details/2371204.shtml)
-- 2026-06-30 06:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/165774925126.shtml)
-- 2026-06-30 06:13 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/90027188.shtml)
-- 2026-06-30 06:24 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/19684978844.shtml)
-- 2026-06-30 06:15 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/343724.shtml)
-- 2026-06-30 06:20 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/086259335.shtml)
+- 2026-06-30 06:35 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/725061690818.shtml)
+- 2026-06-30 06:41 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/731100.shtml)
+- 2026-06-30 06:18 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/07662356033.shtml)
+- 2026-06-30 06:39 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/4982789210.shtml)
+- 2026-06-30 06:26 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/0960052604.shtml)
+- 2026-06-30 06:23 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/33035884449.shtml)
+- 2026-06-30 06:34 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/372796548032.shtml)
+- 2026-06-30 06:29 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/896824532.shtml)
+- 2026-06-30 06:25 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/1156588.shtml)
+- 2026-06-30 06:42 - [金牌调解](http://www.share.minike.top/Article/details/0617372.shtml)
+- 2026-06-30 06:23 - [绘画区你赢了](https://www.blog.minike.top/Article/details/677938.shtml)
+- 2026-06-30 06:29 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/508473.shtml)
+- 2026-06-30 06:38 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/4491274217.shtml)
+- 2026-06-30 06:18 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/22713657358.shtml)
+- 2026-06-30 06:36 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/340498622.shtml)

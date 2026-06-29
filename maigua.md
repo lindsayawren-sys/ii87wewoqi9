@@ -1,60 +1,53 @@
-# 杨德龙：当前市场行情仍然延续结构性牛市走势
+# 一习话·追光的你丨“明天的中国 希望寄予青年”
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-4月份行情已接近尾声。相较于3月份市场的大幅下跌，4月份整体出现大幅反弹行情。3月底市场一度调整逼近3800点关口时，许多投资者缺乏信心，我与刘继鹏教授做了一次直播对话，明确指出本次调整属于牛回头行情，股市里“千金难买牛回头”，建议投资者坚定信心，通过配置科技创新板块以及重资产来抓住今年的投资主线。我明确讲到，中东冲突只会打乱A股市场行情的节奏，不会改变慢牛长牛的趋势。目前这一
+视频：一习话·追光的你丨“明天的中国 希望寄予青年”来源：央广网 党的十八大以来，习近平总书记始终高度重视青年工作，每次深入学校、企业、科研院所、农村、社区，都会和各界青年交流，同他们谈理想、谈人生、谈奋斗，勉励新时代青年“厚植家国情怀、涵养进取品格，以奋斗姿态激扬青春，不负时代，不负华年。” “以中国式现代化全面推进强国建设、民族复兴伟业，青年大有可为。”我们广大青年要牢记总
 
 ## 正文
 
-4月份行情已接近尾声。
+视频：一习话·追光的你丨“明天的中国 希望寄予青年”来源：央广网 党的十八大以来，习近平总书记始终高度重视青年工作，每次深入学校、企业、科研院所、农村、社区，都会和各界青年交流，同他们谈理想、谈人生、谈奋斗，勉励新时代青年“厚植家国情怀、涵养进取品格，以奋斗姿态激扬青春，不负时代，不负华年。
 
-相较于3月份市场的大幅下跌，4月份整体出现大幅反弹行情。
+” “以中国式现代化全面推进强国建设、民族复兴伟业，青年大有可为。
 
-3月底市场一度调整逼近3800点关口时，许多投资者缺乏信心，我与刘继鹏教授做了一次直播对话，明确指出本次调整属于牛回头行情，股市里“千金难买牛回头”，建议投资者坚定信心，通过配置科技创新板块以及重资产来抓住今年的投资主线。
+”我们广大青年要牢记总书记的嘱托，把个人奋斗与国家前途命运紧紧联系在一起，坚定理想信念，勇担历史使命，奋力书写新时代中国青年挺膺担当的青春篇章。
 
-我明确讲到，中东冲突只会打乱A股市场行情的节奏，不会改变慢牛长牛的趋势。
-
-目前这一判断已基本得到验证：4月份市场大幅反弹，逼近4100点整数关口。
-
-马上迎来五一长假，持股过节还是持币过节是许多投资者心中的疑问。
-
-假期期间需要关注霍尔木兹海峡能否放开、中东战争能否通过谈判结束、以及美股的走势，这些都可能影响节后市场行情。
-
-是否持股过节，关键取决于持股结构和权益仓位，如果持有的是优质股票或优质基金，可以持股过节；如果持有的是前期炒作较为厉害的题材性股票，则应及时获利了结。
+监制：张军 于锋 统筹：伍刚 王薇 策划制作：赵净 关灵子 胡典(实习) 记者：郭振丹 林馥榆 张子剑 中国互联网发展基金会中国正能量网络传播专项基金支持
 
 ## 相关推荐
 
-- 2026-06-30 06:19 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 06:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 06:23 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 06:28 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 06:16 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 06:38 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-30 06:15 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 06:18 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 06:36 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 06:14 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 06:19 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 06:25 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 06:33 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 06:14 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 06:38 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 06:40 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 06:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 06:27 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 06:35 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 06:21 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 06:24 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 06:43 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 06:45 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 06:18 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 06:42 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 06:21 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 06:27 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 06:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 06:42 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:25 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/1983868.shtml)
-- 2026-06-30 06:32 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/06915.shtml)
-- 2026-06-30 06:20 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/4959367.shtml)
-- 2026-06-30 06:31 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/072318.shtml)
-- 2026-06-30 06:29 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/71106.shtml)
-- 2026-06-30 06:28 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/1979579.shtml)
-- 2026-06-30 06:14 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/3877428266.shtml)
-- 2026-06-30 06:30 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/9556799575.shtml)
-- 2026-06-30 06:23 - [天道](https://www.blog.kurohicncr.top/Article/details/44893.shtml)
-- 2026-06-30 06:18 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/623759.shtml)
-- 2026-06-30 06:13 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/5475750.shtml)
-- 2026-06-30 06:12 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/6364389.shtml)
-- 2026-06-30 06:37 - [千与千寻](http://www.share.kurohicncr.top/Article/details/0722090509.shtml)
-- 2026-06-30 06:33 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/038860516.shtml)
-- 2026-06-30 06:34 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/990632928803.shtml)
+- 2026-06-30 06:23 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/780203023.shtml)
+- 2026-06-30 06:44 - [房价什么时候能涨](http://www.share.minike.top/Article/details/1952952.shtml)
+- 2026-06-30 06:44 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/2745112.shtml)
+- 2026-06-30 06:31 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/899277.shtml)
+- 2026-06-30 06:19 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/923805.shtml)
+- 2026-06-30 06:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/95842849481.shtml)
+- 2026-06-30 06:32 - [天道](https://www.blog.kurohicncr.top/Article/details/86077.shtml)
+- 2026-06-30 06:24 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/42811.shtml)
+- 2026-06-30 06:44 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/968823695.shtml)
+- 2026-06-30 06:47 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/6928877.shtml)
+- 2026-06-30 06:31 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/86529.shtml)
+- 2026-06-30 06:44 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/655219247.shtml)
+- 2026-06-30 06:18 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/07384.shtml)
+- 2026-06-30 06:20 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/89113313.shtml)
+- 2026-06-30 06:33 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/483718.shtml)

@@ -1,60 +1,61 @@
-# 广交会叠加五一假期 广州口岸出入境客流持续高位增长
+# 航空公司严管移动充电宝
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网广州4月28日电 (记者 方伟彬)记者28日从广州出入境边防检查总站(下称广州边检总站)获悉，随着五一假期临近，叠加即将开启的广交会第三期，广州边检总站下辖口岸将迎来新一轮客流高峰。 据统计，4月以来(截至4月28日0时)，广州边检总站所辖口岸出入境客流已超134万人次，同比增长11%，保持高位增长态势。其中，入境外籍人员数量同比大幅攀升25%，超21万名外籍人员通过单方
+这款热门随身物品已成为客机客舱火灾的主要诱因，各大航空公司因此禁止乘客在飞行途中为充电宝充电 内容速览 移动充电宝是民航客舱火灾的首要诱因，多家航空公司因此出台全新安全管控措施。 航空公司正应对一项新的飞行安全隐患 ——便携式移动充电宝。 这种锂离子电池充电宝深受旅客青睐，可随时为手机及其他电子设备补电。但同时，充电宝也是客舱火灾的主要源头，引发的安全事故数量远超其他任何可充电
 
 ## 正文
 
-中新网广州4月28日电 (记者 方伟彬)记者28日从广州出入境边防检查总站(下称广州边检总站)获悉，随着五一假期临近，叠加即将开启的广交会第三期，广州边检总站下辖口岸将迎来新一轮客流高峰。
+这款热门随身物品已成为客机客舱火灾的主要诱因，各大航空公司因此禁止乘客在飞行途中为充电宝充电 内容速览 移动充电宝是民航客舱火灾的首要诱因，多家航空公司因此出台全新安全管控措施。
 
-据统计，4月以来(截至4月28日0时)，广州边检总站所辖口岸出入境客流已超134万人次，同比增长11%，保持高位增长态势。
+航空公司正应对一项新的飞行安全隐患 ——便携式移动充电宝。
 
-其中，入境外籍人员数量同比大幅攀升25%，超21万名外籍人员通过单方面免签、过境免签政策从白云机场口岸入境，占入境外籍人员总数超五成；持商贸类签证人员占比超三成，商贸往来成为拉动入境客流增长的重要支撑。
+这种锂离子电池充电宝深受旅客青睐，可随时为手机及其他电子设备补电。
 
-从客流结构看，境外客商来源更趋多元。
+但同时，充电宝也是客舱火灾的主要源头，引发的安全事故数量远超其他任何可充电电子设备。
 
-广交会期间，“一带一路”共建国家出入境客流增幅明显，来自东盟、非洲、南美洲等地区的入境人员达18万人次，同比增长22.9%，成为入境参展采购的主力。
+为防范日益严峻的火灾风险，各大航空公司除早已禁止充电宝托运外，又新增了多项管控规定。
 
-与此同时，法国、英国等欧洲国家入境人员超5万人次，同比增幅超40%，显示全球采购商入境参展、拓展商机的需求持续旺盛。
+美国航空上周出台新规，禁止乘客使用机上电源插座给充电宝充电，政策与达美航空、西南航空保持一致。
 
-据预测，五一假期期间，广州白云国际机场、琶洲港澳客运码头等6大客运口岸出入境旅客总流量预计约29.7万人次，日均5.94万人次，较2025年五一假期同比增长约22%。
+西南航空还额外限制，每位旅客仅可携带一块移动充电宝。
 
-其中，白云国际机场口岸是客流高峰承载核心，假期日均客流量预计约5.5万人次；水路口岸客流增幅尤为亮眼，毗邻广交会展馆的琶洲港澳客运码头日均客流增幅达108%，南沙客运港、顺德客运港也分别实现75%、47.7%的同比增长。
+部分国际航司管控更为严格。
 
 ## 相关推荐
 
-- 2026-06-30 06:19 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 06:34 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 06:34 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 06:41 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 06:35 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 06:18 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 06:35 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 06:33 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 06:26 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 06:18 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 06:32 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 06:19 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 06:34 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 06:16 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 06:22 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 06:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 06:23 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 06:41 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 06:36 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 06:23 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 06:35 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 06:41 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 06:32 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 06:23 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 06:26 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 06:40 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 06:37 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 06:42 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 06:29 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:32 - [人类...完蛋了...](https://www.share.minike.top/Article/details/0639554.shtml)
-- 2026-06-30 06:31 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/491215.shtml)
-- 2026-06-30 06:38 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/63674926054.shtml)
-- 2026-06-30 06:12 - [世界杯](https://www.share.kurohicncr.top/Article/details/674301126434.shtml)
-- 2026-06-30 06:15 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/849110731365.shtml)
-- 2026-06-30 06:17 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/785769.shtml)
-- 2026-06-30 06:19 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/719010216525.shtml)
-- 2026-06-30 06:21 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/78247.shtml)
-- 2026-06-30 06:15 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/7846707877.shtml)
-- 2026-06-30 06:38 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/8412178325.shtml)
-- 2026-06-30 06:23 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/2406744963.shtml)
-- 2026-06-30 06:13 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/515764799525.shtml)
-- 2026-06-30 06:35 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/239256483747.shtml)
-- 2026-06-30 06:32 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/83999370066.shtml)
-- 2026-06-30 06:34 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/90058570.shtml)
+- 2026-06-30 06:39 - [美人鱼](http://www.share.minike.top/Article/details/8859026.shtml)
+- 2026-06-30 06:30 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/74313.shtml)
+- 2026-06-30 06:29 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/99919.shtml)
+- 2026-06-30 06:47 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/92984.shtml)
+- 2026-06-30 06:41 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/562418177764.shtml)
+- 2026-06-30 06:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/1433667002.shtml)
+- 2026-06-30 06:34 - [爱很美味](https://www.blog.minike.top/Article/details/299156958833.shtml)
+- 2026-06-30 06:47 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/9036281663.shtml)
+- 2026-06-30 06:20 - [极限挑战第一季](https://www.share.minike.top/Article/details/136157.shtml)
+- 2026-06-30 06:28 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/55572489.shtml)
+- 2026-06-30 06:23 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/332281343.shtml)
+- 2026-06-30 06:27 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/18966.shtml)
+- 2026-06-30 06:34 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/438231.shtml)
+- 2026-06-30 06:40 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/48803906.shtml)
+- 2026-06-30 06:45 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/6560095.shtml)

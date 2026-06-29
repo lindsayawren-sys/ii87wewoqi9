@@ -1,61 +1,57 @@
-# 通用电气医疗下调全年业绩预期 拟合并两大核心业务板块
+# 油价下跌，受美伊和平协议希望影响
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 这家医学影像企业预计，此次整合将提升运营效率，同时更好地服务患者与客户 受本季度存储芯片、原油及货运成本大幅攀升拖累，通用电气医疗（GE HealthCare） 下调了全年利润预期。 这家医疗科技企业同时宣布，将合并旗下两大最大业务板块，通过整合提升医学影像业务运营效率，同时优化对患者及客户的服务能力。 通用电气医疗于周三公布： 全年调整后
+受美伊和平协议希望影响，油价在早盘交易中下跌，该协议可能会减少供应中断。近月西得州中质油期货下跌1.6%，报每桶100.60美元；近月布伦特原油期货下跌1.1%，报每桶108.64美元。美国总统特朗普在Truth Social的一篇帖子中表示：“在与伊朗代表达成一项全面且最终的协议方面取得了巨大进展。“然而，油价的跌幅可能有限，因为特朗普还表示，他已同意暂停”Project F
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 这家医学影像企业预计，此次整合将提升运营效率，同时更好地服务患者与客户 受本季度存储芯片、原油及货运成本大幅攀升拖累，通用电气医疗（GE HealthCare） 下调了全年利润预期。
+受美伊和平协议希望影响，油价在早盘交易中下跌，该协议可能会减少供应中断。
 
-这家医疗科技企业同时宣布，将合并旗下两大最大业务板块，通过整合提升医学影像业务运营效率，同时优化对患者及客户的服务能力。
+近月西得州中质油期货下跌1.6%，报每桶100.60美元；近月布伦特原油期货下跌1.1%，报每桶108.64美元。
 
-通用电气医疗于周三公布： 全年调整后每股收益预期下调至4.80–5.00 美元，此前预期为 4.95–5.15 美元；FactSet 调研分析师预期为 5.06 美元 / 股。
+美国总统特朗普在Truth Social的一篇帖子中表示：“在与伊朗代表达成一项全面且最终的协议方面取得了巨大进展。
 
-公司维持全年内生营收增速 3%–4% 的指引不变。
+“然而，油价的跌幅可能有限，因为特朗普还表示，他已同意暂停”Project Freedom“，这是该政府推动商船通过霍尔木兹海峡的举措。
 
-首席执行官彼得・阿尔杜尼尼就下调盈利预期表示：“我们正采取审慎保守的经营策略。
+特朗普补充说，美国对伊朗港口的封锁将继续全面实施。
 
-” 他补充称，公司计划通过产品调价与成本管控措施，抵消过半通胀带来的成本压力。
-
-他同时表示：“重要的是，新一轮创新战略推进成效显著，将为未来营收与利润率增长蓄力。
-
-” 公司盘前股价大跌 9.6%，报 61.93 美元。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 06:27 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 06:38 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-30 06:13 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 06:23 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 06:39 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 06:24 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 06:31 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 06:33 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-30 06:13 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-30 06:36 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 06:29 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 06:14 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 06:32 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-30 06:31 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 06:33 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 06:20 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 06:37 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-30 06:38 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 06:25 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 06:29 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 06:24 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 06:18 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 06:28 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 06:34 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 06:42 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 06:33 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 06:18 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 06:27 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 06:28 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 06:20 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:34 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/387421949.shtml)
-- 2026-06-30 06:40 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/42420429601.shtml)
-- 2026-06-30 06:34 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/218822396890.shtml)
-- 2026-06-30 06:35 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/81387592.shtml)
-- 2026-06-30 06:31 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/91492570957.shtml)
-- 2026-06-30 06:31 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/250244820.shtml)
-- 2026-06-30 06:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/933733971.shtml)
-- 2026-06-30 06:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/25127.shtml)
-- 2026-06-30 06:41 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/52583470.shtml)
-- 2026-06-30 06:36 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/119021.shtml)
-- 2026-06-30 06:28 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/155014747.shtml)
-- 2026-06-30 06:15 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/523440.shtml)
-- 2026-06-30 06:20 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/35212876801.shtml)
-- 2026-06-30 06:15 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/435609934.shtml)
-- 2026-06-30 06:19 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/54654726657.shtml)
+- 2026-06-30 06:29 - [一见倾心](https://www.share.minike.top/Article/details/309936135570.shtml)
+- 2026-06-30 06:27 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/36854.shtml)
+- 2026-06-30 06:24 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/07810599.shtml)
+- 2026-06-30 06:27 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/38478007.shtml)
+- 2026-06-30 06:31 - [一生一世](https://www.share.minike.top/Article/details/36463086.shtml)
+- 2026-06-30 06:39 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/649882419.shtml)
+- 2026-06-30 06:19 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/8365784386.shtml)
+- 2026-06-30 06:44 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/59827158336.shtml)
+- 2026-06-30 06:29 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/43050697.shtml)
+- 2026-06-30 06:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/0071928.shtml)
+- 2026-06-30 06:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/94725847953.shtml)
+- 2026-06-30 06:44 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/17531188.shtml)
+- 2026-06-30 06:38 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/017499920.shtml)
+- 2026-06-30 06:35 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/0407366462.shtml)
+- 2026-06-30 06:47 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/139389568839.shtml)

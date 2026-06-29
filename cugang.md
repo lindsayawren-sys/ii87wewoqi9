@@ -1,57 +1,57 @@
-# 黄金，失守4600美元关口！
+# 美国汽油均价突破每加仑4.50美元，为2022年7月以来首次
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】黄金相继失守多个关口 中国基金报记者 张玲 4月28日晚间，黄金价格持续下跌。 截至发稿，伦敦金相继失守4600美元/盎司、4570美元/盎司关口，报4565.27美元/盎司，跌幅达2.48%。 COMEX黄金失守4600美元/盎司关口，截至发稿，报4593.5美元/盎司，跌幅超2
+GasBuddy的数据显示，周二美国全国汽油平均零售价突破每加仑4.50美元，为2022年7月以来首次。中东冲突持续扰乱经霍尔木兹海峡的石油运输，推高了油价。 随着美国阵亡将士纪念日假期临近，夏季驾车出行高峰期即将到来，油价大涨对正为11月中期选举造势的特朗普总统及其共和党构成了重大政治风险。分析人士表示，如果中东局势未能缓和，美国汽车燃油价格可能突破此前纪录。 GasBudd
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+GasBuddy的数据显示，周二美国全国汽油平均零售价突破每加仑4.50美元，为2022年7月以来首次。
 
-来源：中国基金报 【导读】黄金相继失守多个关口 中国基金报记者 张玲 4月28日晚间，黄金价格持续下跌。
+中东冲突持续扰乱经霍尔木兹海峡的石油运输，推高了油价。
 
-截至发稿，伦敦金相继失守4600美元/盎司、4570美元/盎司关口，报4565.27美元/盎司，跌幅达2.48%。
+随着美国阵亡将士纪念日假期临近，夏季驾车出行高峰期即将到来，油价大涨对正为11月中期选举造势的特朗普总统及其共和党构成了重大政治风险。
 
-COMEX黄金失守4600美元/盎司关口，截至发稿，报4593.5美元/盎司，跌幅超2%。
+分析人士表示，如果中东局势未能缓和，美国汽车燃油价格可能突破此前纪录。
 
-白银同步下跌。
+GasBuddy数据显示，截至周二美东时间下午5点20分，全美汽油平均价格为每加仑4.52美元。
 
-截至发稿，伦敦银跌超4%，报72.293美元/盎司；COMEX白银跌超3%，报72.57美元/盎司。
+汽油价格在3月末突破4美元，为2022年8月以来首次达到这一水平。
 
-国际原油期货继续走高。
+据GasBuddy数据，加利福尼亚州的平均油价为每加仑6.14美元，为全美最高。
 
-截至发稿，WTI原油期货价格大涨5%，报101.430美元/桶，时隔两周再次突破每桶100美元；布伦特原油期货价格涨超3%，报105.184美元/桶。
+受对海湾地区供应长期中断的担忧影响，原油期货价格飙升，汽油价格随之大幅上涨。
 
 ## 相关推荐
 
-- 2026-06-30 06:36 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 06:27 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 06:32 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-30 06:18 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 06:28 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 06:24 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 06:31 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 06:23 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-30 06:27 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 06:14 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 06:35 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 06:47 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 06:45 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 06:34 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-30 06:43 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 06:24 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 06:27 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 06:23 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-30 06:43 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 06:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 06:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 06:41 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:23 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/41674.shtml)
-- 2026-06-30 06:32 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/1684359.shtml)
-- 2026-06-30 06:15 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/99751.shtml)
-- 2026-06-30 06:23 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/417926614441.shtml)
-- 2026-06-30 06:26 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/72540.shtml)
-- 2026-06-30 06:13 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/287347109161.shtml)
-- 2026-06-30 06:17 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/893156304.shtml)
-- 2026-06-30 06:22 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/236371.shtml)
-- 2026-06-30 06:30 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/00566364.shtml)
-- 2026-06-30 06:36 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/10782590189.shtml)
-- 2026-06-30 06:36 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/262980239193.shtml)
-- 2026-06-30 06:39 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/380411099.shtml)
-- 2026-06-30 06:12 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/8621111.shtml)
-- 2026-06-30 06:39 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/27801.shtml)
-- 2026-06-30 06:12 - [这一刀 会很帅](http://www.share.minike.top/Article/details/8701655.shtml)
+- 2026-06-30 06:27 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/5621384392.shtml)
+- 2026-06-30 06:43 - [送你一朵小红花](http://www.blog.minike.top/Article/details/02100.shtml)
+- 2026-06-30 06:36 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/916459.shtml)
+- 2026-06-30 06:22 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/088384064793.shtml)
+- 2026-06-30 06:42 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/503748956.shtml)
+- 2026-06-30 06:39 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/5735316.shtml)
+- 2026-06-30 06:24 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/20208.shtml)
+- 2026-06-30 06:31 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/463633232142.shtml)
+- 2026-06-30 06:23 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/81226241987.shtml)
+- 2026-06-30 06:19 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/5328705.shtml)
+- 2026-06-30 06:24 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/980797007321.shtml)
+- 2026-06-30 06:24 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/24839717877.shtml)
+- 2026-06-30 06:45 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/70966.shtml)
+- 2026-06-30 06:25 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/17764247512.shtml)
+- 2026-06-30 06:29 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/40020.shtml)

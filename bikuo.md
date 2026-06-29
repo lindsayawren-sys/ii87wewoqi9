@@ -1,60 +1,52 @@
-# 广东因地制宜开展水美乡村建设
+# 2026年“五一”假期宁夏道路运输总体平稳有序
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网广州4月29日电 (记者 王坚)据广东省水利厅29日消息，《绿美雷州半岛水美乡村总体规划(2025-2035年)》(简称《规划》)近日由湛江市人民政府印发实施。《规划》是支撑雷州半岛高质量发展的战略规划。 广东省水利厅介绍，《规划》以水利为引领融合多行业领域，指导湛江市各县(市、区)水美乡村建设，并作为各县(市、区)编制本地区水美乡村建设实施方案、因地制宜开展水美乡村建设
+中新网银川5月6日电 (记者 杨迪)记者6日从宁夏交通运输厅获悉，2026年“五一”劳动节假期，宁夏高速公路总车流量439.17万辆，较2025年同期上升8.52%；公路客运量61.89万人次，同比上升0.51%，投入营运车辆17089辆、总客位数53.67万座，道路运输总体平稳有序。 宁夏交通运输部门针对12个易堵路段、7个易堵收费站、12个繁忙服务区，节前新增设充电枪40把
 
 ## 正文
 
-中新网广州4月29日电 (记者 王坚)据广东省水利厅29日消息，《绿美雷州半岛水美乡村总体规划(2025-2035年)》(简称《规划》)近日由湛江市人民政府印发实施。
+中新网银川5月6日电 (记者 杨迪)记者6日从宁夏交通运输厅获悉，2026年“五一”劳动节假期，宁夏高速公路总车流量439.17万辆，较2025年同期上升8.52%；公路客运量61.89万人次，同比上升0.51%，投入营运车辆17089辆、总客位数53.67万座，道路运输总体平稳有序。
 
-《规划》是支撑雷州半岛高质量发展的战略规划。
+宁夏交通运输部门针对12个易堵路段、7个易堵收费站、12个繁忙服务区，节前新增设充电枪40把，移动充电设施4台，累计建设运营充电桩295根、充电枪484把；畅通12328交通运输服务监督电话，假期累计受理群众咨询、求助等业务3594件。
 
-广东省水利厅介绍，《规划》以水利为引领融合多行业领域，指导湛江市各县(市、区)水美乡村建设，并作为各县(市、区)编制本地区水美乡村建设实施方案、因地制宜开展水美乡村建设的工作依据。
+“五一”劳动节期间，宁夏交通运输部门联合公安、市场监管等部门，聚焦汽车客运站、火车站、机场、旅游景区、高校周边等重点区域，严厉打击非法营运、违法包车、出租汽车违规经营、网约车平台违规行为等，假期累计出动执法人员1522人次，检查检测车辆33.15万辆次，查处超限超载车辆123辆；同时，加大公路养护巡查与设施维护力度，累计投入养护人员4329人次，巡查桥梁8792座、隧道155个，及时处置路面病害、修复受损设施，保障公路技术状况良好、通行条件优良。
 
-据了解，绿美雷州半岛水美乡村建设是环北广东工程二期的重要组成部分，是深入实施“百县千镇万村高质量发展工程”、绿美广东生态建设和推进水利高质量发展的重要项目，对实现环北广东工程的牵引作用和综合效益具有重要意义。
-
-《规划》由广东省粤西水资源管理局牵头组织，自2024年初启动编制工作以来，课题组先后赴湛江市、县(区)、镇、村开展了深入的现场踏勘和调研走访工作，在此基础上系统分析了雷州半岛水美乡村建设的面临形势和建设基础，结合广东省重大发展战略，编制完成《规划》报告。
-
-《规划》多次广泛征求省直有关部门及湛江市各县(市、区)各市直单位意见，并多次邀请国内知名高水平专家进行咨询，通过了专家评审和广东省水利厅技术中心技术审查，并通过了湛江市政府常务会、市委常委会和广东省水利厅厅长办公会、厅务会等会议审议。
-
-《规划》立足雷州半岛自然地理格局和资源禀赋，充分发挥环北广东工程的综合效益，提出“一轴六片多节点、一带十湾千里岸”的总体布局，围绕水系综合整治、绿化美化提升、水文化休闲系统建设、传统乡村风貌改善、水美经济发展等五大主要任务，因地制宜打造河渠田园型、库塘坡地型、滨海港湾型、碧池文韵型四种类型水美乡村，建设环半岛“一带十湾，百港千里岸”水美海湾带和6条各具特色的水美乡村带。
-
-据悉，通过实施《规划》提出的系统治理任务，将雷州半岛打造成为“一碧千里、水网密布、良田万顷、果香馥郁、海韵旖旎、宜业宜游”的绿美幸福半岛、广东现代水网建设的粤西案例。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:36 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 06:25 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 06:38 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 06:38 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 06:28 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 06:17 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 06:18 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 06:36 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 06:40 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 06:32 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 06:25 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 06:36 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-30 06:34 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-30 06:41 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 06:27 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 06:24 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 06:33 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 06:38 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 06:41 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 06:46 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 06:27 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 06:23 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 06:41 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 06:33 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 06:45 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 06:21 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 06:34 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 06:25 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:13 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/477241267431.shtml)
-- 2026-06-30 06:36 - [刘念回应](https://www.blog.minike.top/Article/details/42758.shtml)
-- 2026-06-30 06:23 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/949359721875.shtml)
-- 2026-06-30 06:12 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/10027323.shtml)
-- 2026-06-30 06:15 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/105629.shtml)
-- 2026-06-30 06:23 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/76923887.shtml)
-- 2026-06-30 06:41 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/97098327998.shtml)
-- 2026-06-30 06:35 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/21695.shtml)
-- 2026-06-30 06:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/787246507048.shtml)
-- 2026-06-30 06:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/194013254166.shtml)
-- 2026-06-30 06:27 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/7711508.shtml)
-- 2026-06-30 06:26 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/6805045239.shtml)
-- 2026-06-30 06:14 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/859137694161.shtml)
-- 2026-06-30 06:28 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/052044664069.shtml)
-- 2026-06-30 06:31 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/78679121.shtml)
+- 2026-06-30 06:42 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/512486176.shtml)
+- 2026-06-30 06:21 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/67583.shtml)
+- 2026-06-30 06:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/1634555050.shtml)
+- 2026-06-30 06:23 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/1981911564.shtml)
+- 2026-06-30 06:26 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/260046444754.shtml)
+- 2026-06-30 06:25 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/09925127120.shtml)
+- 2026-06-30 06:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/5573407126.shtml)
+- 2026-06-30 06:31 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/4143923140.shtml)
+- 2026-06-30 06:38 - [恋与深空 日服](https://www.blog.minike.top/Article/details/2088255.shtml)
+- 2026-06-30 06:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/97000.shtml)
+- 2026-06-30 06:22 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/2322292.shtml)
+- 2026-06-30 06:45 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/24663305563.shtml)
+- 2026-06-30 06:30 - [巴西2比1日本](http://www.blog.minike.top/Article/details/041026876643.shtml)
+- 2026-06-30 06:22 - [网瘾賊大的阿嬷](https://www.blog.kurohicncr.top/Article/details/0231463366.shtml)
+- 2026-06-30 06:46 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/278885415562.shtml)

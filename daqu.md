@@ -1,56 +1,57 @@
-# 2026金砖国家“能源电子产业”赛道选拔赛收官 挖掘新能源创新项目
+# 官方通报“男子猛推峨眉山猴险致其坠崖”
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网肇庆4月29日电 (记者 蔡敏婕)2026金砖国家工业创新大赛“能源电子产业”赛道选拔赛29日在广东肇庆高新区落幕。经过专家评审，本次赛事最终评选出的获奖项目集中在储能安全与管理、新能源材料与关键部件、高效光伏技术、电力装备数字化等新能源核心赛道。作为推动落实金砖国家新工业革命伙伴关系的务实举措，金砖国家工业创新大赛从2020年开始已经连续举办了六届。会上，工业和信息化部
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！近日，“男子推搡猴子，险致其坠崖”的视频在网络上传播。 视频显示，峨眉山景区雷洞坪附近一处步行道上，一黑衣男子突然猛推一只端坐在悬崖护栏上安静进食的猴子，险致猴子坠崖。事后该男子嬉笑着跑开。众多网友在视频下方留言，认为该男子行为不妥。 5月7日，峨眉山风景名胜区管理委员会发布情况通报称，已找到该男子并将其列
 
 ## 正文
 
-中新网肇庆4月29日电 (记者 蔡敏婕)2026金砖国家工业创新大赛“能源电子产业”赛道选拔赛29日在广东肇庆高新区落幕。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-经过专家评审，本次赛事最终评选出的获奖项目集中在储能安全与管理、新能源材料与关键部件、高效光伏技术、电力装备数字化等新能源核心赛道。
+近日，“男子推搡猴子，险致其坠崖”的视频在网络上传播。
 
-作为推动落实金砖国家新工业革命伙伴关系的务实举措，金砖国家工业创新大赛从2020年开始已经连续举办了六届。
+视频显示，峨眉山景区雷洞坪附近一处步行道上，一黑衣男子突然猛推一只端坐在悬崖护栏上安静进食的猴子，险致猴子坠崖。
 
-会上，工业和信息化部国际经济技术合作中心副主任张强表示，大赛为金砖及伙伴国搭建了同台竞技、友好交流、互学互鉴的合作平台，有效挖掘了一批创新能力突出、应用前景广阔的优质项目，促进了创新成果、产业资源与金融资本的精准对接。
+事后该男子嬉笑着跑开。
 
-英中贸易协会产业经济行业总监徐慧称，在英国布局未来新兴产业的进程中，氢能将发挥至关重要的作用。
+众多网友在视频下方留言，认为该男子行为不妥。
 
-英国重视与中国的合作，在中英能源对话中重申深化清洁能源合作承诺，为双方合作提供稳固条件。
+5月7日，峨眉山风景名胜区管理委员会发布情况通报称，已找到该男子并将其列入“不文明游客黑名单”，3年内禁止进入峨眉山景区： 近日，一则“一男子在峨眉山悬崖边推搡藏酋猴”视频在网络上广泛流传，引发热议。
 
-在工信部相关司局指导和支持下，金砖国家工业创新大赛专门设置的能源电子产业赛道，旨在遴选适用于金砖国家能源转型的创新产品、应用及解决方案，交流创新观点和标准，进一步凝聚金砖国家共同发展新能源产业的共识。
+对此，景区第一时间开展了深入调查，据查，视频之事发生于2026年5月4日下午，地点在景区雷洞坪区域，并非网传悬崖危险路段，一男性游客游经此地时，推搡路边栏杆上进食猴子，引起了社会广泛关注，造成不良的社会影响。
 
-此次能源电子赛道在肇庆高新区举办，是大赛项目与地方产业对接的尝试，更有助于汇聚全球智慧力量，推动肇庆高新区新能源产业的高质量发展。
+现景区已查找到该男子，并核实了其身份，在调查处理过程中，该男子对自己的行为也进行了认错和道歉。
 
 ## 相关推荐
 
-- 2026-06-30 06:19 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 06:29 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 06:31 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 06:36 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 06:28 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 06:22 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 06:13 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 06:23 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 06:20 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 06:16 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-30 06:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 06:35 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 06:37 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 06:32 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 06:20 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 06:40 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 06:33 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 06:38 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 06:18 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 06:44 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 06:41 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:34 - [巴西扳平比分](https://www.blog.minike.top/Article/details/072534829.shtml)
-- 2026-06-30 06:39 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/4917331249.shtml)
-- 2026-06-30 06:37 - [沙丘](http://www.blog.kurohicncr.top/Article/details/7334924545.shtml)
-- 2026-06-30 06:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/70011.shtml)
-- 2026-06-30 06:35 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/95461.shtml)
-- 2026-06-30 06:12 - [天道](http://www.share.minike.top/Article/details/298161320.shtml)
-- 2026-06-30 06:29 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/82452.shtml)
-- 2026-06-30 06:41 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/23210045.shtml)
-- 2026-06-30 06:37 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/6173198.shtml)
-- 2026-06-30 06:27 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/423920.shtml)
-- 2026-06-30 06:16 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/4225769631.shtml)
-- 2026-06-30 06:23 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/7160933011.shtml)
-- 2026-06-30 06:35 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/674382.shtml)
-- 2026-06-30 06:20 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/70031174222.shtml)
-- 2026-06-30 06:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/717663.shtml)
+- 2026-06-30 06:36 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/135120679449.shtml)
+- 2026-06-30 06:22 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/698242.shtml)
+- 2026-06-30 06:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/019609952.shtml)
+- 2026-06-30 06:44 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/348314.shtml)
+- 2026-06-30 06:47 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/743067549875.shtml)
+- 2026-06-30 06:37 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/240952125044.shtml)
+- 2026-06-30 06:45 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/503491.shtml)
+- 2026-06-30 06:20 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/390354.shtml)
+- 2026-06-30 06:43 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/128119589645.shtml)
+- 2026-06-30 06:25 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/9118347.shtml)
+- 2026-06-30 06:26 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/337745.shtml)
+- 2026-06-30 06:27 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/43769564.shtml)
+- 2026-06-30 06:27 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/38854851661.shtml)
+- 2026-06-30 06:25 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/321678811979.shtml)
+- 2026-06-30 06:41 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/106145.shtml)

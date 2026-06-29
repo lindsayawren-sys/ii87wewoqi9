@@ -1,56 +1,54 @@
-# 特朗普对伊朗发出新威胁 布伦特原油突破每桶115美元
+# 马斯克回应与Anthropic合作：若从事危害人类行为，将保留收回算力权利
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-要点速览 周三，油价再次上涨。交易员们一方面消化了阿拉伯联合酋长国意外退出石油输出国组织（欧佩克）的消息，另一方面也意识到伊朗战争短期内结束的可能性不大。 国际基准布伦特原油6 月交割期货在欧洲早盘交易中上涨 3.5%，报每桶115.13 美元，延续了周二连续第七个交易日上涨的势头。 美国西德克萨斯轻质原油（WTI）6 月交割期货上涨 3.7%，报每桶103.69 美元。该合约
+在SpaceX与Anthropic达成算力合作后，马斯克在X平台上回应网友询问时表示，SpaceX和特斯拉将为那些采取正确措施确保人工智能造福人类的公司提供计算资源，而如果这些公司的人工智能从事危害人类的行为，其将保留收回计算资源的权利。 一位网友询问：“你们未来是否计划将多余的算力出租，还是SpaceX和特斯拉会全部自用？” 马斯克回应称：“就像SpaceX以公平的条款和价格
 
 ## 正文
 
-要点速览 周三，油价再次上涨。
+在SpaceX与Anthropic达成算力合作后，马斯克在X平台上回应网友询问时表示，SpaceX和特斯拉将为那些采取正确措施确保人工智能造福人类的公司提供计算资源，而如果这些公司的人工智能从事危害人类的行为，其将保留收回计算资源的权利。
 
-交易员们一方面消化了阿拉伯联合酋长国意外退出石油输出国组织（欧佩克）的消息，另一方面也意识到伊朗战争短期内结束的可能性不大。
+一位网友询问：“你们未来是否计划将多余的算力出租，还是SpaceX和特斯拉会全部自用？
 
-国际基准布伦特原油6 月交割期货在欧洲早盘交易中上涨 3.5%，报每桶115.13 美元，延续了周二连续第七个交易日上涨的势头。
+” 马斯克回应称：“就像SpaceX以公平的条款和价格为竞争对手发射数百颗卫星一样，我们将为那些采取正确措施确保人工智能造福人类的公司提供算力支持。
 
-美国西德克萨斯轻质原油（WTI）6 月交割期货上涨 3.7%，报每桶103.69 美元。
+如果这些公司的人工智能从事危害人类的行为，我们保留收回算力的权利。
 
-该合约前一交易日收涨 3.7%，自 2 月 28 日美以联合对伊朗开战以来，涨幅已超过49%。
+我们将竭尽全力，为所有人创造一个富足美好的未来。
 
-此次最新上涨之际，有报道称美国将延长对伊朗港口的封锁，加剧了市场对霍尔木兹海峡航运长期中断的担忧。
+人非圣贤，孰能无过，我们也会犯错，但我们会始终迅速采取行动解决问题。
 
-《华尔街曰报》周二援引美国官员的话报道，美国总统唐纳德・特朗普将通过阻止船只进出伊朗港口，加大对伊朗经济和石油出口的压力。
-
-周三，特朗普在社交媒体 Truth Social 上发文威胁伊朗，称该国 “最好尽快学聪明点！
+” 责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 06:23 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 06:40 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 06:24 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 06:28 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 06:26 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 06:36 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 06:13 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 06:34 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 06:22 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 06:25 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 06:27 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 06:23 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 06:33 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 06:40 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 06:39 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 06:39 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 06:30 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 06:34 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 06:22 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 06:36 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/12265627308.shtml)
-- 2026-06-30 06:25 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/63343437723.shtml)
-- 2026-06-30 06:38 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/525406420227.shtml)
-- 2026-06-30 06:27 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/419669424095.shtml)
-- 2026-06-30 06:21 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/82834.shtml)
-- 2026-06-30 06:13 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/66610143220.shtml)
-- 2026-06-30 06:24 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/94814924723.shtml)
-- 2026-06-30 06:19 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/69597.shtml)
-- 2026-06-30 06:12 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/20655.shtml)
-- 2026-06-30 06:34 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/4522705191.shtml)
-- 2026-06-30 06:18 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/1959851208.shtml)
-- 2026-06-30 06:27 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/83577625227.shtml)
-- 2026-06-30 06:37 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/50886010288.shtml)
-- 2026-06-30 06:20 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/280566.shtml)
-- 2026-06-30 06:41 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/19694.shtml)
+- 2026-06-30 06:18 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/55546.shtml)
+- 2026-06-30 06:24 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/99331.shtml)
+- 2026-06-30 06:20 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/244073.shtml)
+- 2026-06-30 06:44 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/0473833.shtml)
+- 2026-06-30 06:26 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/617900.shtml)
+- 2026-06-30 06:29 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/474369.shtml)
+- 2026-06-30 06:33 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/9058331.shtml)
+- 2026-06-30 06:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/213992377309.shtml)
+- 2026-06-30 06:45 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/992178160218.shtml)
+- 2026-06-30 06:43 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/977035507404.shtml)
+- 2026-06-30 06:20 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/72536.shtml)
+- 2026-06-30 06:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/449825074648.shtml)
+- 2026-06-30 06:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/0968626.shtml)
+- 2026-06-30 06:33 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/61778751.shtml)
+- 2026-06-30 06:35 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/022257607931.shtml)

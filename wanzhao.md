@@ -1,61 +1,59 @@
-# 董事长被留置两个月后，五粮液年报“失约”！三季度业绩暴雷，痛失“白酒老二”
+# 全国首例海事监管领域信用修复在武汉完成
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-来源：南财社 继去年三季度业绩暴雷后，五粮液年报竟然也开始“失约”！ 01 年报延期踩线披露， 董事长任上被查留置至今 4月28日晚上，原定4月29日披露年报和一季报的五粮液突然发布公告称，为了进一步完善定期报告编制和复核工作，将延期至30日收市后披露财报。并且董事会还对此致歉。 值得一提的事，距离这一条公告发布前，五粮液最新的一条公告就是董事长曾从钦因为严重违纪违法被查。 曾
+中新网武汉5月7日电 (武一力 倪韬 刘娟)近日，武汉海事局指导“剑邑”轮成功完成海事监管领域信用修复，成为《海事监管领域信用管理规定(试行)》(以下简称《规定》)自2026年1月1日施行以来，全国海事系统首例信用修复案例。2025年12月18日，“剑邑”轮在长江武汉段航行作业期间，拒不遵守水上交通管制指令，违规操作扰乱通航秩序，存在严重安全隐患。武汉海事局执法人员依法对其违法
 
 ## 正文
 
-来源：南财社 继去年三季度业绩暴雷后，五粮液年报竟然也开始“失约”！
+中新网武汉5月7日电 (武一力 倪韬 刘娟)近日，武汉海事局指导“剑邑”轮成功完成海事监管领域信用修复，成为《海事监管领域信用管理规定(试行)》(以下简称《规定》)自2026年1月1日施行以来，全国海事系统首例信用修复案例。
 
-01 年报延期踩线披露， 董事长任上被查留置至今 4月28日晚上，原定4月29日披露年报和一季报的五粮液突然发布公告称，为了进一步完善定期报告编制和复核工作，将延期至30日收市后披露财报。
+2025年12月18日，“剑邑”轮在长江武汉段航行作业期间，拒不遵守水上交通管制指令，违规操作扰乱通航秩序，存在严重安全隐患。
 
-并且董事会还对此致歉。
+武汉海事局执法人员依法对其违法行为进行查处。
 
-值得一提的事，距离这一条公告发布前，五粮液最新的一条公告就是董事长曾从钦因为严重违纪违法被查。
+2026年1月7日，长江海事局依法将该船评价为“一般失信”，信用情形为“不遵守水上交通管制措施”，信用信息自1月26日起公布，有效期至2026年7月25日。
 
-曾从钦被查的相当突然，春节刚开年没多久，就被官宣留置，而后曾从钦的名字也迅速被撤下官网。
+失信期间，该船舶被列为重点监管对象，接受全方位从严监管约束，在政务服务、现场检查、体系审核等领域均会受到影响。
 
-至今官方认为披露后续消息。
+自《规定》施行以来，武汉海事部门坚持“惩戒与修复并重、监管与服务并行”。
 
-据行业媒体报道，曾从钦被留置后，宜宾市国资迅速介入，安排宜宾市委常委刘乃贵临时主持五粮液集团与股份公司全面工作。
+在“剑邑”轮满3个月修复窗口期当天，武汉海事局主动联系船方，告知其已具备提前申请信用修复资格，并安排专人“一对一”指导使用“海事通”App完成申请，全流程跟踪指导，帮助船方尽快移出失信名单，恢复正常营运。
 
-但五粮液始终没有正式公告聘任新任董事长，“一把手”空缺至今，仍在过渡期。
+船方提交申请后，长江海事局依法审核，确认符合修复条件，予以修复。
 
 ## 相关推荐
 
-- 2026-06-30 06:41 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 06:40 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 06:31 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 06:20 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 06:25 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 06:17 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 06:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 06:37 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 06:22 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 06:33 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 06:19 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 06:15 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 06:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 06:13 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 06:27 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 06:47 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 06:21 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 06:44 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 06:41 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 06:39 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 06:23 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 06:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 06:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 06:26 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 06:40 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 06:33 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 06:45 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 06:43 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:32 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/46031398.shtml)
-- 2026-06-30 06:37 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/245014.shtml)
-- 2026-06-30 06:14 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/4308223.shtml)
-- 2026-06-30 06:27 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/014976011.shtml)
-- 2026-06-30 06:40 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/59044.shtml)
-- 2026-06-30 06:39 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/26374.shtml)
-- 2026-06-30 06:25 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/23967418478.shtml)
-- 2026-06-30 06:21 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/916771.shtml)
-- 2026-06-30 06:13 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/225988930.shtml)
-- 2026-06-30 06:29 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/9593685944.shtml)
-- 2026-06-30 06:31 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/7959387.shtml)
-- 2026-06-30 06:22 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/5354710.shtml)
-- 2026-06-30 06:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/357207869043.shtml)
-- 2026-06-30 06:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/450084233.shtml)
-- 2026-06-30 06:39 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/78705398.shtml)
+- 2026-06-30 06:36 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/83582.shtml)
+- 2026-06-30 06:19 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/6902978800.shtml)
+- 2026-06-30 06:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/11838083001.shtml)
+- 2026-06-30 06:37 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/299424941662.shtml)
+- 2026-06-30 06:39 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/264465384.shtml)
+- 2026-06-30 06:21 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/879743341737.shtml)
+- 2026-06-30 06:18 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/16569434.shtml)
+- 2026-06-30 06:39 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/62679361.shtml)
+- 2026-06-30 06:20 - [金刚川](http://www.share.minike.top/Article/details/906409.shtml)
+- 2026-06-30 06:35 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/63792983103.shtml)
+- 2026-06-30 06:45 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/847112149356.shtml)
+- 2026-06-30 06:23 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/05325130693.shtml)
+- 2026-06-30 06:33 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/1946572606.shtml)
+- 2026-06-30 06:29 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/328581044.shtml)
+- 2026-06-30 06:25 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/22236231349.shtml)

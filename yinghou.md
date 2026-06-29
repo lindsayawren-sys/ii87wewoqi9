@@ -1,58 +1,60 @@
-# 持牌消金机构备战“五一”消费旺季
+# 一张照片刷开门锁？消协实测曝光：智能锁这些功能有隐患
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-来源：经济参考网 随着“五一”小长假临近，蚂蚁消费金融、海尔消费金融、建信消费金融等多家持牌机构紧扣惠民生、促消费政策导向，以场景深耕、产品与服务优化、数字赋能多维发力，叠加个人消费贷款财政贴息政策落地见效，为假期消费注入强劲动能。 便民惠民让利实体政策红利精准落地 多家消费金融机构紧跟国家优化个人消费贷款财政贴息政策步伐，简化流程、提升额度、放宽限制，让政策红利直达终端消费者
+智能门锁凭借便捷高效的使用体验，已经成为不少现代家庭的标配产品。不过，您有没有想到，这些智能门锁也有安全隐患？近日，京津冀三地消协组织共采集20个主流品牌、30款热销智能门锁进行比较试验。令人意想不到的是，这其中有的产品，用一张打印照片就能打开。在对某款智能锁的测试中，工作人员事先录入其人脸信息，令人意想不到的是，随后另一名工作人员使用其照片也顺利地打开了门锁。 工程师介绍，出
 
 ## 正文
 
-来源：经济参考网 随着“五一”小长假临近，蚂蚁消费金融、海尔消费金融、建信消费金融等多家持牌机构紧扣惠民生、促消费政策导向，以场景深耕、产品与服务优化、数字赋能多维发力，叠加个人消费贷款财政贴息政策落地见效，为假期消费注入强劲动能。
+智能门锁凭借便捷高效的使用体验，已经成为不少现代家庭的标配产品。
 
-便民惠民让利实体政策红利精准落地 多家消费金融机构紧跟国家优化个人消费贷款财政贴息政策步伐，简化流程、提升额度、放宽限制，让政策红利直达终端消费者。
+不过，您有没有想到，这些智能门锁也有安全隐患？
 
-蚂蚁消费金融升级贴息支持，将政策实施期限延长至2026年底，取消单笔消费贴息金额500元上限及消费领域限制，覆盖更广泛消费场景，切实降低居民信贷成本。
+近日，京津冀三地消协组织共采集20个主流品牌、30款热销智能门锁进行比较试验。
 
-海尔消费金融深耕核心消费场景，通过“产业贴息+国补”的智家分期服务，为消费者提供“0首付、0利息、0手续费”的分期方案，搭配6至12期灵活周期，降低大宗家电购置门槛，助力绿色消费升级。
+令人意想不到的是，这其中有的产品，用一张打印照片就能打开。
 
-建信消费金融近期发布个人消费贷款财政贴息服务公告，政策实施期限为2026年全年，期间客户可享受年化1个百分点的贴息优惠，年度累计贴息上限为3000元。
+在对某款智能锁的测试中，工作人员事先录入其人脸信息，令人意想不到的是，随后另一名工作人员使用其照片也顺利地打开了门锁。
 
-该机构将贴息政策与线上产品相结合，深化在购物、文旅、教育等消费场景的布局，推动政策红利直达消费者。
+工程师介绍，出现这类问题，主要是部分企业希望给用户带来更顺畅、接近“秒开”的解锁体验，因此会适当调低识别阈值，优先保障操作的便捷性。
 
-深耕全场景消费激活假日经济潜力 “五一”假期带动文娱、餐饮、出行、购物等场景集中升温，消费金融公司深入各类场景，推出专属优惠，助力激活节日消费效应。
+某智能家居检测中心副部长 魏明然：把阈值调低，给人的体验是开门会比较快。
 
-中邮消费金融推出“踏青邮礼季”活动，以15天免息券、利息折扣券及加油卡等福利，精准拉动出行、户外等消费场景。
+有的门锁把阈值调得相对高一些，安全性会高一些，在体验上开门时间会稍长。
 
 ## 相关推荐
 
-- 2026-06-30 06:25 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 06:41 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 06:17 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 06:30 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 06:18 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-30 06:24 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 06:38 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 06:30 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 06:23 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 06:31 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 06:12 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 06:26 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 06:30 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 06:22 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 06:40 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 06:32 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 06:40 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 06:38 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 06:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 06:39 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-30 06:35 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 06:42 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 06:22 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 06:47 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 06:28 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 06:25 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:40 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/90882104.shtml)
-- 2026-06-30 06:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/573567694.shtml)
-- 2026-06-30 06:18 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/39745666829.shtml)
-- 2026-06-30 06:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/399466150801.shtml)
-- 2026-06-30 06:34 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/2236691311.shtml)
-- 2026-06-30 06:30 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/81103933970.shtml)
-- 2026-06-30 06:23 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/221261563327.shtml)
-- 2026-06-30 06:30 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/2679901816.shtml)
-- 2026-06-30 06:34 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/616155011.shtml)
-- 2026-06-30 06:14 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/026105971.shtml)
-- 2026-06-30 06:19 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/546918588604.shtml)
-- 2026-06-30 06:17 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/49543.shtml)
-- 2026-06-30 06:39 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/4683262381.shtml)
-- 2026-06-30 06:17 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/7445293075.shtml)
-- 2026-06-30 06:20 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/0162413.shtml)
+- 2026-06-30 06:31 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/986522800362.shtml)
+- 2026-06-30 06:46 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/9279263400.shtml)
+- 2026-06-30 06:30 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/6903097643.shtml)
+- 2026-06-30 06:38 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/108518847.shtml)
+- 2026-06-30 06:32 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/86152583.shtml)
+- 2026-06-30 06:25 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/700894747446.shtml)
+- 2026-06-30 06:24 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/4541705206.shtml)
+- 2026-06-30 06:18 - [点菜也要教吗](https://www.share.minike.top/Article/details/282751.shtml)
+- 2026-06-30 06:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/870160.shtml)
+- 2026-06-30 06:36 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/905813.shtml)
+- 2026-06-30 06:22 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/116970.shtml)
+- 2026-06-30 06:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/46673.shtml)
+- 2026-06-30 06:39 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/6406910.shtml)
+- 2026-06-30 06:42 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/02426853.shtml)
+- 2026-06-30 06:29 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/08982253346.shtml)

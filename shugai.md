@@ -1,45 +1,60 @@
-# 湖南省司法厅原党组成员、副厅长钟艺兵接受审查调查
+# 2025银行年报观察室｜增利不增收，中间业务“掉链子”，广州银行有点难
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网4月29日电 据湖南省纪委监委消息：湖南省司法厅原党组成员、副厅长，省监狱管理局原党委书记、局长钟艺兵涉嫌严重违纪违法，目前正接受湖南省纪委监委纪律审查和监察调查。
+（来源：北京商报）大湾区金融棋局正酣，区域城商行的生存竞赛已然进入深水区。扎根广州、深耕本土的广州银行，在近日交出了2025年“成绩单”。这一年，广州银行资产规模突破9300亿元，不良贷款余额与不良率“双降”，资产端“稳”的底色持续加固，但盈利端却陷入“增利不增收”的境地。拆解来看，净息差跌至1.05%，资产收益率下行远快于负债成本压降，导致利息净收入出现下滑；手续费及佣金收入
 
 ## 正文
 
-中新网4月29日电 据湖南省纪委监委消息：湖南省司法厅原党组成员、副厅长，省监狱管理局原党委书记、局长钟艺兵涉嫌严重违纪违法，目前正接受湖南省纪委监委纪律审查和监察调查。
+（来源：北京商报）大湾区金融棋局正酣，区域城商行的生存竞赛已然进入深水区。
+
+扎根广州、深耕本土的广州银行，在近日交出了2025年“成绩单”。
+
+这一年，广州银行资产规模突破9300亿元，不良贷款余额与不良率“双降”，资产端“稳”的底色持续加固，但盈利端却陷入“增利不增收”的境地。
+
+拆解来看，净息差跌至1.05%，资产收益率下行远快于负债成本压降，导致利息净收入出现下滑；手续费及佣金收入同比降幅超27%，暴露中间业务创新不足、转型滞后的短板。
+
+更严峻的是，IPO折戟后资本补充渠道受阻，而广州银行资本充足率已然明显下行，资本约束已然成为掣肘信贷扩张、业务创新的瓶颈。
+
+增利不增收当区域城商行的竞争进入“白热化”阶段，身处粤港澳大湾区的广州银行交出了一份“喜忧参半”的成绩单。
+
+2025年，广州银行总资产站上新台阶，达9353.64亿元，比上年末增加805.58亿元，增幅9.42%，显示出强劲的规模扩张动能；与此同时，资产质量持续优化，不良指标实现“双降”，不良贷款余额84.19亿元，同比下降1.06亿元；不良贷款率1.73%，同比下降0.11个百分点。
+
+然而，这份看似稳健的成绩单背后，盈利端的结构性矛盾已然凸显，全年实现营业收入125.65亿元，同比下滑8.85%；净利润11.83亿元，同比增长16.91%。
 
 ## 相关推荐
 
-- 2026-06-30 06:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-30 06:30 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 06:19 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 06:21 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 06:14 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-30 06:19 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 06:23 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 06:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 06:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 06:34 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 06:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 06:27 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 06:18 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 06:29 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 06:34 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 06:30 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 06:45 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 06:38 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 06:32 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 06:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 06:22 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 06:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 06:32 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 06:34 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 06:31 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 06:20 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 06:19 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:22 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/7865826024.shtml)
-- 2026-06-30 06:34 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/1143054.shtml)
-- 2026-06-30 06:26 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/877171739.shtml)
-- 2026-06-30 06:19 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/325393.shtml)
-- 2026-06-30 06:27 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/333107820531.shtml)
-- 2026-06-30 06:22 - [我们的少年时代2](https://www.blog.minike.top/Article/details/5147674.shtml)
-- 2026-06-30 06:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/23149134.shtml)
-- 2026-06-30 06:22 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/26980100.shtml)
-- 2026-06-30 06:37 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/3808089829.shtml)
-- 2026-06-30 06:17 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/177082594068.shtml)
-- 2026-06-30 06:34 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/716458261929.shtml)
-- 2026-06-30 06:18 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/09786.shtml)
-- 2026-06-30 06:14 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/289499586426.shtml)
-- 2026-06-30 06:24 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/19572399518.shtml)
-- 2026-06-30 06:30 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/02308446089.shtml)
+- 2026-06-30 06:40 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/30411785055.shtml)
+- 2026-06-30 06:31 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/253805682214.shtml)
+- 2026-06-30 06:31 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/2606609.shtml)
+- 2026-06-30 06:33 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/5600377.shtml)
+- 2026-06-30 06:37 - [美股](http://www.share.kurohicncr.top/Article/details/81442384.shtml)
+- 2026-06-30 06:36 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/26501.shtml)
+- 2026-06-30 06:19 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/974452784737.shtml)
+- 2026-06-30 06:19 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/958404774857.shtml)
+- 2026-06-30 06:46 - [极限挑战第一季](https://www.blog.minike.top/Article/details/436709.shtml)
+- 2026-06-30 06:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/4061675.shtml)
+- 2026-06-30 06:44 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/15837542236.shtml)
+- 2026-06-30 06:18 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/989958995816.shtml)
+- 2026-06-30 06:40 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/00426127.shtml)
+- 2026-06-30 06:23 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/80799.shtml)
+- 2026-06-30 06:42 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/342069.shtml)

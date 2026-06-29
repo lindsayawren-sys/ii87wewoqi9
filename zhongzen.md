@@ -1,48 +1,57 @@
-# 外媒：消息人士称伊朗将很快发动“前所未有的军事行动”
+# GTC泽汇资本:金价反弹动能增强
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网4月29日电 据伊朗新闻电视台当地时间29日援引一名高级安全官员的话称，伊朗将很快以“前所未有的军事行动”回应美国“持续不断的海盗行为”。 报道称，美国近期在霍尔木兹海峡附近拦截并扣押了伊朗船只，伊方指责这是“海盗行为”。 此前伊朗军队发言人曾表示，伊朗空军已对地区美军基地实施了“前所未有的打击”。
+5月6日，贵金属市场迎来明显反弹，金价在多重因素共振下走高。GTC泽汇资本表示，受美元走软与能源价格回落带动，黄金重新获得上行动力，现货黄金一度上涨逾2%，站上每盎司4660美元上方。与此同时，期货市场同步走强，显示短线资金情绪明显改善，避险与流动性逻辑重新占据主导。 中东局势释放缓和信号成为关键变量之一。市场普遍认为，相关地区冲突存在转向外交解决的可能，使得此前推动油价飙升的
 
 ## 正文
 
-中新网4月29日电 据伊朗新闻电视台当地时间29日援引一名高级安全官员的话称，伊朗将很快以“前所未有的军事行动”回应美国“持续不断的海盗行为”。
+5月6日，贵金属市场迎来明显反弹，金价在多重因素共振下走高。
 
-报道称，美国近期在霍尔木兹海峡附近拦截并扣押了伊朗船只，伊方指责这是“海盗行为”。
+GTC泽汇资本表示，受美元走软与能源价格回落带动，黄金重新获得上行动力，现货黄金一度上涨逾2%，站上每盎司4660美元上方。
 
-此前伊朗军队发言人曾表示，伊朗空军已对地区美军基地实施了“前所未有的打击”。
+与此同时，期货市场同步走强，显示短线资金情绪明显改善，避险与流动性逻辑重新占据主导。
+
+中东局势释放缓和信号成为关键变量之一。
+
+市场普遍认为，相关地区冲突存在转向外交解决的可能，使得此前推动油价飙升的风险溢价开始回落。
+
+GTC泽汇资本认为，能源价格的回调有效缓解了通胀压力预期，也降低了主要央行继续维持紧缩立场的必要性。
+
+在此背景下，黄金所面临的利率压制有所减轻，价格弹性得以释放。
+
+从宏观环境看，美元走弱为金价提供了直接支撑。
 
 ## 相关推荐
 
-- 2026-06-30 06:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 06:23 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 06:30 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 06:20 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 06:16 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 06:13 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 06:38 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 06:33 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 06:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 06:26 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 06:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-30 06:31 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 06:33 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 06:28 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 06:26 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 06:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 06:19 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 06:39 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 06:38 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 06:47 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 06:38 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 06:25 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 06:37 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:37 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/244990045522.shtml)
-- 2026-06-30 06:14 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/887839866376.shtml)
-- 2026-06-30 06:40 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/1317543455.shtml)
-- 2026-06-30 06:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/306007127.shtml)
-- 2026-06-30 06:39 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/875422.shtml)
-- 2026-06-30 06:16 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/21349976653.shtml)
-- 2026-06-30 06:39 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/180691719.shtml)
-- 2026-06-30 06:13 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/398193994447.shtml)
-- 2026-06-30 06:19 - [世界杯](http://www.blog.kurohicncr.top/Article/details/628292112958.shtml)
-- 2026-06-30 06:41 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/4958752.shtml)
-- 2026-06-30 06:12 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/911804.shtml)
-- 2026-06-30 06:38 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/60739057.shtml)
-- 2026-06-30 06:13 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/25286995456.shtml)
-- 2026-06-30 06:20 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/96125241006.shtml)
-- 2026-06-30 06:38 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/950746035.shtml)
+- 2026-06-30 06:29 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/58677526948.shtml)
+- 2026-06-30 06:36 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/777367827662.shtml)
+- 2026-06-30 06:18 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/171228524.shtml)
+- 2026-06-30 06:18 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/677679477.shtml)
+- 2026-06-30 06:29 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/19933269.shtml)
+- 2026-06-30 06:41 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/575168776819.shtml)
+- 2026-06-30 06:33 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/26457122.shtml)
+- 2026-06-30 06:43 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/81797962.shtml)
+- 2026-06-30 06:22 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/95659930877.shtml)
+- 2026-06-30 06:45 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/052111131502.shtml)
+- 2026-06-30 06:45 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/900752717055.shtml)
+- 2026-06-30 06:42 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/6406550897.shtml)
+- 2026-06-30 06:20 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.kurohicncr.top/Article/details/1682418739.shtml)
+- 2026-06-30 06:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/469259359.shtml)
+- 2026-06-30 06:44 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/7605870.shtml)

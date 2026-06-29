@@ -1,57 +1,56 @@
-# 北京银行首席风险官房旭：一季度不良率略有上升，但总体来看全行资产质量稳中向好的趋势没有改变
+# 涉疫邮轮将停靠西班牙 世卫组织称或出现人际传播
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-4月29日金融一线消息，北京银行今日召开2025年年度暨2026年第一季度业绩说明会。首席风险官房旭表示，2025年该行风险管理成效突出且鲜明，可概括为“资产质量稳中有升，信贷结构不断优化，风险敞口持续收敛”三句话。 他指出，北京银行已连续5年实现关键指标持续改善向好，不良贷款率较年初下降0.02个百分点，关注贷款率较年初下降0.18个百分点，逾贷比较年初大幅下降0.42个百分
+中新社北京5月6日电 据路透社等外媒消息，涉汉坦病毒疫情邮轮“洪迪厄斯”号将于当地时间6日从目前停泊的佛得角海域前往西班牙。世界卫生组织称，部分病例之间存在密切接触，可能出现罕见的人际传播。 西班牙卫生部5日发表声明说，应世卫组织及欧盟方面要求，西班牙同意在加那利群岛接收该邮轮。声明指出，佛得角不具备开展相关处置的能力，而加那利群岛是具备条件的最近地点。 声明称，邮轮抵达后，所
 
 ## 正文
 
-4月29日金融一线消息，北京银行今日召开2025年年度暨2026年第一季度业绩说明会。
+中新社北京5月6日电 据路透社等外媒消息，涉汉坦病毒疫情邮轮“洪迪厄斯”号将于当地时间6日从目前停泊的佛得角海域前往西班牙。
 
-首席风险官房旭表示，2025年该行风险管理成效突出且鲜明，可概括为“资产质量稳中有升，信贷结构不断优化，风险敞口持续收敛”三句话。
+世界卫生组织称，部分病例之间存在密切接触，可能出现罕见的人际传播。
 
-他指出，北京银行已连续5年实现关键指标持续改善向好，不良贷款率较年初下降0.02个百分点，关注贷款率较年初下降0.18个百分点，逾贷比较年初大幅下降0.42个百分点，潜在风险持续收敛。
+西班牙卫生部5日发表声明说，应世卫组织及欧盟方面要求，西班牙同意在加那利群岛接收该邮轮。
 
-从业务结构来看，房旭将其概括为三个优化。
+声明指出，佛得角不具备开展相关处置的能力，而加那利群岛是具备条件的最近地点。
 
-首先是区域结构不断优化，北京银行全力服务国家区域经济发展战略，京津冀、长三角、粤港澳大湾区合计贷款余额占比已达全行的75%，成为真正的基本盘和增长极。
+声明称，邮轮抵达后，所有船员和乘客将立刻接受检查和治疗。
 
-其次是客户结构不断优化，普惠小微贷款规模突破2500亿元，科技金融贷款规模接近4500亿元，服务专精特新企业超过3万家。
+西班牙将对运输车辆实施严格防护措施，以避免与当地居民接触，同时保护医务人员。
 
-第三是行业结构不断优化，科技金融、绿色金融、文化金融、先进制造业贷款增速均明显高于全行一般公司贷款的平均增速，通过优结构实现了优质量。
+后续，西班牙还将与世卫组织和欧洲疾病预防控制中心协调，安排船上人员返回各自国家。
 
-房旭强调，风控能力是商业银行的核心竞争力，全面加强风险管理是北京银行高质量发展的重要保障。
+根据世卫组织最新通报，目前船上已发现7例病例，其中2例为实验室确诊，5例为疑似病例。
 
 ## 相关推荐
 
-- 2026-06-30 06:18 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 06:39 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 06:23 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 06:19 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-30 06:34 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 06:23 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 06:33 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 06:41 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 06:21 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 06:34 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 06:39 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 06:18 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 06:20 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 06:47 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 06:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 06:28 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 06:29 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 06:41 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 06:31 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 06:28 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 06:26 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:24 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/940882167.shtml)
-- 2026-06-30 06:31 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/192427.shtml)
-- 2026-06-30 06:16 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/659732299112.shtml)
-- 2026-06-30 06:13 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/32887.shtml)
-- 2026-06-30 06:37 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/6290491.shtml)
-- 2026-06-30 06:17 - [《共患难》](https://www.blog.minike.top/Article/details/2608389589.shtml)
-- 2026-06-30 06:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/498594543.shtml)
-- 2026-06-30 06:38 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/60217887.shtml)
-- 2026-06-30 06:20 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/442512479.shtml)
-- 2026-06-30 06:38 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/94751134.shtml)
-- 2026-06-30 06:40 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/8633755851.shtml)
-- 2026-06-30 06:31 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/493127043.shtml)
-- 2026-06-30 06:14 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/85986661.shtml)
-- 2026-06-30 06:25 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/7354821.shtml)
-- 2026-06-30 06:38 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/5344458.shtml)
+- 2026-06-30 06:31 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/7588996.shtml)
+- 2026-06-30 06:33 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/560196860.shtml)
+- 2026-06-30 06:23 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/4246249.shtml)
+- 2026-06-30 06:28 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/12745086932.shtml)
+- 2026-06-30 06:25 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/1865293673.shtml)
+- 2026-06-30 06:22 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/0639098.shtml)
+- 2026-06-30 06:18 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/944533526690.shtml)
+- 2026-06-30 06:34 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/989706.shtml)
+- 2026-06-30 06:40 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/8089827.shtml)
+- 2026-06-30 06:19 - [女心理师](https://www.blog.kurohicncr.top/Article/details/183801.shtml)
+- 2026-06-30 06:22 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/903867269767.shtml)
+- 2026-06-30 06:40 - [沙丘](https://www.share.minike.top/Article/details/327940861.shtml)
+- 2026-06-30 06:23 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/72108738118.shtml)
+- 2026-06-30 06:40 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/0735540.shtml)
+- 2026-06-30 06:19 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/14489901160.shtml)

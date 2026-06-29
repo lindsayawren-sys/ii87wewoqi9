@@ -1,59 +1,57 @@
-# 河南开封：“一县一业”聚链成势 订单农业助农企双赢
+# 欧元集团主席呼吁：欧洲需要更大银行以抗衡美中
 
-> 更新时间：2026-06-30 06:42:02 UTC+8
+> 更新时间：2026-06-30 06:48:02 UTC+8
 
 ## 摘要
 
-中新网开封4月29日电 (经晓佳 左起超)春日里，河南省开封市祥符区麦田和花生地一派忙碌景象，一些农户正在田间除草、施肥，悉心管护，努力种出更多优质麦子和高油酸花生，供应当地粮油供应链企业。 开封地处豫东平原，是小麦等粮食作物的重要产区，其辖属杞县、通许县、尉氏县、祥符区均为国家重要的产粮大县。这些产粮大县的众多农户已与开封龙大植物油有限公司、益海嘉里(开封)食品工业有限公司(
+欧元集团主席皮耶拉卡基斯周二表示，欧盟需要拥有规模更大的银行，才能与美国和中国的同业展开有效竞争。他强调，欧洲需要的是“欧洲冠军”，而非“各国冠军”，而跨境合并是打造欧洲级银行集团的关键路径。 皮耶拉卡基斯向欧洲议会经济委员会指出，如果欧洲不推动在欧盟层面建立有能力的银行，它们将无法与美中对手竞争。他指出，欧洲市值最大的银行桑坦德银行，规模仅为美国最大银行摩根大通的五分之一。
 
 ## 正文
 
-中新网开封4月29日电 (经晓佳 左起超)春日里，河南省开封市祥符区麦田和花生地一派忙碌景象，一些农户正在田间除草、施肥，悉心管护，努力种出更多优质麦子和高油酸花生，供应当地粮油供应链企业。
+欧元集团主席皮耶拉卡基斯周二表示，欧盟需要拥有规模更大的银行，才能与美国和中国的同业展开有效竞争。
 
-开封地处豫东平原，是小麦等粮食作物的重要产区，其辖属杞县、通许县、尉氏县、祥符区均为国家重要的产粮大县。
+他强调，欧洲需要的是“欧洲冠军”，而非“各国冠军”，而跨境合并是打造欧洲级银行集团的关键路径。
 
-这些产粮大县的众多农户已与开封龙大植物油有限公司、益海嘉里(开封)食品工业有限公司(下称益海嘉里)等企业签了订单。
+皮耶拉卡基斯向欧洲议会经济委员会指出，如果欧洲不推动在欧盟层面建立有能力的银行，它们将无法与美中对手竞争。
 
-走进位于开封市城乡一体化示范区的益海嘉里506亩工业园区，一桶桶花生油、一袋袋面粉从生产车间运出，随后发往全国各地。
+他指出，欧洲市值最大的银行桑坦德银行，规模仅为美国最大银行摩根大通的五分之一。
 
-益海嘉里开封工厂负责人介绍，该工厂立足当地原料优势，一方面构建“吃干榨净”式综合利用体系，实现原料100%转化增值；另一方面推广“保险+期货”的农户订单和价格兜底模式，最大限度利用市场机制保护农民收益，确保农企双赢。
+推动银行规模扩大的紧迫原因之一，在于技术竞争。
 
-近年来，开封立足农业、畜牧业资源禀赋，着力做好“粮头食尾”“畜头肉尾”“农头工尾”大文章，先后引进和培育益海嘉里等10多家龙头食品企业，拥有155家规上食品企业，形成面粉、油脂、肉类、酸辣粉、休闲食品、饲料六大板块齐头并进的格局，加快推进现代食品产业聚链强农的发展步伐。
+当前数字金融工具和市场增长迅速，欧洲银行需要足够的体量来支撑大规模的技术投资。
 
-在食品产业协同发展过程中，通许县探索出一条独具特色的“一县一业”之路。
+皮耶拉卡基斯警告称，若欧洲银行错失这些技术投资，将“无法参与未来的方程式”。
 
-通许县县长憨振强介绍，自2022年该县将酸辣粉确立为特色主导产业后，先后研发推广甘薯高产栽培、涂布式酸辣粉生产线等多项技术创新成果，规划建设酸辣粉产业园、淀粉产业园、京东物流产业园，构建起研发、生产、电商、物流、包装一体化格局。
+目前，跨境银行合并时常受到国家政治的阻碍。
 
 ## 相关推荐
 
-- 2026-06-30 06:38 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 06:18 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 06:17 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 06:32 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 06:39 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 06:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 06:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 06:27 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 06:19 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 06:14 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 06:16 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 06:30 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 06:40 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 06:29 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 06:21 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 06:38 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 06:19 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 06:25 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 06:24 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 06:40 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 06:47 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 06:36 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 06:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 06:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:24 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/54471554.shtml)
-- 2026-06-30 06:14 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/7641643711.shtml)
-- 2026-06-30 06:25 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/293099.shtml)
-- 2026-06-30 06:13 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/0744560875.shtml)
-- 2026-06-30 06:26 - [普京间接喊话特朗普有何考量](https://www.blog.minike.top/Article/details/37105890.shtml)
-- 2026-06-30 06:32 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/1080287453.shtml)
-- 2026-06-30 06:17 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/001658179735.shtml)
-- 2026-06-30 06:34 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/1955268974.shtml)
-- 2026-06-30 06:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/0387530.shtml)
-- 2026-06-30 06:31 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/90786330.shtml)
-- 2026-06-30 06:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/7650987873.shtml)
-- 2026-06-30 06:14 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/9200195.shtml)
-- 2026-06-30 06:26 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/06054.shtml)
-- 2026-06-30 06:28 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/6803419488.shtml)
-- 2026-06-30 06:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/8189906.shtml)
+- 2026-06-30 06:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/726665.shtml)
+- 2026-06-30 06:29 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/22729.shtml)
+- 2026-06-30 06:33 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/215364863.shtml)
+- 2026-06-30 06:37 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/71536.shtml)
+- 2026-06-30 06:24 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/75430328.shtml)
+- 2026-06-30 06:37 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/83454459828.shtml)
+- 2026-06-30 06:42 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/91640842.shtml)
+- 2026-06-30 06:32 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/0475489.shtml)
+- 2026-06-30 06:40 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/9465611.shtml)
+- 2026-06-30 06:20 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/11547.shtml)
+- 2026-06-30 06:40 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/53172217238.shtml)
+- 2026-06-30 06:38 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/5573811792.shtml)
+- 2026-06-30 06:33 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/03811166757.shtml)
+- 2026-06-30 06:19 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/02240151909.shtml)
+- 2026-06-30 06:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/229943.shtml)
