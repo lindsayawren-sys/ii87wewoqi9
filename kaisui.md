@@ -1,59 +1,60 @@
-# 2025银行年报观察室｜信用卡跌破7亿张：大行发卡量“踩刹车”，贷款余额集体负增长
+# 油价飙升：特朗普警告伊朗 “时间紧迫”，冲突升级担忧加剧
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-来源：北京商报 曾作为零售业务核心抓手的信用卡业务，正迎来全面调整期。4月7日，北京商报记者梳理已披露2025年年报的A股上市银行数据发现，国有大行按下扩张“刹车键”，交通银行、邮储银行累计发卡量降幅超5%，工商银行、建设银行亦同步收缩。股份行呈现分化，招商银行流通卡量微增、中信银行等小幅增长，但信用卡贷款余额“降多升少”成主基调；部分银行信用卡资产质量整体承压，风险敞口有所扩
+核心要点 周一国际油价上涨。美国总统特朗普在和平谈判陷入僵局之际警告伊朗 “最好赶紧行动”，同时专家指出全球库存已跌至历史低位。 特朗普周末对伊朗的警告释放信号：华盛顿与德黑兰在和平协议与重开霍尔木兹海峡问题上的僵局，可能导致武装冲突再度爆发。 特朗普周日在 Truth Social 发文： “对伊朗而言，时间正在滴答流逝。他们最好立刻、迅速行动，否则将一无所有。时间至关重要！
 
 ## 正文
 
-来源：北京商报 曾作为零售业务核心抓手的信用卡业务，正迎来全面调整期。
+核心要点 周一国际油价上涨。
 
-4月7日，北京商报记者梳理已披露2025年年报的A股上市银行数据发现，国有大行按下扩张“刹车键”，交通银行、邮储银行累计发卡量降幅超5%，工商银行、建设银行亦同步收缩。
+美国总统特朗普在和平谈判陷入僵局之际警告伊朗 “最好赶紧行动”，同时专家指出全球库存已跌至历史低位。
 
-股份行呈现分化，招商银行流通卡量微增、中信银行等小幅增长，但信用卡贷款余额“降多升少”成主基调；部分银行信用卡资产质量整体承压，风险敞口有所扩大。
+特朗普周末对伊朗的警告释放信号：华盛顿与德黑兰在和平协议与重开霍尔木兹海峡问题上的僵局，可能导致武装冲突再度爆发。
 
-从中国人民银行公布的数据来看，截至2025年末，全国信用卡和借贷合一卡在用发卡量为6.96亿张，为2022年达到峰值后首次跌破7亿张，“退潮”背后是信用卡行业告别粗放增长、迈向精益发展的必然转型，随着信用卡从“规模竞争”转向“价值竞争”，行业将向场景、生态、服务的综合化方向转型。
+特朗普周日在 Truth Social 发文： “对伊朗而言，时间正在滴答流逝。
 
-扩张按下“刹车键” 作为行业风向标，国有大行按下信用卡规模扩张的“刹车键”。
+他们最好立刻、迅速行动，否则将一无所有。
 
-尽管各行统计口径与披露标准不尽相同，但收缩趋势呈现一致。
+时间至关重要！
 
-2025年交通银行以7.96%的同比降幅领跌，在册卡量从2024年末的6300.94万张降至5799.35万张，一年间减少超500万张；邮储银行同比下降5.41%，结存卡量3998.25万张降至3781.97万张。
+” 尽管 4 月达成脆弱停火，但美伊紧张持续：伊朗基本关闭霍尔木兹海峡，特朗普政府则继续封锁伊朗港口。
 
-工商银行、建设银行分别同比下降3.33%、2.33%，发卡量降至1.45亿张、1.26亿张；仅中国银行实现1.46%的小幅增长，累计发卡量增至1.5亿张。
+战前，全球约五分之一的石油与天然气供应经该海峡运输。
 
 ## 相关推荐
 
-- 2026-06-29 11:10 - [软科技，硬实力！⎡华宝中证全指软件开发ETF⎦正式获批，即将发行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:28 - [京西国际于4月8日上午起停牌 待刊发内幕消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:07 - [3月 对华尔街来说 这是一个动荡的月份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:07 - [基石科技控股发布年度业绩 毛利3106.9万港元同比增长13.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:09 - [协鑫科技亏损幅度显著收窄 实现毛利13.36亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:28 - [江汉江淮等地将有较强降水和强对流天气 北方及西南地区仍有大风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:34 - [《人民日报》：“为什么这些APP都想借钱给我？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:25 - [以总理称支持美伊停火两周但停火不包括黎巴嫩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:29 - [浦发银行行长谢伟：2025年息差管理取得阶段性成效，但较领先同业仍有差距](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:10 - [极兔速递-W早盘上涨13% 全年经调整净利润同比增长112.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:29 - [百年人寿戴文浩：个险是险企稳定性来源，中小公司切勿对标大公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:27 - [中视金桥发布年度业绩 股东应占溢利8004.3万元同比下降25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:09 - [民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:16 - [黄金交易提醒：金价周跌近4%只是开始？美元、收益率、加息预期“三重绞杀”仍未结束](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:15 - [日本央行前行长白川方明：人口结构与经济增长相辅相成，AI可助力应对老龄化挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:18 - [英国副首相称首相斯塔默不会辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:41 - [湖南石门强降雨灾害已致1人死亡、2人失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:15 - [巴菲特接班人大举建仓，梅西百货盘前跳涨近4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:37 - [在大裁员实施前夕 Meta将7000名员工调至AI相关岗位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:35 - [【阜成门外】我国进口增速远超出口，释放什么信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:21 - [大美边疆看我家丨黑龙江鸡东：赴一场山河与日出之约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:39 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:24 - [车企年报|长城汽车政府补助逆势升至37亿高居榜首 增收减利延续还有多少降价空间？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:30 - [豆类市场多空因素交织 油脂回归基本面主导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:34 - [600208，重组终止！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:12 - [零售商接连遭遇重重经营困境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:24 - [民意承压蔓延欧洲 斯塔默等多国领导人陷支持率困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [营收回正、净利仍下滑，民生银行管理层谈重点领域风险管控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:23 - [李强同澳大利亚总理阿尔巴尼斯通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:22 - [拉来数名特斯拉大将，能否解雷军销量“焦虑”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:20 - [美银证券：升华润万象生活目标价至51港元 上调盈利预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:26 - [教育部要求严禁招生环节收取择校费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:25 - [尾盘：美股继续走低 现货布伦特原油创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:09 - [认清词元属性，警惕“囤词元能暴富”骗局（2026·04·07）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:12 - [晨星：维持华润置地公允价值预测43港元 房地产强势投资抵消房地产开发下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:26 - [欧洲议会一代表团访华 外交部：将推动中欧立法机构交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:28 - [沪指失守3900点，季末分化极致，强势板块悉数回调 | 华宝基金3A日报（2026.3.31）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:21 - [美国证交会"加密监管"框架即将出台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:18 - [布伦特原油在结算后交易中下跌 巴基斯坦敦促伊朗开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:10 - [光大银行行长郝成年报致辞：凝心聚力推动高质量发展，奋力实现“十五五”良好开局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:28 - [匈牙利大选前美国副总统万斯访匈，力挺欧尔班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:10 - [湖南省政协文教卫体和文史委员会副主任夏智伦接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:31 - [广东520所学校采取停课措施应对强降雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:18 - [民族地区博物馆让团结进步“可见可感”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:15 - [中美人文摄影展亮相沈阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:17 - [今年前4个月河口口岸跨境客货运输两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:30 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:25 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:22 - [中东战事推高油价 韩国推行第二轮现金补助缓解民生压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:15 - [现场直击：广西柳州发生5.2级地震 部分房屋倒塌有人员被困](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:18 - [王海洲：优秀传统文化是短剧精品化路径中值得深挖的瑰宝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:16 - [酒价内参5月19日价格发布：五粮液普五八代小幅下跌1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:15 - [人这一辈子，一定要去青州看一次“东方微笑”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:25 - [江苏：大力创新民营经济保险服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:21 - [文脉华章｜让文物 “活” 起来，解锁内蒙古数字文博里的精彩中国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:29 - [下周有2只新股可申购 国产特种光纤第一股来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:40 - [体重减不下来，不是“吃太多”那么简单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)

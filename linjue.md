@@ -1,61 +1,59 @@
-# 2025年经营性现金流净额8.16亿，美凯龙主营业务展现韧性
+# 日本国债收益率飙升 投资者押注日资从美债回流本土
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！3月30日，美凯龙（601828.SH、01528.HK）发布2025年年度报告。报告期内，公司实现营业收入65.82亿元。受房地产行业下行压力影响，公司对投资性房地产公允价值进行估值调整，致使归属上市公司股东的净利润亏损237.22亿元。 公司于2025年度计提了较大金额的投资性房地产公允价值变动损失，主
+随着日本国内收益率飙升至创纪录高位，投资公司正在为日本投资者资金可能从美国国债撤离并回流日本政府债券做准备。 基准的10年期日本国债收益率在周五交易中升至2.73%，为1997年5月以来的最高水平。投资者越来越相信，不断上升的通胀将促使日本央行在6月将政策利率上调25个基点至1%。 30年期日本国债收益率自1999年该债券首次发行以来首次触及4%。5年期和20年期国债收益率均在
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+随着日本国内收益率飙升至创纪录高位，投资公司正在为日本投资者资金可能从美国国债撤离并回流日本政府债券做准备。
 
-3月30日，美凯龙（601828.SH、01528.HK）发布2025年年度报告。
+基准的10年期日本国债收益率在周五交易中升至2.73%，为1997年5月以来的最高水平。
 
-报告期内，公司实现营业收入65.82亿元。
+投资者越来越相信，不断上升的通胀将促使日本央行在6月将政策利率上调25个基点至1%。
 
-受房地产行业下行压力影响，公司对投资性房地产公允价值进行估值调整，致使归属上市公司股东的净利润亏损237.22亿元。
+30年期日本国债收益率自1999年该债券首次发行以来首次触及4%。
 
-公司于2025年度计提了较大金额的投资性房地产公允价值变动损失，主要系管理层基于审慎原则，对投资性房地产估值模型中的关键参数，如未来租金增长预期进行了重新评估，从而导致公允价值显著下调。
+5年期和20年期国债收益率均在本周早些时候创下历史新高。
 
-截至2025年12月底，公司持有74家自营商场。
+收益率与价格走势相反。
 
-该会计调整不影响不涉及现金流出，不影响公司的偿债能力，该调整也不改变公司持有的优质商业资产的长期使用价值。
+日本财务大臣片山皋月周五对记者表示，全球最大债券市场的政府债务收益率都在上升。
 
-公司主营业务展现出强劲韧性与修复弹性。
+她表示：“这些走势相互影响，正在产生复合效应。
 
 ## 相关推荐
 
-- 2026-06-29 11:14 - [伊朗最后期限临近 全球股市涨跌互现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:10 - [巴菲特最新采访：希望美联储通胀目标设为0，苹果股票卖早了……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:08 - [全红婵——泳池不小，但世界更大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:12 - [天天学习｜“1”心系万家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:17 - [我国成功发射千帆星座第7批组网卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:27 - [以球会友 国乒选手亮相山西大学附属中学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:11 - [北京市农村经济研究中心原副主任蒋洪昉接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:35 - [从世界一流到“双循环”战略支点，天津港凭什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:19 - [2025银行年报观察室｜信用卡跌破7亿张：大行发卡量“踩刹车”，贷款余额集体负增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:31 - [美经济学家警告：沃尔玛相关衰退指标飙升至金融危机以来最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:21 - [特朗普：“尚未准备好”迫使伊朗重新开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:22 - [希捷科技股价大跌7%，摩根大通为何仍看涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:06 - [浙商银行入选2025年度中国系统重要性银行名单 新一届管理团队首秀业绩说明会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:14 - [爱奇艺拟赴港二次上市 宣布AI视频工具测试 股价大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:27 - [中金公司2025年营利双增 提高分红比例 业务一体化协同优势凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:31 - [美伊冲突以来，美国民众在燃油上的额外支出已超400亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:35 - [中越绿色产业国际合作对接交流活动在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:37 - [创新药跌跌不休，什么原因？华宝基金药ETF、港股通创新药ETF（520880）历史新低，还能买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:21 - [俊知集团午后涨超15% 公司已形成适配AIDC全场景的产品矩阵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:41 - [商务部：一季度最终消费支出对经济增长的贡献率达到46.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:22 - [首部大众版长春简明通史《简明长春历史》首发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:21 - [“张雪机车”WSBK捷克站再夺冠 斩获赛季第五冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:14 - [光大证券：整固蓄势 积极看多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:32 - [油价飙升：特朗普警告伊朗 “时间紧迫”，冲突升级担忧加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:28 - [工行行长刘珺：企业并购正呈现投资于物、投资于生态、投资于人三大发展路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:35 - [铁路部门试点推出“自行车随身行”服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:34 - [【滇藏公路50年】云南贡山“一江三桥”同框 见证滇西北边疆通路变迁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:22 - [英国央行内部政策分歧扩大，英镑承压调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [浦发银行：2025年末不良贷款率1.26%，较上年末下降0.10个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:29 - [俄罗斯师生重庆感受工业机器人产学研发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:28 - [A股3月收官，沪指再度失守3900点，月累计跌6.51%！张雪机车一战封神，概念股2连板！日韩股市3月均暴跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:33 - [金价下跌1000美元的主因是央行抛售，土耳其、俄罗斯……下一个可能是印度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:15 - [天顺风能：公司已批准的对外担保总额度为人民币220.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:07 - [浙商银行董事长陈海强年报致辞：坚持管理立行、服务优行、科技兴行、人才强行，做一个坚定的长期主义者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:16 - [一场巨型奇巧巧克力劫案，如何变身危机公关“黄金案例”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:33 - [宁德时代聘请紫金矿业创始人、前董事长陈景河担任公司矿业部门顾问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:35 - [南卫股份财总岗位有多难干：许晓嫌工资不及预期辞职，前任刚被罚150万元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:09 - [香港银行股早盘集体回暖 渣打集团涨逾7%汇丰控股涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:31 - [再现险资“举牌”！利安人寿拟溢价近10%受让中山公用5%股份，持股比例将升至8.12%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:19 - [港股芯片概念跳水，兆易创新大跌8%，“中年人的泡泡玛特”重挫49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:12 - [中国太保获Ping An Asset ManagementCo.,Ltd.增持719.56万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:06 - [鲍威尔：即使能源价格飙升，政策仍处于“良好位置”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:10 - [酒价内参4月3日价格发布 习酒君品上涨6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:16 - [2026广东工会“工BA”职工篮球联赛在佛山开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:24 - [中国首部踢踏舞剧《扎西夏卓》拉萨倾情上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:34 - [专家：糖尿病患者属带状疱疹高风险人群 需主动预防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:24 - [日本富山县一古寺发生火灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:40 - [酒价内参5月19日价格发布：精品茅台上涨3元喜获六连阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:34 - [中国铝业遭中信证券资管公司减持1263万股 每股均价约10.62港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:15 - [半导体设备红利赛道：量利齐增，股价翻倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:21 - [心脏发出预警信号 警惕冠心病找上门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:38 - [PNC银行聘请摩根大通前数字负责人Tim Ferriter，引领零售产品与AI增长战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:28 - [安徽休宁：初夏育秧忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:12 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:14 - [三位台青广西创业记：抓住年轻消费者的“胃”“嗅觉”与“健康观”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:26 - [北京试点自行车乘地铁、上高铁 这份指南请查收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:14 - [崔庆军换了一批董事，苏州银行为管理层投保责任险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:24 - [韩国头部企业一季度营业利润突破千亿美元 超六成来自三星海力士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)

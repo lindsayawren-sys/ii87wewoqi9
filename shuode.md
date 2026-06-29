@@ -1,57 +1,61 @@
-# 兴业证券2025年报：经纪、自营收入合计占比近六成 投行、资管业务疲软
+# 英伟达7连涨创新高！创业板人工智能ETF获资金抢筹！港股通创新药ETF逼近前低，近10日狂揽5.35亿元！
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-2026年3月27日，兴业证券发布了2025年年度报告。公司全年实现营业收入118.41亿元，同比增长21.03%；归母净利润28.70亿元，同比增长32.64%。 Q4盈利骤降70.7% 波动剧烈 从全年数据看，兴业证券2025年业绩表现可圈可点。118.41亿元的营业收入、28.70亿元的归母净利润，同比增幅分别达到21.03%和32.64%，加权平均净资产收益率（ROE）
+周五（5月15日）市场震荡整理，沪指、深证成指均跌逾1%，全市场超3500只个股下跌，沪深京三市成交额超过3.3万亿元，连续八个交易日突破3万亿元。 盘面上，化工板块逆市彰显韧性，化工ETF华宝（516020）场内涨幅最高上探1.78%，即使被大盘拖拽，亦顽强收涨。氢氟酸涨价，氟化工龙头多氟多涨停，叠加能源扰动持续，化工行业有望步入周期向上新阶段，或迎价值重估。 放眼全球，英伟
 
 ## 正文
 
-2026年3月27日，兴业证券发布了2025年年度报告。
+周五（5月15日）市场震荡整理，沪指、深证成指均跌逾1%，全市场超3500只个股下跌，沪深京三市成交额超过3.3万亿元，连续八个交易日突破3万亿元。
 
-公司全年实现营业收入118.41亿元，同比增长21.03%；归母净利润28.70亿元，同比增长32.64%。
+盘面上，化工板块逆市彰显韧性，化工ETF华宝（516020）场内涨幅最高上探1.78%，即使被大盘拖拽，亦顽强收涨。
 
-Q4盈利骤降70.7% 波动剧烈 从全年数据看，兴业证券2025年业绩表现可圈可点。
+氢氟酸涨价，氟化工龙头多氟多涨停，叠加能源扰动持续，化工行业有望步入周期向上新阶段，或迎价值重估。
 
-118.41亿元的营业收入、28.70亿元的归母净利润，同比增幅分别达到21.03%和32.64%，加权平均净资产收益率（ROE）较上年提升1.12个百分点至4.9%。
+放眼全球，英伟达股价七连涨创历史新高，英伟达作为创业板人工智能先行指标，其持续走强，强化了市场对光模块等算力产业链的乐观预期。
 
-实际上，与2021年的历史峰值相比，公司净利润仍缩水近四成，恢复到昔日高点仍需时日。
+海外映射至A股表现，天孚通信、中际旭创盘中股价续创上市新高，光模块CPO占比超50%的创业板人工智能ETF华宝（159363）场内收跌1.14%回踩五日线，单日成交17亿元，交投居全市场AI主题ETF首位。
 
-单季度数据揭示了更真实的经营韧性。
+资金逢跌大举净申购，单日增持6600万份。
 
-2025年前三季度，公司单季归母净利润分别为5.16亿元、8.14亿元和约11.91亿元，呈现逐季攀升的良好态势。
+大市深度调整，港股通创新药继续下行，100%创新药研发标的——港股通创新药ETF华宝（520880）场内价格一度跌近3%连续4日下行，逼近历史低点。
 
-然而，进入第四季度，归母净利润骤降至3.49亿元，环比大幅下滑70.7%，同比大降近60%。
+行情背离基本面，多头加速进场，该ETF近10日狂揽5.35亿元，最新份额升至53.42亿份，续创上市以来新高！
 
 ## 相关推荐
 
-- 2026-06-29 11:17 - [午盘：美股维持涨势 科技股涨幅领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:19 - [滇金丝猴“长出”咖啡厚嘴唇 云南咖啡新标识萌趣亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:28 - [焦点访谈｜深化殡葬改革 书写移风易俗民生答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:21 - [中国医疗队为赤道几内亚白内障患者诊疗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:35 - [中信建投期货：4月8日农产品早报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:34 - [战争引发通胀担忧之际 亚股抹去2026年涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:33 - [国际金价大涨重上4800美元 国内金饰克价涨到1470元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:31 - [受权发布丨中华人民共和国国务院令 第834号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:25 - [巴基斯坦：美伊及其盟友同意全面停火 并展开进一步谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:11 - [国泰海通聂小刚：华安和海富通基金整合方案正在推进，将产生很好的协同效应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:34 - [特朗普首次承认：美国人被黑吃黑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:16 - [国际博物馆日北京地区百余家博物馆正常开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:37 - [从生态修复到“沙海生金” 古尔班通古特沙漠绿量持续扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:18 - [日本：福山市山火持续蔓延 警方呼吁居民避难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:14 - [俄罗斯总统普京访华前夕发表视频讲话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:18 - [“洪迪厄斯”号邮轮预计18日抵达荷兰鹿特丹港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:22 - [银行理财产品“飞单”，怎么防、谁来赔？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:35 - [酒价内参5月19日价格发布：青花汾20下跌5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:39 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:18 - [3次代购名表获利过万？当心沦为诈骗犯罪帮凶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:21 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：气候变化之下 病毒传播风险倍增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:31 - [伊朗战争已致全球企业损失250亿美元，损失仍在攀升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:39 - [柳南区地震区域搜救出2名被困人员 已无生命体征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:21 - [酒价内参5月18日价格发布：洋河梦之蓝M6+下跌3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:20 - [集体跳水！刚刚近12万人爆仓 Bitcoin Depot发出破产警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:36 - [泓富产业信托遭ESR Asset Management (Prosperity) Limited减持9.1万股 每股均价约1.47港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [世界数据组织成立！顶层强调数据资源价值！华宝基金大数据ETF（516700）盘中上探1.3%，中科星图领涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:35 - [聚焦春季造林 广东发布2026年第1号总林长令](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:29 - [张家港行：2025年归母净利润19.79亿元 同比增长5.35%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:14 - [贵金属上涨 受美元走软和美债收益率下降提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:29 - [法国通胀升至2024年8月以来最高水平 加大欧洲央行升息压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:34 - [海尔们想做“钢铁侠”，追觅们想做“扫地僧”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:24 - [财经早报：特朗普宣布同意停火两周，美国原油期货暴跌近20%丨2026年4月8日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:14 - [2026年清明节假期国内出游1.35亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:35 - [TCL电子午前涨超3% 全年纯利达25.12亿港元同比增超56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:17 - [富国基金：2025年因公司治理等“五宗罪”被责令改正](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:12 - [03月31日丙二醇10333.33元/吨 5天上涨11.51%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:15 - [耐克第三财季业绩前瞻：华尔街准备迎接耐克多年来最疲软的季度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:12 - [习近平给四所交通大学全体师生回信强调 传承弘扬西迁精神聚焦国家重大战略需求 为建设教育强国科技强国人才强国作出新贡献](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:25 - [WTI原油首次收于100美元上方 布油将创历史最大单月涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:16 - [四招稳住“存款搬家”压力，招行2025年业绩重回正增长轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:20 - [日本北海道一训练飞机偏离跑道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:23 - [这家中国火箭公司，15个月融了10个亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:31 - [无人机袭击阿联酋核电站后，油价触及两周高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:26 - [关注巴以局势：内塔尼亚胡称以色列已控制加沙六成区域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:19 - [长鑫存储概念引爆，科技龙头走强！兆易创新盘中涨停创新高，科技ETF华宝（515000）涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:20 - [中国中东部大范围强降水持续 多地启动防汛应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:12 - [探访博物馆里傅山医学的当代印记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:15 - [韩国股市熔断 暂停程序化交易五分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:40 - [《给阿嬷的情书》出圈：短视频与影视共生的典型样本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:23 - [酒价内参5月19日价格发布：国窖1573下跌6元跌幅居前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:35 - [广州地区举办第三十六个全国助残日系列活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:29 - [伊朗风险推升油价与收益率](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:14 - [外国专家点赞中国新能源创新 开放合作成关键词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:29 - [在“赶大集”中触摸乡村消费脉搏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:17 - [《骆驼日记》带读者看见真实立体多元的非洲大陆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)

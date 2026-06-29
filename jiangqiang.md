@@ -1,59 +1,58 @@
-# 3月31日热门中概股多数下跌 蔚来涨3.95%，小马智行跌6.56%
+# 宁波口岸单位发布联合通告 出台便利船员下地举措
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-3月31日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）收跌0.36%。 上涨股当中（按市值从高到低），网易涨0.70%，京东涨0.84%，携程涨1.40%，中通涨1.08%，理想汽车涨0.52%，蔚来涨3.95%，新东方涨0.39%，满帮涨0.25%，BOSS直聘涨1.60%，WSP控股涨0.91%，亚朵集团涨0.63%，欢聚涨0.09%，雾芯科技涨0.94%，文远知行涨
+中新网宁波5月18日电(王逸飞 张斌 陈雨寒)5月18日，宁波海事局与宁波海关、宁波边检联合发布《关于宁波港口落实船员下地及进出港便利服务的通告》(下称《通告》)，这是全国首个由多部门共同推出的船员下地便利化通告。其中明确，即日起，宁波所有口岸开放码头及较大规模其他码头全面实行统一服务标准，全市145个泊位率先落地全流程规范透明的服务要求，成为全国首批实现船员下地服务标准化、透
 
 ## 正文
 
-3月31日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）收跌0.36%。
+中新网宁波5月18日电(王逸飞 张斌 陈雨寒)5月18日，宁波海事局与宁波海关、宁波边检联合发布《关于宁波港口落实船员下地及进出港便利服务的通告》(下称《通告》)，这是全国首个由多部门共同推出的船员下地便利化通告。
 
-上涨股当中（按市值从高到低），网易涨0.70%，京东涨0.84%，携程涨1.40%，中通涨1.08%，理想汽车涨0.52%，蔚来涨3.95%，新东方涨0.39%，满帮涨0.25%，BOSS直聘涨1.60%，WSP控股涨0.91%，亚朵集团涨0.63%，欢聚涨0.09%，雾芯科技涨0.94%，文远知行涨2.23%。
+其中明确，即日起，宁波所有口岸开放码头及较大规模其他码头全面实行统一服务标准，全市145个泊位率先落地全流程规范透明的服务要求，成为全国首批实现船员下地服务标准化、透明化的泊位。
 
-下跌股当中（按市值从高到低），台积电跌3.13%，阿里巴巴跌0.55%，拼多多跌1.39%，日月光半导体跌2.84%，百度跌1.41%，中华电信跌0.17%，联电跌2.93%，富途控股跌1.92%，贝壳跌2.02%，小鹏汽车跌1.21%，华住酒店集团跌0.47%，腾讯音乐跌1.27%，中国新城农村跌2.69%，哔哩哔哩跌2.87%，万国数据跌2.80%，唯品会跌0.68%，拓臻生物跌0.08%，名创优品跌3.40%，金山云跌1.10%，小马智行跌6.56%，慧荣科技跌4.19%，禾赛科技跌3.85%。
+宁波舟山港是连续17年全球货物吞吐量第一的超级大港，2025年船舶靠离泊达百万艘次。
 
-美股周一收盘涨跌不一，科技股大幅下跌。
+今年3月，宁波大榭实华原油码头推出的“外卖上船”服务，得到社会广泛关注。
 
-美国总统特朗普宣称美伊谈判取得重大进展。
+在此基础上，更自由、便捷下地成为船员群体的普遍诉求。
 
-原油价格继续攀升，美国WTI原油自2022年以来首次重新收在100美元之上。
+此前，宁波海事局开展了大范围调研，与数百名船员、码头单位面对面沟通，进一步摸清船员实际需求，理顺船员下船、出港、进城等相关环节。
 
-道指涨49.50点，涨幅为0.11%，报45216.14点；纳指跌153.72点，跌幅为0.73%，报20794.64点；标普500指数跌25.12点，跌幅为0.39%，报6343.73点。
+海事、海关、边检部门协同前述145个泊位在显眼处张贴《通告》，并将相关内容纳入《码头告船舶安全书》，确保每一位到港船员第一时间知晓。
 
-领涨中概股列表： 领跌中概股列表： （截图来自新浪财经APP 行情-美股-中概股热门板块）下载新浪财经APP 责任编辑：张俊 SF065
+当地推出的便利船员下地举措中最大的亮点是身份核验环节——在全国范围内首次将“海事通”APP电子证照作为船员进出港身份证明，船员只需打开“海事通”APP，亮出电子证照，1分钟即可完成身份核验。
 
 ## 相关推荐
 
-- 2026-06-29 11:10 - [从缝纫女工到紫檀女王 陈丽华留下比500亿更重要的东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:30 - [中国光大银行发布2025年年度报告： 服务实体显担当 提质增效稳基础 高质量发展取得积极成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:07 - [利率反弹与战争担忧令美国春季楼市降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:35 - [西部证券营收下降创两个“另类”：背离行业趋势异于重组同行 核心净资本大幅减少](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:31 - [先导智能遭Pandanus Associates Inc.减持35.89万股 每股作价41.3506港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:16 - [俞浩慈善基金会“灯塔课堂”落地成都，构建产学研协同育人新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:31 - [民生银行黄红日谈房地产资产质量：短期仍存压力，长期趋于平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:17 - [酒价内参3月31日价格发布 古井贡古20小幅回落1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:33 - [广西贺州：白鹭伴春耕 田园生态美如画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:16 - [酒价内参4月3日价格发布 飞天茅台小幅上涨1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:33 - [燃料价格飙升推高通胀之际 新西兰央行维持关键利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:19 - [酒价内参3月31日价格发布 青花汾20下调4元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:26 - [财务总监、首席执行官辞职！神州数码业绩发布：AI业务收入增长近5成，现金流“失血”猛跌近200%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:40 - [2027年国际博物馆日中国主会场将落户杭州](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:27 - [视频|追问中国经济关键词！2026清华五道口全球金融论坛现场 第一时间追访金融大咖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:24 - [学习时节｜总书记的牵挂，照亮这项“春天的事业”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:37 - [华宝基金红利风向标 | 科技主题短线波动加剧，高股息红利板块韧性凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:24 - [华泰 | A股策略：均衡配置应对内外风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:40 - [斯巴达勇士赛北京站落幕 近4000选手挑战“三色周末”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:37 - [国防部：中蒙将举行“草原伙伴-2026”陆军联训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:32 - [设专用通道多语种服务 哈尔滨机场口岸护航中俄博览会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:33 - [国际金价创4月以来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:31 - [埃斯顿获控股股东派雷斯特解除质押1100万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:34 - [央视6000万美元拿下世界杯转播权，国际足联吃亏了么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:23 - [参议员拟立法禁止面向未成年人投放赌博广告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [海河牛奶就直播间涉黄致歉：终止与涉事经销商直播合作，追究法律责任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:34 - [蚂蚁收购耀才证券50.55%股权完成交割，新董事会成员亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:08 - [巴菲特称苹果股票卖早了：仍愿意加仓 但不会在当前市场买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:07 - [逢低买盘介入叠加战争引发波动，黄金反弹站上4500美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:26 - [欧洲天然气价格跃升 特朗普最后通牒临近之际袭击事件仍持续不断](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:13 - [北京出台32条措施支持创新医药发展 拓展人工智能应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:16 - [华尔街恐惧指数大幅上涨后回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:06 - [吕临华：浙商银行将继续过紧日子 挤掉成本中不必要的“水分”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:27 - [2026，股票开户选择哪个APP？新浪财经APP成为投资者最优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:08 - [京西国际于4月8日上午起短暂停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:30 - [现货黄金涨1.3%，报4709.73美元/盎司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:23 - [东岳集团：东岳硅材预计一季度归母净利润同比增长397.02%至451.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:31 - [广深铁路：董事会审议通过《2025年度财务报告》等多项议案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:25 - [34年来最强增长！日本薪资数据超预期，4月加息不是梦？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:15 - [康耐特光学公布拟回购公司股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:25 - [柳南区地震区域搜救出2名被困人员 已无生命体征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:32 - [酒价内参5月18日价格发布：洋河梦之蓝M6+下跌3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:14 - [集体跳水！刚刚近12万人爆仓 Bitcoin Depot发出破产警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:34 - [泓富产业信托遭ESR Asset Management (Prosperity) Limited减持9.1万股 每股均价约1.47港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:35 - [两岸城市摄影展台北开幕 逾百幅作品呈现风土人情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:41 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:16 - [圣贝拉集团：受托人根据股份奖励计划购买合共24.2万股股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:14 - [昆明谋划“十五五”：稳产业、扩开放、强数字经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:15 - [三部门向广西调拨1万件中央救灾物资支持地震救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:34 - [5月美国建筑商信心回升，但购房负担能力挑战持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:27 - [汤臣集团获董事局主席徐枫增持8.4万股 每股作价约2.35港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:40 - [前四月河源出口电脑及其零部件同比增长120.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:29 - [北方多地迎明显降雨过程 今天华北雨势强河北局地或现大暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:32 - [孩子王股价承压后，核心层拟增持最高2.05亿，汪建国刚拿下*ST金灵又增持孩子王 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:40 - [德国商业银行正式拒绝裕信银行收购邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)

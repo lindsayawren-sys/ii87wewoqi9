@@ -1,60 +1,58 @@
-# 聚焦春季造林 广东发布2026年第1号总林长令
+# 这家中国火箭公司，15个月融了10个亿
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-中新网广州4月7日电 (程景伟 林荫)据广东省林业局7日消息，广东省日前签发2026年第1号总林长令——《关于广泛开展春季植树活动的令》，强调全省各级林长、各地各部门要抓紧抓实春季造林绿化工作，迅速在全省掀起造林绿化热潮，凝心聚力推动绿美广东生态建设取得更大成效。 总林长令提出，广东要广泛发动全社会参与植树活动，积极组织党员干部参加义务植树活动，引领全社会持续唱响“我为广东种棵
+记者丨雷晨 编辑丨李新江 张明艳 2026年5月18日，北京宇石空间航天科技有限公司（下称“宇石空间”）宣布完成5亿元A轮融资。至此，该公司成立15个月以来，已累计完成5轮融资，融资总额达到10亿元。 本轮融资由昆仑资本、高榕创投联合领投，建发新兴、蓝湖资本、弘晖基金、东证资本、臻泰资本、庚辛资本跟投。产业方股东紫金矿业、互联网战投机构、智能终端产业方参与联合投资。老股东高瓴创
 
 ## 正文
 
-中新网广州4月7日电 (程景伟 林荫)据广东省林业局7日消息，广东省日前签发2026年第1号总林长令——《关于广泛开展春季植树活动的令》，强调全省各级林长、各地各部门要抓紧抓实春季造林绿化工作，迅速在全省掀起造林绿化热潮，凝心聚力推动绿美广东生态建设取得更大成效。
+记者丨雷晨 编辑丨李新江 张明艳 2026年5月18日，北京宇石空间航天科技有限公司（下称“宇石空间”）宣布完成5亿元A轮融资。
 
-总林长令提出，广东要广泛发动全社会参与植树活动，积极组织党员干部参加义务植树活动，引领全社会持续唱响“我为广东种棵树”的主旋律，推动爱绿植绿护绿观念深入人心，让植树成为群众的“身边之事”“举手之劳”；深入推进乡村绿化三年行动计划，广泛开展“四旁”“五边”补植增绿，支持社会各界开展主题林建设。
+至此，该公司成立15个月以来，已累计完成5轮融资，融资总额达到10亿元。
 
-总林长令强调，广东要把造林绿化与产业发展结合起来，推动森林水库、钱库、粮库、碳库“四库”更好联动；要结合产业发展和群众增收需求，积极拓展林茶、林果、林菌、林药等林下经济发展空间，因地制宜种植特色经济林，培育发展生态旅游、文化体验、自然教育、森林康养等新业态，着力建设更加丰实的“森林银行”；要深化集体林权制度改革，引导农户通过出租、入股、合作等方式流转林地经营权，多措并举补齐林区道路、水、电、通讯等基础设施短板，推动林业适度规模经营。
+本轮融资由昆仑资本、高榕创投联合领投，建发新兴、蓝湖资本、弘晖基金、东证资本、臻泰资本、庚辛资本跟投。
 
-总林长令要求，广东要持续优化提升交通沿线、江河沿岸、城镇周边等地带林分林相，高标准建设山地公园、郊野公园、绿美点、绿美带等绿色空间，推动绿美公路、绿道、碧道、古驿道、森林步道有机融合；要结合实际推进岭南特色植物园体系、珠三角大美湿地体系、粤港澳大湾区内湾绿带、国有林场样板带动等重点工程，打造一批群众看得见、摸得着、有欣喜的绿美成果展示窗口。
+产业方股东紫金矿业、互联网战投机构、智能终端产业方参与联合投资。
 
-同时，广东要协同推进流域综合治理、松材线虫病防治、纯松林改造、生物防火林带建设、沿海防护林带建设等工作，高标准实施东江源、北江源、西江流域等中央国土绿化项目，打造连片大面积森林大斑块，持续提升森林生态系统质量和稳定性。
+老股东高瓴创投、基石资本、千乘资本、知盛睿盈连续多轮追加投资。
 
-2026年是“十五五”开局之年，也是纵深推进绿美广东生态建设的关键之年。
+据宇石空间披露，本次融资资金将主要用于火箭总装测试、“筷子”回收技术验证、火箭产能建设和团队建设，为AS-1火箭后续规模化运营提供保障。
 
-据广东省林业局透露，自今年开春以来，广东各地抢抓春季植树造林黄金时节，全力推进春季造林工作，截至3月，该省已完成林分优化提升51.1万亩，森林抚育提升23.8万亩。
+今年计划生产三枚火箭，保障明年首飞 宇石空间成立于2025年初，创始人兼CEO唐文为清华大学航天航空学院博士，曾担任航天一院一部增压输送系统副主任设计师，完整经历过CZ-5、CZ-7型号的研制过程。
 
-(完)
+CTO田继超为哈尔滨工业大学飞行器设计博士，在航天一院总体部工作12年，曾参与CZ-8和CZ-2C两型液体火箭的研制，并为“余梦伦班组”成员。
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [TCL电子午前涨超3% 全年纯利达25.12亿港元同比增超56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:14 - [富国基金：2025年因公司治理等“五宗罪”被责令改正](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:17 - [03月31日丙二醇10333.33元/吨 5天上涨11.51%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:09 - [耐克第三财季业绩前瞻：华尔街准备迎接耐克多年来最疲软的季度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:08 - [习近平给四所交通大学全体师生回信强调 传承弘扬西迁精神聚焦国家重大战略需求 为建设教育强国科技强国人才强国作出新贡献](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:09 - [WTI原油首次收于100美元上方 布油将创历史最大单月涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:15 - [四招稳住“存款搬家”压力，招行2025年业绩重回正增长轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:09 - [鲍威尔：美联储将“观望”后再采取利率行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:10 - [尝高美集团在香港开设一间新谷泰餐厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:07 - [Colonial First State：油价飙升或致美国GDP萎缩0.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:25 - [黑龙江省备春耕基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:28 - [韩国推出173亿美元刺激计划，油价飙升施压经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:10 - [中俄对涉霍尔木兹海峡决议草案投反对票 伊朗代表：俄中阻止了滥用安理会的行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:15 - [上海市金融学会召开普惠金融专业委员会第一次会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:14 - [《给阿嬷的情书》出圈：短视频与影视共生的典型样本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:12 - [酒价内参5月19日价格发布：国窖1573下跌6元跌幅居前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:19 - [广州地区举办第三十六个全国助残日系列活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:34 - [伊朗风险推升油价与收益率](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:35 - [外国专家点赞中国新能源创新 开放合作成关键词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:36 - [在“赶大集”中触摸乡村消费脉搏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:23 - [《骆驼日记》带读者看见真实立体多元的非洲大陆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:30 - [韩国法院批准三星针对威胁罢工工会的禁令申请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:37 - [海外华媒探访江西白鹿洞书院 品读千年华夏文脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:36 - [（乡村行·看振兴）以黑猪产业撬动乡村振兴 山西灵丘男子返乡创业“拱”开致富门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:34 - [商会秘书处专业化职业化建设工作交流活动在重庆举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:12 - [长城基金刘疆：科技成长具备较强逻辑支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:23 - [海南封关看变化：三亚释产业投资机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:08 - [提出8个重点任务！教育部部署开展中小学阳光招生专项行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:35 - [三星内存再提价30%！寒武纪登顶A股吸金榜，华宝基金电子ETF（515260）最高上探1.95%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:18 - [国台办回应台湾初中生张贴统一标语：民进党当局无法阻挡统一大势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:08 - [比亚迪出口目标超预期15%，计划2026年实现150万辆出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:31 - [3月31日收盘：标普指数下跌0.39% 油价攀升WTI原油站上100美元关口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:33 - [浙商银行董事长陈海强谈银行数字化转型误区：科技部门热火朝天，业务部门不伦不类](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:21 - [Keep首次扭亏股价却触底：营收跌回四年前、用户流失近815万 AI新故事能撑起未来吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:19 - [春天里的中国丨踏青赏花正当时 这些浪漫花海等你打卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:32 - [“猪八戒”马德华将送别陈丽华：大姐非常好非常有爱心，各方面都非常优秀，她为紫檀事业作出很大贡献，她的离去让我们很悲痛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:08 - [特朗普言辞升级之际，美以协同对伊朗发动打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:22 - [没牙的伊朗？导弹与无人机袭击彰显其仍具破坏力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:21 - [沃尔玛信号警示经济放缓 折扣零售与奢侈品消费差距扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:28 - [午盘：美股维持下跌局面 市场紧盯中东局势发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:16 - [开盘：美股周一高开 特朗普称美伊谈判取得重大进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:27 - [国家统计局：4月份一线城市商品住宅销售价格环比上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:14 - [波士顿奥马哈出售保证保险业务，聚焦核心增长战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:17 - [去年全国核发绿证超过29亿个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:13 - [免申即享+AI赋能 上海持续深化“一网通办”改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:21 - [慈文传媒：公司整体收支呈良性循环状态，不会发生债务违约的情形和偿债风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:34 - [国家防办向贵州调拨中央防汛物资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:38 - [概念股一字涨停！三大运营商开卖Token套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:14 - [中企承建哈萨克斯坦首都轻轨建成通车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:19 - [长江有色：中东局势缓和多头试探性修复 19日铅价或涨跌不大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:36 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:31 - [2026年“汉语桥”中文比赛新州赛区预选赛在悉尼举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:38 - [塞尔维亚主流媒体代表团四川采风 冀讲好中国故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:19 - [一季度末保险公司股票和基金投资余额占比双升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:33 - [北京基金小镇投教基地多措并举开展“心系投资者 携手共行动”系列投教活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:32 - [全线大跌，超10万人爆仓！金价跳水，跌破4500美元，国际油价突破110美元，美股期指集体下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)

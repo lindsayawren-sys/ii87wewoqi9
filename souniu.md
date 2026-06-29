@@ -1,60 +1,58 @@
-# 多地联动“诵读经典·缅怀先贤”主题活动 与先贤跨时空对话
+# 3月外国投资者美债持仓下降 管涛：地缘冲突、能源供给冲击的自然反应，4月或回升
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-中新网洛阳4月3日电 (经晓佳)4月2日，2026年“诵读经典·缅怀先贤”洛阳有礼主题活动在河南伊川县范园启动，来自洛阳全市的文艺工作者、师生代表、专家学者齐聚北宋思想家、政治家、文学家范仲淹的长眠之地，以敬献花篮、诵读经典诗文、书写名篇佳句等形式，致敬先贤风骨，赓续中华文脉。 “先天下之忧而忧，后天下之乐而乐……”活动现场，学生代表向范仲淹像敬献花篮，随后师生集体吟诵《岳阳楼
+财联社5月19日讯（记者 李婷）今日，美国财政部公布最新国际资本流动报告（TIC），TIC报告显示，3月外国投资者美债持仓显著下降。 “3月TIC美债数据出现较大波动，是美债市场自身在中东地缘冲突和能源供给冲击下的自然反应，也是全球投资者在金融市场动荡和美元流动性下降情况下调整美债投资的正常结果。”中银证券全球首席经济学家管涛对财联社记者表示，随着中东局势缓和，预计4月TIC美
 
 ## 正文
 
-中新网洛阳4月3日电 (经晓佳)4月2日，2026年“诵读经典·缅怀先贤”洛阳有礼主题活动在河南伊川县范园启动，来自洛阳全市的文艺工作者、师生代表、专家学者齐聚北宋思想家、政治家、文学家范仲淹的长眠之地，以敬献花篮、诵读经典诗文、书写名篇佳句等形式，致敬先贤风骨，赓续中华文脉。
+财联社5月19日讯（记者 李婷）今日，美国财政部公布最新国际资本流动报告（TIC），TIC报告显示，3月外国投资者美债持仓显著下降。
 
-“先天下之忧而忧，后天下之乐而乐……”活动现场，学生代表向范仲淹像敬献花篮，随后师生集体吟诵《岳阳楼记》。
+“3月TIC美债数据出现较大波动，是美债市场自身在中东地缘冲突和能源供给冲击下的自然反应，也是全球投资者在金融市场动荡和美元流动性下降情况下调整美债投资的正常结果。
 
-洛阳市范仲淹研究会执行会长宋赞斌通过解读《岳阳楼记》，引导大家从先贤智慧中汲取文化养分，增强对中华优秀传统文化的认同感与自豪感。
+”中银证券全球首席经济学家管涛对财联社记者表示，随着中东局势缓和，预计4月TIC美债数据将出现明显回升。
 
-伊川县文艺工作者还以歌曲、朗诵等形式，将经典名篇与精神气韵娓娓道来。
+管涛表示，导致3月份外国投资者美债持仓下降的主要原因有三个。
 
-在互动体验环节，书法家与学生共同挥毫书写范仲淹名句，一纸一墨间，流淌的是对先贤精神的传承，更是对中华文脉的守望。
+“一是美债收益率上行，美债估值下跌。
 
-此次活动由洛阳市文联、伊川县委宣传部主办，是河南省文联联动江西、广西、湖北、广东、四川五省(区)文联共同开展的“诵读经典·缅怀先贤”主题活动的重要组成部分。
+”从数据看，3月，受能源价格飙升、通胀预期升温的影响，10年期美债收益率大幅上行38个基点至4.32%，彭博美债总回报指数当月下跌约1.7%，为2024年10月以来最大跌幅。
 
-当日，郑州、平顶山、焦作、漯河、南阳等地活动同步启动，形成“一地一主题、六省(区)共联动”的文化矩阵。
+“TIC美债数据是以市值计量，估值下跌推动了各国美债持仓大幅下降。
 
-在河南新郑，欧阳文忠公园内古琴声起，《醉翁亭记》的诵读声穿越千年；在江西吉安，欧阳修纪念馆演绎原创作品《泷冈颂》，深情讲述欧阳修的家风故事。
+”管涛分析称。
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [借力智能存储业务东风，绿联科技营收飙升53.83%，却遭股东高管接连减持近十亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:14 - [伊朗最后期限临近 全球股市涨跌互现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:23 - [巴菲特最新采访：希望美联储通胀目标设为0，苹果股票卖早了……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:15 - [全红婵——泳池不小，但世界更大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:12 - [天天学习｜“1”心系万家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:09 - [我国成功发射千帆星座第7批组网卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:18 - [以球会友 国乒选手亮相山西大学附属中学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:12 - [北京市农村经济研究中心原副主任蒋洪昉接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:29 - [从世界一流到“双循环”战略支点，天津港凭什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:35 - [2025银行年报观察室｜信用卡跌破7亿张：大行发卡量“踩刹车”，贷款余额集体负增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:33 - [美经济学家警告：沃尔玛相关衰退指标飙升至金融危机以来最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:10 - [特朗普：“尚未准备好”迫使伊朗重新开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:29 - [希捷科技股价大跌7%，摩根大通为何仍看涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:28 - [浙商银行入选2025年度中国系统重要性银行名单 新一届管理团队首秀业绩说明会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:36 - [媒体：三星工会与管理层在谈判中缩小了部分分歧 以避免罢工](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:13 - [美伊冲突以来，美国民众在燃油上的额外支出已超400亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:14 - [中越绿色产业国际合作对接交流活动在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:38 - [创新药跌跌不休，什么原因？华宝基金药ETF、港股通创新药ETF（520880）历史新低，还能买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:16 - [俊知集团午后涨超15% 公司已形成适配AIDC全场景的产品矩阵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:26 - [商务部：一季度最终消费支出对经济增长的贡献率达到46.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:15 - [首部大众版长春简明通史《简明长春历史》首发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:39 - [“张雪机车”WSBK捷克站再夺冠 斩获赛季第五冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:21 - [光大证券：整固蓄势 积极看多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:29 - [油价飙升：特朗普警告伊朗 “时间紧迫”，冲突升级担忧加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:23 - [工行行长刘珺：企业并购正呈现投资于物、投资于生态、投资于人三大发展路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:23 - [铁路部门试点推出“自行车随身行”服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:13 - [韩国芯片制造商氦气库存可支撑至6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:26 - [浦发银行：2025年末不良贷款率1.26%，较上年末下降0.10个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:06 - [俄罗斯师生重庆感受工业机器人产学研发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:24 - [A股3月收官，沪指再度失守3900点，月累计跌6.51%！张雪机车一战封神，概念股2连板！日韩股市3月均暴跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:06 - [金价下跌1000美元的主因是央行抛售，土耳其、俄罗斯……下一个可能是印度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:07 - [天顺风能：公司已批准的对外担保总额度为人民币220.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:23 - [浙商银行董事长陈海强年报致辞：坚持管理立行、服务优行、科技兴行、人才强行，做一个坚定的长期主义者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:32 - [一场巨型奇巧巧克力劫案，如何变身危机公关“黄金案例”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:14 - [宁德时代聘请紫金矿业创始人、前董事长陈景河担任公司矿业部门顾问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:30 - [南卫股份财总岗位有多难干：许晓嫌工资不及预期辞职，前任刚被罚150万元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:21 - [香港银行股早盘集体回暖 渣打集团涨逾7%汇丰控股涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:31 - [再现险资“举牌”！利安人寿拟溢价近10%受让中山公用5%股份，持股比例将升至8.12%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:24 - [港股芯片概念跳水，兆易创新大跌8%，“中年人的泡泡玛特”重挫49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:17 - [中国太保获Ping An Asset ManagementCo.,Ltd.增持719.56万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:31 - [鲍威尔：即使能源价格飙升，政策仍处于“良好位置”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:28 - [部分理财子打新报价量增长139%，收益率爆棚，“固收+打新”策略正深入推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:32 - [2026广东工会“工BA”职工篮球联赛在佛山开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:39 - [中国首部踢踏舞剧《扎西夏卓》拉萨倾情上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:18 - [专家：糖尿病患者属带状疱疹高风险人群 需主动预防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:29 - [日本富山县一古寺发生火灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:36 - [酒价内参5月19日价格发布：精品茅台上涨3元喜获六连阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:32 - [中国铝业遭中信证券资管公司减持1263万股 每股均价约10.62港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:41 - [半导体设备红利赛道：量利齐增，股价翻倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:20 - [心脏发出预警信号 警惕冠心病找上门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:22 - [PNC银行聘请摩根大通前数字负责人Tim Ferriter，引领零售产品与AI增长战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:22 - [安徽休宁：初夏育秧忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:25 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:24 - [三位台青广西创业记：抓住年轻消费者的“胃”“嗅觉”与“健康观”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:31 - [北京试点自行车乘地铁、上高铁 这份指南请查收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:26 - [崔庆军换了一批董事，苏州银行为管理层投保责任险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)

@@ -1,58 +1,59 @@
-# 蚂蚁收购耀才证券50.55%股权完成交割，新董事会成员亮相
+# 酒价内参5月18日价格发布：洋河梦之蓝M6+下跌3元/瓶
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！界面新闻记者 | 邹文榕 3月30日晚间，蚂蚁收购耀才证券如期完成股权交割。 耀才证券金融（1428.HK）公告，蚂蚁财富以28.14亿港元成功收购公司50.55%的股权。此前，所有必要的监管审批及交割先决条件均已满足。 公告同时披露了蚂蚁主导下的新一界董事会成员——郑艳兰获委任为执行董事；黄浩、刘政及林致
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月18日整体大幅上行。如果主要单品各取一瓶整体打包售卖，今日总售价为10030元，较昨日强劲上涨47元，创下“酒价内参”3月21日升级为当前11款酒品以来的最高纪录，同时总价首次站上万元整数关口。市场延续强势上攻，终端交投情绪升温，茅
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月18日整体大幅上行。
 
-界面新闻记者 | 邹文榕 3月30日晚间，蚂蚁收购耀才证券如期完成股权交割。
+如果主要单品各取一瓶整体打包售卖，今日总售价为10030元，较昨日强劲上涨47元，创下“酒价内参”3月21日升级为当前11款酒品以来的最高纪录，同时总价首次站上万元整数关口。
 
-耀才证券金融（1428.HK）公告，蚂蚁财富以28.14亿港元成功收购公司50.55%的股权。
+市场延续强势上攻，终端交投情绪升温，茅台系及其他酱香品种的表现尤为突出。
 
-此前，所有必要的监管审批及交割先决条件均已满足。
+今日白酒市场11大单品九涨两跌，赢家占据绝对优势。
 
-公告同时披露了蚂蚁主导下的新一界董事会成员——郑艳兰获委任为执行董事；黄浩、刘政及林致求三人获委任为非执行董事；林怡仲、蒋国荣、洪长福及张黔获四人委任为独立非执行董事。
+上涨方面，精品茅台的涨幅居前，大幅上涨21元/瓶至2425元，创下近一月最大增幅，价格再创近一个月新高，i茅台16日提价效应持续向终端传导；国窖1573与古井贡古20均上涨6元/瓶，前者创近一月最高价格纪录；习酒君品、青花郎及青花汾20均上涨5元/瓶，其中青花郎亦创下近一月最高价纪录；飞天茅台上涨3元/瓶，固守在1740元上方；五粮液普五八代与五粮液1618均小幅上涨1元/瓶。
 
-公开资料显示，耀才证券在1995年由叶茂林一手创办，公司于2010年在香港联交所主板上市，并拥有香港证监会旗下1、2、4、5、6、9号全业务牌照，核心业务包括证券经纪、孖展融资、商品及期货经纪以及现货金融交易，是全香港唯一首创提供实时买卖张数及价格的交易商。
+下跌方面，洋河梦之蓝M6+与水晶剑南春均下跌3元/瓶，前者终结此前的六连阳，连续上涨累积了一定卖盘压力，但今日价格仍处于月内次高位。
 
-2025年4月，蚂蚁集团全资子公司上海云进信息技术有限公司宣布，以每股3.28港元的价格，收购耀才证券金融创始人叶茂林持有的50.55%股份，总对价约28.14亿港元。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-2026年3月16日，耀才证券公告表示，蚂蚁集团发起的要约收购已通过有关部门审批，预计将于3月30日完成交割。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台(3月31日上调至1539元/瓶)，1月9日开售2299元/瓶的精品茅台(5月16日上调至2359元/瓶)，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 11:22 - [2026，股票开户选择哪个APP？新浪财经APP成为投资者最优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:19 - [京西国际于4月8日上午起短暂停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:17 - [现货黄金涨1.3%，报4709.73美元/盎司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:12 - [东岳集团：东岳硅材预计一季度归母净利润同比增长397.02%至451.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:19 - [广深铁路：董事会审议通过《2025年度财务报告》等多项议案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:31 - [34年来最强增长！日本薪资数据超预期，4月加息不是梦？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:25 - [康耐特光学公布拟回购公司股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:33 - [铝系上演“冰火两重天”：地缘战火重塑电解铝溢价，氧化铝难敌过剩引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:23 - [广电总局：电视剧创作要避免“颜值至上”“流量依赖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:29 - [酒价内参4月8日价格发布 终端总价创近8天新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:20 - [药捷安康-B建议采纳H股股份奖励计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:35 - [浦发银行行长谢伟谈浦发贷款投放经验：赛道业务是主要增长极](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:34 - [三部门向广西调拨1万件中央救灾物资支持地震救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:34 - [5月美国建筑商信心回升，但购房负担能力挑战持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:25 - [汤臣集团获董事局主席徐枫增持8.4万股 每股作价约2.35港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:26 - [前四月河源出口电脑及其零部件同比增长120.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:29 - [北方多地迎明显降雨过程 今天华北雨势强河北局地或现大暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:21 - [孩子王股价承压后，核心层拟增持最高2.05亿，汪建国刚拿下*ST金灵又增持孩子王 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:15 - [德国商业银行正式拒绝裕信银行收购邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:40 - [伊朗媒体报道：欧洲已与伊朗就霍尔木兹海峡通行展开接触](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:37 - [古今“驴友”大PK，谁才是狠人？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:21 - [港股新晋“超购王”翼菲科技首挂大涨 创始人张赛对市场反应意外 称“天时地利人和”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:25 - [大陆图书走俏台湾 两岸出版业合作升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:23 - [上海规模最大保租房社区扩容 3180套精装房源入市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:26 - [不光存储！光通信成AI交易热门主题 标普500今年十大牛股占三席](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [韩国推出173亿美元刺激计划，油价飙升施压经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:09 - [中俄对涉霍尔木兹海峡决议草案投反对票 伊朗代表：俄中阻止了滥用安理会的行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:09 - [上海市金融学会召开普惠金融专业委员会第一次会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:28 - [信披违法违规，*ST星农及责任人被罚690万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:10 - [阳光电源：董事会审议通过《关于公司<2025年度总裁工作报告>的议案》等多项议案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:13 - [美欧因伊朗战争愈加离心 北约联盟裂痕加深](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:33 - [受中东冲突影响，越南Vingroup拟放弃建设液化天然气发电厂计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:29 - [F-150皮卡受关税重创，福特请求特朗普政府援手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:27 - [上海985，批量生产千亿IPO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:14 - [他山之石，2025年野火之后加州房屋保险市场的崩塌与重构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:32 - [海河乳品发布致歉声明：终止与涉事经销商的直播合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:34 - [卡塔尔能源在美国投产液化天然气 拉什工业区遭袭影响持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:22 - [全国社会保障基金理事会副理事长王文灵被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:27 - [天孚通信：2025年净利同比增长50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:21 - [从替代到重构，中兴新支点操作系统发布水电信创方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:33 - [长城基金刘疆：科技成长具备较强逻辑支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:16 - [德银天下于5月15日斥资570.94万港元回购150万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:41 - [中国治沙劳模喊话美国友人回来看他捐赠的树](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:35 - [李强在北京调研时强调 推动人工智能与先进制造业深度融合 加快培育塑造经济发展新动能新优势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:40 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:25 - [三星电子与工会展开最后谈判，力求避免罢工冲击全球供应链](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:23 - [扩大入境消费 中国加力优化离境退税措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:24 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:37 - [光大期货：5月18日有色金属类日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:27 - [今年第六家！同方全球人寿获准发行10亿资本补充债“补血”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:20 - [央行今日开展5亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:25 - [长安汽车澄清入股千里科技传言](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:29 - [一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:41 - [【百万庄小课堂】降噪耳机或致听力受损？专家详解关键几步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:34 - [五道口金融学院高皓：中国民企迎史上最集中“传承海啸”，家族办公室有望成硬科技“耐心资本”压舱石](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)

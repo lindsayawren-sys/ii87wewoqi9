@@ -1,49 +1,59 @@
-# 康耐特光学公布拟回购公司股份
+# 德国商业银行正式拒绝裕信银行收购邀约
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-康耐特光学（02276）发布公告，于2026年4月7日举行的第二届董事会第十二次会议上，董事会审议并批准《关于2026年H股回购股份方案的议案》。为进一步维护股东权益并增强投资者信心，根据一般性授权，及建议授予董事会回购H股股份的一般性授权（但须待公司股东于即将召开并暂定于2026年6月份举行的2025年年度股东会上批准后方可生效），董事会已批准一项回购总金额不超过4亿港元的H
+德国商业银行于周一正式拒绝了意大利裕信银行提出的收购邀约，在这场持续数月的跨境收购博弈中态度愈发强硬。 目前裕信银行已是德国商业银行第一大股东，本月早些时候其正式发起股权收购，对德商银行整体估值近390亿欧元（约合453.7亿美元），该估值低于该行当前市价。 德商银行发布一份长达137页的并购分析报告并总结称，银行监事会与管理层建议全体股东拒绝裕信银行的换股收购方案。 该行表示
 
 ## 正文
 
-康耐特光学（02276）发布公告，于2026年4月7日举行的第二届董事会第十二次会议上，董事会审议并批准《关于2026年H股回购股份方案的议案》。
+德国商业银行于周一正式拒绝了意大利裕信银行提出的收购邀约，在这场持续数月的跨境收购博弈中态度愈发强硬。
 
-为进一步维护股东权益并增强投资者信心，根据一般性授权，及建议授予董事会回购H股股份的一般性授权（但须待公司股东于即将召开并暂定于2026年6月份举行的2025年年度股东会上批准后方可生效），董事会已批准一项回购总金额不超过4亿港元的H股回购方案。
+目前裕信银行已是德国商业银行第一大股东，本月早些时候其正式发起股权收购，对德商银行整体估值近390亿欧元（约合453.7亿美元），该估值低于该行当前市价。
 
-责任编辑：卢昱君
+德商银行发布一份长达137页的并购分析报告并总结称，银行监事会与管理层建议全体股东拒绝裕信银行的换股收购方案。
+
+该行表示，此次收购出价未能体现自身内在核心价值，方案内容模糊不清，且潜藏巨大风险。
+
+长久以来，德商银行一直反对双方合并，近期更是直言裕信银行的收购提议表述含糊、带有强迫性质，收购溢价几乎为零。
+
+在此之前，该行始终未向股东给出最终立场与明确建议。
+
+德商银行首席执行官贝蒂娜・奥罗普表示：“裕信银行的收购方案无法为股东提供合理溢价。
+
+这场所谓的强强联合，实则是一场重组计划，将严重冲击我们成熟且盈利稳定的经营模式。
 
 ## 相关推荐
 
-- 2026-06-29 11:07 - [美国允许与卢克石油国际出售相关的部分交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:12 - [国安达：控股股东洪伟艺解除质押56.00万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:28 - [伊朗说同意谈判但对美国“完全不信任”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:09 - [特朗普施压加码，最后期限逼近，美伊谈判难在哪？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:14 - [高盛：调查显示信贷市场看空情绪创纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:31 - [百胜中国于4月6日斥资300万美元回购6.16万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:10 - [为稳定电力供应 台湾拟重启已停运的燃煤机组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:20 - [世界数据组织成立！顶层强调数据资源价值！华宝基金大数据ETF（516700）盘中上探1.3%，中科星图领涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:17 - [聚焦春季造林 广东发布2026年第1号总林长令](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:15 - [张家港行：2025年归母净利润19.79亿元 同比增长5.35%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:23 - [贵金属上涨 受美元走软和美债收益率下降提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:19 - [法国通胀升至2024年8月以来最高水平 加大欧洲央行升息压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:21 - [海尔们想做“钢铁侠”，追觅们想做“扫地僧”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:17 - [外资企业投资中国提质升级 转向“融入发展”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:24 - [中国儒意购回部分于2027年到期的零息可换股债券](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:38 - [300677，火了！迎超130家机构调研！公司最新澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:34 - [印度阿达尼企业与美方就涉伊制裁达成2.75亿美元和解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:30 - [受伊朗局势引发能源危机冲击，日本首相呼吁追加财政预算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:33 - [商业航天翻倍股巨力索具，208万手卖单，开盘封死跌停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:13 - [长安期货屈亚娟：矿端供应有所放松，短期镍价或震荡调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:15 - [日本北海道一训练飞机偏离跑道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:20 - [这家中国火箭公司，15个月融了10个亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:14 - [无人机袭击阿联酋核电站后，油价触及两周高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:19 - [关注巴以局势：内塔尼亚胡称以色列已控制加沙六成区域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:31 - [长鑫存储概念引爆，科技龙头走强！兆易创新盘中涨停创新高，科技ETF华宝（515000）涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:21 - [中国中东部大范围强降水持续 多地启动防汛应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [天孚通信：2025年净利同比增长50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:12 - [从替代到重构，中兴新支点操作系统发布水电信创方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:32 - [从修车学徒到冠军缔造者，张雪能否给国产摩托车产业带来新机遇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:27 - [霸王茶姬2025年GMV达315.8亿，全年净收入达129.1亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:34 - [联合国人权高专：蓄意攻击民用基础设施属于战争罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:14 - [交银施罗德的灵魂人物谢卫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:14 - [国台办：民进党当局“跪美卖台” 牺牲台湾农业未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:21 - [六大行拟派发股息超两千亿元，中证银行今日高开高走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:30 - [DDR5价格，全球暴跌！竟是因为它？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:19 - [马达加斯加因能源供应危机宣布进入紧急状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:19 - [利好突袭！刚刚，暴涨900点！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:18 - [CFA三级考试通过率维持在50% 低于十年平均水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:32 - [央行：把做强国内大循环摆到更加突出的位置，统筹好总供给和总需求的关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:15 - [美国3年期国债中标收益率创去年6月以来最高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:26 - [维护国际秩序稳定是各国应对挑战的急迫所需（国际论坛）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:16 - [【百万庄小课堂】降噪耳机或致听力受损？专家详解关键几步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:18 - [五道口金融学院高皓：中国民企迎史上最集中“传承海啸”，家族办公室有望成硬科技“耐心资本”压舱石](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:20 - [酒价内参5月19日价格发布：习酒君品下跌5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:14 - [张晓燕：中国资产兼具成长与避险价值 应成为全球配置重要部分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:26 - [甘肃省临洮县：新农人有了新保单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:23 - [广西常态化开展数字素养培育 让每个人都搭上“数字”快车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:12 - [苹果公布2026年设计大奖入围名单：从量子解谜到国产RPG，“好应用”的标准正在被重写](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:39 - [“红色昌都·红色文旅名家讲坛”网络直播活动在西藏昌都举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:26 - [线上线下同发力 北京为零工撑起“安心伞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:41 - [中国进出口银行应邀参加2026年全球贸易投资促进峰会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:36 - [贵州“80后”辞职建傩戏博物馆 让沉睡的藏品“活”起来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:13 - [国金策略牟一凌：关注宏观的时候来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:15 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:36 - [甘肃“博物馆日”办800项活动 洋学生“汉简之乡”写简牍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:30 - [联合国驻华协调员：缩小数字鸿沟 让全球南方共享技术红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)

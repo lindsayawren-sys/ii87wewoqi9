@@ -1,57 +1,58 @@
-# 战争引发通胀担忧之际 亚股抹去2026年涨幅
+# 银行理财产品“飞单”，怎么防、谁来赔？
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-亚洲股市下跌，该地区主要基准指数抹去了今年的涨幅，因伊朗战争导致能源成本飙升引发通胀及经济增长放缓的担忧。 周二，MSCI亚太指数一度下跌1.3%，其中三星电子和SK海力士对该指数的拖累最大。MSCI新兴市场指数也抹去了2026年的涨幅。 这一里程碑凸显出亚洲市场命运的急剧转变。年初时，随着投资者持续涌入该地区的人工智能基础设施股票，亚洲市场曾一路走高。随着中东冲突进入第五周，
+来源：中国银行保险报 买了非银行自主发行或代销的理财产品，出现大额损失谁来赔？看似正规的银行网点里，隐藏着怎样的“飞单”风险？ 5月15日，在北京市西城区人民法院（以下简称“西城法院”）、北京金融街服务局联合举办的“5·15全国投资者保护宣传日”专题宣讲活动上，西城法院法官现场以案说法，为投资者敲响警钟。 所谓“飞单”，是指金融机构员工私自向客户推介非所属机构发行或代理的其他第
 
 ## 正文
 
-亚洲股市下跌，该地区主要基准指数抹去了今年的涨幅，因伊朗战争导致能源成本飙升引发通胀及经济增长放缓的担忧。
+来源：中国银行保险报 买了非银行自主发行或代销的理财产品，出现大额损失谁来赔？
 
-周二，MSCI亚太指数一度下跌1.3%，其中三星电子和SK海力士对该指数的拖累最大。
+看似正规的银行网点里，隐藏着怎样的“飞单”风险？
 
-MSCI新兴市场指数也抹去了2026年的涨幅。
+5月15日，在北京市西城区人民法院（以下简称“西城法院”）、北京金融街服务局联合举办的“5·15全国投资者保护宣传日”专题宣讲活动上，西城法院法官现场以案说法，为投资者敲响警钟。
 
-这一里程碑凸显出亚洲市场命运的急剧转变。
+所谓“飞单”，是指金融机构员工私自向客户推介非所属机构发行或代理的其他第三方机构理财产品行为。
 
-年初时，随着投资者持续涌入该地区的人工智能基础设施股票，亚洲市场曾一路走高。
+在西城法院公布的一起案例中，嵇某成立某有限合伙企业后，伙同他人向社会公众非法吸收资金。
 
-随着中东冲突进入第五周，风险押注正在减少。
+为扩大吸收资金途径，嵇某找到某银行客户经理赵某，让其帮助寻找投资人。
 
-MSCI亚太指数曾于2月27日创下纪录新高，自年初涨幅达到15%，远超全球股市表现。
+赵某遂向银行客户闫某推荐了嵇某成立的合伙企业发行的一只基金。
 
-随着市场预期货币政策将收紧且关键原材料供应受限，投资者开始重新审视增长理论，此前积累的涨幅已蒸发殆尽。
+赵某具有真实的金融机构工作人员身份，销售场景也为赵某工作的银行网点。
 
 ## 相关推荐
 
-- 2026-06-29 11:15 - [蚂蚁收购耀才证券50.55%股权完成交割，新董事会成员亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:15 - [巴菲特称苹果股票卖早了：仍愿意加仓 但不会在当前市场买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:15 - [逢低买盘介入叠加战争引发波动，黄金反弹站上4500美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:18 - [欧洲天然气价格跃升 特朗普最后通牒临近之际袭击事件仍持续不断](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:23 - [北京出台32条措施支持创新医药发展 拓展人工智能应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:27 - [华尔街恐惧指数大幅上涨后回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:08 - [吕临华：浙商银行将继续过紧日子 挤掉成本中不必要的“水分”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:25 - [2026，股票开户选择哪个APP？新浪财经APP成为投资者最优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:34 - [京西国际于4月8日上午起短暂停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:17 - [现货黄金涨1.3%，报4709.73美元/盎司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:20 - [东岳集团：东岳硅材预计一季度归母净利润同比增长397.02%至451.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:25 - [酒价内参5月18日价格发布：洋河梦之蓝M6+下跌3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:12 - [集体跳水！刚刚近12万人爆仓 Bitcoin Depot发出破产警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:16 - [泓富产业信托遭ESR Asset Management (Prosperity) Limited减持9.1万股 每股均价约1.47港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:17 - [两岸城市摄影展台北开幕 逾百幅作品呈现风土人情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:13 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:20 - [圣贝拉集团：受托人根据股份奖励计划购买合共24.2万股股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:38 - [昆明谋划“十五五”：稳产业、扩开放、强数字经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:30 - [三部门向广西调拨1万件中央救灾物资支持地震救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:40 - [5月美国建筑商信心回升，但购房负担能力挑战持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:34 - [汤臣集团获董事局主席徐枫增持8.4万股 每股作价约2.35港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:27 - [前四月河源出口电脑及其零部件同比增长120.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:16 - [北方多地迎明显降雨过程 今天华北雨势强河北局地或现大暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:17 - [习近平给四所交通大学全体师生回信强调 传承弘扬西迁精神聚焦国家重大战略需求 为建设教育强国科技强国人才强国作出新贡献](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:20 - [WTI原油首次收于100美元上方 布油将创历史最大单月涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:07 - [四招稳住“存款搬家”压力，招行2025年业绩重回正增长轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:07 - [鲍威尔：美联储将“观望”后再采取利率行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:26 - [尝高美集团在香港开设一间新谷泰餐厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:09 - [Colonial First State：油价飙升或致美国GDP萎缩0.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:06 - [黑龙江省备春耕基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:10 - [韩国推出173亿美元刺激计划，油价飙升施压经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:32 - [中俄对涉霍尔木兹海峡决议草案投反对票 伊朗代表：俄中阻止了滥用安理会的行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:26 - [上海市金融学会召开普惠金融专业委员会第一次会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:21 - [信披违法违规，*ST星农及责任人被罚690万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:17 - [阳光电源：董事会审议通过《关于公司<2025年度总裁工作报告>的议案》等多项议案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:30 - [美欧因伊朗战争愈加离心 北约联盟裂痕加深](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:28 - [受中东冲突影响，越南Vingroup拟放弃建设液化天然气发电厂计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:31 - [F-150皮卡受关税重创，福特请求特朗普政府援手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:13 - [外国专家点赞中国新能源创新 开放合作成关键词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:35 - [在“赶大集”中触摸乡村消费脉搏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:39 - [《骆驼日记》带读者看见真实立体多元的非洲大陆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:13 - [韩国法院批准三星针对威胁罢工工会的禁令申请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:41 - [海外华媒探访江西白鹿洞书院 品读千年华夏文脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:31 - [（乡村行·看振兴）以黑猪产业撬动乡村振兴 山西灵丘男子返乡创业“拱”开致富门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:30 - [商会秘书处专业化职业化建设工作交流活动在重庆举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:19 - [长城基金刘疆：科技成长具备较强逻辑支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:21 - [德银天下于5月15日斥资570.94万港元回购150万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:13 - [中国治沙劳模喊话美国友人回来看他捐赠的树](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:21 - [李强在北京调研时强调 推动人工智能与先进制造业深度融合 加快培育塑造经济发展新动能新优势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:17 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:27 - [三星电子与工会展开最后谈判，力求避免罢工冲击全球供应链](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:24 - [扩大入境消费 中国加力优化离境退税措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:39 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)

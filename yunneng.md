@@ -1,47 +1,56 @@
-# 阳光电源：董事会审议通过《关于公司<2025年度总裁工作报告>的议案》等多项议案
+# 零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-证券日报网讯 3月31日，阳光电源发布公告称，公司第五届董事会第二十四次会议审议通过《关于公司的议案》《关于公司的议案》《关于公司的议案》等多项议案。
+中新网北京5月18日电 (记者 徐文欣)当地时间5月16日，哈萨克斯坦阿斯塔纳轻轨一期工程正式通车运营。作为共建“一带一路”的重点项目，这条全长约22.4公里的轻轨线路，是中亚地区首条全部采用中国标准、中国技术、中国装备建设的轨道交通项目，也是中亚地区首条全自动无人驾驶智能轨道交通线。 参建方云南建投集团总承包公司国际工程公司经理白智刚在接受记者采访时介绍，阿斯塔纳轻轨一期工程
 
 ## 正文
 
-证券日报网讯 3月31日，阳光电源发布公告称，公司第五届董事会第二十四次会议审议通过《关于公司的议案》《关于公司的议案》《关于公司的议案》等多项议案。
+中新网北京5月18日电 (记者 徐文欣)当地时间5月16日，哈萨克斯坦阿斯塔纳轻轨一期工程正式通车运营。
+
+作为共建“一带一路”的重点项目，这条全长约22.4公里的轻轨线路，是中亚地区首条全部采用中国标准、中国技术、中国装备建设的轨道交通项目，也是中亚地区首条全自动无人驾驶智能轨道交通线。
+
+参建方云南建投集团总承包公司国际工程公司经理白智刚在接受记者采访时介绍，阿斯塔纳轻轨一期工程南起努尔苏丹国际机场，北至阿斯塔纳市新火车站，沿途经过总统府、纳扎尔巴耶夫大学、国家博物馆等城市地标与重点功能区，共设18座车站及一个车辆段。
+
+项目通车后，将把城市两端的通勤时间缩短近一半，大幅提升市民出行效率，成为助力哈萨克斯坦经济社会发展的重要交通动脉。
+
+据介绍，在该项目中，参建团队主要承担部分车站及区间的建筑、结构、装饰装修、安装工程以及轻轨绿化工程等施工任务。
+
+阿斯塔纳是全球第二寒冷的首都，冬季极端低温可达零下40摄氏度。
+
+在极寒工况下施工，一直是区域性乃至世界性的工程建设难题。
+
+白智刚表示，面对极端气候与复杂条件的双重考验，项目团队构建了国内采购与当地调配相结合的材料供应双渠道，精准统筹物资保障；创新打造立体防寒保温体系，对车站、洞口实施三重密封，严防寒风侵入，并在施工现场配置标准化保温作业棚和供暖设备，全面保障恒温施工。
 
 ## 相关推荐
 
-- 2026-06-29 11:15 - [卡塔尔能源在美国投产液化天然气 拉什工业区遭袭影响持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:16 - [全国社会保障基金理事会副理事长王文灵被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:07 - [天孚通信：2025年净利同比增长50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:19 - [从替代到重构，中兴新支点操作系统发布水电信创方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:24 - [从修车学徒到冠军缔造者，张雪能否给国产摩托车产业带来新机遇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:23 - [霸王茶姬2025年GMV达315.8亿，全年净收入达129.1亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:25 - [联合国人权高专：蓄意攻击民用基础设施属于战争罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:15 - [交银施罗德的灵魂人物谢卫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:22 - [国台办：民进党当局“跪美卖台” 牺牲台湾农业未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:30 - [六大行拟派发股息超两千亿元，中证银行今日高开高走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:25 - [DDR5价格，全球暴跌！竟是因为它？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:26 - [马达加斯加因能源供应危机宣布进入紧急状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:33 - [利好突袭！刚刚，暴涨900点！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:34 - [CFA三级考试通过率维持在50% 低于十年平均水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:14 - [央行：把做强国内大循环摆到更加突出的位置，统筹好总供给和总需求的关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:18 - [长安汽车澄清入股千里科技传言](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:23 - [一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:28 - [【百万庄小课堂】降噪耳机或致听力受损？专家详解关键几步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:26 - [五道口金融学院高皓：中国民企迎史上最集中“传承海啸”，家族办公室有望成硬科技“耐心资本”压舱石](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:41 - [酒价内参5月19日价格发布：习酒君品下跌5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:16 - [张晓燕：中国资产兼具成长与避险价值 应成为全球配置重要部分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:29 - [甘肃省临洮县：新农人有了新保单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:24 - [广西常态化开展数字素养培育 让每个人都搭上“数字”快车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:12 - [苹果公布2026年设计大奖入围名单：从量子解谜到国产RPG，“好应用”的标准正在被重写](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:28 - [“红色昌都·红色文旅名家讲坛”网络直播活动在西藏昌都举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:16 - [3月超额逾10%，银行韧性出圈！国有六大行营收净利集体双增，中行、农行逆市涨超3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:32 - [证券经纪开战前试图投资国防基金，美防长卷内幕交易疑云](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:20 - [亚信科技携手“500强”歌尔股份，让“中国智造”闪耀全球！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:10 - [晚饭一个改变，身体指标轻松变好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:16 - [酒价内参4月8日价格发布，青花郎下调5元跌幅居前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:08 - [甲骨文任命Hilary Maxson为首席财务官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:25 - [交银国际：维持龙源电力目标价8.23港元 评级“买入”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:20 - [伊朗最高国家安全委员会确认停火协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:14 - [招银国际：维持中生制药“买入”评级 降目标价至8.7港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:20 - [英国风电出力激增 缓解全球能源中断冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:13 - [印度英诺克斯空气产品公司拟10亿美元IPO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:15 - [特朗普称将在“两到三周”内结束伊朗战事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:18 - [红塔证券2025年报：自营收入占比超七成 “靠行情吃饭”特征明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:07 - [离岸人民币大涨，创三年来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:24 - [苏峪口瓷窑址：一窑青白瓷 见证西夏文明交融史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:25 - [现场画面 湖南石门遭遇极端暴雨 洪水将房屋淹没](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:13 - [上周新增8家IPO受理企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:31 - [能源价格高企或拖累欧洲与中美人工智能竞赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:18 - [中东资金狂买面板与金矿，大摩All in光模块](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:29 - [2026海外华文媒体江西行采访活动收官 感知“红古绿”秀美江西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:25 - [IMF：英国央行无需加息，甚至可能需要降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:32 - [五部门联合发布风险提示 警惕“招转培”“培训贷”招聘骗局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:40 - [北京推出22项举措优化人才服务与劳动者权益保障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:38 - [信维通信半年飙涨300%，实控人彭浩高位“开溜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:20 - [翻倍牛股巨力索具被立案，股价持续承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:39 - [微观察·中美元首北京会晤丨历史性的一页，要用历史的长镜头去端详](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:30 - [新主席降息执念恐遭同僚狙击！美联储即将上演“内斗”大戏？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:25 - [岛内舆论：特朗普警告“台独”给赖清德重重一击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:26 - [巨力索具涉信披误导被立案调查，这类股民可登记索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:13 - [总市值达3.44万亿！起底长鑫科技概念股全景图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)

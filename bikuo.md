@@ -1,56 +1,57 @@
-# 午盘：美股维持涨势 科技股涨幅领先
+# 国际博物馆日北京地区百余家博物馆正常开放
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-北京时间4月1日凌晨，美股周二午盘维持涨势，科技股领涨，纳指上涨1.8%。投资者正在评估针对伊朗的军事行动可能在四至六周内结束的可能性，此前有报道称特朗普正在寻求结束对伊战争。 道指涨464.89点，涨幅为1.03%，报45681.03点；纳指涨377.96点，涨幅为1.82%，报21172.60点；标普500指数涨86.74点，涨幅为1.37%，报6430.46点。 据报道，
+中新网北京5月18日电(记者 徐婧)5月18日(周一)是国际博物馆日，今年的主题为“博物馆：联结世界的桥梁”。当天，包括中国国家博物馆、中国人民革命军事博物馆、中国考古博物馆、首都博物馆、国家自然博物馆、北京大运河博物馆等在内的北京地区百余家博物馆正常开放，让市民畅享优质文博资源。 多个精品展览集中亮相。首都博物馆“世界文明交流互鉴”系列展览迎来重磅之作，“玉米·黄金·美洲豹—
 
 ## 正文
 
-北京时间4月1日凌晨，美股周二午盘维持涨势，科技股领涨，纳指上涨1.8%。
+中新网北京5月18日电(记者 徐婧)5月18日(周一)是国际博物馆日，今年的主题为“博物馆：联结世界的桥梁”。
 
-投资者正在评估针对伊朗的军事行动可能在四至六周内结束的可能性，此前有报道称特朗普正在寻求结束对伊战争。
+当天，包括中国国家博物馆、中国人民革命军事博物馆、中国考古博物馆、首都博物馆、国家自然博物馆、北京大运河博物馆等在内的北京地区百余家博物馆正常开放，让市民畅享优质文博资源。
 
-道指涨464.89点，涨幅为1.03%，报45681.03点；纳指涨377.96点，涨幅为1.82%，报21172.60点；标普500指数涨86.74点，涨幅为1.37%，报6430.46点。
+多个精品展览集中亮相。
 
-据报道，美国总统特朗普正考虑在四至六周内结束军事行动。
+首都博物馆“世界文明交流互鉴”系列展览迎来重磅之作，“玉米·黄金·美洲豹——玛雅与安第斯古代文明大展”18日对公众开放，约800件展品跨越3000年历史长河，为观众展现玛雅与安第斯文明的精神与文化内核。
 
-该报道称，特朗普的战略重点在于削弱伊朗的海军和导弹能力。
+同日，北京艺术博物馆“宸光映物：乾隆时期文物精品展”开展，甄选馆藏精品文物百余套，多角度呈现展品独特的艺术风格与审美意趣。
 
-特朗普发表上述言论后，美国国债收益率全线小幅走低。
+此外，北京汽车博物馆、永定河文化博物馆、北京月宸扬琴博物馆等均有新展开幕或对外开放，邀请市民到馆观展。
 
-10年期国债收益率降至4.32%，2年期国债收益率降至3.82%。
+5月18日，北京多家博物馆策划了公益讲解、主题讲座、非遗体验、主题演出等学术和趣味活动。
 
-该报道称，特朗普总统已告诉助手，即使霍尔木兹海峡在很大程度上仍处于关闭状态，他也愿意结束中东地区的军事敌对行动。
+孔庙和国子监博物馆、中国考古博物馆、北京奥运博物馆、周口店北京人遗址博物馆等馆举办的学术讲座和科普课堂，为文博爱好者搭建学习交流的平台；北京宣南文化博物馆发布研学探索线路，同步推出沉浸式研学体验剧；民族文化宫博物馆、大钟寺古钟博物馆、北京民俗博物馆等场馆提供公益讲解服务。
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [受权发布丨中华人民共和国国务院令 第834号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:26 - [巴基斯坦：美伊及其盟友同意全面停火 并展开进一步谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:07 - [国泰海通聂小刚：华安和海富通基金整合方案正在推进，将产生很好的协同效应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:22 - [特朗普首次承认：美国人被黑吃黑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:17 - [海河牛奶就直播间涉黄致歉：终止与涉事经销商直播合作，追究法律责任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:14 - [蚂蚁收购耀才证券50.55%股权完成交割，新董事会成员亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:30 - [巴菲特称苹果股票卖早了：仍愿意加仓 但不会在当前市场买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:06 - [逢低买盘介入叠加战争引发波动，黄金反弹站上4500美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:12 - [欧洲天然气价格跃升 特朗普最后通牒临近之际袭击事件仍持续不断](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:08 - [北京出台32条措施支持创新医药发展 拓展人工智能应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:36 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:18 - [3次代购名表获利过万？当心沦为诈骗犯罪帮凶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:28 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：气候变化之下 病毒传播风险倍增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:23 - [伊朗战争已致全球企业损失250亿美元，损失仍在攀升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:23 - [柳南区地震区域搜救出2名被困人员 已无生命体征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:36 - [酒价内参5月18日价格发布：洋河梦之蓝M6+下跌3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:21 - [集体跳水！刚刚近12万人爆仓 Bitcoin Depot发出破产警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:32 - [泓富产业信托遭ESR Asset Management (Prosperity) Limited减持9.1万股 每股均价约1.47港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:16 - [两岸城市摄影展台北开幕 逾百幅作品呈现风土人情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:35 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:27 - [圣贝拉集团：受托人根据股份奖励计划购买合共24.2万股股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [2026年清明节假期国内出游1.35亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:13 - [TCL电子午前涨超3% 全年纯利达25.12亿港元同比增超56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:30 - [富国基金：2025年因公司治理等“五宗罪”被责令改正](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:35 - [03月31日丙二醇10333.33元/吨 5天上涨11.51%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:28 - [耐克第三财季业绩前瞻：华尔街准备迎接耐克多年来最疲软的季度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:31 - [习近平给四所交通大学全体师生回信强调 传承弘扬西迁精神聚焦国家重大战略需求 为建设教育强国科技强国人才强国作出新贡献](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:22 - [WTI原油首次收于100美元上方 布油将创历史最大单月涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:19 - [四招稳住“存款搬家”压力，招行2025年业绩重回正增长轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:09 - [鲍威尔：美联储将“观望”后再采取利率行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:27 - [尝高美集团在香港开设一间新谷泰餐厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:09 - [Colonial First State：油价飙升或致美国GDP萎缩0.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:26 - [黑龙江省备春耕基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:27 - [韩国推出173亿美元刺激计划，油价飙升施压经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:06 - [中俄对涉霍尔木兹海峡决议草案投反对票 伊朗代表：俄中阻止了滥用安理会的行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:08 - [上海市金融学会召开普惠金融专业委员会第一次会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:37 - [韩国股市熔断 暂停程序化交易五分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:25 - [《给阿嬷的情书》出圈：短视频与影视共生的典型样本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:13 - [酒价内参5月19日价格发布：国窖1573下跌6元跌幅居前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:39 - [广州地区举办第三十六个全国助残日系列活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:38 - [伊朗风险推升油价与收益率](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:39 - [外国专家点赞中国新能源创新 开放合作成关键词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:20 - [在“赶大集”中触摸乡村消费脉搏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:18 - [《骆驼日记》带读者看见真实立体多元的非洲大陆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:34 - [韩国法院批准三星针对威胁罢工工会的禁令申请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:34 - [海外华媒探访江西白鹿洞书院 品读千年华夏文脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:19 - [（乡村行·看振兴）以黑猪产业撬动乡村振兴 山西灵丘男子返乡创业“拱”开致富门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:22 - [商会秘书处专业化职业化建设工作交流活动在重庆举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:16 - [长城基金刘疆：科技成长具备较强逻辑支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:37 - [德银天下于5月15日斥资570.94万港元回购150万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:17 - [中国治沙劳模喊话美国友人回来看他捐赠的树](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)

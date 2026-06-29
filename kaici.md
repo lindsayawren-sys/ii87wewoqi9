@@ -1,56 +1,61 @@
-# 海南推出“2026精品消费月暨消博嘉年华”系列活动
+# Xponential Fitness任命Danielle Porto Parra为总裁，强化加盟运营体系
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-中新网海口4月8日电 (张月和)第六届中国国际消费品博览会(简称“消博会”)是海南自贸港全岛封关后迎来的首个重大国家级展会。海南省旅游和文化广电体育厅二级巡视员袁绪良7日介绍，为充分放大本届消博会的全球影响力与客流集聚效应，高效推动展会流量转化为实实在在的旅游消费增量，该省策划推出“2026精品消费月暨消博嘉年华”系列活动。第六届中国国际消费品博览会城市综合保障新闻发布会当日在
+高管任命与薪酬结构 精品健身特许经营商Xponential Fitness, Inc.宣布，其董事会已任命Danielle Porto Parra为总裁，任命立即生效。Parra拥有超过20年加盟及直营消费品牌运营经验，曾担任McAlister's Deli总裁兼首席品牌官，并领导GoTo Foods旗下Cinnabon、Auntie Anne's等七个品牌的营销与产品创新工作
 
 ## 正文
 
-中新网海口4月8日电 (张月和)第六届中国国际消费品博览会(简称“消博会”)是海南自贸港全岛封关后迎来的首个重大国家级展会。
+高管任命与薪酬结构 精品健身特许经营商Xponential Fitness, Inc.宣布，其董事会已任命Danielle Porto Parra为总裁，任命立即生效。
 
-海南省旅游和文化广电体育厅二级巡视员袁绪良7日介绍，为充分放大本届消博会的全球影响力与客流集聚效应，高效推动展会流量转化为实实在在的旅游消费增量，该省策划推出“2026精品消费月暨消博嘉年华”系列活动。
+Parra拥有超过20年加盟及直营消费品牌运营经验，曾担任McAlister's Deli总裁兼首席品牌官，并领导GoTo Foods旗下Cinnabon、Auntie Anne's等七个品牌的营销与产品创新工作。
 
-第六届中国国际消费品博览会城市综合保障新闻发布会当日在海口举行。
+其薪酬方案包括60万美元底薪、现金奖金及价值250万美元的股权激励。
 
-袁绪良会上介绍，“2026精品消费月暨消博嘉年华”活动以“消博引力场，乐购自贸港”为主题，聚焦精品购物、精致旅游、精彩赛事、精美展演四大核心板块，深入推进“一市县一特色”差异化布局，着力构建全域联动、业态融合、便民惠民的旅游消费促进新格局。
+管理层表态与发展预期 首席执行官Mike Nuzzo表示，Parra在加盟与直营模式方面的深厚专业知识，以及在提升单店经济效益、优化客户体验方面的良好记录，将有助于公司继续构建与加盟商的优质合作关系。
 
-海南打通“参展—观光—购物”全链条，联动各大免税经营主体发放离岛免税消费券，为参展商、持证观展嘉宾提供专属优惠政策，持续放大离岛免税政策优势。
+Parra则表示，其领导理念的核心是推动加盟商的长期成功，因为当他们成功时，品牌及所服务的社区也将随之蓬勃发展。
 
-同步举办海南特色美食尝鲜汇、老字号推广宣传周，开展“购在中国”(海南站)、第六届中免腕表节等系列主题活动，汇聚全球优质商品、本土特色好物与地道风味美食，充分激发消费市场活力。
+公司背景与近期动态 Xponential Fitness是全球领先的精品健康健身品牌特许经营商，旗下拥有Club Pilates、StretchLab、YogaSix、Pure Barre和BFT等五个品牌，在美国49个州及28个国家拥有加盟及扩展协议。
 
-立足得天独厚的生态、康养、文化、滨海等特色资源，海南推出“跟着消博游海南”四大主题精品线路，涵盖高尔夫休闲、高端医疗康养、滨海度假、森林康养、民族文化沉浸式体验等多元业态。
+公司近期面临同店销售下滑压力，2026年第一季度北美同店销售额下降6%，净亏损80万美元。
 
-联合国内主流旅游平台上线消博会专属旅游产品，定向发放文旅惠民消费券，精准对接游客个性化、品质化、多元化出行需求，推动展会与旅游深度联动、互促共进。
+此前公司已宣布任命新的首席财务官和首席信息官，此次总裁任命是近期高管团队重组的一部分，旨在稳定加盟体系并恢复有机增长。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [珠江流域节水宣传活动丰富多彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:35 - [中央气象台：“超级单体”强对流将影响长江中下游地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:34 - [小摩：下调HASHKEY HLDGS评级至“中性” 目标价降至5港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:21 - [“做中国人，多么骄傲！”台湾青年自媒体人翟翾：大陆寻根后，心里更踏实了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:15 - [河北秦皇岛：人鸥共欢春日美](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:07 - [多地联动“诵读经典·缅怀先贤”主题活动 与先贤跨时空对话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:14 - [2025年经营性现金流净额8.16亿，美凯龙主营业务展现韧性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:24 - [600721，控制权拟变更，金华市国资委入主！大牛股净利润最高暴增8747.18%，存储涨价潮将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:33 - [东岳集团现涨逾9% 东岳硅材预计一季度归母净利润同比增长397.02%至451.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:31 - [押注苹果赚了1000亿美元但卖早了！巴菲特：当前美股不便宜，将重启慈善午餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:34 - [SuperCom赢得内华达州电子监控合同，在美业务版图扩展至第17个州](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:31 - [洁丽雅不能只靠“少爷”流量卖毛巾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:23 - [柬埔寨跨境自驾游车队横穿柬老中三国推介文化旅游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:33 - [赖清德，如何走到被弹劾地步？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:34 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:28 - [3月外国投资者美债持仓下降 管涛：地缘冲突、能源供给冲击的自然反应，4月或回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:13 - [日本国债收益率飙升 投资者押注日资从美债回流本土](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:22 - [蓝鸿春再谈《给阿嬷的情书》创作信条：从心而发打动自己](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:22 - [法院已对诺泰生物（688076）投资者索赔案相关问题作出先行判决，还可起诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:25 - [2026纪念孟母孟子活动在山东邹城举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:28 - [A股“股王”易位，联讯仪器上市14个交易日股价反超贵州茅台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:36 - [重大资产重组，终止！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:36 - [媒体：三星工会与管理层在谈判中缩小了部分分歧 以避免罢工](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:38 - [美伊冲突以来，美国民众在燃油上的额外支出已超400亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:22 - [中越绿色产业国际合作对接交流活动在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:09 - [中视金桥发布年度业绩 股东应占溢利8004.3万元同比下降25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:14 - [民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:28 - [联合国秘书长欢迎美伊停火两周 呼吁各方推动长期和平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:09 - [里昂：降创科实业目标价至134港元 旗舰品牌增长稳健](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:09 - [西部航天科技公司成立！三角防务参股，盘中暴拉8%！华宝基金军工ETF（512810）上探逾2%收复半年线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:16 - [内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:35 - [A股开盘：三大指数集体高开，超3000只个股飘红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:24 - [尾盘：美股继续上扬 道指上涨逾1000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:27 - [油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:09 - [Marvell涨6.7% 英伟达斥资20亿美元入股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:26 - [股海导航_2026年4月8日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:13 - [高伟电子早盘涨逾12% 全年纯利约1.97亿美元同比增加约65.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:17 - [韩国芯片制造商氦气库存可支撑至6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:09 - [浦发银行：2025年末不良贷款率1.26%，较上年末下降0.10个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:08 - [俄罗斯师生重庆感受工业机器人产学研发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:12 - [600208，重组终止！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:15 - [零售商接连遭遇重重经营困境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:18 - [民意承压蔓延欧洲 斯塔默等多国领导人陷支持率困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:26 - [习近平主席贺信为中俄各领域合作走深走实注入强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:38 - [我国卫星导航产业产值超6000亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:26 - [美债利率上破关键位 美股盛宴能持续多久？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:41 - [少女自行过量注射“减肥针”险致命 医生：使用需遵医嘱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:29 - [格陵兰：与美国的谈判取得进展，但该岛绝不售卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:40 - [大范围降雨浸润中东部 主雨带继续东移南压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:39 - [ROG 20周年，在广州“快乐屋”里把信仰摆出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:39 - [2026年“5·19中国旅游日”倒计时城市（延安）活动举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:24 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:34 - [部分理财子打新报价量增长139%，收益率爆棚，“固收+打新”策略正深入推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:20 - [2026广东工会“工BA”职工篮球联赛在佛山开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:39 - [中国首部踢踏舞剧《扎西夏卓》拉萨倾情上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)

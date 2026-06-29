@@ -1,51 +1,58 @@
-# 东岳集团现涨逾9% 东岳硅材预计一季度归母净利润同比增长397.02%至451.34%
+# 法院已对诺泰生物（688076）投资者索赔案相关问题作出先行判决，还可起诉
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-东岳集团（00189）早盘高开，截至发稿，股价上涨8.90%，现报12.12港元，成交额1.71亿港元。 4月8日，东岳集团发布公告，公司非全资附属公司山东东岳有机硅材料股份有限公司（东岳硅材）截至2026年3月31日止季度归属于其股东的净利润预计为盈利人民币1.83亿元至2.03亿元，同比增长397.02%至451.34%；扣除非经常性损益后的净利润预计为盈利人民币2.05亿
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！上海久诚律师事务所股票索赔律师许峰提示，诺泰生物（688076）虚假陈述引发的投资者索赔案已出现进展，公开信息显示，法院已就诺泰生物投资者索赔案中虚假陈述行为认定、三日一价、重大性、交易因果关系、责任主体及其过错等共性问题作出先行判决。 许峰律师代理的诺泰生物投资者索赔案已获得上海金融法院立案，目前正在等待
 
 ## 正文
 
-东岳集团（00189）早盘高开，截至发稿，股价上涨8.90%，现报12.12港元，成交额1.71亿港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-4月8日，东岳集团发布公告，公司非全资附属公司山东东岳有机硅材料股份有限公司（东岳硅材）截至2026年3月31日止季度归属于其股东的净利润预计为盈利人民币1.83亿元至2.03亿元，同比增长397.02%至451.34%；扣除非经常性损益后的净利润预计为盈利人民币2.05亿元至2.25亿元，同比增长424.02%至475.14%。
+上海久诚律师事务所股票索赔律师许峰提示，诺泰生物（688076）虚假陈述引发的投资者索赔案已出现进展，公开信息显示，法院已就诺泰生物投资者索赔案中虚假陈述行为认定、三日一价、重大性、交易因果关系、责任主体及其过错等共性问题作出先行判决。
 
-瑞银此前表示，展望2026年，预期东岳集团聚合物及有机硅业务盈利将触底反弹，而制冷剂业务的盈利能力可望维持在较高水平。
+许峰律师代理的诺泰生物投资者索赔案已获得上海金融法院立案，目前正在等待法院的下一步安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-责任编辑：卢昱君
+2025年12月18日，诺泰生物公告收到证监会下发的《行政处罚决定书》，经查明，当事人存在以下违法事实： 一、诺泰生物2021年年度报告存在虚假记载 2021年12月，诺泰生物向浙江华贝药业有限责任公司（以下简称浙江华贝）转让药品技术及上市持有许可人权益（以下简称技术转让），并于12月28日确认业务收入3，000万元。
+
+浙江华贝既不具备支付技术转让款的资金实力，也不具备实际应用该技术的生产能力和销售渠道。
+
+同期，诺泰生物策划向浙江华贝增资。
+
+浙江华贝向诺泰生物支付的技术转让款最终来自诺泰生物的增资款。
+
+诺泰生物技术转让业务不具有商业实质，不应确认收入。
 
 ## 相关推荐
 
-- 2026-06-29 11:08 - [全红婵——泳池不小，但世界更大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:30 - [天天学习｜“1”心系万家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:28 - [我国成功发射千帆星座第7批组网卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:30 - [以球会友 国乒选手亮相山西大学附属中学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:17 - [北京市农村经济研究中心原副主任蒋洪昉接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:16 - [从世界一流到“双循环”战略支点，天津港凭什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:33 - [2025银行年报观察室｜信用卡跌破7亿张：大行发卡量“踩刹车”，贷款余额集体负增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:06 - [美经济学家警告：沃尔玛相关衰退指标飙升至金融危机以来最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:32 - [特朗普：“尚未准备好”迫使伊朗重新开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:09 - [希捷科技股价大跌7%，摩根大通为何仍看涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:13 - [浙商银行入选2025年度中国系统重要性银行名单 新一届管理团队首秀业绩说明会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:14 - [爱奇艺拟赴港二次上市 宣布AI视频工具测试 股价大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:08 - [中金公司2025年营利双增 提高分红比例 业务一体化协同优势凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:25 - [创新药跌跌不休，什么原因？华宝基金药ETF、港股通创新药ETF（520880）历史新低，还能买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:30 - [俊知集团午后涨超15% 公司已形成适配AIDC全场景的产品矩阵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:34 - [商务部：一季度最终消费支出对经济增长的贡献率达到46.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:23 - [首部大众版长春简明通史《简明长春历史》首发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:18 - [“张雪机车”WSBK捷克站再夺冠 斩获赛季第五冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:41 - [光大证券：整固蓄势 积极看多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:18 - [油价飙升：特朗普警告伊朗 “时间紧迫”，冲突升级担忧加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:29 - [工行行长刘珺：企业并购正呈现投资于物、投资于生态、投资于人三大发展路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:14 - [铁路部门试点推出“自行车随身行”服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:29 - [【滇藏公路50年】云南贡山“一江三桥”同框 见证滇西北边疆通路变迁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:23 - [英国央行内部政策分歧扩大，英镑承压调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:16 - [中国人民银行召开2026年内审工作会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:23 - [A股3月收官，沪指再度失守3900点，月累计跌6.51%！张雪机车一战封神，概念股2连板！日韩股市3月均暴跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:29 - [金价下跌1000美元的主因是央行抛售，土耳其、俄罗斯……下一个可能是印度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:10 - [天顺风能：公司已批准的对外担保总额度为人民币220.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:25 - [浙商银行董事长陈海强年报致辞：坚持管理立行、服务优行、科技兴行、人才强行，做一个坚定的长期主义者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:19 - [一场巨型奇巧巧克力劫案，如何变身危机公关“黄金案例”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:23 - [宁德时代聘请紫金矿业创始人、前董事长陈景河担任公司矿业部门顾问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:19 - [南卫股份财总岗位有多难干：许晓嫌工资不及预期辞职，前任刚被罚150万元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:19 - [香港银行股早盘集体回暖 渣打集团涨逾7%汇丰控股涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:26 - [再现险资“举牌”！利安人寿拟溢价近10%受让中山公用5%股份，持股比例将升至8.12%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:20 - [港股芯片概念跳水，兆易创新大跌8%，“中年人的泡泡玛特”重挫49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:24 - [中国太保获Ping An Asset ManagementCo.,Ltd.增持719.56万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:07 - [鲍威尔：即使能源价格飙升，政策仍处于“良好位置”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:31 - [酒价内参4月3日价格发布 习酒君品上涨6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:31 - [营收回正、净利仍下滑，民生银行管理层谈重点领域风险管控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:22 - [李强同澳大利亚总理阿尔巴尼斯通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:18 - [专家：糖尿病患者属带状疱疹高风险人群 需主动预防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:41 - [日本富山县一古寺发生火灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:12 - [酒价内参5月19日价格发布：精品茅台上涨3元喜获六连阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:27 - [中国铝业遭中信证券资管公司减持1263万股 每股均价约10.62港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:23 - [半导体设备红利赛道：量利齐增，股价翻倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:42 - [心脏发出预警信号 警惕冠心病找上门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:18 - [PNC银行聘请摩根大通前数字负责人Tim Ferriter，引领零售产品与AI增长战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:16 - [安徽休宁：初夏育秧忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:24 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:27 - [三位台青广西创业记：抓住年轻消费者的“胃”“嗅觉”与“健康观”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:29 - [北京试点自行车乘地铁、上高铁 这份指南请查收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:26 - [崔庆军换了一批董事，苏州银行为管理层投保责任险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:40 - [韩国头部企业一季度营业利润突破千亿美元 超六成来自三星海力士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:18 - [广东520所学校采取停课措施应对强降雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:36 - [民族地区博物馆让团结进步“可见可感”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)

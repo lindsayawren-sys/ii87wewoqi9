@@ -1,58 +1,58 @@
-# 浦发银行行长谢伟：2025年息差管理取得阶段性成效，但较领先同业仍有差距
+# 纽约证券交易所迎来234岁诞辰，预热美国250周年庆典
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-3月31日金融一线消息，浦发银行今日召开2025年度业绩说明会。 浦发银行行长谢伟谈到了浦发银行息差改善情况，2025年浦发银行的净息差为1.42%，与2024年持平。 在资产端，谢伟表示，浦发银行加强了对重点赛道、重点区域、重点行业和重点产品的业务、知识和资源的保障。通过加大信贷投放力度，优化信贷投放节奏，压低票据等低效资产，提高中高收益资产占比，来提升资产的整体收入水平。在
+纽约证券交易所在昨天（2026年5月17日）迎来了其234岁生日，这一里程碑恰逢美国独立250周年纪念的临近。 作为美国资本主义的标志性象征，NYSE的长期历史与国家的经济发展紧密相连。洲际交易所的创始人、董事长兼首席执行官Jeffrey Sprecher在接受福克斯新闻采访时表示，美国的历史与他公司的历史“完全交织在一起”。自1792年《梧桐树协议》签署以来，NYSE已发展成
 
 ## 正文
 
-3月31日金融一线消息，浦发银行今日召开2025年度业绩说明会。
+纽约证券交易所在昨天（2026年5月17日）迎来了其234岁生日，这一里程碑恰逢美国独立250周年纪念的临近。
 
-浦发银行行长谢伟谈到了浦发银行息差改善情况，2025年浦发银行的净息差为1.42%，与2024年持平。
+作为美国资本主义的标志性象征，NYSE的长期历史与国家的经济发展紧密相连。
 
-在资产端，谢伟表示，浦发银行加强了对重点赛道、重点区域、重点行业和重点产品的业务、知识和资源的保障。
+洲际交易所的创始人、董事长兼首席执行官Jeffrey Sprecher在接受福克斯新闻采访时表示，美国的历史与他公司的历史“完全交织在一起”。
 
-通过加大信贷投放力度，优化信贷投放节奏，压低票据等低效资产，提高中高收益资产占比，来提升资产的整体收入水平。
+自1792年《梧桐树协议》签署以来，NYSE已发展成为全球最大的证券交易所，目前上市公司总市值超过40万亿美元，其中包括众多全球标志性企业。
 
-在报告期内，母公司的本外币一般贷款在生息资产中的占比提高了2.5个百分点，处于股份制银行的领先水平，有效延缓了生息资产收益率下降的速度。
+此外，在2026年5月18日发布的盘前更新中，NYSE还提到，投资者正在关注本周即将发布的英伟达财报以及中东地区的最新动态。
 
-在负债端，他指出，浦发银行坚持“存款立行、精细管理”的原则，推动整体负债呈现量增、价降、质升的良好局面。
+本周，第23届年度能源基础设施CEO与投资者大会也已开始，汇聚了该行业的众多领袖。
 
-报告期末，集团的本外币存款总额较上年末增长8.48%，负债的稳定性进一步增强，存款付息率同比下降了38个基点，存款质量有效提升。
+此外，在NYSE上市的Pelagos Insurance Capital Limited也庆祝了其品牌重塑，而另一家公司Oppenheimer则参与了收盘敲钟仪式。
 
-同时，适时通过债券发行等方式来丰富负债品种，提高同业负债的管理实效。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 11:14 - [西部航天科技公司成立！三角防务参股，盘中暴拉8%！华宝基金军工ETF（512810）上探逾2%收复半年线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:10 - [内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:23 - [A股开盘：三大指数集体高开，超3000只个股飘红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:23 - [尾盘：美股继续上扬 道指上涨逾1000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:35 - [油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:25 - [Marvell涨6.7% 英伟达斥资20亿美元入股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:06 - [股海导航_2026年4月8日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:25 - [高伟电子早盘涨逾12% 全年纯利约1.97亿美元同比增加约65.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:09 - [韩国芯片制造商氦气库存可支撑至6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:12 - [浦发银行：2025年末不良贷款率1.26%，较上年末下降0.10个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:19 - [俄罗斯师生重庆感受工业机器人产学研发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:32 - [A股3月收官，沪指再度失守3900点，月累计跌6.51%！张雪机车一战封神，概念股2连板！日韩股市3月均暴跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:30 - [我国卫星导航产业产值超6000亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:41 - [美债利率上破关键位 美股盛宴能持续多久？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:34 - [少女自行过量注射“减肥针”险致命 医生：使用需遵医嘱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:39 - [格陵兰：与美国的谈判取得进展，但该岛绝不售卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:38 - [大范围降雨浸润中东部 主雨带继续东移南压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:16 - [ROG 20周年，在广州“快乐屋”里把信仰摆出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:28 - [2026年“5·19中国旅游日”倒计时城市（延安）活动举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:21 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:19 - [部分理财子打新报价量增长139%，收益率爆棚，“固收+打新”策略正深入推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:18 - [2026广东工会“工BA”职工篮球联赛在佛山开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:31 - [中国首部踢踏舞剧《扎西夏卓》拉萨倾情上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:39 - [专家：糖尿病患者属带状疱疹高风险人群 需主动预防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [尼日利亚汽油价格飙升65% 受原油进口成本上涨推动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:10 - [日经指数上涨4.7% 受芯片和金属类股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:19 - [GTC泽汇资本:黄金属性临时切换 去美元化驱动长牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:27 - [3月31日热门中概股多数下跌 蔚来涨3.95%，小马智行跌6.56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:18 - [贺青任上海市副市长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:23 - [日韩股市集体低开 韩国跌超2.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:25 - [绿城管理控股早盘涨超8% 2025年度股东应占溢利4.19亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:27 - [蓝思科技于4月3日斥资1.19亿元回购426.49万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:19 - [芝加哥联储行长古尔斯比：对经济持谨慎甚至紧张态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:14 - [95岁巴菲特，宣布重启！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:16 - [从缝纫女工到紫檀女王 陈丽华留下比500亿更重要的东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:35 - [中国光大银行发布2025年年度报告： 服务实体显担当 提质增效稳基础 高质量发展取得积极成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:17 - [利率反弹与战争担忧令美国春季楼市降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:20 - [西部证券营收下降创两个“另类”：背离行业趋势异于重组同行 核心净资本大幅减少](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:09 - [先导智能遭Pandanus Associates Inc.减持35.89万股 每股作价41.3506港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:37 - [一汽奥迪梁梁：携手华为打造全链路智能融合体，实现“油车更智能、电车更豪华”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:15 - [债券交易员认为市场转向收益率攀升的新时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:34 - [统计局回应PPI累计同比转正：对改善企业盈利预期有积极作用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:30 - [宁波口岸单位发布联合通告 出台便利船员下地举措](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:25 - [“投资龙江”重点产业推介会在哈尔滨举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:22 - [我国残疾人社会保障和关爱服务水平不断提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:16 - [蒂森克虏伯启动汽车业务重组，宣布关闭美国工厂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:28 - [北京市青少年航空航天模型比赛开赛 报名人数创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:18 - [新前沿矿业携手Austral Resources推进昆士兰铜矿项目，矿石回收率高达99%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:36 - [用博物馆讲好中华民族共同体故事——三地博物馆馆长共议如何以“立体教科书”构筑中华民族共有精神家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:12 - [2027年国际博物馆日中国主会场将落户杭州](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:23 - [视频|追问中国经济关键词！2026清华五道口全球金融论坛现场 第一时间追访金融大咖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:29 - [学习时节｜总书记的牵挂，照亮这项“春天的事业”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:14 - [华宝基金红利风向标 | 科技主题短线波动加剧，高股息红利板块韧性凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:21 - [华泰 | A股策略：均衡配置应对内外风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)

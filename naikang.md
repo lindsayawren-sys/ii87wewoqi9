@@ -1,61 +1,55 @@
-# 美经济学家警告：沃尔玛相关衰退指标飙升至金融危机以来最高水平
+# 工行行长刘珺：企业并购正呈现投资于物、投资于生态、投资于人三大发展路径
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-一位华尔街资深人士表示，与美国最具标志性的经济支柱之一沃尔玛相关的指标正在发出可能出现经济衰退的警告。 吉姆·保尔森是一位资深经济学家，也是Leuthold Group前首席投资策略师。他维护着沃尔玛衰退信号（WRS），该指标衡量沃尔玛的股价相对于一篮子奢侈品股票的表现。其基本理念是，该指标越高，经济急剧下滑的风险就越大。 如下图所示，WRS指数达到了近二十年前全球金融危机以来
+来源：金融界 5月18日，由北京市委金融办、北京证监局、中国上市公司协会联合主办的2026北京上市公司高质量发展大会暨投融资并购对接会在北京召开。 中国工商银行行长刘珺在会上表示，当前科创与产业创新加速融合，为企业并购重组带来新机遇，并购正呈现投资于物、投资于生态、投资于人三大发展路径。新形势下需构建“T”型投资理念、重构估值尽调体系、引入“聪明资金”与“耐心资本”。工行将依托
 
 ## 正文
 
-一位华尔街资深人士表示，与美国最具标志性的经济支柱之一沃尔玛相关的指标正在发出可能出现经济衰退的警告。
+来源：金融界 5月18日，由北京市委金融办、北京证监局、中国上市公司协会联合主办的2026北京上市公司高质量发展大会暨投融资并购对接会在北京召开。
 
-吉姆·保尔森是一位资深经济学家，也是Leuthold Group前首席投资策略师。
+中国工商银行行长刘珺在会上表示，当前科创与产业创新加速融合，为企业并购重组带来新机遇，并购正呈现投资于物、投资于生态、投资于人三大发展路径。
 
-他维护着沃尔玛衰退信号（WRS），该指标衡量沃尔玛的股价相对于一篮子奢侈品股票的表现。
+新形势下需构建“T”型投资理念、重构估值尽调体系、引入“聪明资金”与“耐心资本”。
 
-其基本理念是，该指标越高，经济急剧下滑的风险就越大。
+工行将依托上市二十周年契机，以专业并购金融、长期资本更好助力上市公司高质量发展。
 
-如下图所示，WRS指数达到了近二十年前全球金融危机以来的最高水平： 沃尔玛衰退信号背后的逻辑是，随着经济放缓，越来越多的消费者会从奢侈品店转向沃尔玛等平价零售商。
-
-保尔森在谈到该指标时表示，这意味着沃尔玛衰退信号的上升可能预示着经济衰退或“显著的经济放缓”即将到来。
-
-沃尔玛长期以来一直是美国消费者健康状况的风向标，过去一年来表现强劲，股价在过去12个月里上涨了40%。
-
-随着通胀担忧加剧，消费者寻求节省开支，沃尔玛股价因此受益匪浅。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 11:17 - [京西国际于4月8日上午起停牌 待刊发内幕消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:26 - [3月 对华尔街来说 这是一个动荡的月份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:34 - [基石科技控股发布年度业绩 毛利3106.9万港元同比增长13.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:24 - [协鑫科技亏损幅度显著收窄 实现毛利13.36亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:26 - [江汉江淮等地将有较强降水和强对流天气 北方及西南地区仍有大风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:13 - [《人民日报》：“为什么这些APP都想借钱给我？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:06 - [以总理称支持美伊停火两周但停火不包括黎巴嫩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:32 - [浦发银行行长谢伟：2025年息差管理取得阶段性成效，但较领先同业仍有差距](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:28 - [极兔速递-W早盘上涨13% 全年经调整净利润同比增长112.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:34 - [百年人寿戴文浩：个险是险企稳定性来源，中小公司切勿对标大公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:08 - [中视金桥发布年度业绩 股东应占溢利8004.3万元同比下降25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:33 - [民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:18 - [联合国秘书长欢迎美伊停火两周 呼吁各方推动长期和平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:14 - [里昂：降创科实业目标价至134港元 旗舰品牌增长稳健](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:24 - [西部航天科技公司成立！三角防务参股，盘中暴拉8%！华宝基金军工ETF（512810）上探逾2%收复半年线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:31 - [日本央行前行长白川方明：人口结构与经济增长相辅相成，AI可助力应对老龄化挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:14 - [英国副首相称首相斯塔默不会辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:36 - [湖南石门强降雨灾害已致1人死亡、2人失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:31 - [巴菲特接班人大举建仓，梅西百货盘前跳涨近4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:38 - [在大裁员实施前夕 Meta将7000名员工调至AI相关岗位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:19 - [【阜成门外】我国进口增速远超出口，释放什么信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:31 - [大美边疆看我家丨黑龙江鸡东：赴一场山河与日出之约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:19 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:20 - [车企年报|长城汽车政府补助逆势升至37亿高居榜首 增收减利延续还有多少降价空间？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:16 - [豆类市场多空因素交织 油脂回归基本面主导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:41 - [600208，重组终止！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:33 - [零售商接连遭遇重重经营困境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:39 - [民意承压蔓延欧洲 斯塔默等多国领导人陷支持率困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:26 - [习近平主席贺信为中俄各领域合作走深走实注入强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:13 - [我国卫星导航产业产值超6000亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [李强同澳大利亚总理阿尔巴尼斯通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:15 - [拉来数名特斯拉大将，能否解雷军销量“焦虑”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:30 - [美银证券：升华润万象生活目标价至51港元 上调盈利预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:15 - [教育部要求严禁招生环节收取择校费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:16 - [尾盘：美股继续走低 现货布伦特原油创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:25 - [认清词元属性，警惕“囤词元能暴富”骗局（2026·04·07）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:26 - [晨星：维持华润置地公允价值预测43港元 房地产强势投资抵消房地产开发下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:11 - [欧洲议会一代表团访华 外交部：将推动中欧立法机构交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:32 - [沪指失守3900点，季末分化极致，强势板块悉数回调 | 华宝基金3A日报（2026.3.31）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:21 - [美国证交会"加密监管"框架即将出台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:16 - [布伦特原油在结算后交易中下跌 巴基斯坦敦促伊朗开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:21 - [光大银行行长郝成年报致辞：凝心聚力推动高质量发展，奋力实现“十五五”良好开局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:31 - [匈牙利大选前美国副总统万斯访匈，力挺欧尔班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:20 - [湖南省政协文教卫体和文史委员会副主任夏智伦接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:11 - [尼日利亚汽油价格飙升65% 受原油进口成本上涨推动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:31 - [民族地区博物馆让团结进步“可见可感”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:30 - [中美人文摄影展亮相沈阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:17 - [今年前4个月河口口岸跨境客货运输两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:41 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:24 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:30 - [中东战事推高油价 韩国推行第二轮现金补助缓解民生压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:34 - [现场直击：广西柳州发生5.2级地震 部分房屋倒塌有人员被困](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:27 - [王海洲：优秀传统文化是短剧精品化路径中值得深挖的瑰宝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:35 - [酒价内参5月19日价格发布：五粮液普五八代小幅下跌1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:14 - [人这一辈子，一定要去青州看一次“东方微笑”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:26 - [江苏：大力创新民营经济保险服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:40 - [文脉华章｜让文物 “活” 起来，解锁内蒙古数字文博里的精彩中国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:26 - [下周有2只新股可申购 国产特种光纤第一股来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:39 - [体重减不下来，不是“吃太多”那么简单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:28 - [一汽奥迪梁梁：携手华为打造全链路智能融合体，实现“油车更智能、电车更豪华”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)

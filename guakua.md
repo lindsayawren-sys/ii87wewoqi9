@@ -1,49 +1,61 @@
-# 天顺风能：公司已批准的对外担保总额度为人民币220.41亿元
+# 酒价内参5月19日价格发布：精品茅台上涨3元喜获六连阳
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-证券日报网讯 3月30日，天顺风能发布公告称，本次担保事项经2025年年度股东会审议通过后，公司已批准的对外担保总额度为人民币220.41亿元，实际担保额为人民币144.00亿元，实际担保额占公司2025年末经审计净资产的166.37%。公司没有对合并报表范围外的公司提供担保，也不存在逾期债务对应的担保余额、涉及诉讼的担保金额及因被判败诉而应承担的担保金额等。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月19日整体窄幅波动。如果主要单品各取一瓶整体打包售卖，今日总售价为10012元，较昨日小幅下跌18元。得益于茅台系两款产品特别是飞天茅台的大幅走强，总价依然稳居万元整数关口上方。市场在昨日大幅冲高后今日出现技术性回调，终端交投情绪保持平稳，核心单品的涨跌分化依然显著。 今日白酒市场11大单
 
 ## 正文
 
-证券日报网讯 3月30日，天顺风能发布公告称，本次担保事项经2025年年度股东会审议通过后，公司已批准的对外担保总额度为人民币220.41亿元，实际担保额为人民币144.00亿元，实际担保额占公司2025年末经审计净资产的166.37%。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月19日整体窄幅波动。
 
-公司没有对合并报表范围外的公司提供担保，也不存在逾期债务对应的担保余额、涉及诉讼的担保金额及因被判败诉而应承担的担保金额等。
+如果主要单品各取一瓶整体打包售卖，今日总售价为10012元，较昨日小幅下跌18元。
+
+得益于茅台系两款产品特别是飞天茅台的大幅走强，总价依然稳居万元整数关口上方。
+
+市场在昨日大幅冲高后今日出现技术性回调，终端交投情绪保持平稳，核心单品的涨跌分化依然显著。
+
+今日白酒市场11大单品三涨七跌一平，输家占据明显优势。
+
+上涨方面，飞天茅台一马当先，上涨10元/瓶，创下近一月最高价纪录；精品茅台上涨3元/瓶，喜获六连阳继续高位运行；水晶剑南春上涨1元/瓶。
+
+下跌方面，国窖1573与古井贡古20跌幅居前，均下跌6元/瓶，都回吐了昨日全部涨幅；青花汾20、习酒君品及青花郎均下跌5元/瓶，昨天涨幅也是尽数失守；洋河梦之蓝M6+下跌4元/瓶；五粮液普五八代小幅下跌1元/瓶。
+
+五粮液1618的价格环比保持不变，近半月的走势相对平稳。
 
 ## 相关推荐
 
-- 2026-06-29 11:07 - [港股芯片概念跳水，兆易创新大跌8%，“中年人的泡泡玛特”重挫49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:07 - [中国太保获Ping An Asset ManagementCo.,Ltd.增持719.56万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:07 - [鲍威尔：即使能源价格飙升，政策仍处于“良好位置”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:17 - [酒价内参4月3日价格发布 习酒君品上涨6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:08 - [营收回正、净利仍下滑，民生银行管理层谈重点领域风险管控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:16 - [李强同澳大利亚总理阿尔巴尼斯通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:30 - [拉来数名特斯拉大将，能否解雷军销量“焦虑”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:28 - [美银证券：升华润万象生活目标价至51港元 上调盈利预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:33 - [教育部要求严禁招生环节收取择校费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:31 - [尾盘：美股继续走低 现货布伦特原油创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:33 - [认清词元属性，警惕“囤词元能暴富”骗局（2026·04·07）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:27 - [晨星：维持华润置地公允价值预测43港元 房地产强势投资抵消房地产开发下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:06 - [欧洲议会一代表团访华 外交部：将推动中欧立法机构交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:26 - [沪指失守3900点，季末分化极致，强势板块悉数回调 | 华宝基金3A日报（2026.3.31）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:34 - [美国证交会"加密监管"框架即将出台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:18 - [三位台青广西创业记：抓住年轻消费者的“胃”“嗅觉”与“健康观”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:32 - [北京试点自行车乘地铁、上高铁 这份指南请查收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:13 - [崔庆军换了一批董事，苏州银行为管理层投保责任险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:39 - [韩国头部企业一季度营业利润突破千亿美元 超六成来自三星海力士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:39 - [广东520所学校采取停课措施应对强降雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:25 - [民族地区博物馆让团结进步“可见可感”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:24 - [中美人文摄影展亮相沈阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:16 - [今年前4个月河口口岸跨境客货运输两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:21 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:32 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:24 - [中东战事推高油价 韩国推行第二轮现金补助缓解民生压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:28 - [现场直击：广西柳州发生5.2级地震 部分房屋倒塌有人员被困](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:25 - [王海洲：优秀传统文化是短剧精品化路径中值得深挖的瑰宝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:33 - [酒价内参5月19日价格发布：五粮液普五八代小幅下跌1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:30 - [人这一辈子，一定要去青州看一次“东方微笑”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [燃料价格飙升推高通胀之际 新西兰央行维持关键利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:11 - [酒价内参3月31日价格发布 青花汾20下调4元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:07 - [财务总监、首席执行官辞职！神州数码业绩发布：AI业务收入增长近5成，现金流“失血”猛跌近200%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:34 - [SpaceX尚未上市，投资者已在热议该公司会否与特斯拉合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:25 - [B站宣布：明天零点起，将下线猜你喜欢算法，不再根据你的喜好来推荐主页内容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:35 - [伊朗战争进入第五周，黄金或将迎来2008年以来最差月度表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:17 - [股价最大跌幅近90%！两大IPO募投项目2025年亏损，拓新药业发布定增预案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:16 - [给乡愁办个“身份证” 黑龙江省额尔门沁村以版权激活民族文化遗产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:22 - [巴菲特：尽管有爱泼斯坦丑闻，他仍不后悔向盖茨基金会捐款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:29 - [中天策略:3月31日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:17 - [国际油价，大跌15%！特朗普说停火两周，伊朗接受了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:09 - [兴业证券2025年报：经纪、自营收入合计占比近六成 投行、资管业务疲软](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:24 - [GLP-1口服药扩大肥胖治疗市场 吸引不愿接受注射治疗的患者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:18 - [特朗普称美国将在两三周内结束对伊战争 仍有可能与德黑兰达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:18 - [她还能增长吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:31 - [央视6000万美元拿下世界杯转播权，国际足联吃亏了么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:35 - [参议员拟立法禁止面向未成年人投放赌博广告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:19 - [Coursera宣布5亿美元股票回购计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:12 - [梨花漫染鹤岗城 赏花盛会激活文旅消费热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:12 - [特朗普就台湾问题表态，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:26 - [慈文传媒：公司积极推进董事会换届工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:24 - [APEC第二次高官会在上海开幕 为APEC“中国年”承上启下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:34 - [伊朗哈尔克岛连续10天未见油轮 美军海上封锁压力凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:31 - [广州海关查获毒品氯胺酮4997.87克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:16 - [小摩：腾讯控股重申“增持”评级 留意三项风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:31 - [2026电影总票房已超144亿元！5月精彩影片速览→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:39 - [英伟达7连涨创新高！创业板人工智能ETF获资金抢筹！港股通创新药ETF逼近前低，近10日狂揽5.35亿元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:37 - [博时基金刘玄：REITs作为独立大类资产的定位有望夯实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:12 - [全国多地共赏“超现场” 科技为舞剧《五星出东方》赋予新活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:28 - [礼来将出席伯恩斯坦第42届年度战略决策会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)

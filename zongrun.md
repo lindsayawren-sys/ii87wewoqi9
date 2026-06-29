@@ -1,60 +1,55 @@
-# 希捷科技股价大跌7%，摩根大通为何仍看涨
+# 【滇藏公路50年】云南贡山“一江三桥”同框 见证滇西北边疆通路变迁
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-在希捷科技股价于交易所承压之际，摩根大通认为此次回调是买入良机，理由在于数据存储市场强劲的需求趋势和基本面改善。 该股盘中下跌约7%，从近期高点回落。过去12个月，该股累计上涨逾四倍。 该股过去一个月下跌逾5%，但过去一年涨幅超过320%。 摩根大通首次覆盖希捷，给予“增持”评级，目标价525美元，意味着较当前水平有显著上涨空间。 AI基础设施驱动需求激增 希捷及其主要竞争对手
+发布时间：2026年05月17日 20:06 来源：中国新闻网 近日，记者走进云南省怒江傈僳族自治州贡山县丙中洛镇尼大当村，怒江奔流而下，两岸三座建造年代不同的桥并立于同一江段，记录着怒江峡谷通路半个多世纪的变迁。 1975年建成的朝红桥，为第一代尼大当桥，钢索木板结构，仅供人畜通行，曾是当地群众过江的重要通道；2004年建成的第二代尼大当桥，可供车辆交替通行，让两岸往来更加便
 
 ## 正文
 
-在希捷科技股价于交易所承压之际，摩根大通认为此次回调是买入良机，理由在于数据存储市场强劲的需求趋势和基本面改善。
+发布时间：2026年05月17日 20:06 来源：中国新闻网 近日，记者走进云南省怒江傈僳族自治州贡山县丙中洛镇尼大当村，怒江奔流而下，两岸三座建造年代不同的桥并立于同一江段，记录着怒江峡谷通路半个多世纪的变迁。
 
-该股盘中下跌约7%，从近期高点回落。
+1975年建成的朝红桥，为第一代尼大当桥，钢索木板结构，仅供人畜通行，曾是当地群众过江的重要通道；2004年建成的第二代尼大当桥，可供车辆交替通行，让两岸往来更加便利；2017年建成的第三代尼大当桥，则让车辆双向通行，将怒江峡谷进一步接入国道交通网络。
 
-过去12个月，该股累计上涨逾四倍。
+江上风过，朝红桥的钢索仍悬于江面，新桥车辆往来不息。
 
-该股过去一个月下跌逾5%，但过去一年涨幅超过320%。
+从人畜通行到车辆双向通行，三代桥并立同框，也让滇西北边疆通路变迁有了可见注脚。
 
-摩根大通首次覆盖希捷，给予“增持”评级，目标价525美元，意味着较当前水平有显著上涨空间。
-
-AI基础设施驱动需求激增 希捷及其主要竞争对手西部数据均受益于数据中心用大容量硬盘需求的激增。
-
-人工智能工作负载的兴起导致数据存储需求急剧增加，尤其对高利润、高密度硬盘的需求。
-
-分析师萨米克·查特吉表示，由于定价能力增强以及云基础设施投资持续，该公司对2027年的财务预测高于市场普遍预期。
+(王临梓 陈静） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 11:13 - [基石科技控股发布年度业绩 毛利3106.9万港元同比增长13.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:12 - [协鑫科技亏损幅度显著收窄 实现毛利13.36亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:13 - [江汉江淮等地将有较强降水和强对流天气 北方及西南地区仍有大风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:33 - [《人民日报》：“为什么这些APP都想借钱给我？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:10 - [以总理称支持美伊停火两周但停火不包括黎巴嫩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:33 - [浦发银行行长谢伟：2025年息差管理取得阶段性成效，但较领先同业仍有差距](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:15 - [极兔速递-W早盘上涨13% 全年经调整净利润同比增长112.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:08 - [百年人寿戴文浩：个险是险企稳定性来源，中小公司切勿对标大公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:12 - [中视金桥发布年度业绩 股东应占溢利8004.3万元同比下降25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:32 - [民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:08 - [联合国秘书长欢迎美伊停火两周 呼吁各方推动长期和平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:19 - [里昂：降创科实业目标价至134港元 旗舰品牌增长稳健](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:25 - [西部航天科技公司成立！三角防务参股，盘中暴拉8%！华宝基金军工ETF（512810）上探逾2%收复半年线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:21 - [内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:27 - [湖南石门强降雨灾害已致1人死亡、2人失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:18 - [巴菲特接班人大举建仓，梅西百货盘前跳涨近4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:39 - [在大裁员实施前夕 Meta将7000名员工调至AI相关岗位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:28 - [【阜成门外】我国进口增速远超出口，释放什么信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:29 - [大美边疆看我家丨黑龙江鸡东：赴一场山河与日出之约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:15 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:15 - [车企年报|长城汽车政府补助逆势升至37亿高居榜首 增收减利延续还有多少降价空间？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:23 - [豆类市场多空因素交织 油脂回归基本面主导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:18 - [600208，重组终止！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:14 - [零售商接连遭遇重重经营困境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:29 - [民意承压蔓延欧洲 斯塔默等多国领导人陷支持率困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:32 - [习近平主席贺信为中俄各领域合作走深走实注入强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:22 - [我国卫星导航产业产值超6000亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:26 - [美债利率上破关键位 美股盛宴能持续多久？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:34 - [少女自行过量注射“减肥针”险致命 医生：使用需遵医嘱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [美银证券：升华润万象生活目标价至51港元 上调盈利预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:25 - [教育部要求严禁招生环节收取择校费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:29 - [尾盘：美股继续走低 现货布伦特原油创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:33 - [认清词元属性，警惕“囤词元能暴富”骗局（2026·04·07）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:30 - [晨星：维持华润置地公允价值预测43港元 房地产强势投资抵消房地产开发下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:12 - [欧洲议会一代表团访华 外交部：将推动中欧立法机构交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:14 - [沪指失守3900点，季末分化极致，强势板块悉数回调 | 华宝基金3A日报（2026.3.31）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:16 - [美国证交会"加密监管"框架即将出台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:19 - [布伦特原油在结算后交易中下跌 巴基斯坦敦促伊朗开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:14 - [光大银行行长郝成年报致辞：凝心聚力推动高质量发展，奋力实现“十五五”良好开局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:08 - [匈牙利大选前美国副总统万斯访匈，力挺欧尔班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:17 - [湖南省政协文教卫体和文史委员会副主任夏智伦接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:30 - [尼日利亚汽油价格飙升65% 受原油进口成本上涨推动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:15 - [日经指数上涨4.7% 受芯片和金属类股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:16 - [GTC泽汇资本:黄金属性临时切换 去美元化驱动长牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:19 - [今年前4个月河口口岸跨境客货运输两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:27 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:15 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:41 - [中东战事推高油价 韩国推行第二轮现金补助缓解民生压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:27 - [现场直击：广西柳州发生5.2级地震 部分房屋倒塌有人员被困](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:39 - [王海洲：优秀传统文化是短剧精品化路径中值得深挖的瑰宝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:40 - [酒价内参5月19日价格发布：五粮液普五八代小幅下跌1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:22 - [人这一辈子，一定要去青州看一次“东方微笑”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:23 - [江苏：大力创新民营经济保险服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:36 - [文脉华章｜让文物 “活” 起来，解锁内蒙古数字文博里的精彩中国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:15 - [下周有2只新股可申购 国产特种光纤第一股来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:38 - [体重减不下来，不是“吃太多”那么简单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:14 - [一汽奥迪梁梁：携手华为打造全链路智能融合体，实现“油车更智能、电车更豪华”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:16 - [债券交易员认为市场转向收益率攀升的新时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:36 - [统计局回应PPI累计同比转正：对改善企业盈利预期有积极作用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)

@@ -1,60 +1,61 @@
-# 民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成
+# 零售商接连遭遇重重经营困境
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-3月31日金融一线消息，民生银行今日召开2025年度业绩交流会。谈及零售业务，执行董事、副行长张俊潼总结了2025年全年零售业务开展情况，并对2026年零售业务进行展望： 他表示，展望2026年，我们将继续保持战略定力，坚持将零售业务作为全行长期性、基础性的战略业务来开展。要坚持稳增长、优结构、强基础、提质效的工作主线，持续完善零售经营体系，强化零售风险管理，推动零售业务高质量
+此外：私募借贷暗藏价值陷阱，华盛顿地区出现可疑博彩交易 作者：李真珠 早安，今日由我代班斯宾塞・雅卡布。目前市场依旧未能摆脱上周五的震荡情绪，股指期货预示美股开盘小幅走低，布伦特原油价格微涨，美债收益率在上周末大幅走高后维持高位。周末海湾地区局势摩擦不断，加之社交平台上的舆论交锋，令投资者意识到霍尔木兹海峡仍处于关停状态，短期内重启希望渺茫。 行情数据（截至 2026 年 5
 
 ## 正文
 
-3月31日金融一线消息，民生银行今日召开2025年度业绩交流会。
+此外：私募借贷暗藏价值陷阱，华盛顿地区出现可疑博彩交易 作者：李真珠 早安，今日由我代班斯宾塞・雅卡布。
 
-谈及零售业务，执行董事、副行长张俊潼总结了2025年全年零售业务开展情况，并对2026年零售业务进行展望： 他表示，展望2026年，我们将继续保持战略定力，坚持将零售业务作为全行长期性、基础性的战略业务来开展。
+目前市场依旧未能摆脱上周五的震荡情绪，股指期货预示美股开盘小幅走低，布伦特原油价格微涨，美债收益率在上周末大幅走高后维持高位。
 
-要坚持稳增长、优结构、强基础、提质效的工作主线，持续完善零售经营体系，强化零售风险管理，推动零售业务高质量发展。
+周末海湾地区局势摩擦不断，加之社交平台上的舆论交锋，令投资者意识到霍尔木兹海峡仍处于关停状态，短期内重启希望渺茫。
 
-一是数字化经营。
+行情数据（截至 2026 年 5 月 18 日） 标普 500 迷你股指期货：7402.75 点，下跌 29.50 点，跌幅 0.40% 道琼斯迷你股指期货：49297.00 点，下跌 320 点，跌幅 0.64% 纳斯达克 100 迷你股指期货：29129.00 点，下跌 102.75 点，跌幅 0.35% 美国 10 年期国债收益率：4.61%，上涨 0.01 个百分点，涨幅 0.28% 原油期货：106.50 美元，上涨 1.08 美元，涨幅 1.02% 油价冲击 vs 退税红利 近些年来，零售行业始终深陷各类供应链难题，如今又恰逢中东局势冲突带来新挑战。
 
-零售“一个大脑”建设已经基本完成，通过分产品、分客群的实际运用，跑通了整个大脑，从数据收集、管理决策、营销策划到销售作业，从线上到线下跑通了全流程。
+各大零售商正陆续发布 2 至 4 月的第一财季财报，这一财季完整横跨两个月冲突期。
 
-二是夯实基础能力，提升全客群的服务体验。
+沃尔玛与塔吉特新任首席执行官均于近期上任，本周两家企业将披露业绩，此次市场冲击也将成为两位新管理者上任后的首场大考。
 
-坚持“以客为尊”，用心服务，持续夯实基础客户、基础产品、基础服务、基础管理，做强全客户、全产品、全渠道、全场景服务能力，用扎实用心的服务不断提升客户的获得感和满意感。
+两位高管均为公司资深老员工，在企业发展关键阶段接过管理权。
 
-三是坚持优结构、落实高质量发展，将业务结构的不断改善作为主线，今年会进一步的着力在消贷的资产结构上，按照政策导向、监管要求，以及同业的普遍做法加强风险管理，进一步回归本源，服务实体经济，夯实高质量发展的基础。
+塔吉特正全力推进业务扭亏计划，沃尔玛则着力打造科技型增长模式，两大企业的发展前景备受投资者看好。
 
 ## 相关推荐
 
-- 2026-06-29 11:07 - [油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:07 - [Marvell涨6.7% 英伟达斥资20亿美元入股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:13 - [股海导航_2026年4月8日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:19 - [高伟电子早盘涨逾12% 全年纯利约1.97亿美元同比增加约65.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:12 - [韩国芯片制造商氦气库存可支撑至6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:12 - [浦发银行：2025年末不良贷款率1.26%，较上年末下降0.10个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:34 - [俄罗斯师生重庆感受工业机器人产学研发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:07 - [A股3月收官，沪指再度失守3900点，月累计跌6.51%！张雪机车一战封神，概念股2连板！日韩股市3月均暴跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:20 - [金价下跌1000美元的主因是央行抛售，土耳其、俄罗斯……下一个可能是印度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:07 - [天顺风能：公司已批准的对外担保总额度为人民币220.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:11 - [浙商银行董事长陈海强年报致辞：坚持管理立行、服务优行、科技兴行、人才强行，做一个坚定的长期主义者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:21 - [一场巨型奇巧巧克力劫案，如何变身危机公关“黄金案例”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:06 - [宁德时代聘请紫金矿业创始人、前董事长陈景河担任公司矿业部门顾问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:15 - [南卫股份财总岗位有多难干：许晓嫌工资不及预期辞职，前任刚被罚150万元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:14 - [大范围降雨浸润中东部 主雨带继续东移南压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:22 - [ROG 20周年，在广州“快乐屋”里把信仰摆出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:19 - [2026年“5·19中国旅游日”倒计时城市（延安）活动举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:28 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:12 - [部分理财子打新报价量增长139%，收益率爆棚，“固收+打新”策略正深入推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:40 - [2026广东工会“工BA”职工篮球联赛在佛山开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:15 - [中国首部踢踏舞剧《扎西夏卓》拉萨倾情上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:22 - [专家：糖尿病患者属带状疱疹高风险人群 需主动预防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:22 - [日本富山县一古寺发生火灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:30 - [酒价内参5月19日价格发布：精品茅台上涨3元喜获六连阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:17 - [中国铝业遭中信证券资管公司减持1263万股 每股均价约10.62港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:28 - [半导体设备红利赛道：量利齐增，股价翻倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:30 - [心脏发出预警信号 警惕冠心病找上门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:32 - [PNC银行聘请摩根大通前数字负责人Tim Ferriter，引领零售产品与AI增长战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:25 - [安徽休宁：初夏育秧忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:16 - [贺青任上海市副市长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:21 - [日韩股市集体低开 韩国跌超2.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:28 - [绿城管理控股早盘涨超8% 2025年度股东应占溢利4.19亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:13 - [蓝思科技于4月3日斥资1.19亿元回购426.49万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:26 - [芝加哥联储行长古尔斯比：对经济持谨慎甚至紧张态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:09 - [95岁巴菲特，宣布重启！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:11 - [从缝纫女工到紫檀女王 陈丽华留下比500亿更重要的东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:21 - [中国光大银行发布2025年年度报告： 服务实体显担当 提质增效稳基础 高质量发展取得积极成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:29 - [利率反弹与战争担忧令美国春季楼市降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:16 - [西部证券营收下降创两个“另类”：背离行业趋势异于重组同行 核心净资本大幅减少](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:28 - [先导智能遭Pandanus Associates Inc.减持35.89万股 每股作价41.3506港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:14 - [俞浩慈善基金会“灯塔课堂”落地成都，构建产学研协同育人新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:08 - [民生银行黄红日谈房地产资产质量：短期仍存压力，长期趋于平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:33 - [酒价内参3月31日价格发布 古井贡古20小幅回落1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:28 - [广西贺州：白鹭伴春耕 田园生态美如画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:38 - [“投资龙江”重点产业推介会在哈尔滨举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:19 - [我国残疾人社会保障和关爱服务水平不断提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:40 - [蒂森克虏伯启动汽车业务重组，宣布关闭美国工厂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:39 - [北京市青少年航空航天模型比赛开赛 报名人数创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:23 - [新前沿矿业携手Austral Resources推进昆士兰铜矿项目，矿石回收率高达99%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:26 - [用博物馆讲好中华民族共同体故事——三地博物馆馆长共议如何以“立体教科书”构筑中华民族共有精神家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:35 - [2027年国际博物馆日中国主会场将落户杭州](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:17 - [视频|追问中国经济关键词！2026清华五道口全球金融论坛现场 第一时间追访金融大咖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:37 - [学习时节｜总书记的牵挂，照亮这项“春天的事业”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:18 - [华宝基金红利风向标 | 科技主题短线波动加剧，高股息红利板块韧性凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:18 - [华泰 | A股策略：均衡配置应对内外风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:13 - [斯巴达勇士赛北京站落幕 近4000选手挑战“三色周末”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:38 - [国防部：中蒙将举行“草原伙伴-2026”陆军联训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:38 - [设专用通道多语种服务 哈尔滨机场口岸护航中俄博览会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:41 - [国际金价创4月以来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)

@@ -1,58 +1,48 @@
-# 借力智能存储业务东风，绿联科技营收飙升53.83%，却遭股东高管接连减持近十亿元
+# 媒体：三星工会与管理层在谈判中缩小了部分分歧 以避免罢工
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-3月30日晚间，绿联科技（301606.SZ）发布2025年财报，营收、净利均创下新高。然而，就在业绩大增前不久，绿联科技却遭遇公司高管和股东的接连减持。绿联科技财报显示，2025年，公司实现营收94.91亿元，同比增长53.83%；归母净利润7.05亿元，同比增长52.42%。2026年3月23日，绿联科技发布公告称，公司大股东珠海锡恒投资合伙企业（有限合伙）（以下简称“珠海
+韩联社Infomax周二援引韩国国家劳动关系委员会主席的话报道称，三星电子与其韩国工会正在缩小部分分歧。工会与管理层正在进行谈判，以避免这家科技巨头历史上规模最大的罢工发生。责任编辑：王永生
 
 ## 正文
 
-3月30日晚间，绿联科技（301606.SZ）发布2025年财报，营收、净利均创下新高。
+韩联社Infomax周二援引韩国国家劳动关系委员会主席的话报道称，三星电子与其韩国工会正在缩小部分分歧。
 
-然而，就在业绩大增前不久，绿联科技却遭遇公司高管和股东的接连减持。
+工会与管理层正在进行谈判，以避免这家科技巨头历史上规模最大的罢工发生。
 
-绿联科技财报显示，2025年，公司实现营收94.91亿元，同比增长53.83%；归母净利润7.05亿元，同比增长52.42%。
-
-2026年3月23日，绿联科技发布公告称，公司大股东珠海锡恒投资合伙企业（有限合伙）（以下简称“珠海锡恒”）于2025年12月24日至2026年3月20日期间，通过集中竞价、大宗交易方式合计减持公司股票803.43万股。
-
-以公告减持均价计算，珠海锡恒套现5.09亿元。
-
-珠海锡恒背后正是绿联科技最大的外部股东高瓴资本。
-
-更早之前，2026年1月，绿联科技还曾公告称，公司大股东深圳市绿联管理咨询合伙企业（有限合伙）（以下简称“绿联管理”）及其一致行动人深圳市和顺四号管理咨询合伙企业（有限合伙）（以下简称“和顺四号”）在2025年11月6日至2026年1月27日期间，合计减持公司股票622.37万股。
-
-以公告减持均价计算，绿联管理和和顺四号合计套现4.72亿元。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 11:16 - [北京市农村经济研究中心原副主任蒋洪昉接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:15 - [从世界一流到“双循环”战略支点，天津港凭什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:06 - [2025银行年报观察室｜信用卡跌破7亿张：大行发卡量“踩刹车”，贷款余额集体负增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:34 - [美经济学家警告：沃尔玛相关衰退指标飙升至金融危机以来最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:15 - [特朗普：“尚未准备好”迫使伊朗重新开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:31 - [希捷科技股价大跌7%，摩根大通为何仍看涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:32 - [浙商银行入选2025年度中国系统重要性银行名单 新一届管理团队首秀业绩说明会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:12 - [爱奇艺拟赴港二次上市 宣布AI视频工具测试 股价大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:24 - [中金公司2025年营利双增 提高分红比例 业务一体化协同优势凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:28 - [软科技，硬实力！⎡华宝中证全指软件开发ETF⎦正式获批，即将发行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:10 - [京西国际于4月8日上午起停牌 待刊发内幕消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:23 - [3月 对华尔街来说 这是一个动荡的月份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:32 - [“张雪机车”WSBK捷克站再夺冠 斩获赛季第五冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:28 - [光大证券：整固蓄势 积极看多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:36 - [油价飙升：特朗普警告伊朗 “时间紧迫”，冲突升级担忧加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:22 - [工行行长刘珺：企业并购正呈现投资于物、投资于生态、投资于人三大发展路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:37 - [铁路部门试点推出“自行车随身行”服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:32 - [【滇藏公路50年】云南贡山“一江三桥”同框 见证滇西北边疆通路变迁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:36 - [英国央行内部政策分歧扩大，英镑承压调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:40 - [中国人民银行召开2026年内审工作会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:40 - [广西柳州两次5.2级地震之间有什么关联？专家解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:40 - [黄金交易提醒：金价周跌近4%只是开始？美元、收益率、加息预期“三重绞杀”仍未结束](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:29 - [日本央行前行长白川方明：人口结构与经济增长相辅相成，AI可助力应对老龄化挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:20 - [英国副首相称首相斯塔默不会辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:16 - [一场巨型奇巧巧克力劫案，如何变身危机公关“黄金案例”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:28 - [宁德时代聘请紫金矿业创始人、前董事长陈景河担任公司矿业部门顾问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:18 - [南卫股份财总岗位有多难干：许晓嫌工资不及预期辞职，前任刚被罚150万元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:07 - [香港银行股早盘集体回暖 渣打集团涨逾7%汇丰控股涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:31 - [再现险资“举牌”！利安人寿拟溢价近10%受让中山公用5%股份，持股比例将升至8.12%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:28 - [港股芯片概念跳水，兆易创新大跌8%，“中年人的泡泡玛特”重挫49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:26 - [中国太保获Ping An Asset ManagementCo.,Ltd.增持719.56万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:17 - [鲍威尔：即使能源价格飙升，政策仍处于“良好位置”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:14 - [酒价内参4月3日价格发布 习酒君品上涨6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:23 - [营收回正、净利仍下滑，民生银行管理层谈重点领域风险管控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:11 - [李强同澳大利亚总理阿尔巴尼斯通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:07 - [拉来数名特斯拉大将，能否解雷军销量“焦虑”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:15 - [美银证券：升华润万象生活目标价至51港元 上调盈利预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:17 - [教育部要求严禁招生环节收取择校费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:22 - [尾盘：美股继续走低 现货布伦特原油创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:37 - [半导体设备红利赛道：量利齐增，股价翻倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:30 - [心脏发出预警信号 警惕冠心病找上门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:31 - [PNC银行聘请摩根大通前数字负责人Tim Ferriter，引领零售产品与AI增长战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:15 - [安徽休宁：初夏育秧忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:33 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:31 - [三位台青广西创业记：抓住年轻消费者的“胃”“嗅觉”与“健康观”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:23 - [北京试点自行车乘地铁、上高铁 这份指南请查收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:31 - [崔庆军换了一批董事，苏州银行为管理层投保责任险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:31 - [韩国头部企业一季度营业利润突破千亿美元 超六成来自三星海力士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:34 - [广东520所学校采取停课措施应对强降雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:29 - [民族地区博物馆让团结进步“可见可感”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:41 - [中美人文摄影展亮相沈阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:24 - [今年前4个月河口口岸跨境客货运输两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:23 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:15 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)

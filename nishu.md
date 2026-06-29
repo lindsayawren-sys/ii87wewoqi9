@@ -1,57 +1,60 @@
-# 韩国芯片制造商氦气库存可支撑至6月
+# 部分理财子打新报价量增长139%，收益率爆棚，“固收+打新”策略正深入推进
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-两名消息人士透露，韩国氦气库存至少可维持至 6 月；同时韩国产业通商资源部长官排除了上半年供应中断的可能，缓解了市场对伊朗冲突影响芯片制造关键气体供应的担忧。 氦气是天然气加工的副产品。在美国与以色列对伊朗采取军事行动后，全球最大液化天然气供应国卡塔尔的相关生产作业受到冲击，氦气价格随之大幅上涨。 一名韩国政府官员向路透社表示，作为三星电子、SK 海力士等全球头部芯片企业所在地
+财联社5月18日讯（编辑 王蔚 实习生 张文骏）随着A股IPO市场持续高热、新股赚钱效应凸显，今年以来银行理财子参与权益市场的频次显著提升，打新逐步成为寻求超额收益的标配策略。 据深交所数据，截至5月18日，宁银理财、兴银理财、光大理财三家主要理财子公司今年累计打新报价239次，较3月初的100次增长139%。部分理财子相关产品收益率也持续突破，如招银理财旗下打新策略产品近1个
 
 ## 正文
 
-两名消息人士透露，韩国氦气库存至少可维持至 6 月；同时韩国产业通商资源部长官排除了上半年供应中断的可能，缓解了市场对伊朗冲突影响芯片制造关键气体供应的担忧。
+财联社5月18日讯（编辑 王蔚 实习生 张文骏）随着A股IPO市场持续高热、新股赚钱效应凸显，今年以来银行理财子参与权益市场的频次显著提升，打新逐步成为寻求超额收益的标配策略。
 
-氦气是天然气加工的副产品。
+据深交所数据，截至5月18日，宁银理财、兴银理财、光大理财三家主要理财子公司今年累计打新报价239次，较3月初的100次增长139%。
 
-在美国与以色列对伊朗采取军事行动后，全球最大液化天然气供应国卡塔尔的相关生产作业受到冲击，氦气价格随之大幅上涨。
+部分理财子相关产品收益率也持续突破，如招银理财旗下打新策略产品近1个月年化收益率达到了8.82%，光大理财旗下打新产品更于5月6日因连续两个估值日达标而提前触发止盈条件。
 
-一名韩国政府官员向路透社表示，作为三星电子、SK 海力士等全球头部芯片企业所在地，韩国现有氦气库存足以平稳度过上半年。
+在打新路径上，理财子已从参与A股网下配售延伸至参与港股基石投资，高度聚焦半导体、人工智能等硬科技赛道。
 
-他还称，相关企业正通过支付溢价补充库存，货源主要来自全球头号氦气生产国美国，并表示：“抛开价格不谈，当前保障库存充足是首要任务。
+民生理财网下打新业务首单近日落地，打新策略已应用于相关理财产品中。
 
-” 上述政府官员与另一名供职于氦气供应商的消息人士均因未获授权对媒体发言，要求匿名。
+工银理财年内累计参与16笔港股IPO投资，投资加权收益率超过100%，并以基石投资者身份深度参与6笔重点项目。
 
-三星与 SK 方面均拒绝置评。
+三家理财子打新报价量增长139%，港股打新成热门选择 自2025年3月银行理财产品被纳入IPO网下A类优先配售对象以来，理财公司参与打新力度持续攀升。
 
-韩国产业部长官金正官在周二内阁会议上向总统李在明汇报称，上半年氦气供应不太可能出现中断，但未透露具体细节。
+据深交所统计，截至5月18日，宁银理财、兴银理财、光大理财三家理财子公司累计报价239次，较3月初的100次增长139%。
 
 ## 相关推荐
 
-- 2026-06-29 11:11 - [一场巨型奇巧巧克力劫案，如何变身危机公关“黄金案例”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:18 - [宁德时代聘请紫金矿业创始人、前董事长陈景河担任公司矿业部门顾问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:35 - [南卫股份财总岗位有多难干：许晓嫌工资不及预期辞职，前任刚被罚150万元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:26 - [香港银行股早盘集体回暖 渣打集团涨逾7%汇丰控股涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:21 - [再现险资“举牌”！利安人寿拟溢价近10%受让中山公用5%股份，持股比例将升至8.12%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:20 - [港股芯片概念跳水，兆易创新大跌8%，“中年人的泡泡玛特”重挫49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:34 - [中国太保获Ping An Asset ManagementCo.,Ltd.增持719.56万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:29 - [鲍威尔：即使能源价格飙升，政策仍处于“良好位置”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:29 - [酒价内参4月3日价格发布 习酒君品上涨6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:19 - [营收回正、净利仍下滑，民生银行管理层谈重点领域风险管控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:16 - [李强同澳大利亚总理阿尔巴尼斯通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:39 - [半导体设备红利赛道：量利齐增，股价翻倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:27 - [心脏发出预警信号 警惕冠心病找上门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:26 - [PNC银行聘请摩根大通前数字负责人Tim Ferriter，引领零售产品与AI增长战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:41 - [安徽休宁：初夏育秧忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:22 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:41 - [三位台青广西创业记：抓住年轻消费者的“胃”“嗅觉”与“健康观”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:17 - [北京试点自行车乘地铁、上高铁 这份指南请查收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:17 - [崔庆军换了一批董事，苏州银行为管理层投保责任险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:35 - [韩国头部企业一季度营业利润突破千亿美元 超六成来自三星海力士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:22 - [广东520所学校采取停课措施应对强降雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:32 - [民族地区博物馆让团结进步“可见可感”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:37 - [中美人文摄影展亮相沈阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:15 - [今年前4个月河口口岸跨境客货运输两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:20 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [俞浩慈善基金会“灯塔课堂”落地成都，构建产学研协同育人新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:13 - [民生银行黄红日谈房地产资产质量：短期仍存压力，长期趋于平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:14 - [酒价内参3月31日价格发布 古井贡古20小幅回落1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:28 - [广西贺州：白鹭伴春耕 田园生态美如画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:19 - [酒价内参4月3日价格发布 飞天茅台小幅上涨1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:06 - [燃料价格飙升推高通胀之际 新西兰央行维持关键利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:09 - [酒价内参3月31日价格发布 青花汾20下调4元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:34 - [财务总监、首席执行官辞职！神州数码业绩发布：AI业务收入增长近5成，现金流“失血”猛跌近200%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:33 - [SpaceX尚未上市，投资者已在热议该公司会否与特斯拉合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:30 - [B站宣布：明天零点起，将下线猜你喜欢算法，不再根据你的喜好来推荐主页内容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:27 - [伊朗战争进入第五周，黄金或将迎来2008年以来最差月度表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:17 - [股价最大跌幅近90%！两大IPO募投项目2025年亏损，拓新药业发布定增预案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:11 - [给乡愁办个“身份证” 黑龙江省额尔门沁村以版权激活民族文化遗产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:12 - [巴菲特：尽管有爱泼斯坦丑闻，他仍不后悔向盖茨基金会捐款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:35 - [中天策略:3月31日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:16 - [斯巴达勇士赛北京站落幕 近4000选手挑战“三色周末”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:13 - [国防部：中蒙将举行“草原伙伴-2026”陆军联训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:16 - [设专用通道多语种服务 哈尔滨机场口岸护航中俄博览会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:25 - [国际金价创4月以来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:36 - [埃斯顿获控股股东派雷斯特解除质押1100万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:36 - [央视6000万美元拿下世界杯转播权，国际足联吃亏了么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:15 - [参议员拟立法禁止面向未成年人投放赌博广告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:35 - [Coursera宣布5亿美元股票回购计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:23 - [梨花漫染鹤岗城 赏花盛会激活文旅消费热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:16 - [特朗普就台湾问题表态，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:14 - [慈文传媒：公司积极推进董事会换届工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:29 - [APEC第二次高官会在上海开幕 为APEC“中国年”承上启下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:28 - [伊朗哈尔克岛连续10天未见油轮 美军海上封锁压力凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:12 - [广州海关查获毒品氯胺酮4997.87克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:30 - [小摩：腾讯控股重申“增持”评级 留意三项风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)

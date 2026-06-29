@@ -1,46 +1,57 @@
-# 锚定医疗创新，独揽稀缺龙头！港股通医疗ETF华宝联接基金（026922）4月1日重磅发售
+# 一剧带火一座城！影视IP赋能文旅焕发全新魅力
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-责任编辑：杨赐
+近年来，“跟着影视剧去旅行”成为潮流。越来越多的游客因为一部剧奔赴一座城，各地也依托影视IP，持续升级服务。 打卡《主角》取景地 解锁文旅新玩法 “八百里秦川尘土飞扬，三千万秦人齐吼秦腔。”随着电视剧《主角》在总台热播，越来越多的人开始了解秦腔、爱上秦腔。剧中超六成场景，都取自由原风雷仪表厂旧址改造的西影风雷年代影视基地。不少游客专程前来打卡，在一砖一瓦中触摸城市工业记忆，在影
 
 ## 正文
 
-责任编辑：杨赐
+近年来，“跟着影视剧去旅行”成为潮流。
+
+越来越多的游客因为一部剧奔赴一座城，各地也依托影视IP，持续升级服务。
+
+打卡《主角》取景地 解锁文旅新玩法 “八百里秦川尘土飞扬，三千万秦人齐吼秦腔。
+
+”随着电视剧《主角》在总台热播，越来越多的人开始了解秦腔、爱上秦腔。
+
+剧中超六成场景，都取自由原风雷仪表厂旧址改造的西影风雷年代影视基地。
+
+不少游客专程前来打卡，在一砖一瓦中触摸城市工业记忆，在影视氛围里体验别样乐趣。
+
+在秦腔群众基础浓厚的陕西西安市周至县，从15日到24日，乡村戏曲大舞台精品剧目展演连续上演十天好戏。
+
+听秦腔的同时，当地还设置了农产品展销专区，不少游客一边听戏一边逛吃；各景区也推出惠民活动，让游客解锁“赏戏+购物+游园”的新体验。
 
 ## 相关推荐
 
-- 2026-06-29 11:16 - [欧洲官员称伊朗向胡塞武装施压 准备重启针对红海航运的袭击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:16 - [房地产高薪退潮：“千万年薪”销声匿迹，郁亮去年薪水24万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:31 - [青农商行：吸收合并青岛即墨惠民村镇银行获股东会通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:16 - [珠江流域节水宣传活动丰富多彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:19 - [中央气象台：“超级单体”强对流将影响长江中下游地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:24 - [小摩：下调HASHKEY HLDGS评级至“中性” 目标价降至5港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:25 - [“做中国人，多么骄傲！”台湾青年自媒体人翟翾：大陆寻根后，心里更踏实了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:30 - [河北秦皇岛：人鸥共欢春日美](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:23 - [多地联动“诵读经典·缅怀先贤”主题活动 与先贤跨时空对话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:10 - [2025年经营性现金流净额8.16亿，美凯龙主营业务展现韧性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:29 - [600721，控制权拟变更，金华市国资委入主！大牛股净利润最高暴增8747.18%，存储涨价潮将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:25 - [东岳集团现涨逾9% 东岳硅材预计一季度归母净利润同比增长397.02%至451.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:16 - [押注苹果赚了1000亿美元但卖早了！巴菲特：当前美股不便宜，将重启慈善午餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:08 - [美伊冲突致全球股市震荡，国际油价飙升60%，标普预警：长期原油供给冲击或引发全球衰退](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:41 - [*ST中岩：拟公开挂牌转让北京中岩公司100%股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:27 - [上海文史馆馆员走进山深村 建言文化赋能沪派江南建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:17 - [2026年“文化中国·水立方杯”中文歌曲大赛英国赛区复赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:18 - [SuperCom赢得内华达州电子监控合同，在美业务版图扩展至第17个州](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:27 - [洁丽雅不能只靠“少爷”流量卖毛巾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:25 - [柬埔寨跨境自驾游车队横穿柬老中三国推介文化旅游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:40 - [赖清德，如何走到被弹劾地步？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:23 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:28 - [3月外国投资者美债持仓下降 管涛：地缘冲突、能源供给冲击的自然反应，4月或回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:30 - [日本国债收益率飙升 投资者押注日资从美债回流本土](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:41 - [蓝鸿春再谈《给阿嬷的情书》创作信条：从心而发打动自己](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:23 - [浦发银行行长谢伟：2025年息差管理取得阶段性成效，但较领先同业仍有差距](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:28 - [极兔速递-W早盘上涨13% 全年经调整净利润同比增长112.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:11 - [百年人寿戴文浩：个险是险企稳定性来源，中小公司切勿对标大公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:20 - [中视金桥发布年度业绩 股东应占溢利8004.3万元同比下降25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:18 - [民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:27 - [联合国秘书长欢迎美伊停火两周 呼吁各方推动长期和平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:19 - [里昂：降创科实业目标价至134港元 旗舰品牌增长稳健](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:19 - [西部航天科技公司成立！三角防务参股，盘中暴拉8%！华宝基金军工ETF（512810）上探逾2%收复半年线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:19 - [内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:12 - [A股开盘：三大指数集体高开，超3000只个股飘红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:20 - [尾盘：美股继续上扬 道指上涨逾1000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:17 - [油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:34 - [Marvell涨6.7% 英伟达斥资20亿美元入股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:11 - [股海导航_2026年4月8日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:31 - [高伟电子早盘涨逾12% 全年纯利约1.97亿美元同比增加约65.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:18 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:18 - [车企年报|长城汽车政府补助逆势升至37亿高居榜首 增收减利延续还有多少降价空间？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:33 - [豆类市场多空因素交织 油脂回归基本面主导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:34 - [600208，重组终止！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:20 - [零售商接连遭遇重重经营困境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:15 - [民意承压蔓延欧洲 斯塔默等多国领导人陷支持率困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:21 - [习近平主席贺信为中俄各领域合作走深走实注入强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:26 - [我国卫星导航产业产值超6000亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:19 - [美债利率上破关键位 美股盛宴能持续多久？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:28 - [少女自行过量注射“减肥针”险致命 医生：使用需遵医嘱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:19 - [格陵兰：与美国的谈判取得进展，但该岛绝不售卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:27 - [大范围降雨浸润中东部 主雨带继续东移南压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:35 - [ROG 20周年，在广州“快乐屋”里把信仰摆出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:24 - [2026年“5·19中国旅游日”倒计时城市（延安）活动举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:29 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)

@@ -1,57 +1,56 @@
-# 特朗普：“尚未准备好”迫使伊朗重新开放霍尔木兹海峡
+# 铁路部门试点推出“自行车随身行”服务
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-北京时间3月31日晚间消息，美国总统特朗普表示，他“目前还没有准备好”放弃迫使伊朗重新开放霍尔木兹海峡的行动，尽管他此前在“真实社交”（TruthSocial）上发文称，相关事务应由盟友自行处理。 在电话采访中，特朗普重申他对英国等其他国家未派遣军事力量加入美以对伊作战感到不满。但他表示，目前尚未撤出美军。 “未来某个时候我会（撤出），但现在还不会。各国必须介入并自行处理此事。
+中新网北京5月18日电(记者 李京统)记者从中国国家铁路集团有限公司客运中心(以下简称“国铁集团客运中心”)获悉，铁路部门5月19日起在京张高铁北京北至崇礼间各车站间运行的G字头动车组列车试点推出“自行车随身行”服务，旅客可通过12306客户端线上预约并付费，乘车时经车站安检和规范包装，可携带符合规定的自行车同车出行。 国铁集团客运中心相关负责人介绍，铁路部门对京张高铁北京北至
 
 ## 正文
 
-北京时间3月31日晚间消息，美国总统特朗普表示，他“目前还没有准备好”放弃迫使伊朗重新开放霍尔木兹海峡的行动，尽管他此前在“真实社交”（TruthSocial）上发文称，相关事务应由盟友自行处理。
+中新网北京5月18日电(记者 李京统)记者从中国国家铁路集团有限公司客运中心(以下简称“国铁集团客运中心”)获悉，铁路部门5月19日起在京张高铁北京北至崇礼间各车站间运行的G字头动车组列车试点推出“自行车随身行”服务，旅客可通过12306客户端线上预约并付费，乘车时经车站安检和规范包装，可携带符合规定的自行车同车出行。
 
-在电话采访中，特朗普重申他对英国等其他国家未派遣军事力量加入美以对伊作战感到不满。
+国铁集团客运中心相关负责人介绍，铁路部门对京张高铁北京北至崇礼间各车站运行的G字头动车组列车二等座车厢部分座椅进行了适应性改造，设置专门的“自行车存放处”，同时在沿线车站设置专属安检通道，开展“自行车随身行”服务。
 
-但他表示，目前尚未撤出美军。
+该负责人介绍，携带自行车出行的旅客可通过铁路12306客户端“自行车服务”版块查询服务信息，购买指定列车车票后，可在购票成功页面选择“自行车随身行”服务并预约付费，在开车前均可办理，开车前1小时可取消订单并全额退款。
 
-“未来某个时候我会（撤出），但现在还不会。
+预约成功后，旅客可提前拆卸自行车前轮，并使用装车袋妥善包装后前往车站乘车，也可到达车站后对自行车前轮进行拆卸和包装，铁路部门将提供专属工具和可循环使用的自行车装车袋，不另行收取费用。
 
-各国必须介入并自行处理此事。
+完成自行车前轮拆卸和包装后，旅客凭购票信息及“自行车随身行”服务订单通过车站专属通道安检、验票，经核验无误后进站乘车，需将自行车妥善放置于指定的“自行车存放处”并确保捆扎牢固；列车运行途中，铁路工作人员动态进行巡视，保障运输安全；列车到站后，旅客需将铁路部门提供的自行车装车袋在出站口交还铁路工作人员。
 
-伊朗已被彻底击溃，但它们必须自己行动起来。
+记者了解到，试点初期，“自行车随身行”服务定价88元/辆，旅客可在乘车结束后180日内通过铁路12306客户端开具电子发票。
 
-”特朗普称。
-
-尽管伊朗持续袭击船只与波斯湾国家基础设施，特朗普仍坚称霍尔木兹海峡“不存在真正威胁”——该航道承担全球20%石油供应运输，是关键能源通道。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:14 - [3月 对华尔街来说 这是一个动荡的月份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:21 - [基石科技控股发布年度业绩 毛利3106.9万港元同比增长13.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:32 - [协鑫科技亏损幅度显著收窄 实现毛利13.36亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:26 - [江汉江淮等地将有较强降水和强对流天气 北方及西南地区仍有大风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:07 - [《人民日报》：“为什么这些APP都想借钱给我？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:34 - [以总理称支持美伊停火两周但停火不包括黎巴嫩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:13 - [浦发银行行长谢伟：2025年息差管理取得阶段性成效，但较领先同业仍有差距](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:33 - [极兔速递-W早盘上涨13% 全年经调整净利润同比增长112.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:28 - [百年人寿戴文浩：个险是险企稳定性来源，中小公司切勿对标大公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:24 - [中视金桥发布年度业绩 股东应占溢利8004.3万元同比下降25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:06 - [民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:29 - [英国副首相称首相斯塔默不会辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:29 - [湖南石门强降雨灾害已致1人死亡、2人失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:41 - [巴菲特接班人大举建仓，梅西百货盘前跳涨近4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:29 - [在大裁员实施前夕 Meta将7000名员工调至AI相关岗位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:32 - [【阜成门外】我国进口增速远超出口，释放什么信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:24 - [大美边疆看我家丨黑龙江鸡东：赴一场山河与日出之约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:30 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:18 - [车企年报|长城汽车政府补助逆势升至37亿高居榜首 增收减利延续还有多少降价空间？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:18 - [豆类市场多空因素交织 油脂回归基本面主导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:31 - [600208，重组终止！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:17 - [零售商接连遭遇重重经营困境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:39 - [民意承压蔓延欧洲 斯塔默等多国领导人陷支持率困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:08 - [拉来数名特斯拉大将，能否解雷军销量“焦虑”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:13 - [美银证券：升华润万象生活目标价至51港元 上调盈利预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:25 - [教育部要求严禁招生环节收取择校费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:18 - [尾盘：美股继续走低 现货布伦特原油创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:10 - [认清词元属性，警惕“囤词元能暴富”骗局（2026·04·07）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:08 - [晨星：维持华润置地公允价值预测43港元 房地产强势投资抵消房地产开发下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:25 - [欧洲议会一代表团访华 外交部：将推动中欧立法机构交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:33 - [沪指失守3900点，季末分化极致，强势板块悉数回调 | 华宝基金3A日报（2026.3.31）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:08 - [美国证交会"加密监管"框架即将出台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:13 - [布伦特原油在结算后交易中下跌 巴基斯坦敦促伊朗开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:18 - [光大银行行长郝成年报致辞：凝心聚力推动高质量发展，奋力实现“十五五”良好开局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:21 - [匈牙利大选前美国副总统万斯访匈，力挺欧尔班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:11 - [湖南省政协文教卫体和文史委员会副主任夏智伦接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:32 - [尼日利亚汽油价格飙升65% 受原油进口成本上涨推动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:31 - [日经指数上涨4.7% 受芯片和金属类股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:12 - [中美人文摄影展亮相沈阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:22 - [今年前4个月河口口岸跨境客货运输两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:22 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:21 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:33 - [中东战事推高油价 韩国推行第二轮现金补助缓解民生压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:39 - [现场直击：广西柳州发生5.2级地震 部分房屋倒塌有人员被困](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:28 - [王海洲：优秀传统文化是短剧精品化路径中值得深挖的瑰宝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:33 - [酒价内参5月19日价格发布：五粮液普五八代小幅下跌1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:40 - [人这一辈子，一定要去青州看一次“东方微笑”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:18 - [江苏：大力创新民营经济保险服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:28 - [文脉华章｜让文物 “活” 起来，解锁内蒙古数字文博里的精彩中国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:33 - [下周有2只新股可申购 国产特种光纤第一股来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:36 - [体重减不下来，不是“吃太多”那么简单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:22 - [一汽奥迪梁梁：携手华为打造全链路智能融合体，实现“油车更智能、电车更豪华”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:30 - [债券交易员认为市场转向收益率攀升的新时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)

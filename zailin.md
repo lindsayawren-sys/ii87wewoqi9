@@ -1,52 +1,58 @@
-# 高盛：调查显示信贷市场看空情绪创纪录
+# 受伊朗局势引发能源危机冲击，日本首相呼吁追加财政预算
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-高盛最新发布的机构投资者调查显示，市场对信贷市场的担忧日益加剧，随着结构性风险愈加凸显，看空情绪和空头头寸均达到历史最高水平。 这项由高盛Marquee MarketView团队在3月30日至4月1日期间进行的调查反映了784家机构客户的观点，结果显示投资者对私人信贷领域的脆弱性越来越感到担忧。 华尔街许多人士的担忧集中在：承销标准的可持续性、借款人行业可能面临的压力，以及包括
+日本首相高市早苗已下令内阁拟定追加预算，用以拨付巨额能源补贴。此前数周，日方一直寄望伊朗战事尽早落幕，避免为维稳民生付出过高财政成本。 周一，高市早苗在与执政联盟政党会谈中态度骤然转变，而在此之前她还多次否认有出台追加预算的必要。此番立场反转引发市场猜测，认为日本政府或将通过新发国债筹措资金，市场对日本财政状况的担忧随之升温。 周一，日本 10 年期基准国债收益率小幅升至 2.
 
 ## 正文
 
-高盛最新发布的机构投资者调查显示，市场对信贷市场的担忧日益加剧，随着结构性风险愈加凸显，看空情绪和空头头寸均达到历史最高水平。
+日本首相高市早苗已下令内阁拟定追加预算，用以拨付巨额能源补贴。
 
-这项由高盛Marquee MarketView团队在3月30日至4月1日期间进行的调查反映了784家机构客户的观点，结果显示投资者对私人信贷领域的脆弱性越来越感到担忧。
+此前数周，日方一直寄望伊朗战事尽早落幕，避免为维稳民生付出过高财政成本。
 
-华尔街许多人士的担忧集中在：承销标准的可持续性、借款人行业可能面临的压力，以及包括石油驱动冲击在内的不利宏观背景会如何在整个市场中流动性较差的环节产生连锁反应。
+周一，高市早苗在与执政联盟政党会谈中态度骤然转变，而在此之前她还多次否认有出台追加预算的必要。
 
-责任编辑：张俊 SF065
+此番立场反转引发市场猜测，认为日本政府或将通过新发国债筹措资金，市场对日本财政状况的担忧随之升温。
+
+周一，日本 10 年期基准国债收益率小幅升至 2.75%，日元汇率跌至 1 美元兑 159 日元附近。
+
+分析师此前曾表示，该汇率水平已接近日本当局入市干预托举日元的临界点。
+
+事实上，日本政府早已连续七个多星期补贴石油批发商，以此稳住国内汽油零售价。
+
+分析师预警，夏季用电高峰来临后，这笔财政负担还将进一步加重。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [法国通胀升至2024年8月以来最高水平 加大欧洲央行升息压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:32 - [海尔们想做“钢铁侠”，追觅们想做“扫地僧”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:34 - [财经早报：特朗普宣布同意停火两周，美国原油期货暴跌近20%丨2026年4月8日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:18 - [2026年清明节假期国内出游1.35亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:22 - [TCL电子午前涨超3% 全年纯利达25.12亿港元同比增超56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:09 - [富国基金：2025年因公司治理等“五宗罪”被责令改正](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:27 - [03月31日丙二醇10333.33元/吨 5天上涨11.51%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:16 - [耐克第三财季业绩前瞻：华尔街准备迎接耐克多年来最疲软的季度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:17 - [习近平给四所交通大学全体师生回信强调 传承弘扬西迁精神聚焦国家重大战略需求 为建设教育强国科技强国人才强国作出新贡献](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:29 - [WTI原油首次收于100美元上方 布油将创历史最大单月涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:28 - [四招稳住“存款搬家”压力，招行2025年业绩重回正增长轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:22 - [鲍威尔：美联储将“观望”后再采取利率行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:07 - [尝高美集团在香港开设一间新谷泰餐厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:10 - [Colonial First State：油价飙升或致美国GDP萎缩0.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:31 - [长鑫存储概念引爆，科技龙头走强！兆易创新盘中涨停创新高，科技ETF华宝（515000）涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:39 - [中国中东部大范围强降水持续 多地启动防汛应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:41 - [探访博物馆里傅山医学的当代印记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:17 - [韩国股市熔断 暂停程序化交易五分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:21 - [《给阿嬷的情书》出圈：短视频与影视共生的典型样本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:39 - [酒价内参5月19日价格发布：国窖1573下跌6元跌幅居前](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:24 - [广州地区举办第三十六个全国助残日系列活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:19 - [伊朗风险推升油价与收益率](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:16 - [外国专家点赞中国新能源创新 开放合作成关键词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:35 - [在“赶大集”中触摸乡村消费脉搏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:33 - [《骆驼日记》带读者看见真实立体多元的非洲大陆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:37 - [韩国法院批准三星针对威胁罢工工会的禁令申请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [CFA三级考试通过率维持在50% 低于十年平均水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:29 - [央行：把做强国内大循环摆到更加突出的位置，统筹好总供给和总需求的关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:34 - [美国3年期国债中标收益率创去年6月以来最高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:26 - [维护国际秩序稳定是各国应对挑战的急迫所需（国际论坛）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:11 - [海南封关看变化：三亚释产业投资机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:20 - [提出8个重点任务！教育部部署开展中小学阳光招生专项行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:24 - [三星内存再提价30%！寒武纪登顶A股吸金榜，华宝基金电子ETF（515260）最高上探1.95%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:25 - [国台办回应台湾初中生张贴统一标语：民进党当局无法阻挡统一大势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:30 - [比亚迪出口目标超预期15%，计划2026年实现150万辆出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:13 - [3月31日收盘：标普指数下跌0.39% 油价攀升WTI原油站上100美元关口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:06 - [浙商银行董事长陈海强谈银行数字化转型误区：科技部门热火朝天，业务部门不伦不类](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:12 - [Keep首次扭亏股价却触底：营收跌回四年前、用户流失近815万 AI新故事能撑起未来吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:33 - [春天里的中国丨踏青赏花正当时 这些浪漫花海等你打卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:29 - [“猪八戒”马德华将送别陈丽华：大姐非常好非常有爱心，各方面都非常优秀，她为紫檀事业作出很大贡献，她的离去让我们很悲痛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:20 - [特朗普言辞升级之际，美以协同对伊朗发动打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:30 - [国金策略牟一凌：关注宏观的时候来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:23 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:24 - [甘肃“博物馆日”办800项活动 洋学生“汉简之乡”写简牍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:13 - [联合国驻华协调员：缩小数字鸿沟 让全球南方共享技术红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:28 - [国家统计局：4月份一线城市商品住宅销售价格环比上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:13 - [波士顿奥马哈出售保证保险业务，聚焦核心增长战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:16 - [去年全国核发绿证超过29亿个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:28 - [免申即享+AI赋能 上海持续深化“一网通办”改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:38 - [慈文传媒：公司整体收支呈良性循环状态，不会发生债务违约的情形和偿债风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:26 - [国家防办向贵州调拨中央防汛物资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:16 - [概念股一字涨停！三大运营商开卖Token套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:22 - [中企承建哈萨克斯坦首都轻轨建成通车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:32 - [长江有色：中东局势缓和多头试探性修复 19日铅价或涨跌不大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:29 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:28 - [2026年“汉语桥”中文比赛新州赛区预选赛在悉尼举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)

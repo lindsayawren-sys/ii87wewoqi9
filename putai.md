@@ -1,51 +1,59 @@
-# 里昂：降创科实业目标价至134港元 旗舰品牌增长稳健
+# 习近平主席贺信为中俄各领域合作走深走实注入强劲动力
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-里昂发布研报称，考虑到利润较低的业务调整，下调创科实业（00669）2026至2028年盈利预测1.1%至3.4%，但因公司昨日宣布取消30万股回购股份，并计划在未来18个月进行5亿美元回购，该行将目标市盈率由19.5倍轻微上调至19.8倍，以反映宏观不确定性下投资者对回购的认同，目标价由136港元降至134港元，维持“跑赢大市”评级。 创科实业旗下旗舰品牌Milwaukee及
+原标题：更好促进两国经济社会发展 持续增进人民福祉——习近平主席贺信为中俄各领域合作不断走深走实注入强劲动力 5月17日，国家主席习近平向第十届中俄博览会致贺信，引发中俄各界人士热烈反响。大家表示，习近平主席的贺信充分肯定两国各领域合作的丰硕成果，为双方进一步增进互信、密切交流、深化合作指明了前进方向，为推动中俄新时代全面战略协作伙伴关系行稳致远注入强劲动力。 中俄博览会是促进
 
 ## 正文
 
-里昂发布研报称，考虑到利润较低的业务调整，下调创科实业（00669）2026至2028年盈利预测1.1%至3.4%，但因公司昨日宣布取消30万股回购股份，并计划在未来18个月进行5亿美元回购，该行将目标市盈率由19.5倍轻微上调至19.8倍，以反映宏观不确定性下投资者对回购的认同，目标价由136港元降至134港元，维持“跑赢大市”评级。
+原标题：更好促进两国经济社会发展 持续增进人民福祉——习近平主席贺信为中俄各领域合作不断走深走实注入强劲动力 5月17日，国家主席习近平向第十届中俄博览会致贺信，引发中俄各界人士热烈反响。
 
-创科实业旗下旗舰品牌Milwaukee及Ryobi合计录得中至高单位数增长，但受重组及宏观不确定性影响，其余业务仍可能构成拖累。
+大家表示，习近平主席的贺信充分肯定两国各领域合作的丰硕成果，为双方进一步增进互信、密切交流、深化合作指明了前进方向，为推动中俄新时代全面战略协作伙伴关系行稳致远注入强劲动力。
 
-Milwaukee的15%销售增长来自数据中心，相信凭借在机械、电气及排水工程领域的主导地位，长远可实现双位数增长，带来高度可见的非住宅终端市场需求。
+中俄博览会是促进两国经贸合作层次最高、规模最大的综合性展会，一直得到两国元首的高度关注和亲自指导。
 
-责任编辑：史丽君
+习近平主席曾于2024年向第八届中俄博览会致贺信，普京总统曾出席第八届中俄博览会开幕式并向本届博览会致贺信。
+
+“今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年。
+
+”站在重要历史节点，本届中俄博览会更承载着丰富内涵和不凡意义。
+
+习近平主席在贺信中指出，“在双方共同努力下，中俄各领域合作不断走深走实，取得丰硕成果。
+
+” 俄罗斯副总理兼总统驻远东联邦区全权代表特鲁特涅夫表示，习近平主席胸怀全局、高瞻远瞩，同普京总统一道为两国长远发展擘画蓝图、明确航向，指引双方合作行稳致远。
 
 ## 相关推荐
 
-- 2026-06-29 11:22 - [股海导航_2026年4月8日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:22 - [高伟电子早盘涨逾12% 全年纯利约1.97亿美元同比增加约65.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:13 - [韩国芯片制造商氦气库存可支撑至6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:21 - [浦发银行：2025年末不良贷款率1.26%，较上年末下降0.10个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:11 - [俄罗斯师生重庆感受工业机器人产学研发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:11 - [A股3月收官，沪指再度失守3900点，月累计跌6.51%！张雪机车一战封神，概念股2连板！日韩股市3月均暴跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:29 - [金价下跌1000美元的主因是央行抛售，土耳其、俄罗斯……下一个可能是印度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:16 - [天顺风能：公司已批准的对外担保总额度为人民币220.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:18 - [浙商银行董事长陈海强年报致辞：坚持管理立行、服务优行、科技兴行、人才强行，做一个坚定的长期主义者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:21 - [一场巨型奇巧巧克力劫案，如何变身危机公关“黄金案例”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:18 - [宁德时代聘请紫金矿业创始人、前董事长陈景河担任公司矿业部门顾问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:19 - [南卫股份财总岗位有多难干：许晓嫌工资不及预期辞职，前任刚被罚150万元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:10 - [香港银行股早盘集体回暖 渣打集团涨逾7%汇丰控股涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:23 - [2026年“5·19中国旅游日”倒计时城市（延安）活动举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:38 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:39 - [部分理财子打新报价量增长139%，收益率爆棚，“固收+打新”策略正深入推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:36 - [2026广东工会“工BA”职工篮球联赛在佛山开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:41 - [中国首部踢踏舞剧《扎西夏卓》拉萨倾情上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:41 - [专家：糖尿病患者属带状疱疹高风险人群 需主动预防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:37 - [日本富山县一古寺发生火灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:12 - [酒价内参5月19日价格发布：精品茅台上涨3元喜获六连阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:15 - [中国铝业遭中信证券资管公司减持1263万股 每股均价约10.62港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:35 - [半导体设备红利赛道：量利齐增，股价翻倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:13 - [心脏发出预警信号 警惕冠心病找上门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:30 - [PNC银行聘请摩根大通前数字负责人Tim Ferriter，引领零售产品与AI增长战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:25 - [安徽休宁：初夏育秧忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:15 - [绿城管理控股早盘涨超8% 2025年度股东应占溢利4.19亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:11 - [蓝思科技于4月3日斥资1.19亿元回购426.49万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:12 - [芝加哥联储行长古尔斯比：对经济持谨慎甚至紧张态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:11 - [95岁巴菲特，宣布重启！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:21 - [从缝纫女工到紫檀女王 陈丽华留下比500亿更重要的东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:12 - [中国光大银行发布2025年年度报告： 服务实体显担当 提质增效稳基础 高质量发展取得积极成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:10 - [利率反弹与战争担忧令美国春季楼市降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:27 - [西部证券营收下降创两个“另类”：背离行业趋势异于重组同行 核心净资本大幅减少](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:34 - [先导智能遭Pandanus Associates Inc.减持35.89万股 每股作价41.3506港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:23 - [俞浩慈善基金会“灯塔课堂”落地成都，构建产学研协同育人新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:14 - [民生银行黄红日谈房地产资产质量：短期仍存压力，长期趋于平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:15 - [酒价内参3月31日价格发布 古井贡古20小幅回落1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:29 - [广西贺州：白鹭伴春耕 田园生态美如画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:23 - [酒价内参4月3日价格发布 飞天茅台小幅上涨1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:10 - [燃料价格飙升推高通胀之际 新西兰央行维持关键利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:21 - [蒂森克虏伯启动汽车业务重组，宣布关闭美国工厂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:29 - [北京市青少年航空航天模型比赛开赛 报名人数创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:13 - [新前沿矿业携手Austral Resources推进昆士兰铜矿项目，矿石回收率高达99%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:38 - [用博物馆讲好中华民族共同体故事——三地博物馆馆长共议如何以“立体教科书”构筑中华民族共有精神家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:13 - [2027年国际博物馆日中国主会场将落户杭州](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:37 - [视频|追问中国经济关键词！2026清华五道口全球金融论坛现场 第一时间追访金融大咖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:20 - [学习时节｜总书记的牵挂，照亮这项“春天的事业”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:38 - [华宝基金红利风向标 | 科技主题短线波动加剧，高股息红利板块韧性凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:13 - [华泰 | A股策略：均衡配置应对内外风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:12 - [斯巴达勇士赛北京站落幕 近4000选手挑战“三色周末”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:28 - [国防部：中蒙将举行“草原伙伴-2026”陆军联训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:22 - [设专用通道多语种服务 哈尔滨机场口岸护航中俄博览会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:19 - [国际金价创4月以来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:18 - [埃斯顿获控股股东派雷斯特解除质押1100万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:38 - [央视6000万美元拿下世界杯转播权，国际足联吃亏了么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)

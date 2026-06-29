@@ -1,60 +1,54 @@
-# 巴菲特最新采访：希望美联储通胀目标设为0，苹果股票卖早了……
+# 中越绿色产业国际合作对接交流活动在京举办
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-北京时间3月31日晚，沃伦·巴菲特接受媒体采访，谈及美联储、投资、苹果、爱泼斯坦等热门话题。 “希望美联储通胀目标设为0” 巴菲特表示，他希望美联储的通胀目标设定为0%。 在回答关于“若身处美联储会优先关注什么”的提问时，巴菲特称，相比美联储的就业目标，他会更担忧通胀问题，同时也会聚焦银行体系稳定。他强调，希望央行对通胀采取零容忍政策，因为若美联储容忍2%的通胀，其影响会快速累
+发布时间：2026年05月18日 19:03 来源：中国新闻网 “中越绿色产业国际合作对接交流活动”5月18日在越南驻华大使馆举办。越南驻华大使范清平在活动上高度评价中国在环境保护与绿色发展领域取得的巨大成就，指出越中两国在绿色发展上存在广阔合作空间。 当天，来自两国政府、机构及企业的代表齐聚一堂，共商绿色转型之路。多家中国企业分享了国家级循环经济园区发展模式、水污染处理等经验
 
 ## 正文
 
-北京时间3月31日晚，沃伦·巴菲特接受媒体采访，谈及美联储、投资、苹果、爱泼斯坦等热门话题。
+发布时间：2026年05月18日 19:03 来源：中国新闻网 “中越绿色产业国际合作对接交流活动”5月18日在越南驻华大使馆举办。
 
-“希望美联储通胀目标设为0” 巴菲特表示，他希望美联储的通胀目标设定为0%。
+越南驻华大使范清平在活动上高度评价中国在环境保护与绿色发展领域取得的巨大成就，指出越中两国在绿色发展上存在广阔合作空间。
 
-在回答关于“若身处美联储会优先关注什么”的提问时，巴菲特称，相比美联储的就业目标，他会更担忧通胀问题，同时也会聚焦银行体系稳定。
+当天，来自两国政府、机构及企业的代表齐聚一堂，共商绿色转型之路。
 
-他强调，希望央行对通胀采取零容忍政策，因为若美联储容忍2%的通胀，其影响会快速累积放大。
+多家中国企业分享了国家级循环经济园区发展模式、水污染处理等经验，中越双方参会代表就其关切的问题开展了深入交流。
 
-巴菲特表示，“如果由我执掌美联储，我将全力聚焦通胀与银行体系稳定。
+本次活动由越南驻华大使馆与中国国家发展改革委国际合作中心共同举办。
 
-” 这位亿万富豪还表示，美联储主席杰罗姆·鲍威尔降息的决定是正确的，并称若不降息将是一场“灾难”；但他拒绝就鲍威尔是否如特朗普所言“降息等待过久”发表评论。
-
-仍在伯克希尔主导投资决策 巴菲特表示，即便已卸任首席执行官，他仍深度参与伯克希尔·哈撒韦的投资决策，并补充称近期完成了一笔“小额”新买入。
-
-这位95岁的投资大师称，他仍每天到办公室上班，持续关注市场，并与同事共同开展交易操作。
+(苏婧欣制作 刘鹏） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 11:18 - [2025银行年报观察室｜信用卡跌破7亿张：大行发卡量“踩刹车”，贷款余额集体负增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:21 - [美经济学家警告：沃尔玛相关衰退指标飙升至金融危机以来最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:23 - [特朗普：“尚未准备好”迫使伊朗重新开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:31 - [希捷科技股价大跌7%，摩根大通为何仍看涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:29 - [浙商银行入选2025年度中国系统重要性银行名单 新一届管理团队首秀业绩说明会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:30 - [爱奇艺拟赴港二次上市 宣布AI视频工具测试 股价大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:24 - [中金公司2025年营利双增 提高分红比例 业务一体化协同优势凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:17 - [软科技，硬实力！⎡华宝中证全指软件开发ETF⎦正式获批，即将发行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:27 - [京西国际于4月8日上午起停牌 待刊发内幕消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:14 - [3月 对华尔街来说 这是一个动荡的月份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:13 - [基石科技控股发布年度业绩 毛利3106.9万港元同比增长13.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:09 - [协鑫科技亏损幅度显著收窄 实现毛利13.36亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:26 - [江汉江淮等地将有较强降水和强对流天气 北方及西南地区仍有大风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:09 - [《人民日报》：“为什么这些APP都想借钱给我？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:38 - [油价飙升：特朗普警告伊朗 “时间紧迫”，冲突升级担忧加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:33 - [工行行长刘珺：企业并购正呈现投资于物、投资于生态、投资于人三大发展路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:37 - [铁路部门试点推出“自行车随身行”服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:33 - [【滇藏公路50年】云南贡山“一江三桥”同框 见证滇西北边疆通路变迁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:30 - [英国央行内部政策分歧扩大，英镑承压调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:41 - [中国人民银行召开2026年内审工作会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:27 - [广西柳州两次5.2级地震之间有什么关联？专家解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:33 - [黄金交易提醒：金价周跌近4%只是开始？美元、收益率、加息预期“三重绞杀”仍未结束](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:23 - [日本央行前行长白川方明：人口结构与经济增长相辅相成，AI可助力应对老龄化挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:18 - [英国副首相称首相斯塔默不会辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:32 - [湖南石门强降雨灾害已致1人死亡、2人失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:27 - [巴菲特接班人大举建仓，梅西百货盘前跳涨近4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [南卫股份财总岗位有多难干：许晓嫌工资不及预期辞职，前任刚被罚150万元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:07 - [香港银行股早盘集体回暖 渣打集团涨逾7%汇丰控股涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:21 - [再现险资“举牌”！利安人寿拟溢价近10%受让中山公用5%股份，持股比例将升至8.12%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:26 - [港股芯片概念跳水，兆易创新大跌8%，“中年人的泡泡玛特”重挫49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:35 - [中国太保获Ping An Asset ManagementCo.,Ltd.增持719.56万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:10 - [鲍威尔：即使能源价格飙升，政策仍处于“良好位置”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:09 - [酒价内参4月3日价格发布 习酒君品上涨6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:09 - [营收回正、净利仍下滑，民生银行管理层谈重点领域风险管控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:35 - [李强同澳大利亚总理阿尔巴尼斯通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:14 - [拉来数名特斯拉大将，能否解雷军销量“焦虑”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:18 - [美银证券：升华润万象生活目标价至51港元 上调盈利预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:18 - [教育部要求严禁招生环节收取择校费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:27 - [尾盘：美股继续走低 现货布伦特原油创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:14 - [认清词元属性，警惕“囤词元能暴富”骗局（2026·04·07）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:28 - [晨星：维持华润置地公允价值预测43港元 房地产强势投资抵消房地产开发下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:15 - [PNC银行聘请摩根大通前数字负责人Tim Ferriter，引领零售产品与AI增长战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:20 - [安徽休宁：初夏育秧忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:39 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:16 - [三位台青广西创业记：抓住年轻消费者的“胃”“嗅觉”与“健康观”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:41 - [北京试点自行车乘地铁、上高铁 这份指南请查收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:18 - [崔庆军换了一批董事，苏州银行为管理层投保责任险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:28 - [韩国头部企业一季度营业利润突破千亿美元 超六成来自三星海力士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:25 - [广东520所学校采取停课措施应对强降雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:24 - [民族地区博物馆让团结进步“可见可感”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:17 - [中美人文摄影展亮相沈阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:17 - [今年前4个月河口口岸跨境客货运输两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:19 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:32 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:17 - [中东战事推高油价 韩国推行第二轮现金补助缓解民生压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:26 - [现场直击：广西柳州发生5.2级地震 部分房屋倒塌有人员被困](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)

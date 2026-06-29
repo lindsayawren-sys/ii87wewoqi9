@@ -1,58 +1,58 @@
-# 房地产高薪退潮：“千万年薪”销声匿迹，郁亮去年薪水24万
+# 上海文史馆馆员走进山深村 建言文化赋能沪派江南建设
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-一个行业的荣光与退场。 随着房地产行业深度调整，房企高管薪酬体系正经历一场前所未有的重构。 近期上市房企2025年年报集中发布，多家已经披露高管薪酬的房企数据显示：曾经动辄千万年薪的“打工皇帝”几近销声匿迹，而能够稳定发放百万级薪酬的房企已属少数。 与此同时，那些仍处于信用风险之中、利润大幅塌陷的房企，其高管薪酬持续下探，部分知名房企高管的年薪已降至普通职场水平。 从“千万俱乐
+中新网上海5月19日电(范宇斌)18日，上海市文史研究馆举办“沪派江南 海上名家”乡村行调研活动走进上海市青浦区西岑村山深自然村。上海市文史研究馆馆员实地调研沪派江南建设成果，聚焦水乡风貌保护、历史文脉传承、文旅融合发展等议题开展文化对谈，为西岑单元规划落地、乡村文化活化、水乡风貌保护等注入专业智慧。上海市文史研究馆副馆长王开峰参加活动。 文化对谈会上，上海市城市规划设计研究院
 
 ## 正文
 
-一个行业的荣光与退场。
+中新网上海5月19日电(范宇斌)18日，上海市文史研究馆举办“沪派江南 海上名家”乡村行调研活动走进上海市青浦区西岑村山深自然村。
 
-随着房地产行业深度调整，房企高管薪酬体系正经历一场前所未有的重构。
+上海市文史研究馆馆员实地调研沪派江南建设成果，聚焦水乡风貌保护、历史文脉传承、文旅融合发展等议题开展文化对谈，为西岑单元规划落地、乡村文化活化、水乡风貌保护等注入专业智慧。
 
-近期上市房企2025年年报集中发布，多家已经披露高管薪酬的房企数据显示：曾经动辄千万年薪的“打工皇帝”几近销声匿迹，而能够稳定发放百万级薪酬的房企已属少数。
+上海市文史研究馆副馆长王开峰参加活动。
 
-与此同时，那些仍处于信用风险之中、利润大幅塌陷的房企，其高管薪酬持续下探，部分知名房企高管的年薪已降至普通职场水平。
+文化对谈会上，上海市城市规划设计研究院党委书记朱丽芳解读了沪派江南整体建设体系，介绍西岑试点单元的规划思路、建设进度与空间布局方案；青浦区规划和自然资源局相关负责人围绕西岑单元区位优势、生态基底、水系肌理等地域禀赋展开说明，剖析片区发展核心价值；青浦区文化和旅游局相关负责人阐释本地文化资源挖掘路径，以及文旅融合、业态升级的发展思路。
 
-从“千万俱乐部”到“百万元生存线”，房企高管薪酬的收缩，不仅是业绩变化的结果，更是行业风险重新定价的体现。
+调研中，9位馆员沉浸式探访山深自然村，实地察看湖沼荡田原生态风貌与古桥街巷格局，并通过写生、拍摄、文学创作等方式留存水乡原生态风貌。
 
-郁亮去年在万科领薪24万元 曾经是高管“高薪标杆”的万科，其高管薪酬的下滑已接近“断崖式”。
+文化对谈会上，馆员们从文化溯源、艺术赋能、产业升级、企地共建等角度，梳理村落发展痛点，提出针对性优化方案，助力沪派江南高质量建设。
 
-根据近期万科A（000002.SZ）披露的年报，2025年，万科实现营业收入2334亿元，同比下降32%，亏损886亿元，亏损额较上年同期大幅扩大。
+据悉，沪派江南是上海重点部署的系统性乡村振兴工程，聚焦乡村风貌保护、生态修复治理、本土文化传承，坚守“最江南、最乡土、最沪派”发展底色，保留自然生态空间肌理与传统村落文脉，着力塑造辨识度鲜明的沪派江南乡村风貌，计划至2027年建成约20个特色村落风貌保护传承示范样本。
 
-受多种因素影响，万科的风险尚未彻底化解，经营发展依然面临严峻挑战。
+其中，西岑单元是沪派江南建设的重要试点，依托珠链水乡特色，打造“水包村”独特空间形态，系统性保护修复江南圩田溇沼农业文化遗存。
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [多地联动“诵读经典·缅怀先贤”主题活动 与先贤跨时空对话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:09 - [2025年经营性现金流净额8.16亿，美凯龙主营业务展现韧性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:06 - [600721，控制权拟变更，金华市国资委入主！大牛股净利润最高暴增8747.18%，存储涨价潮将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:24 - [东岳集团现涨逾9% 东岳硅材预计一季度归母净利润同比增长397.02%至451.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:18 - [押注苹果赚了1000亿美元但卖早了！巴菲特：当前美股不便宜，将重启慈善午餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:06 - [美伊冲突致全球股市震荡，国际油价飙升60%，标普预警：长期原油供给冲击或引发全球衰退](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:32 - [高管挪用公司超千亿资金？绿城中国被合作方实名举报，公司紧急报警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:21 - [借力智能存储业务东风，绿联科技营收飙升53.83%，却遭股东高管接连减持近十亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:28 - [伊朗最后期限临近 全球股市涨跌互现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:14 - [巴菲特最新采访：希望美联储通胀目标设为0，苹果股票卖早了……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:22 - [全红婵——泳池不小，但世界更大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:35 - [天天学习｜“1”心系万家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:17 - [3月外国投资者美债持仓下降 管涛：地缘冲突、能源供给冲击的自然反应，4月或回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:38 - [日本国债收益率飙升 投资者押注日资从美债回流本土](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:13 - [蓝鸿春再谈《给阿嬷的情书》创作信条：从心而发打动自己](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:14 - [法院已对诺泰生物（688076）投资者索赔案相关问题作出先行判决，还可起诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:26 - [2026纪念孟母孟子活动在山东邹城举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:15 - [A股“股王”易位，联讯仪器上市14个交易日股价反超贵州茅台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:23 - [重大资产重组，终止！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:25 - [媒体：三星工会与管理层在谈判中缩小了部分分歧 以避免罢工](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:38 - [美伊冲突以来，美国民众在燃油上的额外支出已超400亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:12 - [中越绿色产业国际合作对接交流活动在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:26 - [创新药跌跌不休，什么原因？华宝基金药ETF、港股通创新药ETF（520880）历史新低，还能买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:33 - [俊知集团午后涨超15% 公司已形成适配AIDC全场景的产品矩阵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:15 - [A股开盘：三大指数集体高开，超3000只个股飘红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:24 - [尾盘：美股继续上扬 道指上涨逾1000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:08 - [油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:25 - [Marvell涨6.7% 英伟达斥资20亿美元入股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:26 - [股海导航_2026年4月8日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:17 - [高伟电子早盘涨逾12% 全年纯利约1.97亿美元同比增加约65.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:13 - [韩国芯片制造商氦气库存可支撑至6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:25 - [浦发银行：2025年末不良贷款率1.26%，较上年末下降0.10个百分点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:19 - [俄罗斯师生重庆感受工业机器人产学研发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:17 - [A股3月收官，沪指再度失守3900点，月累计跌6.51%！张雪机车一战封神，概念股2连板！日韩股市3月均暴跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:25 - [金价下跌1000美元的主因是央行抛售，土耳其、俄罗斯……下一个可能是印度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:07 - [天顺风能：公司已批准的对外担保总额度为人民币220.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:29 - [浙商银行董事长陈海强年报致辞：坚持管理立行、服务优行、科技兴行、人才强行，做一个坚定的长期主义者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:31 - [一场巨型奇巧巧克力劫案，如何变身危机公关“黄金案例”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:24 - [美债利率上破关键位 美股盛宴能持续多久？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:33 - [少女自行过量注射“减肥针”险致命 医生：使用需遵医嘱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:39 - [格陵兰：与美国的谈判取得进展，但该岛绝不售卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:39 - [大范围降雨浸润中东部 主雨带继续东移南压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:32 - [ROG 20周年，在广州“快乐屋”里把信仰摆出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:33 - [2026年“5·19中国旅游日”倒计时城市（延安）活动举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:40 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:24 - [部分理财子打新报价量增长139%，收益率爆棚，“固收+打新”策略正深入推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:25 - [2026广东工会“工BA”职工篮球联赛在佛山开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:18 - [中国首部踢踏舞剧《扎西夏卓》拉萨倾情上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:16 - [专家：糖尿病患者属带状疱疹高风险人群 需主动预防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:14 - [日本富山县一古寺发生火灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:36 - [酒价内参5月19日价格发布：精品茅台上涨3元喜获六连阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:26 - [中国铝业遭中信证券资管公司减持1263万股 每股均价约10.62港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:34 - [半导体设备红利赛道：量利齐增，股价翻倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)

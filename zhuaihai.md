@@ -1,59 +1,57 @@
-# 鲍威尔称长期通胀预期仍受控 强调货币政策处于良好位置
+# 马斯克在与奥特曼及OpenAI的法律对决中败诉——已超出诉讼时效
 
-> 更新时间：2026-06-29 11:36:03 UTC+8
+> 更新时间：2026-06-29 11:42:03 UTC+8
 
 ## 摘要
 
-美联储主席杰罗姆·鲍威尔表示，长期通胀预期似乎受控，但在评估伊朗战争带来的影响之际，央行正密切关注其变化。 通胀预期似乎在“短期之后锚定良好”，鲍威尔周一在哈佛大学的活动上表示。他还表示，官员可能需要对冲突带来的影响作出反应，但目前尚未到那一步。 “我们不知道将有什么经济影响，”鲍威尔说。“我们确实认为政策处于我们可以采取观望的良好位置。” 油价自一个月前战争爆发以来已大幅上涨
+加利福尼亚州奥克兰市的陪审团对埃隆·马斯克在与萨姆·奥特曼及OpenAI的戏剧性法庭对决中作出了不利裁决。 马斯克于2024年起诉奥特曼和OpenAI，指控他们违反了保持这家AI公司为非营利组织的承诺。 陪审团认定，马斯克的诉讼请求已超出诉讼时效。 此判决出炉之际，正值马斯克旗下的SpaceX预计将于近日披露其IPO招股说明书。 经过不到两小时的审议，陪审团于周一驳回了埃隆·马
 
 ## 正文
 
-美联储主席杰罗姆·鲍威尔表示，长期通胀预期似乎受控，但在评估伊朗战争带来的影响之际，央行正密切关注其变化。
+加利福尼亚州奥克兰市的陪审团对埃隆·马斯克在与萨姆·奥特曼及OpenAI的戏剧性法庭对决中作出了不利裁决。
 
-通胀预期似乎在“短期之后锚定良好”，鲍威尔周一在哈佛大学的活动上表示。
+马斯克于2024年起诉奥特曼和OpenAI，指控他们违反了保持这家AI公司为非营利组织的承诺。
 
-他还表示，官员可能需要对冲突带来的影响作出反应，但目前尚未到那一步。
+陪审团认定，马斯克的诉讼请求已超出诉讼时效。
 
-“我们不知道将有什么经济影响，”鲍威尔说。
+此判决出炉之际，正值马斯克旗下的SpaceX预计将于近日披露其IPO招股说明书。
 
-“我们确实认为政策处于我们可以采取观望的良好位置。
+经过不到两小时的审议，陪审团于周一驳回了埃隆·马斯克对OpenAI首席执行官萨姆·奥特曼的指控，为这两位曾为密友的科技亿万富翁之间激烈竞争的戏剧性篇章画上了句号。
 
-” 油价自一个月前战争爆发以来已大幅上涨，这可能加剧通胀压力，同时抑制消费需求和经济增长。
+由美国地区法官伊冯·冈萨雷斯·罗杰斯主持的法庭同意了顾问陪审团的裁定，即奥特曼和OpenAI不承担责任，并且“因已超过诉讼时效，违反慈善信托义务和不当得利的指控被驳回”。
 
-这种情形将给美联储政策制定带来挑战，因为央行的目标是实现充分就业和物价稳定。
+冈萨雷斯·罗杰斯表示，她本就准备“当场”驳回马斯克的诉讼。
 
-“倾向是不去理会任何类型的供应冲击，但其中至关重要的一个方面是必须密切关注通胀预期，”鲍威尔表示。
+陪审团认定，马斯克的诉讼请求已超出诉讼时效，裁定马斯克有三年的时间提起诉讼，而他并未及时提交。
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [A股冲高回落，沪指半日下跌0.38%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:09 - [自然堂冲刺港股：年营收53亿 利润3.5亿 估值71亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:34 - [欧洲官员称伊朗向胡塞武装施压 准备重启针对红海航运的袭击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:26 - [房地产高薪退潮：“千万年薪”销声匿迹，郁亮去年薪水24万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:11 - [青农商行：吸收合并青岛即墨惠民村镇银行获股东会通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:14 - [珠江流域节水宣传活动丰富多彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:16 - [中央气象台：“超级单体”强对流将影响长江中下游地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:27 - [小摩：下调HASHKEY HLDGS评级至“中性” 目标价降至5港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:11 - [“做中国人，多么骄傲！”台湾青年自媒体人翟翾：大陆寻根后，心里更踏实了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:27 - [河北秦皇岛：人鸥共欢春日美](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:11 - [多地联动“诵读经典·缅怀先贤”主题活动 与先贤跨时空对话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:07 - [2025年经营性现金流净额8.16亿，美凯龙主营业务展现韧性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:30 - [600721，控制权拟变更，金华市国资委入主！大牛股净利润最高暴增8747.18%，存储涨价潮将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:35 - [在宁波，看见绿色发展的中国答案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:14 - [5月18日央行开展10亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:29 - [*ST中岩：拟公开挂牌转让北京中岩公司100%股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:37 - [上海文史馆馆员走进山深村 建言文化赋能沪派江南建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:39 - [2026年“文化中国·水立方杯”中文歌曲大赛英国赛区复赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:30 - [SuperCom赢得内华达州电子监控合同，在美业务版图扩展至第17个州](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:30 - [洁丽雅不能只靠“少爷”流量卖毛巾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:36 - [柬埔寨跨境自驾游车队横穿柬老中三国推介文化旅游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:35 - [赖清德，如何走到被弹劾地步？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:40 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:20 - [3月外国投资者美债持仓下降 管涛：地缘冲突、能源供给冲击的自然反应，4月或回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [《人民日报》：“为什么这些APP都想借钱给我？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:29 - [以总理称支持美伊停火两周但停火不包括黎巴嫩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:27 - [浦发银行行长谢伟：2025年息差管理取得阶段性成效，但较领先同业仍有差距](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:14 - [极兔速递-W早盘上涨13% 全年经调整净利润同比增长112.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:32 - [百年人寿戴文浩：个险是险企稳定性来源，中小公司切勿对标大公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:22 - [中视金桥发布年度业绩 股东应占溢利8004.3万元同比下降25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:24 - [民生银行副行长张俊潼：零售“一个大脑”建设已经基本完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:22 - [联合国秘书长欢迎美伊停火两周 呼吁各方推动长期和平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:26 - [里昂：降创科实业目标价至134港元 旗舰品牌增长稳健](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:31 - [西部航天科技公司成立！三角防务参股，盘中暴拉8%！华宝基金军工ETF（512810）上探逾2%收复半年线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:28 - [内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:20 - [A股开盘：三大指数集体高开，超3000只个股飘红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:06 - [尾盘：美股继续上扬 道指上涨逾1000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:09 - [油价在涨跌之间震荡 哈尔克岛据报道传出爆炸声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:22 - [Marvell涨6.7% 英伟达斥资20亿美元入股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:17 - [【阜成门外】我国进口增速远超出口，释放什么信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:20 - [大美边疆看我家丨黑龙江鸡东：赴一场山河与日出之约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:20 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:13 - [车企年报|长城汽车政府补助逆势升至37亿高居榜首 增收减利延续还有多少降价空间？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:15 - [豆类市场多空因素交织 油脂回归基本面主导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:26 - [600208，重组终止！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:25 - [零售商接连遭遇重重经营困境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:37 - [民意承压蔓延欧洲 斯塔默等多国领导人陷支持率困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:25 - [习近平主席贺信为中俄各领域合作走深走实注入强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:35 - [我国卫星导航产业产值超6000亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:32 - [美债利率上破关键位 美股盛宴能持续多久？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:27 - [少女自行过量注射“减肥针”险致命 医生：使用需遵医嘱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:30 - [格陵兰：与美国的谈判取得进展，但该岛绝不售卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:26 - [大范围降雨浸润中东部 主雨带继续东移南压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:34 - [ROG 20周年，在广州“快乐屋”里把信仰摆出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
