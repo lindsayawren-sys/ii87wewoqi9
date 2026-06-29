@@ -1,58 +1,61 @@
-# （乡村行·看振兴）兴安五月风光好 乡土烟火绘就家门口诗远方
+# 16名注册会计师受警告，财政部对中兴财光华作出重罚
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-中新网兴安盟5月7日电 题：兴安五月风光好 乡土烟火绘就家门口诗远方 作者 张玮 刘新平 五月春山铺锦处，杜鹃灼灼映晴空。从追逐远方的喧嚣，到珍视身边的美好，内蒙古自治区兴安盟科右前旗用乡愁与烟火，为人们打造了家门口的“诗和远方”。 科右前旗发布旅游数据显示，“五一”假期，当地累计接待国内游客30.7万人次，带动旅游消费9850万元，分别同比增长11.6%和6.7%。 让“乡愁
+暂停经营业务1年、16名签字注册会计师受警告……财政部4月10日发布对中兴财光华会计师事务所的行政处罚决定。 从该行政处罚决定内容看，自2025年6月起，财政部组织检查组对中兴财光华开展了执业质量检查，并延伸检查了相关企业。经查，中兴财光华在多个审计项目中存在执业质量问题，其中包含涉及东旭集团有限公司、东旭光电科技股份有限公司、东旭蓝天新能源股份有限公司等三家“东旭系”企业的财
 
 ## 正文
 
-中新网兴安盟5月7日电 题：兴安五月风光好 乡土烟火绘就家门口诗远方 作者 张玮 刘新平 五月春山铺锦处，杜鹃灼灼映晴空。
+暂停经营业务1年、16名签字注册会计师受警告……财政部4月10日发布对中兴财光华会计师事务所的行政处罚决定。
 
-从追逐远方的喧嚣，到珍视身边的美好，内蒙古自治区兴安盟科右前旗用乡愁与烟火，为人们打造了家门口的“诗和远方”。
+从该行政处罚决定内容看，自2025年6月起，财政部组织检查组对中兴财光华开展了执业质量检查，并延伸检查了相关企业。
 
-科右前旗发布旅游数据显示，“五一”假期，当地累计接待国内游客30.7万人次，带动旅游消费9850万元，分别同比增长11.6%和6.7%。
+经查，中兴财光华在多个审计项目中存在执业质量问题，其中包含涉及东旭集团有限公司、东旭光电科技股份有限公司、东旭蓝天新能源股份有限公司等三家“东旭系”企业的财务报表审计问题。
 
-让“乡愁”成为消费新业态 “慢点跑！
+上述三家企业曾因财务造假、欺诈发行等违法行为受到证券监督管理部门重罚。
 
-铁环要倒了！
+在此次案件查处过程中，财政部与中国证监会密切沟通、加强协作，共享信息、强化合力。
 
-”“妈妈，我搓出玉米粒了！
+针对检查发现的问题，财政部与中国证监会分别依据注册会计师法、证券法等作出行政处罚决定。
 
-”……柳树川村没有名山大川，却有着最抚凡人心的“乡愁记忆”。
+其中，两部门共计罚没中兴财光华2.52亿元；财政部给予中兴财光华警告、暂停经营业务1年；给予16名签字注册会计师警告，并对相关注册会计师分别处以暂停执行业务1个月至1年的行政处罚等。
 
-占地3200平方米的乡愁文化馆内，万余件老物件镌刻着岁月痕迹，成为游客沉浸式感受乡土情怀的核心阵地。
+“审计质量是会计师事务所的立身之本。
 
 ## 相关推荐
 
-- 2026-06-29 19:09 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 19:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 19:03 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 19:01 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 19:11 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 18:54 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-29 19:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 19:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 19:05 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 19:22 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 18:59 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 19:13 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 19:17 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 19:20 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 19:07 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 19:15 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 19:10 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 19:21 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 19:07 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 19:27 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 19:05 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 19:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 19:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 19:18 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 19:29 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 19:02 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 19:08 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:23 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/3731423055.shtml)
-- 2026-06-29 19:05 - [女生每天戴耳机18小时突发耳聋](http://www.blog.kurohicncr.top/Article/details/840281029869.shtml)
-- 2026-06-29 19:22 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/3141190834.shtml)
-- 2026-06-29 19:11 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/208905047.shtml)
-- 2026-06-29 18:58 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/37737.shtml)
-- 2026-06-29 18:55 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/1314186947.shtml)
-- 2026-06-29 19:21 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/81994.shtml)
-- 2026-06-29 18:59 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/71396.shtml)
-- 2026-06-29 19:08 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/2315493326.shtml)
-- 2026-06-29 19:13 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/7708968.shtml)
-- 2026-06-29 19:09 - [速度与激情9](http://www.blog.minike.top/Article/details/3766796.shtml)
-- 2026-06-29 19:21 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/788301585980.shtml)
-- 2026-06-29 19:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/541806.shtml)
-- 2026-06-29 19:00 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/056136280.shtml)
-- 2026-06-29 18:55 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/313625713.shtml)
+- 2026-06-29 19:30 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/032912503.shtml)
+- 2026-06-29 19:27 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/0660172146.shtml)
+- 2026-06-29 19:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/681856790.shtml)
+- 2026-06-29 19:02 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/51426486.shtml)
+- 2026-06-29 19:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/198922997225.shtml)
+- 2026-06-29 19:13 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/036899999.shtml)
+- 2026-06-29 19:24 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/979703944286.shtml)
+- 2026-06-29 19:21 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/2245660.shtml)
+- 2026-06-29 19:24 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/0926241.shtml)
+- 2026-06-29 19:07 - [中方向委方追加1亿元援助](http://www.blog.kurohicncr.top/Article/details/88684205.shtml)
+- 2026-06-29 19:07 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/511045.shtml)
+- 2026-06-29 19:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/71918216574.shtml)
+- 2026-06-29 19:00 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/051624861396.shtml)
+- 2026-06-29 19:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/98961601.shtml)
+- 2026-06-29 19:20 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/8298201.shtml)

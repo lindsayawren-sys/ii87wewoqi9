@@ -1,61 +1,58 @@
-# 什么信号？两融余额创历史新高后，有券商将新设115%“即时平仓线”
+# 国际观察：日本“新型军国主义”亮出吃人獠牙
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|王海慜 每经编辑|叶峰 5月7日，东方证券发布公告，自2026年5月18日起在两融业务中新增“即时平仓线”风控指标，参数为115%，明确投资者信用账户维持担保比例若在T日收盘跌破115%，需在T+1日上午收市前补足至130%及以上，否则公司将有权启动强制平仓。 今年一季度，A股两融季度日均余额创历
+张军社 3月31日，日本宣布在熊本县和静冈县部署射程约1000公里的具备所谓“对敌基地攻击能力”的远程导弹。这是日本首次明确部署远程攻击导弹，标志着日本作为二战“轴心国”和战败国在战后长期奉行的“专守防卫”政策发生根本性转变，日本“新型军国主义”已经成为赤裸裸的现实威胁，严重威胁他国安全，严重破坏地区和平稳定。 首先，日本打着“防卫反击”的幌子部署远程导弹，远远超出“自卫”和“
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+张军社 3月31日，日本宣布在熊本县和静冈县部署射程约1000公里的具备所谓“对敌基地攻击能力”的远程导弹。
 
-每经记者|王海慜 每经编辑|叶峰 5月7日，东方证券发布公告，自2026年5月18日起在两融业务中新增“即时平仓线”风控指标，参数为115%，明确投资者信用账户维持担保比例若在T日收盘跌破115%，需在T+1日上午收市前补足至130%及以上，否则公司将有权启动强制平仓。
+这是日本首次明确部署远程攻击导弹，标志着日本作为二战“轴心国”和战败国在战后长期奉行的“专守防卫”政策发生根本性转变，日本“新型军国主义”已经成为赤裸裸的现实威胁，严重威胁他国安全，严重破坏地区和平稳定。
 
-今年一季度，A股两融季度日均余额创历史新高，达2.66万亿元。
+首先，日本打着“防卫反击”的幌子部署远程导弹，远远超出“自卫”和“专守防卫”的范畴。
 
-据记者了解，此类“即时平仓线”其实并非新生事物，业内多家头部券商在传统130%平仓线的基础上，还依据更低的维持担保比例进一步设置了110%、115%不等的最低平仓线。
+据日本媒体报道，日本在3月31日部署的具有所谓“反击能力”的远程攻击导弹，分别称为“25式地对舰导弹”和“25式高速滑翔弹”。
 
-券商两融业务增加“即时平仓线” 5月7日，东方证券在官网发布公告称，为进一步完善融资融券业务风险监控体系，切实保护投资者合法权益，根据《东方证券股份有限公司融资融券合同（202605版）》相关约定，本公司在融资融券业务中增加“即时平仓线”监控指标，自2026年5月18日起施行。
+其中，“25式地对舰导弹”此前被称为“陆基改进型12式反舰导弹”。
 
-公告进一步指出，所谓两融业务“即时平仓线”是本公司对投资者信用账户风险状况进行监控的特定维持担保比例值（维持担保比例=（现金+信用证券账户内证券市值总和+其他担保物价值）/（融资买入金额+融券卖出证券数量×当前市价+利息及费用总和）×100%），相关参数为115%。
+这种巡航导弹射程约1000公里，不仅可以攻击他国海上舰船，还可打击他国陆上设施。
 
-T日收盘后，若投资者信用账户维持担保比例低于即时平仓线，应在T+1日上午收市前，将维持担保比例提升至平仓线及以上，否则T+1日上午收市后本公司即有权实行强制平仓。
+“25式高速滑翔弹”此前被称为“岛屿防卫用高速滑翔弹”，射程数百公里。
 
-对此，今日记者拨打东方证券客服电话进行咨询。
+日本目前正研发射程约2000公里的升级版本。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 19:13 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 18:56 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 19:05 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 19:15 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 19:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 19:07 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 19:01 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 19:19 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 19:03 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 19:11 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 19:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 18:56 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 19:22 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 18:57 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 19:18 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 19:24 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 19:01 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 19:05 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 19:18 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 19:14 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 19:02 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 19:17 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 19:21 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 19:14 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 19:18 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 19:25 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:58 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/93980681489.shtml)
-- 2026-06-29 19:02 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/4652987.shtml)
-- 2026-06-29 19:02 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/13943385.shtml)
-- 2026-06-29 19:09 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.minike.top/Article/details/948307188671.shtml)
-- 2026-06-29 19:18 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/896516243.shtml)
-- 2026-06-29 19:04 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/32646945.shtml)
-- 2026-06-29 19:12 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/560581709272.shtml)
-- 2026-06-29 19:18 - [RAY评乘风2026总决赛](http://www.blog.minike.top/Article/details/57330802.shtml)
-- 2026-06-29 19:04 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/93771152.shtml)
-- 2026-06-29 19:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/58228.shtml)
-- 2026-06-29 18:57 - [看大国重器“云端穿针引线”](http://www.blog.minike.top/Article/details/87502676737.shtml)
-- 2026-06-29 18:57 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.minike.top/Article/details/3148331195.shtml)
-- 2026-06-29 18:56 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/733808388.shtml)
-- 2026-06-29 19:13 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/3829977812.shtml)
-- 2026-06-29 18:55 - [啊啊啊](https://www.share.minike.top/Article/details/96326854060.shtml)
+- 2026-06-29 19:00 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/99590178630.shtml)
+- 2026-06-29 19:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/1215437823.shtml)
+- 2026-06-29 19:26 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/3558658.shtml)
+- 2026-06-29 19:25 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/98102.shtml)
+- 2026-06-29 19:22 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/3029947562.shtml)
+- 2026-06-29 19:07 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/855267.shtml)
+- 2026-06-29 19:16 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/4890881.shtml)
+- 2026-06-29 19:06 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/723597083.shtml)
+- 2026-06-29 19:06 - [花万元相亲对象是50元雇的演员](http://www.blog.kurohicncr.top/Article/details/632741788.shtml)
+- 2026-06-29 19:10 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/948048.shtml)
+- 2026-06-29 19:00 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/81785.shtml)
+- 2026-06-29 19:02 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/847175950242.shtml)
+- 2026-06-29 19:02 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/294774.shtml)
+- 2026-06-29 19:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/7551016416.shtml)
+- 2026-06-29 19:25 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/09782191.shtml)

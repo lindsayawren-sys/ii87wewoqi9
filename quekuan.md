@@ -1,55 +1,57 @@
-# 中国最高检挂牌督办湖南浏阳烟花爆炸重大责任事故案
+# 四川修订气象灾害防御条例 科技赋能“主动防御”
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-中新社北京5月7日电 (记者 张素)记者7日从中国最高人民检察院获悉，为依法从严惩治危害生产安全刑事犯罪，保护人民群众生命财产安全，最高检决定对湖南浏阳烟花爆炸重大责任事故一案挂牌督办。 5月4日，湖南浏阳市华盛烟花制造燃放有限公司车间发生爆炸，事故造成26人死亡、61人受伤。案发当日，浏阳市公安局以涉嫌重大责任事故罪进行立案侦查，后对涉事企业相关责任人员刑事拘留，案件正在进一
+中新网成都4月10日电 (单鹏)四川省人大常委会10日在成都举行新闻发布会，介绍新修订的《四川省气象灾害防御条例》(以下简称《条例》)。《条例》提出，将进一步推动科技赋能，鼓励气象灾害防御科研创新和成果转化，强化重点行业领域气象服务保障。四川是全国气象灾害最严重的省份之一，气象灾害种类多、强度大、范围广、频率高，严重威胁民众生命财产安全和经济社会高质量发展。 据了解，《条例》自
 
 ## 正文
 
-中新社北京5月7日电 (记者 张素)记者7日从中国最高人民检察院获悉，为依法从严惩治危害生产安全刑事犯罪，保护人民群众生命财产安全，最高检决定对湖南浏阳烟花爆炸重大责任事故一案挂牌督办。
+中新网成都4月10日电 (单鹏)四川省人大常委会10日在成都举行新闻发布会，介绍新修订的《四川省气象灾害防御条例》(以下简称《条例》)。
 
-5月4日，湖南浏阳市华盛烟花制造燃放有限公司车间发生爆炸，事故造成26人死亡、61人受伤。
+《条例》提出，将进一步推动科技赋能，鼓励气象灾害防御科研创新和成果转化，强化重点行业领域气象服务保障。
 
-案发当日，浏阳市公安局以涉嫌重大责任事故罪进行立案侦查，后对涉事企业相关责任人员刑事拘留，案件正在进一步侦查中。
+四川是全国气象灾害最严重的省份之一，气象灾害种类多、强度大、范围广、频率高，严重威胁民众生命财产安全和经济社会高质量发展。
 
-最高检要求湖南省检察机关充分履行检察职能，协同公安机关及有关部门，依法查清事故原因、案件事实和严重后果；查明涉案有关人员的违法违规责任，对于罪责严重的责任人员，依法从严惩处。
+据了解，《条例》自2006年7月施行以来，在依法规范四川气象灾害监测、预报、预警和应急处置，提高气象灾害防御能力、避免或减轻气象灾害造成的损失等方面，发挥了重要作用。
 
-最高检有关负责人表示，检察机关要在依法严厉打击危害生产安全刑事犯罪的同时，注重分析案件暴露出的安全生产风险防范等方面的突出问题，协同有关部门持续落实最高检“八号检察建议”，促进压实安全生产责任，推动重点行业领域风险排查整治，切实维护人民群众生命财产安全和社会大局稳定。
+近年来，在全球气候变化的大背景下，四川各地极端天气频率明显加大，暴雨、高温、干旱、大风等气象灾害显著增多，现行条例已不适应气象灾害防御的新情况、新变化、新规定。
 
-“八号检察建议”即最高检于2022年向应急管理部制发的安全生产溯源治理方面的检察建议。
+四川省人大农业农村委副主任委员涂扬举在介绍法规修订背景时表示，《条例》专门针对近年发生的气象灾害事故，综合分析、查漏补缺，进一步突出了气象灾害防御对民生与经济的重大作用，明确了相关部门的工作职责，完善了防御标准和指南的相关要求，优化了应急物资储备与调配体系，为有效预防和应对各类天气气候事件，避免和减轻气象灾害造成的损失。
 
-(完)
+四川省人大法制工作委员会副主任杨阖表示，《条例》分6章，共50条，包含健全气象灾害防御责任机制，加强气象灾害预防与隐患治理，完善监测、预报和预警体系，规范气象灾害应急处置措施等内容。
+
+在加强气象灾害预防与隐患治理方面，《条例》规定，完善气象灾害普查、防御规划编制规定，强化防御设施建设；突出灾害隐患排查治理，分区域、分灾种规定针对性的防御措施，明确雷电灾害防御管理责任；建立统一协调的人工影响天气指挥作业体系，加强作业流程规范化，完善气候可行性论证制度。
 
 ## 相关推荐
 
-- 2026-06-29 19:21 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 19:16 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 19:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 19:19 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 19:01 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 18:58 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 19:22 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 19:19 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 19:21 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 19:09 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 19:12 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 19:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 19:19 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 19:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 19:18 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 19:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 19:10 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 19:17 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 19:21 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 19:02 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 19:23 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 19:22 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:03 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/126695905824.shtml)
-- 2026-06-29 19:02 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/0491835626.shtml)
-- 2026-06-29 18:56 - [5万块的威力](https://www.blog.minike.top/Article/details/868925872885.shtml)
-- 2026-06-29 19:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/9205917938.shtml)
-- 2026-06-29 19:12 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/941860949985.shtml)
-- 2026-06-29 19:18 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/5142875293.shtml)
-- 2026-06-29 18:59 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.minike.top/Article/details/64386294.shtml)
-- 2026-06-29 19:06 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/627308116010.shtml)
-- 2026-06-29 19:14 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.kurohicncr.top/Article/details/2048324.shtml)
-- 2026-06-29 19:19 - [人形机器人](http://www.share.minike.top/Article/details/3188092000.shtml)
-- 2026-06-29 19:09 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/1212954133.shtml)
-- 2026-06-29 18:56 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/5518576.shtml)
-- 2026-06-29 19:02 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/961867.shtml)
-- 2026-06-29 18:58 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/56415.shtml)
-- 2026-06-29 19:23 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.minike.top/Article/details/699810.shtml)
+- 2026-06-29 19:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/96868233745.shtml)
+- 2026-06-29 19:21 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/16658.shtml)
+- 2026-06-29 19:19 - [人形机器人](https://www.blog.minike.top/Article/details/15755790.shtml)
+- 2026-06-29 19:14 - [TFING全员黑西装](https://www.share.minike.top/Article/details/0724922.shtml)
+- 2026-06-29 19:00 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/21701.shtml)
+- 2026-06-29 19:22 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/377485529462.shtml)
+- 2026-06-29 19:25 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/20869702.shtml)
+- 2026-06-29 19:04 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/390721792377.shtml)
+- 2026-06-29 19:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/283183.shtml)
+- 2026-06-29 19:21 - [网红小徐直播时突遇地震](http://www.share.kurohicncr.top/Article/details/7773645.shtml)
+- 2026-06-29 19:05 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/980992.shtml)
+- 2026-06-29 19:25 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/544022.shtml)
+- 2026-06-29 19:07 - [河南高院审委会原委员曲海滨被查](https://www.share.minike.top/Article/details/410550388.shtml)
+- 2026-06-29 19:25 - [请回答王牌2019](https://www.blog.minike.top/Article/details/427877441.shtml)
+- 2026-06-29 19:12 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/3832445.shtml)

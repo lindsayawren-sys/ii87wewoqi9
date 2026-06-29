@@ -1,46 +1,61 @@
-# “95后”返乡青年成杭州文旅推介官：让更多人了解中国
+# 太极股份董事柴永茂逝世：他是公司元老级人物，持股市值超3000万元
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月07日 21:08 来源：中国新闻网 从扎根乡村依托自媒体创业，到代表杭州前往多个国家作城市文旅推介，“95后”浙江姑娘夏雪打破了很多人对城市文旅推介官的设定印象。作为年轻人，她用自己的方式帮助更多外国人了解中国，也让不同国家的人们通过她找到了更多“共同点”。 吴君毅 庄蕙语 浙江杭州报道 责任编辑：【卢岩】
+每经记者|陈鹏丽 每经编辑|毕陆名 4月10日晚间，国内老牌IT服务提供商太极股份（SZ002368，股价19.39元，市值120.8亿元）突发公告称，公司党委委员、董事、高级副总裁柴永茂于近日不幸逝世。 “柴永茂先生是公司第一届至第七届董事会成员，长期担任公司副总经理、高级副总裁。任职期间，柴永茂先生在公司的业务发展、改制上市和企业文化建设等方面做了大量工作，并倾力推动了太极
 
 ## 正文
 
-发布时间：2026年05月07日 21:08 来源：中国新闻网 从扎根乡村依托自媒体创业，到代表杭州前往多个国家作城市文旅推介，“95后”浙江姑娘夏雪打破了很多人对城市文旅推介官的设定印象。
+每经记者|陈鹏丽 每经编辑|毕陆名 4月10日晚间，国内老牌IT服务提供商太极股份（SZ002368，股价19.39元，市值120.8亿元）突发公告称，公司党委委员、董事、高级副总裁柴永茂于近日不幸逝世。
 
-作为年轻人，她用自己的方式帮助更多外国人了解中国，也让不同国家的人们通过她找到了更多“共同点”。
+“柴永茂先生是公司第一届至第七届董事会成员，长期担任公司副总经理、高级副总裁。
 
-吴君毅 庄蕙语 浙江杭州报道 责任编辑：【卢岩】
+任职期间，柴永茂先生在公司的业务发展、改制上市和企业文化建设等方面做了大量工作，并倾力推动了太极慈善事业发展。
+
+”太极股份在公告中沉痛表示。
+
+《每日经济新闻》记者了解到，柴永茂生于1967年，享年约59岁。
+
+他是太极股份的元老级人物，也是公司发展历程中的关键人物之一。
+
+公开资料显示，他1992年起历任太极计算机公司（太极股份前身）部门负责人、副总经理，太极股份董事、副总裁、董事会秘书；现任公司党委委员、董事、高级副总裁。
+
+去年11月，他刚被选举为职工代表董事。
 
 ## 相关推荐
 
-- 2026-06-29 19:06 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 18:55 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 19:22 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 19:19 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 19:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 18:58 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 18:54 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 19:23 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 19:01 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 19:12 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 19:11 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 19:08 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 19:14 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 19:08 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 19:22 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 19:13 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 19:05 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 19:21 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 19:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 19:10 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 19:25 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 19:01 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 19:09 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 19:11 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 19:16 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:12 - [吴建豪和老婆差20岁](https://www.share.minike.top/Article/details/2412038.shtml)
-- 2026-06-29 19:03 - [天道](https://www.blog.kurohicncr.top/Article/details/90119882.shtml)
-- 2026-06-29 18:59 - [CORTIS 小牌大耍](https://www.blog.minike.top/Article/details/65783530.shtml)
-- 2026-06-29 19:05 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/75092942578.shtml)
-- 2026-06-29 19:07 - [欧洲极端高温如何影响家电股](http://www.share.kurohicncr.top/Article/details/383871583.shtml)
-- 2026-06-29 19:23 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/70372974429.shtml)
-- 2026-06-29 19:08 - [小众羞耻点是吃麻辣烫](http://www.share.minike.top/Article/details/3644423415.shtml)
-- 2026-06-29 19:01 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/61302.shtml)
-- 2026-06-29 18:57 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/56854514792.shtml)
-- 2026-06-29 19:06 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/37175745.shtml)
-- 2026-06-29 18:59 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.minike.top/Article/details/77205.shtml)
-- 2026-06-29 19:14 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/137160961.shtml)
-- 2026-06-29 19:02 - [大马同意延长马航370残骸搜寻工作](http://www.blog.minike.top/Article/details/84017209.shtml)
-- 2026-06-29 19:10 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/2308031.shtml)
-- 2026-06-29 19:14 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/038780595.shtml)
+- 2026-06-29 19:17 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/62269909574.shtml)
+- 2026-06-29 19:11 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/36933609298.shtml)
+- 2026-06-29 19:11 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/329971195992.shtml)
+- 2026-06-29 19:03 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/96079302.shtml)
+- 2026-06-29 19:20 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/67951538687.shtml)
+- 2026-06-29 19:15 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/29955758.shtml)
+- 2026-06-29 19:18 - [千与千寻](http://www.share.kurohicncr.top/Article/details/200134228488.shtml)
+- 2026-06-29 19:22 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/7329503.shtml)
+- 2026-06-29 19:02 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/82289622165.shtml)
+- 2026-06-29 19:10 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/424932703.shtml)
+- 2026-06-29 19:21 - [医药生物行业今日涨5.91%](https://www.blog.kurohicncr.top/Article/details/973000.shtml)
+- 2026-06-29 19:01 - [大学专业未来如何洗牌](https://www.share.minike.top/Article/details/88873762503.shtml)
+- 2026-06-29 19:05 - [无畏为自己的猫正名了](http://www.share.minike.top/Article/details/2898378794.shtml)
+- 2026-06-29 19:22 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/9832430214.shtml)
+- 2026-06-29 19:11 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/254581.shtml)

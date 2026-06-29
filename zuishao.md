@@ -1,59 +1,60 @@
-# 墨西哥一音乐会现场发生火灾致五人死亡
+# 从“碰运气”到“有底气” 莽格吐乡“订单+复种”绘出产业振兴新图景
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-中新社北京5月8日电 墨西哥城消息：当地时间7日，墨西哥东南部塔瓦斯科州首府比亚埃尔莫萨市一场音乐会现场发生火灾，造成至少5人死亡。 综合路透社、英国广播公司等媒体消息，该音乐会在比亚埃尔莫萨市一处游乐场所举办，吸引约13.5万人参加。 墨西哥当地媒体和社交平台用户发布的视频显示，涉事游乐场所内燃起熊熊大火并升起滚滚浓烟，人们惊慌失措地逃离现场。 墨西哥民防部门官员表示，火势已
+中新网齐齐哈尔4月11日电 题：从“碰运气”到“有底气” 莽格吐乡“订单+复种”绘出产业振兴新图景 作者 刘锡菊 张也 曾雪 春耕时节，莽格吐乡莽格吐村的田间地头热闹起来。种植大户徐星冬蹲在自家大棚里，手指轻轻拨开覆膜，看着新移栽的豆角秧苗在泥土里扎下根。“以前种地全凭感觉，哪块地肥、哪种作物值钱，就一窝蜂往上种。等到秋收才发现，种得好不如卖得好。”徐星冬站起身，拍了拍手上的土
 
 ## 正文
 
-中新社北京5月8日电 墨西哥城消息：当地时间7日，墨西哥东南部塔瓦斯科州首府比亚埃尔莫萨市一场音乐会现场发生火灾，造成至少5人死亡。
+中新网齐齐哈尔4月11日电 题：从“碰运气”到“有底气” 莽格吐乡“订单+复种”绘出产业振兴新图景 作者 刘锡菊 张也 曾雪 春耕时节，莽格吐乡莽格吐村的田间地头热闹起来。
 
-综合路透社、英国广播公司等媒体消息，该音乐会在比亚埃尔莫萨市一处游乐场所举办，吸引约13.5万人参加。
+种植大户徐星冬蹲在自家大棚里，手指轻轻拨开覆膜，看着新移栽的豆角秧苗在泥土里扎下根。
 
-墨西哥当地媒体和社交平台用户发布的视频显示，涉事游乐场所内燃起熊熊大火并升起滚滚浓烟，人们惊慌失措地逃离现场。
+“以前种地全凭感觉，哪块地肥、哪种作物值钱，就一窝蜂往上种。
 
-墨西哥民防部门官员表示，火势已得到控制，尚不清楚火灾原因。
+等到秋收才发现，种得好不如卖得好。
 
-塔瓦斯科州长哈维尔·梅伊向遇难者家属表示慰问，并透露死者中包括未能及时撤离的展销人员。
+”徐星冬站起身，拍了拍手上的土，“今年不一样了，订单拿到手，种什么都心里有底。
 
-他宣布了一项针对受影响商户的援助计划，并表示调查工作已经开始。
+” 订单在手，种地从“碰运气”变“有底气”。
 
-(完)
+徐星冬的底气，来自梅里斯达斡尔族区莽格吐乡党委、政府主动扛起“搭桥人”的职责。
+
+该乡立足黑土地资源禀赋，精准对接黑龙江中蓝食品有限公司与辖区种植大户，建立“企业下单、农户种植、定向收购”的闭环模式。
 
 ## 相关推荐
 
-- 2026-06-29 19:23 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 18:54 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 19:22 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 18:55 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 19:06 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 19:20 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 19:08 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 19:20 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 19:03 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 19:22 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 19:09 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 18:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 19:21 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 18:54 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 19:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 19:10 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 19:21 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 19:06 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 19:07 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 19:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 19:18 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 19:00 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 19:03 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 19:00 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 19:10 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 19:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 19:21 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 19:14 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 19:00 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:03 - [沉睡花园](http://www.share.minike.top/Article/details/940823648306.shtml)
-- 2026-06-29 18:56 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/18802.shtml)
-- 2026-06-29 19:03 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/901229.shtml)
-- 2026-06-29 19:04 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/93751744.shtml)
-- 2026-06-29 19:17 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/2718653166.shtml)
-- 2026-06-29 19:22 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/387970432.shtml)
-- 2026-06-29 19:00 - [7款高价创新药有望降价](http://www.blog.kurohicncr.top/Article/details/49857041314.shtml)
-- 2026-06-29 19:18 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/1698655869.shtml)
-- 2026-06-29 19:20 - [海清4次陪跑白玉兰](http://www.blog.minike.top/Article/details/6555982.shtml)
-- 2026-06-29 18:56 - [流金岁月](http://www.blog.minike.top/Article/details/346457.shtml)
-- 2026-06-29 18:56 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/97415576116.shtml)
-- 2026-06-29 19:08 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/1408715.shtml)
-- 2026-06-29 19:10 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/01395366097.shtml)
-- 2026-06-29 19:12 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/1736421.shtml)
-- 2026-06-29 19:09 - [女生每天戴耳机18小时突发耳聋](http://www.blog.minike.top/Article/details/704487.shtml)
+- 2026-06-29 19:10 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/383977.shtml)
+- 2026-06-29 19:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/380712.shtml)
+- 2026-06-29 19:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/47709.shtml)
+- 2026-06-29 19:02 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/5720925.shtml)
+- 2026-06-29 19:23 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/5964459.shtml)
+- 2026-06-29 19:01 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/6283830.shtml)
+- 2026-06-29 19:03 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/51265494527.shtml)
+- 2026-06-29 19:10 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/958280952.shtml)
+- 2026-06-29 19:02 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/329854.shtml)
+- 2026-06-29 19:13 - [起风了](http://www.blog.kurohicncr.top/Article/details/993236079.shtml)
+- 2026-06-29 19:24 - [斛珠夫人](http://www.share.minike.top/Article/details/008366695.shtml)
+- 2026-06-29 19:24 - [当我回母校教书](https://www.blog.minike.top/Article/details/146901.shtml)
+- 2026-06-29 19:20 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/770403673.shtml)
+- 2026-06-29 19:26 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/8842588.shtml)
+- 2026-06-29 19:13 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/22630.shtml)

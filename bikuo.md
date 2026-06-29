@@ -1,58 +1,52 @@
-# 特种车辆制造商Oshkosh宣派每股0.57美元季度股息
+# 沙特管道遇袭导致每日输送能力减少70万桶
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-特种车辆制造商Oshkosh Corporation宣布，将派发每股0.57美元的季度现金股息。该股息将于2026年6月30日支付给2026年6月15日登记在册的股东，除息日为2026年6月15日。 股息详情 按周四收盘价计算，该股息对应的年化收益率约为1.5%。这是Oshkosh连续第10年提高或维持季度股息水平。此次派息金额与上一季度持平。 公司背景 Oshkosh总部位于
+沙特通讯社（SPA）援引能源部一位官员报道称，沙特东西输油管道遭袭，导致每日输送能力减少约70万桶。 胡赖斯设施此前也曾遭到袭击，导致其日产能减少30万桶，使该国总产能每日合计减少约60万桶。 袭击还波及主要炼油设施，包括位于朱拜勒的SATORP炼厂、拉斯坦努拉炼厂、延布的SAMREF炼厂以及利雅得炼厂，直接影响成品油对全球市场的出口。 朱艾马的加工设施亦受火灾影响，波及液化石
 
 ## 正文
 
-特种车辆制造商Oshkosh Corporation宣布，将派发每股0.57美元的季度现金股息。
+沙特通讯社（SPA）援引能源部一位官员报道称，沙特东西输油管道遭袭，导致每日输送能力减少约70万桶。
 
-该股息将于2026年6月30日支付给2026年6月15日登记在册的股东，除息日为2026年6月15日。
+胡赖斯设施此前也曾遭到袭击，导致其日产能减少30万桶，使该国总产能每日合计减少约60万桶。
 
-股息详情 按周四收盘价计算，该股息对应的年化收益率约为1.5%。
+袭击还波及主要炼油设施，包括位于朱拜勒的SATORP炼厂、拉斯坦努拉炼厂、延布的SAMREF炼厂以及利雅得炼厂，直接影响成品油对全球市场的出口。
 
-这是Oshkosh连续第10年提高或维持季度股息水平。
+朱艾马的加工设施亦受火灾影响，波及液化石油气（LPG）和天然气液体的出口。
 
-此次派息金额与上一季度持平。
-
-公司背景 Oshkosh总部位于威斯康星州，主要生产消防车、混凝土搅拌车、军用战术车辆以及机场除雪设备。
-
-公司旗下品牌包括Pierce、McNeilus、JLGR等。
-
-其国防部门约占公司总营收的35%。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 19:11 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 18:59 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 19:12 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 19:18 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 18:56 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 19:15 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 18:55 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 19:19 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 19:06 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 19:17 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 19:14 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 18:55 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 19:23 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 19:19 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 19:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 19:18 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 19:00 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 19:14 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 19:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 19:10 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 19:14 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 19:01 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 19:29 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 19:16 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:14 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/7307342425.shtml)
-- 2026-06-29 19:19 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/17150.shtml)
-- 2026-06-29 19:22 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/316698816.shtml)
-- 2026-06-29 18:57 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/34109305.shtml)
-- 2026-06-29 19:17 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/3496278.shtml)
-- 2026-06-29 19:14 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/647484927810.shtml)
-- 2026-06-29 19:09 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.minike.top/Article/details/267971977460.shtml)
-- 2026-06-29 19:01 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/89550.shtml)
-- 2026-06-29 19:19 - [主力抛售电子和通信板块](https://www.share.minike.top/Article/details/976310379468.shtml)
-- 2026-06-29 19:04 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/685920.shtml)
-- 2026-06-29 19:22 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/41608.shtml)
-- 2026-06-29 19:06 - [小娘惹](https://www.share.kurohicncr.top/Article/details/6934239.shtml)
-- 2026-06-29 18:57 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/437188.shtml)
-- 2026-06-29 19:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/1913106.shtml)
-- 2026-06-29 19:14 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/9327211661.shtml)
+- 2026-06-29 19:00 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/272421539.shtml)
+- 2026-06-29 19:18 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/98790.shtml)
+- 2026-06-29 19:16 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/7680953.shtml)
+- 2026-06-29 19:04 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/28412471385.shtml)
+- 2026-06-29 19:06 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/923021.shtml)
+- 2026-06-29 19:13 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/564841.shtml)
+- 2026-06-29 19:04 - [世界杯在中国观看最多的比赛](https://www.blog.minike.top/Article/details/62923110688.shtml)
+- 2026-06-29 19:04 - [伊朗足球队将启程回国](https://www.share.minike.top/Article/details/664110124.shtml)
+- 2026-06-29 19:23 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/007733.shtml)
+- 2026-06-29 19:17 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/056293548.shtml)
+- 2026-06-29 19:20 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/3598497342.shtml)
+- 2026-06-29 19:15 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/90281270.shtml)
+- 2026-06-29 19:24 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/1459911515.shtml)
+- 2026-06-29 19:18 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/2749058.shtml)
+- 2026-06-29 19:27 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/645922.shtml)

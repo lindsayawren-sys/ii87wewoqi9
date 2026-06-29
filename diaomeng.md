@@ -1,58 +1,59 @@
-# 五粮液（000858）公告前期会计差错更正，股民索赔可期
+# 澳大利亚总理访问新加坡 聚焦能源安全议题
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-2026年5月1日，宜宾五粮液（维权）股份有限公司（简称：五粮液，代码：000858）发布《关于前期会计差错更正的公告》。公告显示：五粮液对2025年业务模式进行梳理，基于谨慎性原则，调整2025年部分业务收入确认相关核算。此次前期会计差错更正涉及2025年已披露的一季度、半年度、 三季度合并资产负债表与合并利润表的部分项目，不影响现金流量表列示。 根据《民法典》、《证券法》及
+中新社悉尼4月10日电 澳大利亚总理阿尔巴尼斯与新加坡总理黄循财10日发表联合声明称，双方将加强能源安全合作，保障燃料等关键物资稳定流通。 黄循财当天在新加坡与到访的阿尔巴尼斯举行会谈并召开联合记者会。黄循财表示，中东冲突扰乱全球供应链和能源市场，新加坡和澳大利亚均承受压力，双方有必要加强合作，共同应对挑战。阿尔巴尼斯表示，加强合作有助于保障两国能源安全、增强经济韧性。 双方当
 
 ## 正文
 
-2026年5月1日，宜宾五粮液（维权）股份有限公司（简称：五粮液，代码：000858）发布《关于前期会计差错更正的公告》。
+中新社悉尼4月10日电 澳大利亚总理阿尔巴尼斯与新加坡总理黄循财10日发表联合声明称，双方将加强能源安全合作，保障燃料等关键物资稳定流通。
 
-公告显示：五粮液对2025年业务模式进行梳理，基于谨慎性原则，调整2025年部分业务收入确认相关核算。
+黄循财当天在新加坡与到访的阿尔巴尼斯举行会谈并召开联合记者会。
 
-此次前期会计差错更正涉及2025年已披露的一季度、半年度、 三季度合并资产负债表与合并利润表的部分项目，不影响现金流量表列示。
+黄循财表示，中东冲突扰乱全球供应链和能源市场，新加坡和澳大利亚均承受压力，双方有必要加强合作，共同应对挑战。
 
-根据《民法典》、《证券法》及最高人民法院的关于虚假陈述民事赔偿司法解释的规定，上市公司、控股股东、实际控制人、董监高人员及其中介机构等因虚假陈述等的证券欺诈行为导致证券投资者权益受损的，应承担民事赔偿责任，赔偿范围包括：投资差额、佣金、印花税等。
+阿尔巴尼斯表示，加强合作有助于保障两国能源安全、增强经济韧性。
 
-权益受损的证券投资者可以向有管辖权的法院提起民事赔偿诉讼。
+双方当天签署一份联合声明，表示将“尽最大努力”满足彼此能源安全需求，应对当前能源冲击。
 
-根据五粮液公告前期会计差错更正，涉嫌证券虚假陈述，为维护证券投资者合法权益，上海汉联律师事务所宋一欣律师向曾经购买过五粮液的证券投资者展开诉讼代理征集，代理投资者索赔诉讼，权益受损的证券投资者可以向前述律师进行索赔登记。
+声明称，双方将支持包括石油产品和液化天然气在内的关键物资流通，并通过强化协调、提高边境及港口通关效率等方式，促进货物和关键物资及时流通。
 
-（宋一欣律师专栏） 宋一欣律师认为，五粮液案的索赔条件为：2025年4月28日至2026年4月30日间买入五粮液股票，并在2026年5月1日及之后卖出或继续持有的受损投资者，可以办理索赔登记。
+新加坡是亚洲主要炼油中心。
 
-（五粮液维权入口） ★（律师对本案的提示与说明） 1．上述提示的索赔条件仅供参考，不涉及投资者任何证券投资决策和证券买卖建议。
+阿尔巴尼斯9日抵达新加坡后向媒体表示，澳大利亚约26%的成品油来自新加坡，新加坡约32%的液化天然气来自澳大利亚。
 
 ## 相关推荐
 
-- 2026-06-29 19:13 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-29 19:09 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 19:00 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 19:03 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 19:12 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 18:54 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 19:18 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 19:08 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 19:16 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 19:05 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 19:09 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 19:21 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 19:12 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 19:15 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 19:29 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 19:13 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 19:27 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 19:26 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 19:28 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 19:21 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 19:02 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 19:05 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 19:20 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 19:15 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 19:19 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:04 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/205308.shtml)
-- 2026-06-29 19:15 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/9595012.shtml)
-- 2026-06-29 19:11 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/722300.shtml)
-- 2026-06-29 19:20 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/61942.shtml)
-- 2026-06-29 19:21 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/067254623603.shtml)
-- 2026-06-29 19:16 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/01809.shtml)
-- 2026-06-29 19:08 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/18718732924.shtml)
-- 2026-06-29 19:17 - [2026年，如果你有100万，你会怎么投资？](http://www.share.kurohicncr.top/Article/details/22282162327.shtml)
-- 2026-06-29 19:06 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/4815297492.shtml)
-- 2026-06-29 19:09 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/678256779733.shtml)
-- 2026-06-29 19:14 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/1558272.shtml)
-- 2026-06-29 19:06 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/790980.shtml)
-- 2026-06-29 19:07 - [王俊凯命名方式](http://www.share.minike.top/Article/details/62190931.shtml)
-- 2026-06-29 19:10 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/10238.shtml)
-- 2026-06-29 19:13 - [中国战机大片上新](http://www.blog.minike.top/Article/details/19167520.shtml)
+- 2026-06-29 19:24 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/2341971108.shtml)
+- 2026-06-29 19:09 - [两老人多次到一洗车店泼粪](http://www.share.minike.top/Article/details/47265.shtml)
+- 2026-06-29 19:16 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/92026.shtml)
+- 2026-06-29 19:19 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/51500418689.shtml)
+- 2026-06-29 19:19 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/19089657.shtml)
+- 2026-06-29 19:24 - [RAY评乘风2026总决赛](https://www.share.kurohicncr.top/Article/details/099151.shtml)
+- 2026-06-29 19:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/955510.shtml)
+- 2026-06-29 19:19 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/255670015.shtml)
+- 2026-06-29 19:03 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/219195092975.shtml)
+- 2026-06-29 19:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/292351519873.shtml)
+- 2026-06-29 19:16 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/63907021461.shtml)
+- 2026-06-29 19:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/0552037.shtml)
+- 2026-06-29 19:17 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/31390242.shtml)
+- 2026-06-29 19:12 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.kurohicncr.top/Article/details/9222806962.shtml)
+- 2026-06-29 19:23 - [5万块的威力](https://www.share.minike.top/Article/details/808541811386.shtml)

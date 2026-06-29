@@ -1,60 +1,59 @@
-# 【新思想引领新征程】新型能源体系加快建设 筑牢能源安全根基
+# 美国3月集装箱进口量下降1%
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-央视网消息（新闻联播）：习近平总书记强调，能源保障和安全事关国计民生，是须臾不可忽视的“国之大者”。当前，我国加快推进新型能源体系建设，加大清洁能源开发力度，提升清洁能源利用水平，能源安全韧性不断增强，为经济社会发展提供有力支撑。 今天的中国能源版图上，跃动着蓬勃的绿色动力。 在海上，153米的风机叶片旋转一圈发出62度电。一天时间里，全国所有风机发出的电，足够一座2000万人
+供应链技术服务商德卡尔特系统集团（Descartes Systems Group）周四表示，美国 3 月集装箱进口量同比下降1.1%。 美国各港口上月共处理2，353，611 标准箱（TEU），该单位为集装箱运量的标准计量口径。 德卡尔特称，尽管今年以来进口量较 2025 年同期下降4.8%，但 3 月运量较 2019 年 3 月疫情前水平高出32.3%。这表明，尽管美国关税政
 
 ## 正文
 
-央视网消息（新闻联播）：习近平总书记强调，能源保障和安全事关国计民生，是须臾不可忽视的“国之大者”。
+供应链技术服务商德卡尔特系统集团（Descartes Systems Group）周四表示，美国 3 月集装箱进口量同比下降1.1%。
 
-当前，我国加快推进新型能源体系建设，加大清洁能源开发力度，提升清洁能源利用水平，能源安全韧性不断增强，为经济社会发展提供有力支撑。
+美国各港口上月共处理2，353，611 标准箱（TEU），该单位为集装箱运量的标准计量口径。
 
-今天的中国能源版图上，跃动着蓬勃的绿色动力。
+德卡尔特称，尽管今年以来进口量较 2025 年同期下降4.8%，但 3 月运量较 2019 年 3 月疫情前水平高出32.3%。
 
-在海上，153米的风机叶片旋转一圈发出62度电。
+这表明，尽管美国关税政策与伊朗战事仍存在不确定性，市场需求依旧保持稳健。
 
-一天时间里，全国所有风机发出的电，足够一座2000万人口的超大城市居民用上一个月，也可以支撑238万辆新能源汽车的制造。
+2026 年 3 月，美国自中国进口的集装箱货物总计711，652 标准箱，同比下降6.7%；上月中国货占美国集装箱进口总量的比重为30.2%。
 
-如今，全国每发出10度电，就有约4度来自于可再生能源。
+进口趋势通常被视为衡量美国经济健康状况的指标 —— 经济走强时进口量上升，经济走弱时则下降。
 
-从2012年到2021年，不到十年，我国可再生能源装机量翻了2倍多，突破10亿千瓦，建成全球最大可再生能源体系；到2023年，我国可再生能源装机占全国电力总装机比重首次过半，历史性超过火电。
-
-目前，全国可再生能源装机已近24亿千瓦，占全球可再生能源装机近一半，有力支撑我国能源自给率稳定保持在80%以上。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 19:23 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 19:07 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 19:00 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 19:12 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 19:07 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 18:56 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 19:07 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 19:11 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 19:12 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 19:11 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 19:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 19:19 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 19:07 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 19:11 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 19:20 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 19:04 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 19:16 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 19:02 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 19:05 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 19:08 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 19:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 19:12 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 19:05 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 19:02 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 19:14 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 19:04 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 19:28 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 19:14 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 19:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:23 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/2679585.shtml)
-- 2026-06-29 18:58 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/24558842.shtml)
-- 2026-06-29 19:24 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/165636.shtml)
-- 2026-06-29 18:54 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/31882.shtml)
-- 2026-06-29 19:04 - [机器人学校开学了](http://www.blog.minike.top/Article/details/0074692776.shtml)
-- 2026-06-29 19:19 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/684613568298.shtml)
-- 2026-06-29 19:04 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/3401468.shtml)
-- 2026-06-29 19:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/85127.shtml)
-- 2026-06-29 19:16 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/29328285.shtml)
-- 2026-06-29 19:23 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.minike.top/Article/details/631595508.shtml)
-- 2026-06-29 19:04 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/80289.shtml)
-- 2026-06-29 19:20 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/06345.shtml)
-- 2026-06-29 19:04 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/71824.shtml)
-- 2026-06-29 18:54 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/87611252542.shtml)
-- 2026-06-29 19:19 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/03837994357.shtml)
+- 2026-06-29 19:15 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/00545792170.shtml)
+- 2026-06-29 19:04 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/3454514.shtml)
+- 2026-06-29 19:15 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/21660236317.shtml)
+- 2026-06-29 19:28 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/45068.shtml)
+- 2026-06-29 19:10 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.minike.top/Article/details/39748305.shtml)
+- 2026-06-29 19:15 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/58931.shtml)
+- 2026-06-29 19:18 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/6334955.shtml)
+- 2026-06-29 19:22 - [小娘惹](https://www.blog.minike.top/Article/details/8376926441.shtml)
+- 2026-06-29 19:26 - [小娘惹](https://www.share.minike.top/Article/details/77751521.shtml)
+- 2026-06-29 19:03 - [中方向委方追加1亿元援助](https://www.share.minike.top/Article/details/70043433.shtml)
+- 2026-06-29 19:24 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/51053186735.shtml)
+- 2026-06-29 19:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/659367822.shtml)
+- 2026-06-29 19:22 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/1010164.shtml)
+- 2026-06-29 19:23 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/71806.shtml)
+- 2026-06-29 19:15 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/6795502.shtml)

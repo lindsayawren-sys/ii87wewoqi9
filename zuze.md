@@ -1,57 +1,59 @@
-# 开盘：美股周四高开 道指突破5万点
+# 宝马高级副总裁贝克尔：中国拥有独一无二的确定性
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-北京时间5月7日晚，美股周四高开，道指突破5万点关口。布伦特原油连续第三天下跌。交易员正在等待有关潜在美伊和平协议的最新进展，该协议可能重新开放通过霍尔木兹海峡的石油运输。 道指涨193.39点，涨幅为0.39%，报50103.98点；纳指涨40.55点，涨幅为0.16%，报25879.50点；标普500指数涨6.50点，涨幅为0.09%，报7371.62点。 布伦特原油交投于
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。宝马集团高级副总裁贝克尔出席并演讲。 贝克尔表示，中国通过“十五五”规划明确了长期的经济增长目标，为企业与投资者提供稳定预期。尤其是以创新与绿色为核心，大力发展新质生产力，聚焦生产力的提升、技
 
 ## 正文
 
-北京时间5月7日晚，美股周四高开，道指突破5万点关口。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-布伦特原油连续第三天下跌。
+宝马集团高级副总裁贝克尔出席并演讲。
 
-交易员正在等待有关潜在美伊和平协议的最新进展，该协议可能重新开放通过霍尔木兹海峡的石油运输。
+贝克尔表示，中国通过“十五五”规划明确了长期的经济增长目标，为企业与投资者提供稳定预期。
 
-道指涨193.39点，涨幅为0.39%，报50103.98点；纳指涨40.55点，涨幅为0.16%，报25879.50点；标普500指数涨6.50点，涨幅为0.09%，报7371.62点。
+尤其是以创新与绿色为核心，大力发展新质生产力，聚焦生产力的提升、技术的创新与长期可持续发展，而非短期的周期性波动。
 
-布伦特原油交投于每桶99美元附近，延续前两个交易日累计12%的跌势，原因是市场越来越相信中东协议已近在眼前。
+与此同时，中国持续推进高水平的对外开放，深化全球合作，维护开放、基于规则的营商环境。
 
-6月交割的WTI原油期货下跌2.5%，至每桶92.79美元。
+长期规划、政策稳定与聚焦创新相结合，能让中国在全球不确定性中拥有独一无二的确定性。
 
-布伦特原油本周累计下跌逾10%。
+他指出，宝马来说希望将自身业务碳排放降低一半，所以希望在长期主义和技术开放中保持灵活性与韧性。
 
-即便经历这轮下跌，布伦特原油价格仍比2月底冲突爆发时高出40%；与此同时。
+贝克尔认为，高质量的发展战略不仅为企业增长指明方向，也能创造长期价值带来的机遇，让整个行业以及产品变得更加可持续。
 
 ## 相关推荐
 
-- 2026-06-29 19:05 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 19:05 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 18:57 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 19:16 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 19:01 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 19:23 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 19:19 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 19:03 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 19:03 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 19:12 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 19:01 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 19:17 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 19:14 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 19:03 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 19:15 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 19:16 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 19:13 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 19:29 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 19:20 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 19:11 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 19:17 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 19:26 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 19:11 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 19:23 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:01 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/48413207.shtml)
-- 2026-06-29 19:13 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/59275.shtml)
-- 2026-06-29 19:00 - [大马同意延长马航370残骸搜寻工作](https://www.share.kurohicncr.top/Article/details/96878.shtml)
-- 2026-06-29 19:14 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/0452696.shtml)
-- 2026-06-29 19:05 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/661272581.shtml)
-- 2026-06-29 19:15 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.minike.top/Article/details/80674.shtml)
-- 2026-06-29 19:00 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/787393478664.shtml)
-- 2026-06-29 19:17 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/6121156259.shtml)
-- 2026-06-29 19:16 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/519319810.shtml)
-- 2026-06-29 18:57 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/040180097431.shtml)
-- 2026-06-29 18:58 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/68258563751.shtml)
-- 2026-06-29 18:57 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/03599.shtml)
-- 2026-06-29 19:12 - [葛军透露高考出题思路](https://www.share.kurohicncr.top/Article/details/97900475.shtml)
-- 2026-06-29 19:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/3581439.shtml)
-- 2026-06-29 18:58 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/24099789436.shtml)
+- 2026-06-29 19:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/294586775661.shtml)
+- 2026-06-29 19:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/2761288995.shtml)
+- 2026-06-29 19:00 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/71978454.shtml)
+- 2026-06-29 19:22 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/034447.shtml)
+- 2026-06-29 19:23 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/68556561386.shtml)
+- 2026-06-29 19:03 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/705133620.shtml)
+- 2026-06-29 19:00 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/87668.shtml)
+- 2026-06-29 19:07 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/281695667441.shtml)
+- 2026-06-29 19:20 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/73126.shtml)
+- 2026-06-29 19:14 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.minike.top/Article/details/4949370.shtml)
+- 2026-06-29 19:27 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/415384.shtml)
+- 2026-06-29 19:12 - [《贺子珍》](http://www.blog.minike.top/Article/details/9064167313.shtml)
+- 2026-06-29 19:05 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/8519707.shtml)
+- 2026-06-29 19:18 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/78733100557.shtml)
+- 2026-06-29 19:17 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/934055.shtml)

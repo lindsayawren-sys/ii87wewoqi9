@@ -1,61 +1,60 @@
-# 两家内地会计师事务所获准从事H股企业审计
+# 全球首台35kV高压直连调相机在东方电机研制成功
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-中新社北京5月8日电 (记者 赵建华)经财政部、中国证监会内地会计师事务所从事H股企业审计业务审核推荐委员会审核认可，并经香港监管机构确认，容诚会计师事务所(特殊普通合伙)、天职国际会计师事务所(特殊普通合伙)获准自2026年5月15日起，可以本所名义在香港资本市场为符合条件的H股公司出具审计报告。财政部、中国证监会有关部门负责人(下称负责人)8日表示，增补两家内地会计师事务所
+中新网成都4月10日电 (记者 安源)记者10日从东方电气集团东方电机有限公司(以下简称“东方电机”)获悉，由该公司自主研发的全球首台35kV高压直连调相机当日顺利通过整机型式试验，各项性能指标优异，标志着我国在高压无功补偿装备领域取得重大突破。 据介绍，东方电机联合中国电力科学研究院、清华大学、华中科技大学、西安交通大学、重庆大学、新疆电科院、南瑞集团有限公司、新疆绿发电力能
 
 ## 正文
 
-中新社北京5月8日电 (记者 赵建华)经财政部、中国证监会内地会计师事务所从事H股企业审计业务审核推荐委员会审核认可，并经香港监管机构确认，容诚会计师事务所(特殊普通合伙)、天职国际会计师事务所(特殊普通合伙)获准自2026年5月15日起，可以本所名义在香港资本市场为符合条件的H股公司出具审计报告。
+中新网成都4月10日电 (记者 安源)记者10日从东方电气集团东方电机有限公司(以下简称“东方电机”)获悉，由该公司自主研发的全球首台35kV高压直连调相机当日顺利通过整机型式试验，各项性能指标优异，标志着我国在高压无功补偿装备领域取得重大突破。
 
-财政部、中国证监会有关部门负责人(下称负责人)8日表示，增补两家内地会计师事务所从事H股企业审计业务，对于降低内地企业在港上市成本、推动两地资本市场互联互通、促进香港融入国家发展大局具有积极而深远的意义，有助于进一步深化内地与香港会计交流合作，推动两地会计行业共同发展。
+据介绍，东方电机联合中国电力科学研究院、清华大学、华中科技大学、西安交通大学、重庆大学、新疆电科院、南瑞集团有限公司、新疆绿发电力能源有限公司等单位，成功攻克高电压等级下的绝缘与冷却两大核心技术难题，将电机额定电压从行业现有的最高27kV提升至35kV，实现了与电网电压等级的直接匹配，取消了中间升压变压器及其附属系统，开辟出具有完全自主知识产权的高压直连技术新路。
 
-财政部、中国证监会将根据内地与香港有关监管要求，对获准从事H股企业审计业务的会计师事务所进行严格管理，确保持续符合要求，推动其高质量完成H股企业审计业务。
+与传统“调相机+变压器”方案相比，35kV高压直连调相机优势明显：单台可提供与现有2台同容量分布式调相机同等的短路容量，动态支撑能力提升130%以上；用户初始投资成本降低约35%，占地面积减少50%；提供相同短路容量时，综合运行耗电降低55%；设备数量精简，运维成本降低50%。
 
-2010年12月，财政部、中国证监会首次向香港监管机构推荐了12家可以本所名义从事H股企业审计业务的内地会计师事务所。
+随着风电、光伏装机规模快速增长，电网惯量下降、电压失稳风险上升。
 
-实施过程中，两家会计师事务所因不符合审核推荐基本要求而退出名单。
+调相机是保障新型电力系统稳定运行的关键装备。
 
-2025年11月19日，财政部、中国证监会联合印发通知，明确开展名单增补工作的具体原则、申报要求、申请材料、工作程序等事项。
+针对传统方案需通过升压变压器接入电网的局限，东方电机提出“高压直连”技术路径，实现投资效率与运行性能双提升。
 
-通知印发后，共有四家会计师事务所提出申请。
+研制过程中，团队历时四年，构建了完整的35kV空冷环氧云母绝缘与防晕技术体系，并通过冷却通道优化，解决了超厚绝缘下的散热难题。
 
-经严格审核、综合评议，财政部、中国证监会择优确定了向香港方面增补推荐的两家内地会计师事务所，即容诚会计师事务所和天职国际会计师事务所。
+据悉，全球首台35kV高压直连调相机的成功研制，验证了高压直连技术路线的可行性与优越性，为新能源场站提供了高性价比、高可靠性的系统支撑方案，对保障电网安全稳定运行、助力实现“双碳”目标具有重要意义。
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 19:15 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 19:16 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 19:19 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 19:22 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 18:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 19:06 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 19:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 19:05 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 19:06 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 19:05 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-29 19:10 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 19:11 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 19:16 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 18:57 - [TFING全员黑西装](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 19:10 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 19:21 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 19:22 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 19:13 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 19:18 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 19:05 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 19:27 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 19:19 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 19:20 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 19:23 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 19:06 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 19:15 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 19:16 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 19:02 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/527830119.shtml)
-- 2026-06-29 19:02 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/51474586689.shtml)
-- 2026-06-29 19:09 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/113079.shtml)
-- 2026-06-29 19:19 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/964734589384.shtml)
-- 2026-06-29 19:08 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/257130504820.shtml)
-- 2026-06-29 19:16 - [女生每天戴耳机18小时突发耳聋](https://www.share.kurohicncr.top/Article/details/331933399200.shtml)
-- 2026-06-29 19:21 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/5646883.shtml)
-- 2026-06-29 19:09 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/113324410.shtml)
-- 2026-06-29 19:13 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/04651.shtml)
-- 2026-06-29 19:20 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/31733.shtml)
-- 2026-06-29 18:57 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/95680.shtml)
-- 2026-06-29 18:54 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/088609.shtml)
-- 2026-06-29 19:02 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/7800828344.shtml)
-- 2026-06-29 19:14 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/950598127581.shtml)
-- 2026-06-29 19:04 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/575371.shtml)
+- 2026-06-29 19:13 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/6342501924.shtml)
+- 2026-06-29 19:12 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/043896.shtml)
+- 2026-06-29 19:09 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/3334720487.shtml)
+- 2026-06-29 19:01 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/2108722070.shtml)
+- 2026-06-29 19:11 - [7款高价创新药有望降价](https://www.blog.kurohicncr.top/Article/details/05657801.shtml)
+- 2026-06-29 19:23 - [当地回应林区违规放羊遭豹啃食](https://www.share.kurohicncr.top/Article/details/77754.shtml)
+- 2026-06-29 19:07 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/8448725502.shtml)
+- 2026-06-29 19:20 - [许建琼任湖南省检察院副检察长](https://www.blog.kurohicncr.top/Article/details/43936790647.shtml)
+- 2026-06-29 19:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/258548.shtml)
+- 2026-06-29 19:18 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/0411851925.shtml)
+- 2026-06-29 19:09 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/128820445143.shtml)
+- 2026-06-29 19:27 - [四川达州发生一起交通事故致2死](http://www.share.kurohicncr.top/Article/details/008561.shtml)
+- 2026-06-29 19:29 - [斗破苍穹](http://www.blog.minike.top/Article/details/6570351046.shtml)
+- 2026-06-29 19:18 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/1966496.shtml)
+- 2026-06-29 19:22 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/8308352.shtml)

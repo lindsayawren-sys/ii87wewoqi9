@@ -1,57 +1,50 @@
-# 汉堡王总裁称快餐行业是“零和博弈”，而汉堡王正在胜出
+# 银行营业网点校招“限高”？云南农信社回应：岗位要求
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-快餐汉堡赛道竞争愈发激烈，而汉堡王已率先拿下关键一局大胜。 餐饮品牌国际集团（QSR）本周公布，旗下美国汉堡王一季度同店销售额同比增长 5.8%。 伯恩斯坦分析师达尼洛・加尔朱洛表示，这一表现高出快餐行业整体增速 5 个百分点以上。 同时也碾压宿敌麦当劳 —— 麦当劳美国业务一季度同店销售额增幅仅为 3.9%。 汉堡王美加区总裁汤姆・柯蒂斯在雅虎财经《开盘前瞻》节目中表示： “
+4月10日金融一线消息，近日，云南省农村信用社发布了2026年校园招聘公告，其中，有银行对营业网点员工的招聘要求为全日制硕士研究生及以上学历，同时，男性身高185cm及以上、女性身高175cm及以上，还须持有国家二级及以上运动员证。 来源：云南省农村信用社2026年校园招聘岗位一览表 针对上述问题，金融一线拨打了该农信社披露的相关招聘电话，一名工作人员表示：“不同岗位招聘的人员
 
 ## 正文
 
-快餐汉堡赛道竞争愈发激烈，而汉堡王已率先拿下关键一局大胜。
+4月10日金融一线消息，近日，云南省农村信用社发布了2026年校园招聘公告，其中，有银行对营业网点员工的招聘要求为全日制硕士研究生及以上学历，同时，男性身高185cm及以上、女性身高175cm及以上，还须持有国家二级及以上运动员证。
 
-餐饮品牌国际集团（QSR）本周公布，旗下美国汉堡王一季度同店销售额同比增长 5.8%。
+来源：云南省农村信用社2026年校园招聘岗位一览表 针对上述问题，金融一线拨打了该农信社披露的相关招聘电话，一名工作人员表示：“不同岗位招聘的人员类型有所不同，我们本次招聘的岗位较多，每一个岗位的要求不同，得看您是否符合相关要求，比如，有的要求运动员证，肯定只针对运动员，因此，您只能报名符合相关要求的岗位。
 
-伯恩斯坦分析师达尼洛・加尔朱洛表示，这一表现高出快餐行业整体增速 5 个百分点以上。
+学历也是如此，有的要求本科，有的则要求研究生。
 
-同时也碾压宿敌麦当劳 —— 麦当劳美国业务一季度同店销售额增幅仅为 3.9%。
+” 值得一提的是，“银行网点招人要求男185cm女175cm”相关话题已登上微博热搜，引发广大网友热议。
 
-汉堡王美加区总裁汤姆・柯蒂斯在雅虎财经《开盘前瞻》节目中表示： “这就是一场零和博弈，整个赛道体量已经不再增长。
-
-但我们已经向自己证明：只要能提供更好的消费体验、更优质的核心产品，就完全可以实现逆势增长。
-
-” 汉堡大战背景始末 今年 3 月初，社交媒体再度掀起快餐汉堡隔空对战。
-
-麦当劳首席执行官克里斯・肯普钦斯基率先造势，为新品巨拱汉堡拍摄宣传视频并亲自试吃，视频迅速走红。
+责任编辑：潘翘楚
 
 ## 相关推荐
 
-- 2026-06-29 19:24 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 19:05 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 19:05 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 19:06 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 18:57 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 18:56 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 19:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 19:23 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 19:10 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 19:19 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 19:00 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 19:22 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 19:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 19:26 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 19:29 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 19:26 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 19:17 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 19:00 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 19:11 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 19:23 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 19:27 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:01 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/097525338612.shtml)
-- 2026-06-29 19:19 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/413520.shtml)
-- 2026-06-29 19:08 - [一生一世](https://www.share.minike.top/Article/details/659599683.shtml)
-- 2026-06-29 19:13 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.kurohicncr.top/Article/details/176804497.shtml)
-- 2026-06-29 19:10 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/69281302032.shtml)
-- 2026-06-29 19:01 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/380728426643.shtml)
-- 2026-06-29 19:17 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/06608.shtml)
-- 2026-06-29 19:05 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/402648607.shtml)
-- 2026-06-29 19:17 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/4554203141.shtml)
-- 2026-06-29 19:21 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/401978.shtml)
-- 2026-06-29 19:18 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/236329462.shtml)
-- 2026-06-29 18:57 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/318176107.shtml)
-- 2026-06-29 19:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/6540515980.shtml)
-- 2026-06-29 19:19 - [一生一世](https://www.blog.kurohicncr.top/Article/details/494670.shtml)
-- 2026-06-29 19:11 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/91296.shtml)
+- 2026-06-29 19:12 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/047746617303.shtml)
+- 2026-06-29 19:24 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/89087.shtml)
+- 2026-06-29 19:26 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/218621.shtml)
+- 2026-06-29 19:29 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/641269.shtml)
+- 2026-06-29 19:23 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/945727460066.shtml)
+- 2026-06-29 19:13 - [赵今麦时隔五年再演李诗情](https://www.share.minike.top/Article/details/68148001148.shtml)
+- 2026-06-29 19:18 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/87260.shtml)
+- 2026-06-29 19:16 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/39605.shtml)
+- 2026-06-29 19:10 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/812779.shtml)
+- 2026-06-29 19:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/715670.shtml)
+- 2026-06-29 19:23 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/499407547107.shtml)
+- 2026-06-29 19:27 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/416855142074.shtml)
+- 2026-06-29 19:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/3903362248.shtml)
+- 2026-06-29 19:02 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/1195382.shtml)
+- 2026-06-29 19:17 - [《贺子珍》](http://www.blog.minike.top/Article/details/392666374.shtml)

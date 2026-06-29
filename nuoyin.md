@@ -1,58 +1,56 @@
-# 在华庆祝“欧洲日” 欧盟强调持续对话与合作
+# 从乒乓球到腰旗橄榄球：中美青少年一场接续55年的情谊
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 10:37 来源：中国新闻网 欧盟驻华代表团5月8日在欧盟驻华使馆举办2026年“欧洲日”庆祝活动。 中欧逾千名各界人士齐聚交流。欧盟27个成员国“摆摊儿”展示欧洲多元文化和共同价值理念。现场音乐表演和“承古启今”欧洲遗产摄影展也为庆祝活动增添互动体验。 欧盟驻华代表团团长庹尧诲(Jorge Toledo)发表致辞时强调，在不断演变的全球格局中
+发布时间：2026年04月10日 11:32 来源：中国新闻网 4月9日，美国华盛顿州塔科马市林肯中学腰旗橄榄球队到访北京首都体育学院，与该校的腰旗橄榄球社团进行了一场别开生面的友谊赛。2026年是中美“乒乓外交”55周年。应中国人民对外友好协会邀请，来自美国各地的150余位青少年运动员及各界代表将共同出席10日在北京举行的纪念大会，并见证2026中美青少年体育交流系列活动正式
 
 ## 正文
 
-发布时间：2026年05月09日 10:37 来源：中国新闻网 欧盟驻华代表团5月8日在欧盟驻华使馆举办2026年“欧洲日”庆祝活动。
+发布时间：2026年04月10日 11:32 来源：中国新闻网 4月9日，美国华盛顿州塔科马市林肯中学腰旗橄榄球队到访北京首都体育学院，与该校的腰旗橄榄球社团进行了一场别开生面的友谊赛。
 
-中欧逾千名各界人士齐聚交流。
+2026年是中美“乒乓外交”55周年。
 
-欧盟27个成员国“摆摊儿”展示欧洲多元文化和共同价值理念。
+应中国人民对外友好协会邀请，来自美国各地的150余位青少年运动员及各界代表将共同出席10日在北京举行的纪念大会，并见证2026中美青少年体育交流系列活动正式启动。
 
-现场音乐表演和“承古启今”欧洲遗产摄影展也为庆祝活动增添互动体验。
+此次橄榄球友谊赛为系列活动之一。
 
-欧盟驻华代表团团长庹尧诲(Jorge Toledo)发表致辞时强调，在不断演变的全球格局中，欧中持续对话与深化合作具有重要意义。
+林肯中学腰旗橄榄球队教练沙尔斯表示，美中关系的未来在青年。
 
-“庆祝‘欧洲日’提醒人们，和平、繁荣和团结不是必然，而是通过努力、合作和共同目标一步一个脚印地实现的”，他指出，“在当今复杂而充满不确定性的世界里，这比以往任何时候都更重要。
+希望美国学生能借助此类活动开阔眼界，和中国青年产生更紧密的联系。
 
-” 他表示，欧盟始终愿与中国接触，以明确的、相互尊重的方式解决分歧并深化合作。
-
-在相互依存共同塑造的世界中，欧中未来始终紧密相连。
+(记者 郎佳慧 国璇 北京报道) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 19:20 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 19:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 19:22 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 19:07 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 19:09 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 19:09 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 19:17 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 19:21 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 19:16 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 18:55 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 19:23 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 19:07 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 19:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 19:13 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 19:23 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 19:13 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 19:20 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 19:03 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 19:10 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 19:29 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 19:06 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 19:13 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 19:04 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 19:00 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:17 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/307544960551.shtml)
-- 2026-06-29 19:00 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/29025979.shtml)
-- 2026-06-29 19:22 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/467940919.shtml)
-- 2026-06-29 18:55 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/49167924.shtml)
-- 2026-06-29 19:15 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/558287009531.shtml)
-- 2026-06-29 19:02 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.minike.top/Article/details/6065804668.shtml)
-- 2026-06-29 19:11 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/720154656.shtml)
-- 2026-06-29 19:13 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/425823.shtml)
-- 2026-06-29 18:57 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/6033627.shtml)
-- 2026-06-29 19:11 - [爱很美味](http://www.blog.minike.top/Article/details/827577100.shtml)
-- 2026-06-29 19:07 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/224069.shtml)
-- 2026-06-29 19:15 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/202803.shtml)
-- 2026-06-29 19:00 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/6326430.shtml)
-- 2026-06-29 19:12 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.minike.top/Article/details/07189153112.shtml)
-- 2026-06-29 19:03 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/43167.shtml)
+- 2026-06-29 19:13 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/7937295.shtml)
+- 2026-06-29 19:26 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/4572669260.shtml)
+- 2026-06-29 19:14 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/459532.shtml)
+- 2026-06-29 19:13 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/7367144.shtml)
+- 2026-06-29 19:16 - [扩军害了世界杯吗](http://www.share.minike.top/Article/details/142338.shtml)
+- 2026-06-29 19:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/2304067.shtml)
+- 2026-06-29 19:02 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/34783255334.shtml)
+- 2026-06-29 19:24 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/079168.shtml)
+- 2026-06-29 19:26 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/25734772096.shtml)
+- 2026-06-29 19:01 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/212369.shtml)
+- 2026-06-29 19:04 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/1245267.shtml)
+- 2026-06-29 19:27 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/8723381.shtml)
+- 2026-06-29 19:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/47293724.shtml)
+- 2026-06-29 19:02 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/882934156525.shtml)
+- 2026-06-29 19:20 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/90954004.shtml)

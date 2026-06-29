@@ -1,59 +1,56 @@
-# 火力全开！港股“硬”科技何以持续跑赢？规模最大港股通信息技术ETF华宝（159131）劲升4.25%溢价飙涨
+# 美国第一夫人猛烈抨击关于她与爱泼斯坦的指控
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-5月7日，港股硬科技继续狂飙，有“恒生科技加强版”之称的中证港股通信息技术指数大涨3.95%强势跑赢恒生科技（3.06%）、港股通科技（2.79%）等港股科技类指数。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）继昨日大涨5%后，今日续涨4.25%强势连阳，成交额7.22亿元创上市以来次高，资金申购1000万份。 板块内超九成成份股飘红，滴普科技狂飙逾63
+美国第一夫人梅拉尼娅·特朗普周四猛烈抨击了一系列她所称的关于她与臭名昭著的性犯罪者杰弗里·爱泼斯坦的虚假指控。 梅拉尼娅·特朗普在白宫对记者发表声明称：“我不是爱泼斯坦的受害者。爱泼斯坦并没有把唐纳德·特朗普介绍给我。”她在声明结束后没有接受提问。 “我从未知晓爱泼斯坦对其受害者的虐待行为，”她在谈到这位已故的、曾是特朗普总统朋友的性犯罪者时说。“我从未以任何身份参与其中。我不
 
 ## 正文
 
-5月7日，港股硬科技继续狂飙，有“恒生科技加强版”之称的中证港股通信息技术指数大涨3.95%强势跑赢恒生科技（3.06%）、港股通科技（2.79%）等港股科技类指数。
+美国第一夫人梅拉尼娅·特朗普周四猛烈抨击了一系列她所称的关于她与臭名昭著的性犯罪者杰弗里·爱泼斯坦的虚假指控。
 
-同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）继昨日大涨5%后，今日续涨4.25%强势连阳，成交额7.22亿元创上市以来次高，资金申购1000万份。
+梅拉尼娅·特朗普在白宫对记者发表声明称：“我不是爱泼斯坦的受害者。
 
-板块内超九成成份股飘红，滴普科技狂飙逾63%，建滔积层板、澜起科技等5股涨超10%。
+爱泼斯坦并没有把唐纳德·特朗普介绍给我。
 
-鸿腾精密、纳芯微等涨超9%，华虹半导体涨超8%。
+”她在声明结束后没有接受提问。
 
-消息面上，海外存储芯片巨头接连大涨提振情绪。
+“我从未知晓爱泼斯坦对其受害者的虐待行为，”她在谈到这位已故的、曾是特朗普总统朋友的性犯罪者时说。
 
-爱建证券分析指出，全球存储芯片受益于AI算力需求爆发，行业进入高景气周期。
+“我从未以任何身份参与其中。
 
-三星电子2026Q1半导体营业利润同比大增4782%，DRAM与NAND Flash价格环比涨幅超55%，HBM业务收入同比增长超三倍，HBM4E产品带宽达4.0TB/s，计划2027年占据全球50%以上份额。
+我不是参与者。
 
-谷歌、微软、Meta等科技巨头持续加码AI基础设施资本开支，推动高端存储需求刚性增长。
+” 梅拉尼娅·特朗普说：“将我与被世人唾弃的杰弗里·爱泼斯坦联系起来的谎言今天必须结束。
 
 ## 相关推荐
 
-- 2026-06-29 18:58 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 19:04 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 18:57 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 19:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 19:12 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 19:15 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 19:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 19:03 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 19:16 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 19:07 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 19:21 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 19:00 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 19:02 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 19:25 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 19:00 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 19:09 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 19:08 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 19:21 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 19:23 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 19:19 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 19:04 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 19:07 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 19:12 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:03 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/2491579058.shtml)
-- 2026-06-29 18:58 - [看大国重器“云端穿针引线”](https://www.blog.minike.top/Article/details/9185784.shtml)
-- 2026-06-29 19:18 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/86444.shtml)
-- 2026-06-29 18:57 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/0453822.shtml)
-- 2026-06-29 18:55 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/28875413.shtml)
-- 2026-06-29 19:23 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/9148676.shtml)
-- 2026-06-29 19:13 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/7186715896.shtml)
-- 2026-06-29 19:20 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/54497031793.shtml)
-- 2026-06-29 19:04 - [流金岁月](https://www.blog.minike.top/Article/details/542246.shtml)
-- 2026-06-29 19:23 - [女生每天戴耳机18小时突发耳聋](http://www.blog.minike.top/Article/details/65551241800.shtml)
-- 2026-06-29 19:21 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/69850039.shtml)
-- 2026-06-29 19:22 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/1322965995.shtml)
-- 2026-06-29 18:55 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/12329.shtml)
-- 2026-06-29 19:15 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/14333128.shtml)
-- 2026-06-29 19:22 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/175985.shtml)
+- 2026-06-29 19:06 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/317740204.shtml)
+- 2026-06-29 19:19 - [伊朗足球队将启程回国](https://www.blog.minike.top/Article/details/52672.shtml)
+- 2026-06-29 19:07 - [互助版模拟高考志愿填报](http://www.blog.kurohicncr.top/Article/details/83810.shtml)
+- 2026-06-29 19:21 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/10796464.shtml)
+- 2026-06-29 19:12 - [大学专业未来如何洗牌](http://www.share.minike.top/Article/details/63016567.shtml)
+- 2026-06-29 19:28 - [看大国重器“云端穿针引线”](http://www.share.kurohicncr.top/Article/details/4827102.shtml)
+- 2026-06-29 19:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/628043.shtml)
+- 2026-06-29 19:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/5731754978.shtml)
+- 2026-06-29 19:27 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.minike.top/Article/details/45159.shtml)
+- 2026-06-29 19:20 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/21303868451.shtml)
+- 2026-06-29 19:15 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/861260532.shtml)
+- 2026-06-29 19:05 - [我们的少年时代2](http://www.share.minike.top/Article/details/74661.shtml)
+- 2026-06-29 19:05 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/857325611226.shtml)
+- 2026-06-29 19:14 - [NBA交易](https://www.share.minike.top/Article/details/003918585.shtml)
+- 2026-06-29 19:29 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/840822398.shtml)

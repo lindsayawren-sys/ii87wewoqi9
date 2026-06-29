@@ -1,60 +1,60 @@
-# 境外茶商安徽觅合作
+# 中国官方发文提及加强儿童青少年等重点人群心理健康工作
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-中新网合肥5月9日电 (江婉琪)“徽茶在海外很受欢迎，我们希望在这里找到更多合作机会。”来自斯里兰卡的茶商崔月8日在接受采访时说。 第十八届安徽国际茶产业博览会(下称“安徽茶博会”)在此间开幕。来自法国、尼泊尔、越南等国家和地区的15家境外茶企参展。 来自台湾的茶商张小惠已连续4年参加安徽茶博会。“徽茶很有特点，每年来都会与安徽朋友互赠茶样，两岸茶商可以携手合作，共同传承茶文化
+中新社北京4月9日电 中国国家卫生健康委员会网站9日公布中国二十余个部门联合印发的《健全社会心理服务体系和危机干预机制实施方案》。实施方案提到，加强儿童青少年、职业人群、特定群体等重点人群的心理健康工作，提升服务水平。实施方案提出，到2030年，覆盖全人群、全生命周期的社会心理服务体系和危机干预机制基本健全。对此，实施方案部署了5个方面共18项主要任务。 其中，在强化重点人群心
 
 ## 正文
 
-中新网合肥5月9日电 (江婉琪)“徽茶在海外很受欢迎，我们希望在这里找到更多合作机会。
+中新社北京4月9日电 中国国家卫生健康委员会网站9日公布中国二十余个部门联合印发的《健全社会心理服务体系和危机干预机制实施方案》。
 
-”来自斯里兰卡的茶商崔月8日在接受采访时说。
+实施方案提到，加强儿童青少年、职业人群、特定群体等重点人群的心理健康工作，提升服务水平。
 
-第十八届安徽国际茶产业博览会(下称“安徽茶博会”)在此间开幕。
+实施方案提出，到2030年，覆盖全人群、全生命周期的社会心理服务体系和危机干预机制基本健全。
 
-来自法国、尼泊尔、越南等国家和地区的15家境外茶企参展。
+对此，实施方案部署了5个方面共18项主要任务。
 
-来自台湾的茶商张小惠已连续4年参加安徽茶博会。
+其中，在强化重点人群心理服务方面，实施方案要求，全面加强儿童青少年心理服务。
 
-“徽茶很有特点，每年来都会与安徽朋友互赠茶样，两岸茶商可以携手合作，共同传承茶文化。
+密切家校协同，树立正确教育观、掌握合理教育方法，正确看待考试成绩，培养学生积极乐观、健康向上的心理品质。
 
-”她说。
+加强医教协作，建立大中小学与医疗卫生机构的协作机制，构建“班主任或辅导员、专(兼)职心理健康教育教师、精神科医师”三级心理健康服务体系，开展接力式服务。
 
-祁门红茶是世界三大高香红茶之一，也是中国十大名茶中唯一的红茶。
+实施方案要求，普遍开展职业人群心理服务。
 
 ## 相关推荐
 
-- 2026-06-29 19:00 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 19:16 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 19:13 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 19:11 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 19:10 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 19:13 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 19:10 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 19:11 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 19:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 19:03 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 18:55 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 19:13 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 19:15 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 19:22 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 19:18 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 19:28 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 19:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 19:27 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 19:23 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 19:00 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 19:28 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 19:10 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 19:22 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 19:26 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 19:17 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 19:09 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 19:22 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 19:20 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/550208.shtml)
-- 2026-06-29 18:59 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/38385229386.shtml)
-- 2026-06-29 19:21 - [美人鱼](http://www.blog.minike.top/Article/details/484608192.shtml)
-- 2026-06-29 19:20 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/42535736.shtml)
-- 2026-06-29 19:05 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/31580.shtml)
-- 2026-06-29 19:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/840912710.shtml)
-- 2026-06-29 19:06 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/2361033197.shtml)
-- 2026-06-29 19:03 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/167227.shtml)
-- 2026-06-29 19:10 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/49845516247.shtml)
-- 2026-06-29 19:17 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.kurohicncr.top/Article/details/7272465.shtml)
-- 2026-06-29 19:23 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/643618.shtml)
-- 2026-06-29 19:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/131297.shtml)
-- 2026-06-29 19:01 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/959443.shtml)
-- 2026-06-29 19:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/3548859229.shtml)
-- 2026-06-29 18:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/490154622553.shtml)
+- 2026-06-29 19:04 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/8600363356.shtml)
+- 2026-06-29 19:24 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/049734.shtml)
+- 2026-06-29 19:25 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/98321196.shtml)
+- 2026-06-29 19:13 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/60424939175.shtml)
+- 2026-06-29 19:00 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/54420809.shtml)
+- 2026-06-29 19:08 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/794660921.shtml)
+- 2026-06-29 19:21 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/12072873565.shtml)
+- 2026-06-29 19:00 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/837741.shtml)
+- 2026-06-29 19:07 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/84556633.shtml)
+- 2026-06-29 19:14 - [医药生物行业今日涨5.91%](https://www.blog.minike.top/Article/details/438622375.shtml)
+- 2026-06-29 19:03 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/03442118.shtml)
+- 2026-06-29 19:09 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/2896231.shtml)
+- 2026-06-29 19:11 - [男子40度高温下骑行严重晒伤](https://www.blog.minike.top/Article/details/68465977975.shtml)
+- 2026-06-29 19:23 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/035221829.shtml)
+- 2026-06-29 19:15 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/529676.shtml)

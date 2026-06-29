@@ -1,56 +1,57 @@
-# Bose SoundLink Plus蓝牙扬声器落日暖桃配色 震撼声场续航持久
+# 中国国家卫健委：警惕私域营销侵害老年人健康权益
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-Bose SoundLink Plus 蓝牙扬声器全新限定色‘落日暖桃’登场。柔和珊瑚橘调，像把暮春暖光握在掌心，温柔又有活力，一眼点亮春日氛围感。 落日暖桃自带治愈气质，露营、野餐、露台小聚、城市漫步、泳池派对皆适配。温柔色调自然融入春日穿搭与户外风景，颜值与实力双在线。 Bose SoundLink Plus 搭载1个低音单元+1个高音单元+4个被动振膜的专业声学配置，在便
+中新社北京4月9日电 (记者 李纯)中国国家卫生健康委员会9日举行新闻发布会，新闻发言人胡强强提示，警惕私域直播、社群营销专门针对老年人进行保健产品等推销，侵害老年人的健康权益和财产安全。 胡强强说，近期一些私域直播、社群营销打着“健康讲座”“专家直播”等旗号，专门针对老年人进行保健产品等推销。有的由“演员”假扮成“医学专家”按稿宣讲，有的夸大、篡改保健产品的功效从而高价销售，
 
 ## 正文
 
-Bose SoundLink Plus 蓝牙扬声器全新限定色‘落日暖桃’登场。
+中新社北京4月9日电 (记者 李纯)中国国家卫生健康委员会9日举行新闻发布会，新闻发言人胡强强提示，警惕私域直播、社群营销专门针对老年人进行保健产品等推销，侵害老年人的健康权益和财产安全。
 
-柔和珊瑚橘调，像把暮春暖光握在掌心，温柔又有活力，一眼点亮春日氛围感。
+胡强强说，近期一些私域直播、社群营销打着“健康讲座”“专家直播”等旗号，专门针对老年人进行保健产品等推销。
 
-落日暖桃自带治愈气质，露营、野餐、露台小聚、城市漫步、泳池派对皆适配。
+有的由“演员”假扮成“医学专家”按稿宣讲，有的夸大、篡改保健产品的功效从而高价销售，还有的通过送礼品、听课领福利等方式引流，再以“健康焦虑”“情感陪伴”等话术层层诱导消费者，侵害老年人的健康权益和财产安全。
 
-温柔色调自然融入春日穿搭与户外风景，颜值与实力双在线。
+胡强强表示，国家卫健委提示，凡是打着“专家讲座”“白大褂推荐”等旗号销售相关产品的，都要提高警惕，更不要因所谓专家的“头衔包装”和虚假的“案例见证”而盲目下单。
 
-Bose SoundLink Plus 搭载1个低音单元+1个高音单元+4个被动振膜的专业声学配置，在便携机身内构建完整声场。
+所谓“专家”标榜的“头衔”越多越大，往往欺诈可能性越高。
 
-高音清亮通透、中音饱满细腻、低音扎实下沉，三频均衡耐听，人声、器乐、电子乐都能真实还原，小体积也能带来沉浸听感。
+国家卫健委提示，警惕“送礼品、领红包、听课领福利”等引流手段。
 
-Bose专业声学调校，低音澎湃有力、下潜深度到位、节奏弹性十足。
+此类私域营销往往先以小恩小惠的形式获取信任，再通过反复宣讲、情感拉近、焦虑渲染等方式推销。
 
-听流行有律动感，听摇滚有爆发力，轻音量也能感受扎实低音，轻松撑起派对与独处的听觉氛围。
+家属要多关注老年人的入群、听课、下单等情况。
 
 ## 相关推荐
 
-- 2026-06-29 19:06 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 19:09 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 19:14 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 18:57 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 19:12 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 19:19 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 18:54 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 19:13 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 19:02 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-29 19:07 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 19:03 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 19:00 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 19:16 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 19:14 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 19:14 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 19:27 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 19:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 19:01 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 19:07 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 19:22 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 19:19 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/8827849.shtml)
-- 2026-06-29 19:17 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/3663398649.shtml)
-- 2026-06-29 19:15 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/948045001948.shtml)
-- 2026-06-29 19:07 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/542163.shtml)
-- 2026-06-29 18:58 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/72150.shtml)
-- 2026-06-29 19:00 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.minike.top/Article/details/246387.shtml)
-- 2026-06-29 19:09 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.minike.top/Article/details/900920111002.shtml)
-- 2026-06-29 19:05 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/322610.shtml)
-- 2026-06-29 19:22 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/53710651.shtml)
-- 2026-06-29 19:11 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/10282.shtml)
-- 2026-06-29 19:15 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/984681.shtml)
-- 2026-06-29 18:54 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.kurohicncr.top/Article/details/07638222242.shtml)
-- 2026-06-29 19:10 - [官方通报一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/608010687.shtml)
-- 2026-06-29 19:04 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/252298321238.shtml)
-- 2026-06-29 19:03 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/399082.shtml)
+- 2026-06-29 19:29 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/6293220.shtml)
+- 2026-06-29 19:12 - [韩国小学生都来吐槽了](https://www.blog.minike.top/Article/details/782208774464.shtml)
+- 2026-06-29 19:22 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/46904969971.shtml)
+- 2026-06-29 19:11 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/9769656784.shtml)
+- 2026-06-29 19:05 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/98056.shtml)
+- 2026-06-29 19:01 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/8800019.shtml)
+- 2026-06-29 19:10 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/97139028.shtml)
+- 2026-06-29 19:02 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/738012.shtml)
+- 2026-06-29 19:07 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/68702.shtml)
+- 2026-06-29 19:18 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/73199033077.shtml)
+- 2026-06-29 19:12 - [男子40度高温下骑行严重晒伤](http://www.share.minike.top/Article/details/761360696618.shtml)
+- 2026-06-29 19:12 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.kurohicncr.top/Article/details/728746.shtml)
+- 2026-06-29 19:20 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/948742184.shtml)
+- 2026-06-29 19:05 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/99119297445.shtml)
+- 2026-06-29 19:01 - [我们的少年时代2](https://www.blog.minike.top/Article/details/5796997.shtml)

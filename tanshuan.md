@@ -1,61 +1,59 @@
-# 拖欠片酬90%、剧未拍完就上线！爱奇艺回应下架网剧
+# 海南高温“分区域”：午热早晚凉 三亚最舒爽
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月8日电(记者 王诗尧)7日，演员李欣泽、杜雨宸分别在其社交账号上发布律师函，二人作为网剧《平乐赋》的男、女主角，要求爱奇艺立即停止上线该剧，防止损失扩大。 律师函声称，网剧《平乐赋》于2024年5月15日正式开机拍摄，拍摄进程近半时，因制片方北京首润影视传媒有限公司(下称“首润公司”)原因致使该剧停拍至今。且至该函出具之日，首润公司仍未向其委托人李欣泽与杜雨宸支付
+中新网海口4月10日电(刘爽 张明洁)近日，海南遭遇阶段性持续高温天气。4月5日至9日，全省14个市县出现1至5天的35℃以上连续高温过程。不过，海南省气象部门10日表示，由于受海岛特有的海陆风昼夜调节作用影响，全岛呈现出“早晚凉爽、午后酷热”的鲜明气候特征。日常判断体感是否舒适，并非只看气温高低，而是参考人体舒适度指数，即综合温度、湿度、风力等因素来判断实际体感。海南省气候中
 
 ## 正文
 
-中新网北京5月8日电(记者 王诗尧)7日，演员李欣泽、杜雨宸分别在其社交账号上发布律师函，二人作为网剧《平乐赋》的男、女主角，要求爱奇艺立即停止上线该剧，防止损失扩大。
+中新网海口4月10日电(刘爽 张明洁)近日，海南遭遇阶段性持续高温天气。
 
-律师函声称，网剧《平乐赋》于2024年5月15日正式开机拍摄，拍摄进程近半时，因制片方北京首润影视传媒有限公司(下称“首润公司”)原因致使该剧停拍至今。
+4月5日至9日，全省14个市县出现1至5天的35℃以上连续高温过程。
 
-且至该函出具之日，首润公司仍未向其委托人李欣泽与杜雨宸支付演出服务费达90%。
+不过，海南省气象部门10日表示，由于受海岛特有的海陆风昼夜调节作用影响，全岛呈现出“早晚凉爽、午后酷热”的鲜明气候特征。
 
-该函强调，在其委托人未获得完整服务费且该剧未完成全部录制的情况下，首润公司转让并允许爱奇艺上架含有委托人表演的内容，侵犯了其委托人多项权利。
+日常判断体感是否舒适，并非只看气温高低，而是参考人体舒适度指数，即综合温度、湿度、风力等因素来判断实际体感。
 
-爱奇艺若在明知首润公司与其委托人之间存在合同纠纷和该剧未完成的情况下仍上架该剧，将与首润公司构成共同侵权。
+海南省气候中心表示，此次高温过程，海南全岛的人体舒适度指数区域分化十分明显。
 
-律师函要求，北京爱奇艺科技有限公司在收到该函之日起3日内立即下架、删除影视剧《平乐赋》的相关内容(包括但不限于海报、宣传片、宣传文案及预约渠道等)。
+根据海南省气候中心提供的人体舒适度指数监测数据，各区域体感体验呈现明显分化，南部三亚早晨(08时)平均气温23.8℃、晚上(20时)平均气温23.6℃，属于“最为舒适”等级，是全岛体感最佳区域；北部海口早晨(08时)平均气温26.9℃，属于“偏热，大部分人舒适”等级，晚上(20时)气温30.5℃，属于“闷热，少部分人不舒适”等级；东部沿海(琼海、文昌、万宁)早晚属于“偏热、多数人舒适”，体感温和；中部山区早晨属于“偏热，大部分人舒适”等级，晚间属于“闷热，少部分人不舒适”等级；西北部(临高、澄迈、儋州)早晚处于“闷热”以上等级，为全岛体感比较差的高温区域。
 
-律师函发出后，许多网友也在评论区留言支持演员维权，表示“工作不易，必须合法！
+气象部门专业人士指出，海南本轮高温过程并非全天闷热难耐，得益于海岛独有的海陆风昼夜循环这一“天然降温系统”：白天陆地升温快，海风从海洋吹向陆地，带走热量、降低体感温度；夜晚陆地降温快，陆风从陆地吹向海洋，持续散热降温。
 
-”；也有人称，“工资没付，剧也没授权就上线，多少有点不地道。
+这一自然调节机制让全岛早晚体感舒适，与午后酷热形成强烈反差，有效缩短了高温不适的持续时间。
 
 ## 相关推荐
 
-- 2026-06-29 19:07 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 19:15 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 18:57 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 19:04 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 19:15 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 19:19 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 18:54 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 18:54 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 19:12 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 19:17 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 19:09 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 19:18 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 19:21 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 19:23 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 18:54 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 19:27 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 19:18 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 19:04 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 19:15 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 19:29 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 19:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 19:10 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 19:11 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 19:10 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 19:28 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 19:02 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 19:00 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 19:18 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:56 - [沙丘](https://www.share.kurohicncr.top/Article/details/665228.shtml)
-- 2026-06-29 19:07 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/37962391758.shtml)
-- 2026-06-29 19:17 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/19374.shtml)
-- 2026-06-29 19:04 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/104064760118.shtml)
-- 2026-06-29 19:21 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.kurohicncr.top/Article/details/4611877493.shtml)
-- 2026-06-29 19:00 - [医药生物行业今日涨5.91%](http://www.blog.minike.top/Article/details/81038985.shtml)
-- 2026-06-29 19:10 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/39050343731.shtml)
-- 2026-06-29 19:00 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/61316478.shtml)
-- 2026-06-29 19:24 - [欧洲极端高温如何影响家电股](http://www.blog.minike.top/Article/details/771546666.shtml)
-- 2026-06-29 19:09 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/54747.shtml)
-- 2026-06-29 19:02 - [专家预计全球央行加息节奏将出现反复](http://www.blog.kurohicncr.top/Article/details/760321257.shtml)
-- 2026-06-29 19:15 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/935335113432.shtml)
-- 2026-06-29 19:21 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/71937556.shtml)
-- 2026-06-29 19:14 - [两老人多次到一洗车店泼粪](https://www.blog.minike.top/Article/details/65734554.shtml)
-- 2026-06-29 19:13 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/67591988.shtml)
+- 2026-06-29 19:26 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/647914885.shtml)
+- 2026-06-29 19:24 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.minike.top/Article/details/72459.shtml)
+- 2026-06-29 19:29 - [歼-15型舰载机为何被歼-15T替代](http://www.blog.minike.top/Article/details/329941.shtml)
+- 2026-06-29 19:12 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/018774616848.shtml)
+- 2026-06-29 19:28 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/11399745.shtml)
+- 2026-06-29 19:12 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/91723274656.shtml)
+- 2026-06-29 19:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/6190660382.shtml)
+- 2026-06-29 19:21 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/924040.shtml)
+- 2026-06-29 19:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/70964.shtml)
+- 2026-06-29 19:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/217690541825.shtml)
+- 2026-06-29 19:26 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/316983.shtml)
+- 2026-06-29 19:23 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/320147951999.shtml)
+- 2026-06-29 19:20 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/364318629041.shtml)
+- 2026-06-29 19:05 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/259172635.shtml)
+- 2026-06-29 19:14 - [Ella回应SHE何时合体](http://www.share.kurohicncr.top/Article/details/46889981.shtml)

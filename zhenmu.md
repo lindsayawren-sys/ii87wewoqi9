@@ -1,58 +1,59 @@
-# nLIGHT一季度业绩超预期，国防需求强劲推动股价大涨22%
+# 两次流标后继续漂在新加坡附近 一艘被扣押油轮现因伊朗战争身价陡增
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-激光技术公司nLIGHT股价大涨22%，此前该公司公布的一季度财报显示营收和利润双双超出市场预期，主要得益于国防领域对高能激光器的强劲需求。 财报亮点 财报显示，nLIGHT一季度营收为6，200万美元，同比增长18%，高于分析师预期的5，800万美元。调整后每股亏损为0.05美元，优于市场预期的亏损0.12美元，且较去年同期的亏损0.10美元有所收窄。毛利率为28.5%，高于
+在霍尔木兹海峡仍基本上被阻断，全球各国都难以获取足够石油之际，有大约120万桶石油就在新加坡附近海上闲置着。 印尼于2023年扣押、悬挂伊朗国旗的超级油轮Arman 114号停在巴淡岛附近，距离新加坡约15海里。 船上装载的轻质原油远远不足以满足东南亚最大经济体的能源需求，但是毕竟在脆弱的停火协议达成后，油价仍徘徊在每桶100美元左右，使得Arman 114号上的货物比短短几周
 
 ## 正文
 
-激光技术公司nLIGHT股价大涨22%，此前该公司公布的一季度财报显示营收和利润双双超出市场预期，主要得益于国防领域对高能激光器的强劲需求。
+在霍尔木兹海峡仍基本上被阻断，全球各国都难以获取足够石油之际，有大约120万桶石油就在新加坡附近海上闲置着。
 
-财报亮点 财报显示，nLIGHT一季度营收为6，200万美元，同比增长18%，高于分析师预期的5，800万美元。
+印尼于2023年扣押、悬挂伊朗国旗的超级油轮Arman 114号停在巴淡岛附近，距离新加坡约15海里。
 
-调整后每股亏损为0.05美元，优于市场预期的亏损0.12美元，且较去年同期的亏损0.10美元有所收窄。
+船上装载的轻质原油远远不足以满足东南亚最大经济体的能源需求，但是毕竟在脆弱的停火协议达成后，油价仍徘徊在每桶100美元左右，使得Arman 114号上的货物比短短几周前变得值钱多了。
 
-毛利率为28.5%，高于去年同期的25.0%，主要受益于产品结构优化和生产效率提升。
+近三年前，印尼当局发现这艘油轮在该国水域非法向另一艘油轮转移原油，并予以扣押。
 
-国防业务成增长引擎 国防业务营收同比增长45%至2，800万美元，占总营收的45%。
+2024年7月，印尼一家法院以犯有环境相关罪行为由，判处Arman 114号油轮船长七年监禁，并下令没收该油轮及船上货物。
 
-公司表示，多个高能激光定向能武器项目进入生产阶段，包括美国陆军IFPC-HEL项目和海军ODIN项目。
+但船长在最终判决下达前失踪，至今仍未被抓获。
 
-国防订单积压增至创纪录的1.1亿美元，较上季度增长20%。
+在对该船连同货物的两次拍卖尝试均告失败后，这艘超级油轮依旧停泊在巴淡岛。
 
-管理层在电话会议上指出，随着中东冲突持续，军方对反无人机和反火箭弹激光系统的采购优先级显著提高。
+这是一个度假岛屿兼工业区，从新加坡乘渡轮过去大约需要一个小时。
 
 ## 相关推荐
 
-- 2026-06-29 19:12 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 19:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 19:04 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 19:03 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 19:17 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 19:06 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 19:20 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 19:11 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 19:09 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 19:20 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 19:04 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 19:20 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 19:29 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 19:14 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 19:13 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 19:03 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 19:04 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 19:04 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 19:21 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 19:00 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 19:28 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 19:05 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 19:27 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 19:05 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 19:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/702055964.shtml)
-- 2026-06-29 19:16 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/6761483825.shtml)
-- 2026-06-29 19:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/560209965206.shtml)
-- 2026-06-29 19:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/18425.shtml)
-- 2026-06-29 19:01 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/301066.shtml)
-- 2026-06-29 19:09 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/90449.shtml)
-- 2026-06-29 19:09 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/95355089.shtml)
-- 2026-06-29 19:18 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/2916271957.shtml)
-- 2026-06-29 19:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/123782.shtml)
-- 2026-06-29 19:23 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/172528428596.shtml)
-- 2026-06-29 18:59 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/25698768259.shtml)
-- 2026-06-29 19:17 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/99845.shtml)
-- 2026-06-29 19:22 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/995535781.shtml)
-- 2026-06-29 19:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/6613624.shtml)
-- 2026-06-29 19:17 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/45021.shtml)
+- 2026-06-29 19:14 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/85567.shtml)
+- 2026-06-29 19:24 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/38893.shtml)
+- 2026-06-29 19:12 - [四川地震前夕 街头电线上站满燕子](http://www.share.kurohicncr.top/Article/details/76967431374.shtml)
+- 2026-06-29 19:21 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/852046.shtml)
+- 2026-06-29 19:01 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/8022881332.shtml)
+- 2026-06-29 19:16 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/502358.shtml)
+- 2026-06-29 19:23 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/2261703121.shtml)
+- 2026-06-29 19:15 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/5688058284.shtml)
+- 2026-06-29 19:24 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/19829527.shtml)
+- 2026-06-29 19:09 - [刘冰任河南南阳市代市长](http://www.blog.minike.top/Article/details/98841205375.shtml)
+- 2026-06-29 19:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/8318785029.shtml)
+- 2026-06-29 19:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/385998.shtml)
+- 2026-06-29 19:20 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/743672650383.shtml)
+- 2026-06-29 19:04 - [TTG KSG](http://www.blog.minike.top/Article/details/682926600.shtml)
+- 2026-06-29 19:02 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/3149234778.shtml)

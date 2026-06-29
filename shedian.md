@@ -1,58 +1,60 @@
-# 韩国前国务总理韩德洙因参与内乱重要任务等罪名二审被判15年
+# 新办的手机号为何频频收到骚扰信息
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-中新社首尔5月7日电 (记者 金旭 刘旭)据韩联社报道，韩国前国务总理韩德洙7日因参与内乱重要任务等罪名二审被判有期徒刑15年，较一审判决的23年刑期减少8年。 首尔高等法院认定，二审判决与一审相同，韩德洙的大部分主要罪名成立，包括制造虚假公文、违反“总统档案法”等罪名。 法院认定，为制造“2024年12月3日紧急戒严令的宣布经过了国务委员审议程序”的表象，韩德洙曾建议召开国务
+新华社北京4月9日电 题：新办的手机号为何频频收到骚扰信息 新华社“新华视点”记者张千千、高亢 “你名下贷款逾期2300天”“尽早处理避免风险升级”……西安市民彭女士不久前办理了新手机号码，却频频收到针对前任机主的催债信息，“我解绑了好几个应用平台，还是每天收到这类信息。”最终，她无奈地换掉了手机号。 明明是新办的号码，为何用户却会遭遇催债、垃圾信息骚扰等问题？号码易主，旧信息
 
 ## 正文
 
-中新社首尔5月7日电 (记者 金旭 刘旭)据韩联社报道，韩国前国务总理韩德洙7日因参与内乱重要任务等罪名二审被判有期徒刑15年，较一审判决的23年刑期减少8年。
+新华社北京4月9日电 题：新办的手机号为何频频收到骚扰信息 新华社“新华视点”记者张千千、高亢 “你名下贷款逾期2300天”“尽早处理避免风险升级”……西安市民彭女士不久前办理了新手机号码，却频频收到针对前任机主的催债信息，“我解绑了好几个应用平台，还是每天收到这类信息。
 
-首尔高等法院认定，二审判决与一审相同，韩德洙的大部分主要罪名成立，包括制造虚假公文、违反“总统档案法”等罪名。
+”最终，她无奈地换掉了手机号。
 
-法院认定，为制造“2024年12月3日紧急戒严令的宣布经过了国务委员审议程序”的表象，韩德洙曾建议召开国务会议，并在戒严宣布后试图让国务委员们在相关文件上签字，因此构成参与内乱重要任务罪。
+明明是新办的号码，为何用户却会遭遇催债、垃圾信息骚扰等问题？
 
-同时，法院还认定韩德洙与韩国前行政安全部长官李祥敏讨论了封锁主要机构及对媒体实施断水断电的方案，同样构成参与内乱重要任务罪。
+号码易主，旧信息难清 记者发现，黑猫投诉等平台上，与新手机号相关的投诉达上千条。
 
-韩德洙方对二审判决表示不服并将提起上诉。
+一些用户在注册互联网应用时发现号码已被占用，有的还发现平台上留有前任机主订单，不支付就无法继续使用相关应用。
 
-2026年1月，韩德洙因协助内乱头目等罪名一审被判有期徒刑23年，随后他提起上诉。
+北京市民王先生告诉记者，办理新手机号后，他经常收到某出行平台发来的不属于自己的酒店订单信息，内容十分详尽，入住人姓氏、酒店名称、房型、入住日期、金额等信息一览无遗。
 
-4月，韩国负责调查紧急戒严事件的特检组提出二审判处韩德洙23年有期徒刑的量刑建议。
+有网友曾发帖称，自己使用新办的手机号注册一家音乐平台时，输入收到的验证码后，居然自动登录上了已故知名歌手的账号。
 
-(完)
+对此，该平台客服反馈，这一情况是艺人账号绑定的手机号被“二次放号”导致的。
 
 ## 相关推荐
 
-- 2026-06-29 19:00 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 18:54 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 19:23 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 19:12 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 18:58 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 19:21 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-29 19:09 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 18:57 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 18:57 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 18:58 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 18:54 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 18:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 19:08 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 19:11 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 19:24 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 19:22 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 19:26 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 19:10 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 19:05 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 19:01 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 19:24 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 19:09 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 19:03 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 19:24 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 19:04 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 19:15 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:00 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/877281400.shtml)
-- 2026-06-29 19:05 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/6719599.shtml)
-- 2026-06-29 19:05 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/2283544.shtml)
-- 2026-06-29 19:15 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/180308325902.shtml)
-- 2026-06-29 19:23 - [一生一世](https://www.blog.kurohicncr.top/Article/details/7650727161.shtml)
-- 2026-06-29 19:05 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/9925038.shtml)
-- 2026-06-29 19:18 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/960123510.shtml)
-- 2026-06-29 19:03 - [回顾世界杯争议事件](https://www.share.minike.top/Article/details/827564.shtml)
-- 2026-06-29 19:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/806429605054.shtml)
-- 2026-06-29 19:09 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/32319931.shtml)
-- 2026-06-29 19:03 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/9983155.shtml)
-- 2026-06-29 19:13 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/47080.shtml)
-- 2026-06-29 19:19 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/49600485814.shtml)
-- 2026-06-29 19:13 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/97336162.shtml)
-- 2026-06-29 19:01 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/16141158443.shtml)
+- 2026-06-29 19:22 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/892410874974.shtml)
+- 2026-06-29 19:13 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/854675.shtml)
+- 2026-06-29 19:08 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/61691305.shtml)
+- 2026-06-29 19:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/43495.shtml)
+- 2026-06-29 19:20 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/1156106.shtml)
+- 2026-06-29 19:10 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/14023009059.shtml)
+- 2026-06-29 19:21 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/447266.shtml)
+- 2026-06-29 19:02 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/088842309.shtml)
+- 2026-06-29 19:03 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.kurohicncr.top/Article/details/774454512363.shtml)
+- 2026-06-29 19:11 - [扬名立万](https://www.blog.minike.top/Article/details/75660428.shtml)
+- 2026-06-29 19:25 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/8545168.shtml)
+- 2026-06-29 19:04 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/8163394.shtml)
+- 2026-06-29 19:12 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/551355444.shtml)
+- 2026-06-29 19:16 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/178826054376.shtml)
+- 2026-06-29 19:19 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/0551843.shtml)

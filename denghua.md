@@ -1,49 +1,57 @@
-# 招商证券董事长霍达离任 推举朱江涛代行职责
+# 美媒：万斯在促成美伊谈判方面作用关键
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-专题：招商证券董事长霍达离任 推举朱江涛代行职责 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月8日，招商证券公告，推举朱江涛董事代为履行公司董事长、法定代表人职责，原董事长霍达提出辞职，招商证券对霍达的贡献表示感谢。 责任编辑：杨赐
+中新网4月11日电 据美国有线电视新闻网（CNN）11日报道，据一位巴基斯坦高级消息人士透露，美国副总统万斯在促成将在巴基斯坦伊斯兰堡启动的美伊谈判方面发挥了关键作用。 这位熟悉谈判进程的消息人士称，他们估计需要几天时间谈判，才能敲定停火协议，巴基斯坦官员希望说服万斯延长在巴停留时间，以协助促成此事。 此外，一位海湾地区高级消息人士透露，伊朗方面对美国总统特朗普的特使威特科夫信
 
 ## 正文
 
-专题：招商证券董事长霍达离任 推举朱江涛代行职责 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网4月11日电 据美国有线电视新闻网（CNN）11日报道，据一位巴基斯坦高级消息人士透露，美国副总统万斯在促成将在巴基斯坦伊斯兰堡启动的美伊谈判方面发挥了关键作用。
 
-5月8日，招商证券公告，推举朱江涛董事代为履行公司董事长、法定代表人职责，原董事长霍达提出辞职，招商证券对霍达的贡献表示感谢。
+这位熟悉谈判进程的消息人士称，他们估计需要几天时间谈判，才能敲定停火协议，巴基斯坦官员希望说服万斯延长在巴停留时间，以协助促成此事。
 
-责任编辑：杨赐
+此外，一位海湾地区高级消息人士透露，伊朗方面对美国总统特朗普的特使威特科夫信任度极低。
+
+此前，威特科夫曾主导多轮与伊朗的谈判，但这些谈判均因美国对伊朗的军事打击而中断。
+
+威特科夫是此次参加伊斯兰堡谈判的美国代表团成员之一。
+
+另据美联社报道，万斯已率领代表团抵达伊斯兰堡，代表团成员包括美国总统特使威特科夫和总统女婿库什纳。
+
+责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-29 19:03 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 19:00 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 19:04 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 19:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 18:55 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 18:59 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 19:05 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 19:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 19:16 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 19:07 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 19:08 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 19:00 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 19:02 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 19:13 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 19:24 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 19:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 19:12 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 19:28 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 19:22 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 19:03 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 19:23 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 19:17 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 19:24 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 19:06 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 19:17 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 19:15 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/688137790718.shtml)
-- 2026-06-29 19:11 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/69907308129.shtml)
-- 2026-06-29 19:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/754242.shtml)
-- 2026-06-29 18:59 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/29614533962.shtml)
-- 2026-06-29 19:13 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/3595316.shtml)
-- 2026-06-29 19:09 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/80630.shtml)
-- 2026-06-29 19:10 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/903909980495.shtml)
-- 2026-06-29 19:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/051462999267.shtml)
-- 2026-06-29 19:06 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.kurohicncr.top/Article/details/02529486.shtml)
-- 2026-06-29 19:13 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/7339940.shtml)
-- 2026-06-29 18:55 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/49827927.shtml)
-- 2026-06-29 18:56 - [流金岁月](https://www.share.minike.top/Article/details/456385439.shtml)
-- 2026-06-29 18:59 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/0184527.shtml)
-- 2026-06-29 19:12 - [A股割裂行情有变化了吗](http://www.blog.minike.top/Article/details/52964.shtml)
-- 2026-06-29 19:08 - [V8](http://www.blog.kurohicncr.top/Article/details/5248371.shtml)
+- 2026-06-29 19:19 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/656169.shtml)
+- 2026-06-29 19:24 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/911489.shtml)
+- 2026-06-29 19:08 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/505869573.shtml)
+- 2026-06-29 19:25 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/7281549.shtml)
+- 2026-06-29 19:17 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/429926317.shtml)
+- 2026-06-29 19:06 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/253607297.shtml)
+- 2026-06-29 19:10 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/36824289.shtml)
+- 2026-06-29 19:16 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/296568839.shtml)
+- 2026-06-29 19:26 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/83066299054.shtml)
+- 2026-06-29 19:19 - [2026世界杯谁能一黑到底](http://www.blog.minike.top/Article/details/703927430.shtml)
+- 2026-06-29 19:01 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/358410258.shtml)
+- 2026-06-29 19:16 - [T1零封KC MSI](https://www.share.minike.top/Article/details/26167660771.shtml)
+- 2026-06-29 19:06 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/947201364314.shtml)
+- 2026-06-29 19:06 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/62374.shtml)
+- 2026-06-29 19:23 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/39587.shtml)

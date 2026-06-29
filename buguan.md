@@ -1,58 +1,60 @@
-# 离岸人民币汇率升破6.8，创三年多新高
+# 祁连山下治沙人：让“大漠孤烟”变绿洲
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-伴随强势资本市场“东风”，人民币汇率表现势如破竹，站稳了重要关口。 5月7日，离岸人民币对美元强势涨破6.80关口，盘中最高触及6.7977；在岸人民币对美元同样不甘落后，距离6.80关口“一步之遥”，二者双双创下2023年2月以来最高水平。 截至16时50分发稿，在岸、离岸人民币对美元分别报6.8014、6.7998。 事实上，年初迄今，人民币便呈现稳步升值态势。今年前4个月
+中新网兰州4月10日电 (戴文昌)地处巴丹吉林沙漠南缘的甘肃省张掖市高台县，曾长期受风沙侵袭，深陷“沙进人退”困境。如今，祁连山下，在一代代治沙人坚守下，昔日“大漠孤烟”的荒芜景象逐渐褪去，茫茫荒漠连片披上绿装，曾经的多个沙区已是绿意盎然、水草丰茂…… 作为河西走廊中部、黑河中游下段的绿洲城市，高台县坐拥祁连山和黑河湿地两个国家级自然保护区，有“河西锁钥、五郡咽喉”之称。这里既
 
 ## 正文
 
-伴随强势资本市场“东风”，人民币汇率表现势如破竹，站稳了重要关口。
+中新网兰州4月10日电 (戴文昌)地处巴丹吉林沙漠南缘的甘肃省张掖市高台县，曾长期受风沙侵袭，深陷“沙进人退”困境。
 
-5月7日，离岸人民币对美元强势涨破6.80关口，盘中最高触及6.7977；在岸人民币对美元同样不甘落后，距离6.80关口“一步之遥”，二者双双创下2023年2月以来最高水平。
+如今，祁连山下，在一代代治沙人坚守下，昔日“大漠孤烟”的荒芜景象逐渐褪去，茫茫荒漠连片披上绿装，曾经的多个沙区已是绿意盎然、水草丰茂…… 作为河西走廊中部、黑河中游下段的绿洲城市，高台县坐拥祁连山和黑河湿地两个国家级自然保护区，有“河西锁钥、五郡咽喉”之称。
 
-截至16时50分发稿，在岸、离岸人民币对美元分别报6.8014、6.7998。
+这里既是典型的沙区绿洲农业县，更是“三北”工程六期核心攻坚区，特殊的地理区位和生态定位，让治沙护绿成为当地发展的重中之重。
 
-事实上，年初迄今，人民币便呈现稳步升值态势。
+高台县林业和草原局局长丁尚义说，近年来，该县累计争取实施规模化防沙治沙、“三北”工程、国土绿化等林草工程项目20余项，总投资达2.54亿元，完成营造林28.24万亩、固沙压沙4.32万亩，退化草原修复治理及围栏38.4万亩，林草覆盖率提升至29.53%，绿色家底不断厚实。
 
-今年前4个月，在岸、离岸人民币对美元累计升值幅度均在2.5%附近。
+而这份治沙成效的背后，离不开当地政策引领与科学规划。
 
-这一轮人民币走强，背后最大的推手是谁？
+多年来，该县始终坚持“生态筑基”这一思路，持续推进黑河湿地生态保护修复工作，在稳步筑牢区域生态安全屏障的同时，也让“沙漠变绿洲”的梦想逐步照进现实，为苍茫大漠增添了盎然生机。
 
-美元的弱势，是直接“导火索”。
+春季是治沙工作黄金期，也是高台县生态治理重点时段。
 
-东方金诚首席宏观分析师王青对记者表示，受中东局势缓和以及市场判断日本当局干预汇市等影响，4月底以来美元指数持续走低，截至目前已跌破98，带动了包括人民币在内的主要非美货币普遍出现升值。
+丁尚义说，今年该县计划在西沙窝、盐池滩两大风沙口实施工程固沙13万亩，依托黑河流域林草沙综合治理等项目，聚焦北部荒漠区，采取机械固沙、植物固沙、围栏封育等措施，集中攻坚风沙口治理。
 
 ## 相关推荐
 
-- 2026-06-29 19:01 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 19:13 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 19:04 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 19:22 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 19:20 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 19:22 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 18:59 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 18:58 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 19:08 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 19:06 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 19:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 19:14 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 19:25 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 19:18 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 19:25 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 19:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 19:00 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 19:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 19:14 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 19:01 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 19:24 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 19:20 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 19:26 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 19:19 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 19:00 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 19:07 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:11 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/743504.shtml)
-- 2026-06-29 19:03 - [这一刀 会很帅](http://www.share.minike.top/Article/details/3604246.shtml)
-- 2026-06-29 19:01 - [谢依霖夸杨幂靠谱](http://www.share.kurohicncr.top/Article/details/663167759669.shtml)
-- 2026-06-29 19:02 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.minike.top/Article/details/802684565935.shtml)
-- 2026-06-29 19:00 - [张杰我九岁就跟你了](https://www.share.minike.top/Article/details/1322995873.shtml)
-- 2026-06-29 18:58 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/51452130724.shtml)
-- 2026-06-29 18:54 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/6447197338.shtml)
-- 2026-06-29 19:00 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/62429405737.shtml)
-- 2026-06-29 19:10 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.kurohicncr.top/Article/details/50521837.shtml)
-- 2026-06-29 19:14 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/617054229950.shtml)
-- 2026-06-29 19:22 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/5897906.shtml)
-- 2026-06-29 19:06 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/4508716.shtml)
-- 2026-06-29 18:59 - [当家电外通风口出现鸟窝](http://www.blog.minike.top/Article/details/9445821736.shtml)
-- 2026-06-29 18:55 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/8960032.shtml)
-- 2026-06-29 19:21 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/731145.shtml)
+- 2026-06-29 19:06 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/5052380.shtml)
+- 2026-06-29 19:30 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/773298.shtml)
+- 2026-06-29 19:17 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/305887.shtml)
+- 2026-06-29 19:02 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/05963782.shtml)
+- 2026-06-29 19:02 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/50202559.shtml)
+- 2026-06-29 19:18 - [永远有话聊的原因](http://www.blog.kurohicncr.top/Article/details/633542.shtml)
+- 2026-06-29 19:03 - [大学专业未来如何洗牌](http://www.blog.kurohicncr.top/Article/details/0476977.shtml)
+- 2026-06-29 19:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/47080429219.shtml)
+- 2026-06-29 19:19 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/920515454711.shtml)
+- 2026-06-29 19:21 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/5254046.shtml)
+- 2026-06-29 19:07 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/790052094.shtml)
+- 2026-06-29 19:11 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/909422483.shtml)
+- 2026-06-29 19:27 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/414480.shtml)
+- 2026-06-29 19:18 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/94608285522.shtml)
+- 2026-06-29 19:26 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/640760.shtml)

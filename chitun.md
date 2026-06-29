@@ -1,50 +1,51 @@
-# 外交部：敦促英方纠正错误做法，停止反华的政治操弄，停止为反中乱港分子撑腰打气
+# 中信证券早盘高开逾9% 第一季度归母净利润102.16亿元同比增加54.6%
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-【环球时报-环球网报道 记者 索炎琦】在5月8日举行的中国外交部例行记者会上，对于有两名男子因为中国从事间谍活动而在英国被定罪一事，外交部发言人林剑回答相关问询时表示，中方已经多次就有关案件表明了原则立场，英方以莫须有的罪名抓捕和起诉在英的中国公民，滥用法律，操弄司法程序定罪，公然为反中乱港分子站台，对中方进行无理指控和污蔑抹黑，是典型的政治闹剧。中方对此予以强烈谴责和坚决反对
+中信证券（06030）早盘高开逾9%，截至发稿，股价上涨9.42%，报27.18港元，成交额1.55亿港元。 4月9日，中信证券发布2026年第一季度业绩快报，该集团期内取得营业收入231.55亿元人民币，同比增加40.91%；归属于母公司股东的净利润102.16亿元，同比增加54.6%；基本每股收益0.67元。 责任编辑：卢昱君
 
 ## 正文
 
-【环球时报-环球网报道 记者 索炎琦】在5月8日举行的中国外交部例行记者会上，对于有两名男子因为中国从事间谍活动而在英国被定罪一事，外交部发言人林剑回答相关问询时表示，中方已经多次就有关案件表明了原则立场，英方以莫须有的罪名抓捕和起诉在英的中国公民，滥用法律，操弄司法程序定罪，公然为反中乱港分子站台，对中方进行无理指控和污蔑抹黑，是典型的政治闹剧。
+中信证券（06030）早盘高开逾9%，截至发稿，股价上涨9.42%，报27.18港元，成交额1.55亿港元。
 
-中方对此予以强烈谴责和坚决反对，已向英方提出严正交涉。
+4月9日，中信证券发布2026年第一季度业绩快报，该集团期内取得营业收入231.55亿元人民币，同比增加40.91%；归属于母公司股东的净利润102.16亿元，同比增加54.6%；基本每股收益0.67元。
 
-我们敦促英方纠正错误做法，停止反华的政治操弄，停止为反中乱港分子撑腰打气，维护中英关系来之不易的良好发展势头。
-
-责任编辑：刘万里 SF014
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 18:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 19:18 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 18:58 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 19:19 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 19:19 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 19:09 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 19:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 19:02 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 19:06 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 18:54 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 18:57 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 19:19 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 19:01 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 19:28 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 19:18 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 19:28 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 19:19 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 19:10 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 19:19 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 19:05 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 19:22 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 19:17 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 19:10 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 19:03 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 19:12 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 19:14 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:03 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/58085288.shtml)
-- 2026-06-29 18:54 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/997286576035.shtml)
-- 2026-06-29 19:08 - [女生每天戴耳机18小时突发耳聋](https://www.blog.minike.top/Article/details/504093.shtml)
-- 2026-06-29 19:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/29732766.shtml)
-- 2026-06-29 19:16 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/06918271.shtml)
-- 2026-06-29 19:21 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/49105835.shtml)
-- 2026-06-29 19:14 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/52647221.shtml)
-- 2026-06-29 19:18 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/28792400791.shtml)
-- 2026-06-29 19:10 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/8354730.shtml)
-- 2026-06-29 19:04 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/98434610.shtml)
-- 2026-06-29 19:08 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/316570218.shtml)
-- 2026-06-29 19:20 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/911377924.shtml)
-- 2026-06-29 19:03 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/703505211.shtml)
-- 2026-06-29 19:13 - [TFING全员黑西装](http://www.share.minike.top/Article/details/626034.shtml)
-- 2026-06-29 19:06 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/014160247986.shtml)
+- 2026-06-29 19:00 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/5885934671.shtml)
+- 2026-06-29 19:11 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.minike.top/Article/details/0356187080.shtml)
+- 2026-06-29 19:14 - [女生每天戴耳机18小时突发耳聋](https://www.blog.minike.top/Article/details/44213762.shtml)
+- 2026-06-29 19:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/19414367.shtml)
+- 2026-06-29 19:00 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/7981459.shtml)
+- 2026-06-29 19:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/2109923240.shtml)
+- 2026-06-29 19:30 - [东宫女主是不是顶级恋爱脑](http://www.blog.minike.top/Article/details/925948575276.shtml)
+- 2026-06-29 19:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/9102966.shtml)
+- 2026-06-29 19:11 - [一生一世](https://www.share.minike.top/Article/details/10848995.shtml)
+- 2026-06-29 19:17 - [唐艺昕告别浪姐千字长文](http://www.share.kurohicncr.top/Article/details/99528844.shtml)
+- 2026-06-29 19:17 - [小娘惹](http://www.share.minike.top/Article/details/3935071101.shtml)
+- 2026-06-29 19:01 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/390758434036.shtml)
+- 2026-06-29 19:26 - [扫黑风暴](http://www.blog.minike.top/Article/details/715169193.shtml)
+- 2026-06-29 19:03 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/733958711475.shtml)
+- 2026-06-29 19:02 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/46012387067.shtml)

@@ -1,58 +1,58 @@
-# 商务部召开第十届中国—俄罗斯博览会新闻发布会（实录）
+# 台积电获华尔街最高目标价600美元 分析师预计到2028年利润增长两倍
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-商务部召开第十届中国—俄罗斯博览会新闻发布会 商务部于2026年5月8日（星期五）15时举行专题新闻发布会，请商务部欧亚司副司长马驰，黑龙江省贸促会副会长王欣梅，俄罗斯联邦经济发展部驻俄驻华商务代表处代表（俄驻华商务副代表级别）谢尔久科娃介绍第十届中国—俄罗斯博览会有关情况，并回答记者朋友关心的问题。 以下为发布会文字实录 何亚东 各位记者朋友们，大家下午好。欢迎参加商务部专题
+根据周四流传的一份研究报告，Aletheia Capital将台积电的目标价从500美元上调至600美元。新的目标价意味着该股可能从当前交易水平上涨约64%。 该机构维持其“买入”评级不变，并将台积电列入其高确信度的“Alpha Generation”名单。 这一评级背后的逻辑很简单：台积电正在加快增长。这家芯片制造巨头似乎正在提前推进先进生产阶段性目标和先进封装技术的产能计划
 
 ## 正文
 
-商务部召开第十届中国—俄罗斯博览会新闻发布会 商务部于2026年5月8日（星期五）15时举行专题新闻发布会，请商务部欧亚司副司长马驰，黑龙江省贸促会副会长王欣梅，俄罗斯联邦经济发展部驻俄驻华商务代表处代表（俄驻华商务副代表级别）谢尔久科娃介绍第十届中国—俄罗斯博览会有关情况，并回答记者朋友关心的问题。
+根据周四流传的一份研究报告，Aletheia Capital将台积电的目标价从500美元上调至600美元。
 
-以下为发布会文字实录 何亚东 各位记者朋友们，大家下午好。
+新的目标价意味着该股可能从当前交易水平上涨约64%。
 
-欢迎参加商务部专题新闻发布会。
+该机构维持其“买入”评级不变，并将台积电列入其高确信度的“Alpha Generation”名单。
 
-今天我们非常高兴地邀请到商务部欧亚司副司长马驰先生，黑龙江省贸促会副会长王欣梅女士，俄罗斯联邦经济发展部驻俄驻华商务代表处代表（俄驻华商务副代表级别）谢尔久科娃女士，请他们为大家介绍第十届中俄博览会有关情况，并回答大家关心的问题。
+这一评级背后的逻辑很简单：台积电正在加快增长。
 
-下面我们首先请马驰副司长作介绍。
+这家芯片制造巨头似乎正在提前推进先进生产阶段性目标和先进封装技术的产能计划。
 
-马驰 各位媒体朋友，大家下午好！
+这些新增产能中的大部分预计将在2027年和2028年投产。
 
-2026年是中俄战略协作伙伴关系建立30周年、《中俄睦邻友好合作条约》签署25周年。
+如果这些生产线全力运转，在已经预测到2027年复合年增长率超过30%的基础上，台积电可能会迎来另一轮爆发式的收入增长。
 
-在这一具有里程碑意义的重要节点，由商务部、黑龙江省人民政府与俄罗斯联邦经济发展部、工业和贸易部共同主办的第十届中国—俄罗斯博览会，将于5月17-21日在哈尔滨国际会展中心举办，黑龙江省还将同期举办第三十五届哈尔滨国际经济贸易洽谈会。
+该分析师认为，到2028年，公司利润可能比2025年的水平增长近两倍。
 
 ## 相关推荐
 
-- 2026-06-29 19:15 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 19:14 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 19:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 19:10 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 19:03 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 18:57 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 18:57 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 19:22 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 19:23 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 19:20 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 19:05 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 19:01 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 19:28 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 19:18 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 19:27 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 19:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 19:11 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 19:00 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 19:17 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 19:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 19:01 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 19:15 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 19:16 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 19:00 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/426614749262.shtml)
-- 2026-06-29 19:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/9298439373.shtml)
-- 2026-06-29 19:08 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/1631677.shtml)
-- 2026-06-29 18:58 - [滚石点名酒店员工说有急救培训](https://www.share.kurohicncr.top/Article/details/9645142134.shtml)
-- 2026-06-29 19:02 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/11415505.shtml)
-- 2026-06-29 18:55 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/833779658383.shtml)
-- 2026-06-29 18:54 - [厨房装空调还是装冷烟机](http://www.share.kurohicncr.top/Article/details/77135.shtml)
-- 2026-06-29 19:05 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/64370.shtml)
-- 2026-06-29 19:02 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/9163081.shtml)
-- 2026-06-29 19:11 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/556192017698.shtml)
-- 2026-06-29 19:03 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/046472636268.shtml)
-- 2026-06-29 19:09 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/148501497.shtml)
-- 2026-06-29 19:01 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/276718877484.shtml)
-- 2026-06-29 19:09 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/939964006.shtml)
-- 2026-06-29 19:22 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/95392.shtml)
+- 2026-06-29 19:17 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/0437928805.shtml)
+- 2026-06-29 19:23 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/814073165.shtml)
+- 2026-06-29 19:01 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/7455834670.shtml)
+- 2026-06-29 19:19 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/1507627.shtml)
+- 2026-06-29 19:01 - [金牌调解](https://www.share.minike.top/Article/details/60950136739.shtml)
+- 2026-06-29 19:20 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/69889525.shtml)
+- 2026-06-29 19:15 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/1140425.shtml)
+- 2026-06-29 19:20 - [河南高院审委会原委员曲海滨被查](http://www.share.kurohicncr.top/Article/details/5822571058.shtml)
+- 2026-06-29 19:16 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.minike.top/Article/details/87810.shtml)
+- 2026-06-29 19:21 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/290320.shtml)
+- 2026-06-29 19:17 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/6073800665.shtml)
+- 2026-06-29 19:09 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/9820458.shtml)
+- 2026-06-29 19:25 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/152770307845.shtml)
+- 2026-06-29 19:19 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/5659260.shtml)
+- 2026-06-29 19:22 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/208316415476.shtml)

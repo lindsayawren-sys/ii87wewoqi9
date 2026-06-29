@@ -1,58 +1,58 @@
-# 网传“5月1日起驾考科目加项，难度翻倍”不实（2026·05·07）
+# Guggenheim上调Datadog评级至“买入”，预计27%增长将超越市场预期
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-辟 谣丨机动车驾驶培训行业新国标落地，网传“科目加项，难度翻倍”不实 详情：近日，“5月1日驾考全面改革、科目二增至八项、难度翻倍”的说法在网络广泛流传。不少市民扎堆报名驾考，生怕新规实施后，考驾照更难。 事实上，这是混淆了驾培新国标和驾考新规。二者分属不同监管体系，职能定位和管控范围有着清晰明确的界限。驾培新国标是由交通运输主管部门来监管，主要针对的是机动车驾驶员的各培训机构
+Guggenheim周四将Datadog的评级从“中性”上调至“买入”，设定175美元的目标价，意味着较周三收盘价116.50美元约有50% 的上涨空间。分析师Howard Ma认为，市场 consensus 对该公司后端架构和不断扩大的AI原生收入基础显著低估。该股盘前上涨2.45%。 Ma的核心论点基于市场似乎过度调整的两个因素。Guggenheim认为，Datadog的后
 
 ## 正文
 
-辟 谣丨机动车驾驶培训行业新国标落地，网传“科目加项，难度翻倍”不实 详情：近日，“5月1日驾考全面改革、科目二增至八项、难度翻倍”的说法在网络广泛流传。
+Guggenheim周四将Datadog的评级从“中性”上调至“买入”，设定175美元的目标价，意味着较周三收盘价116.50美元约有50% 的上涨空间。
 
-不少市民扎堆报名驾考，生怕新规实施后，考驾照更难。
+分析师Howard Ma认为，市场 consensus 对该公司后端架构和不断扩大的AI原生收入基础显著低估。
 
-事实上，这是混淆了驾培新国标和驾考新规。
+该股盘前上涨2.45%。
 
-二者分属不同监管体系，职能定位和管控范围有着清晰明确的界限。
+Ma的核心论点基于市场似乎过度调整的两个因素。
 
-驾培新国标是由交通运输主管部门来监管，主要针对的是机动车驾驶员的各培训机构，聚焦驾校的办学、教学、场地、车辆来进行全流程的规范；驾考新规是由公安交管部门来制定，主要针对的是驾驶人考试这个环节，划定考试项目、评分标准、合格要求，二者互不交叉、互不影响，新国标实施绝不涉及考试环节调整。
+Guggenheim认为，Datadog的后端架构构成了抵御通过大型语言模型或OpenTelemetry实现商品化的深厚护城河，支持着竞争对手难以轻易复制的多产品收入。
 
-2026年5月1日正式落地的并非驾考新规，而是《机动车驾驶员培训机构业务条件》和《机动车驾驶员培训教练场技术要求》两项国家标准，这两项国标主要规范的是驾校办学资质与训练场建设标准。
+更直接的是，来自Datadog最大客户OpenAI的悬而未决的压力——OpenAI已表示计划退出该平台以进行可观测性——其进展速度慢于市场担忧。
 
-而此次驾培新国标目的是整治行业乱象、规范教学，让学员学真本领、平安上路。
+Guggenheim的渠道调研显示，过渡时间表被延长，这为公司提供了增长空间，可以扩大其650家AI原生客户的贡献，其中包括该公司认为与Anthropic签订的八位数合同。
 
-至于网上流传的“科目二五项变八项”，这也是误解，此次新国标，只是要求驾校训练场增设红绿灯、公交站台、斑马线等实景设施，模拟真实城市道路环境，让日常练车更贴合实际行车场景。
+与市场共识的差距是该报告更引人注目的部分。
 
 ## 相关推荐
 
-- 2026-06-29 18:56 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 19:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 18:58 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 19:16 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 18:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-29 19:19 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 19:21 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 19:12 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 19:13 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 18:54 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 19:13 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 18:54 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 19:16 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 19:13 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 19:19 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 19:08 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 19:22 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 19:02 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 19:19 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 19:26 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 19:26 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 19:01 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 19:29 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 19:11 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:55 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/696120964.shtml)
-- 2026-06-29 18:56 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/4484958118.shtml)
-- 2026-06-29 19:18 - [伊朗足球队将启程回国](http://www.blog.kurohicncr.top/Article/details/315797.shtml)
-- 2026-06-29 19:02 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/369859159383.shtml)
-- 2026-06-29 19:03 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/884709.shtml)
-- 2026-06-29 19:00 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/65326.shtml)
-- 2026-06-29 19:02 - [CORTIS 小牌大耍](http://www.blog.kurohicncr.top/Article/details/10123207054.shtml)
-- 2026-06-29 19:10 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/65228.shtml)
-- 2026-06-29 19:16 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/106674837248.shtml)
-- 2026-06-29 19:17 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/89021.shtml)
-- 2026-06-29 19:13 - [德国医生在没有空调的手术室工作](http://www.share.kurohicncr.top/Article/details/9520320.shtml)
-- 2026-06-29 18:59 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/45933136496.shtml)
-- 2026-06-29 19:14 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/27505.shtml)
-- 2026-06-29 19:06 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/119612.shtml)
-- 2026-06-29 19:15 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/4039520.shtml)
+- 2026-06-29 19:18 - [RAY评乘风2026总决赛](http://www.share.kurohicncr.top/Article/details/68726223.shtml)
+- 2026-06-29 19:13 - [起风了](http://www.share.minike.top/Article/details/48755894666.shtml)
+- 2026-06-29 19:03 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/84406.shtml)
+- 2026-06-29 19:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/380326.shtml)
+- 2026-06-29 19:22 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/5382450653.shtml)
+- 2026-06-29 19:02 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/8704410.shtml)
+- 2026-06-29 19:06 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/35757649220.shtml)
+- 2026-06-29 19:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/405558315526.shtml)
+- 2026-06-29 19:22 - [张杰我九岁就跟你了](https://www.share.minike.top/Article/details/37811865.shtml)
+- 2026-06-29 19:12 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/175525.shtml)
+- 2026-06-29 19:01 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/729778.shtml)
+- 2026-06-29 19:03 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/97420873483.shtml)
+- 2026-06-29 19:13 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.kurohicncr.top/Article/details/7031156.shtml)
+- 2026-06-29 19:03 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/711858.shtml)
+- 2026-06-29 19:02 - [千与千寻](https://www.share.minike.top/Article/details/457336250.shtml)

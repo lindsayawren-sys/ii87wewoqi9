@@ -1,56 +1,57 @@
-# Starz退出环球影业协议，利润率目标推迟至2027年下半年
+# 众擎机器人完成2亿美元B轮融资，估值破百亿
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-美国付费电视网络Starz表示，在决定不再续签与环球影业的“Pay-Two”窗口协议后，公司已将20%的利润率目标从2026年推迟至2027年下半年实现。 协议终止原因 “Pay-Two”协议此前允许Starz在环球影业院线电影上映后的第二个付费窗口期拥有独家播放权。但由于流媒体战争的加剧和内容成本的持续上涨，Starz认为该协议的成本效益已不再划算。Starz首席执行官表示，
+4月9日，成立两年半的深圳众擎机器人宣布，正式完成总额2亿美元（近14亿元人民币）的B轮融资。 据界面新闻了解，本轮融资由河南投资集团汇融基金领投B轮，产业资本立讯精密（002475.SZ）战略入局、联合领投。此外，中创智领战投、基石资本、龙岗金控、金谷资本、财通资本、多伦科技战投、能量守恒资本、硬核坚果资本、北京昌发展基金、全昇创投、STAR SINO等多家投资机构、地方国资
 
 ## 正文
 
-美国付费电视网络Starz表示，在决定不再续签与环球影业的“Pay-Two”窗口协议后，公司已将20%的利润率目标从2026年推迟至2027年下半年实现。
+4月9日，成立两年半的深圳众擎机器人宣布，正式完成总额2亿美元（近14亿元人民币）的B轮融资。
 
-协议终止原因 “Pay-Two”协议此前允许Starz在环球影业院线电影上映后的第二个付费窗口期拥有独家播放权。
+据界面新闻了解，本轮融资由河南投资集团汇融基金领投B轮，产业资本立讯精密（002475.SZ）战略入局、联合领投。
 
-但由于流媒体战争的加剧和内容成本的持续上涨，Starz认为该协议的成本效益已不再划算。
+此外，中创智领战投、基石资本、龙岗金控、金谷资本、财通资本、多伦科技战投、能量守恒资本、硬核坚果资本、北京昌发展基金、全昇创投、STAR SINO等多家投资机构、地方国资平台及家族办公室参与本轮投资；黄浦江资本、银柏投资、星航资本、星源资本、财鑫资本、汇勤资本、普超资本等老股东继续跟进。
 
-Starz首席执行官表示，退出该协议将释放约3.5亿美元的年度现金流，这些资金将用于投资原创内容和提升用户参与度。
+本轮融资落地后，公司估值突破百亿元人民币。
 
-财务影响与战略调整 Starz预计，退出该协议将对2026年的收入产生约12%的短期冲击，但随着原创内容的投入和用户流失的减缓，预计2027年下半年营收将恢复增长。
+据公司介绍，此轮融资将重点用于核心技术迭代、产能扩建与场景拓展。
 
-公司将20%的利润率目标推迟至2027年下半年，较原计划晚了约12至18个月。
+值得一提的是，几个月前，众擎机器人刚刚完成A轮融资。
 
-作为调整的一部分，Starz将加大对历史剧和都市剧等利基类型原创剧集的投入，并计划在2027年推出广告支持的订阅层级。
+去年12月8日，众擎机器人宣布，继此前完成Pre-A++与A1轮累计10亿元融资后，公司现完成A1+轮与A2轮融资。
 
-母公司支持 Starz的母公司表示支持这一战略调整。
+其中，A2轮融资由老股东黄浦江资本以绝对比例联合河南投资集团汇融基金、老股东华控基金领投。
 
 ## 相关推荐
 
-- 2026-06-29 19:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 19:14 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 19:19 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 19:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 19:14 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 19:18 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 19:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 18:57 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 19:12 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 19:09 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 19:23 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 19:00 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 19:03 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 19:12 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 19:05 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 19:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 19:26 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 19:29 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 19:27 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 19:18 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 19:00 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:58 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/88059.shtml)
-- 2026-06-29 19:06 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/2077736.shtml)
-- 2026-06-29 19:00 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/8171917.shtml)
-- 2026-06-29 19:03 - [沉睡花园](http://www.blog.minike.top/Article/details/12153.shtml)
-- 2026-06-29 19:15 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/8306534933.shtml)
-- 2026-06-29 19:16 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/370128.shtml)
-- 2026-06-29 19:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/210582.shtml)
-- 2026-06-29 19:16 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/483856163.shtml)
-- 2026-06-29 19:05 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/6940457637.shtml)
-- 2026-06-29 19:00 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/00126.shtml)
-- 2026-06-29 19:10 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/28966.shtml)
-- 2026-06-29 19:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/002105709.shtml)
-- 2026-06-29 19:12 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/500209290850.shtml)
-- 2026-06-29 19:13 - [第一炉香](https://www.share.minike.top/Article/details/4424135802.shtml)
-- 2026-06-29 19:13 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/01896961.shtml)
+- 2026-06-29 19:07 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/05463.shtml)
+- 2026-06-29 19:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/5730572.shtml)
+- 2026-06-29 19:23 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.kurohicncr.top/Article/details/152912397917.shtml)
+- 2026-06-29 19:10 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/625289615500.shtml)
+- 2026-06-29 19:21 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/42004902.shtml)
+- 2026-06-29 19:04 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/029902284337.shtml)
+- 2026-06-29 19:25 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/638135773915.shtml)
+- 2026-06-29 19:28 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/716461786620.shtml)
+- 2026-06-29 19:14 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/216017.shtml)
+- 2026-06-29 19:06 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/09050.shtml)
+- 2026-06-29 19:25 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/9051014299.shtml)
+- 2026-06-29 19:23 - [明星大侦探第四季](http://www.share.minike.top/Article/details/45450.shtml)
+- 2026-06-29 19:16 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/642212457066.shtml)
+- 2026-06-29 19:12 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/67434.shtml)
+- 2026-06-29 19:13 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/127052509609.shtml)

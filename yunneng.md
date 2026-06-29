@@ -1,56 +1,56 @@
-# 酒价内参5月8日价格发布：五粮液1618上涨2元/瓶
+# ATFX:美伊会谈前夕 脆弱停火与博弈继续牵制黄金原油
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月8日小幅回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9944元，较昨日上涨5元，结束前一日的回调。市场在短暂走弱后重回平稳，终端交投情绪保持稳定，核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨四跌两平，赢家略占上风。
+专题：ATFX外汇专栏投稿 4月10日，ATFX：由于投资者为本周末在巴基斯坦举行的美伊停火谈判做准备，今早黄金价格相对持稳，不过周线黄金有望连续第三周上涨。油价连跌后小腹反弹，大多数亚洲股市上涨。此前美国总统特朗普表示他对与伊朗达成协议“持乐观态度”，但随后又威胁德黑兰，要求其停止在霍尔木兹海峡收取费用。自停火以来，市场整体乐观情绪回升，周四的美股标普500指数创下10月以来
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月8日小幅回升。
+专题：ATFX外汇专栏投稿 4月10日，ATFX：由于投资者为本周末在巴基斯坦举行的美伊停火谈判做准备，今早黄金价格相对持稳，不过周线黄金有望连续第三周上涨。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9944元，较昨日上涨5元，结束前一日的回调。
+油价连跌后小腹反弹，大多数亚洲股市上涨。
 
-市场在短暂走弱后重回平稳，终端交投情绪保持稳定，核心单品涨跌分化依然显著。
+此前美国总统特朗普表示他对与伊朗达成协议“持乐观态度”，但随后又威胁德黑兰，要求其停止在霍尔木兹海峡收取费用。
 
-今日白酒市场11大单品五涨四跌两平，赢家略占上风。
+自停火以来，市场整体乐观情绪回升，周四的美股标普500指数创下10月以来最长连涨纪录。
 
-上涨方面，青花郎涨幅居前，上涨7元/瓶，重返700元关口上方；洋河梦之蓝M6+上涨4元/瓶，平近一月最高价格；五粮液1618上涨2元/瓶；古井贡古20与习酒君品均上涨1元/瓶。
+交易员们正密切关注脆弱的停火协议以及计划于周六在伊斯兰堡举行的美伊会谈，以从中寻找市场下一步走势的线索。
 
-下跌方面，国窖1573跌幅居前，下跌5元/瓶，近期该酒品的价格波动较为剧烈，在900元大关附近反复震荡；水晶剑南春下跌3元/瓶；飞天茅台与精品茅台均下跌1元/瓶。
+尽管原油价格正面临九个多月以来最大的单周跌幅，而全球股市有望连续第二周上涨，但能否维持涨势将取决于市场对停火协议能否维持以及石油能否顺利通过霍尔木兹海峡的信心。
 
-五粮液普五八代与青花汾20的价格环比保持不变。
+美伊会谈预计脆弱开局 第一，霍尔木兹海峡“开放”的真实含义截然不同。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+美方要求“完全、立即、安全”开放，不得出现任何限制或延误。
 
 ## 相关推荐
 
-- 2026-06-29 19:00 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 19:19 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 19:03 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 19:12 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 19:19 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 18:57 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 18:55 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 19:14 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 19:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 18:54 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 19:04 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 19:11 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 19:18 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 19:21 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 19:15 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 19:11 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 19:00 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 19:12 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 19:09 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 19:18 - [滚石点名酒店员工说有急救培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:02 - [河南高院审委会原委员曲海滨被查](http://www.share.minike.top/Article/details/149734522749.shtml)
-- 2026-06-29 19:21 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/3077841.shtml)
-- 2026-06-29 19:23 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/095098538.shtml)
-- 2026-06-29 19:08 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/28277562950.shtml)
-- 2026-06-29 19:16 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/69599272609.shtml)
-- 2026-06-29 19:08 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/2348164.shtml)
-- 2026-06-29 19:01 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/91935.shtml)
-- 2026-06-29 19:05 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/1426987096.shtml)
-- 2026-06-29 19:10 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/207688.shtml)
-- 2026-06-29 18:59 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/8363646360.shtml)
-- 2026-06-29 19:08 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/1632059.shtml)
-- 2026-06-29 19:06 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/6042946.shtml)
-- 2026-06-29 19:06 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/25390.shtml)
-- 2026-06-29 19:18 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/21087286.shtml)
-- 2026-06-29 18:56 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/36773.shtml)
+- 2026-06-29 19:05 - [TTG KSG](https://www.share.minike.top/Article/details/706319.shtml)
+- 2026-06-29 19:12 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/938940.shtml)
+- 2026-06-29 19:20 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/96977054.shtml)
+- 2026-06-29 19:11 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/132744.shtml)
+- 2026-06-29 19:17 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/946763761194.shtml)
+- 2026-06-29 19:03 - [我和我的家乡](https://www.share.minike.top/Article/details/696379012786.shtml)
+- 2026-06-29 19:07 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/3963257.shtml)
+- 2026-06-29 19:21 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/85059439.shtml)
+- 2026-06-29 19:28 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/95834751660.shtml)
+- 2026-06-29 19:24 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/0434022.shtml)
+- 2026-06-29 19:23 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/76423.shtml)
+- 2026-06-29 19:15 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/230056186021.shtml)
+- 2026-06-29 19:06 - [赵今麦时隔五年再演李诗情](http://www.share.kurohicncr.top/Article/details/99227013484.shtml)
+- 2026-06-29 19:11 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/07266806.shtml)
+- 2026-06-29 19:19 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/6978894028.shtml)

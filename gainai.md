@@ -1,58 +1,55 @@
-# 马来西亚央行维持利率不变 林吉特走强缓解通胀压力
+# 侨心聚绿意 同心绘新篇——清城区侨联党支部开展“绿美兴村”主题植树活动
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-尽管中东冲突持续导致经济增长面临的风险增加，但马来西亚央行仍连续第五次会议按兵不动。 该央行周四维持隔夜政策利率在2.75%不变，与接受彭博调查的25位经济学家的预期一致。过去两年该行仅调整过一次借贷成本，在2025年7月降息25个基点。 马来西亚第一季度经济增速放缓至5.3%，伊朗战争的影响开始冲击主要行业。高企的油价也把政府燃料补贴支出推升到战前水平的十倍左右。 不过，该国
+近日，清城区侨联机关党支部组织全体党员干部及部分侨界代表前往清远华侨农场、龙塘镇民平村开展“绿美兴村”主题植树活动，为美丽家园再添新绿。 植树活动现场，党员干部、侨界代表热情高涨、干劲十足，纷纷拿起铁锹、水桶等工具，投入到植树活动中。大家分工协作，有的挥锹铲土，有的扶苗填坑，有的浇水灌溉，现场一片热火朝天的劳动景象，一棵棵树苗在大家的齐心协力下迎风挺立，为这片土地增添了一抹新绿
 
 ## 正文
 
-尽管中东冲突持续导致经济增长面临的风险增加，但马来西亚央行仍连续第五次会议按兵不动。
+近日，清城区侨联机关党支部组织全体党员干部及部分侨界代表前往清远华侨农场、龙塘镇民平村开展“绿美兴村”主题植树活动，为美丽家园再添新绿。
 
-该央行周四维持隔夜政策利率在2.75%不变，与接受彭博调查的25位经济学家的预期一致。
+植树活动现场，党员干部、侨界代表热情高涨、干劲十足，纷纷拿起铁锹、水桶等工具，投入到植树活动中。
 
-过去两年该行仅调整过一次借贷成本，在2025年7月降息25个基点。
+大家分工协作，有的挥锹铲土，有的扶苗填坑，有的浇水灌溉，现场一片热火朝天的劳动景象，一棵棵树苗在大家的齐心协力下迎风挺立，为这片土地增添了一抹新绿和盎然生机。
 
-马来西亚第一季度经济增速放缓至5.3%，伊朗战争的影响开始冲击主要行业。
+今年以来，清城区侨联党支部已开展乡村绿化主题党日活动2场，组织侨界群众约80人次参与植树，种植各类树苗有200株，绿化面积约6亩地。
 
-高企的油价也把政府燃料补贴支出推升到战前水平的十倍左右。
+此次主题党日活动既是一次美化环境的实践行动，也是一堂生动的党性教育课。
 
-不过，该国仍被视为最能抵御能源冲击所引发不确定性的地区国家之一。
+参与活动的党员干部纷纷表示，在劳动中增强了生态环保意识，更在协作中凝聚了侨界力量，进一步坚定了听党话、跟党走的信念。
 
-与那些作为净能源进口国的东南亚邻国相比，马来西亚的价格压力仍相对温和。
-
-政策决定公布后，林吉特兑美元涨0.3%至3.91，维持涨势。
+区侨联主席、党支部书记叶佰杰表示，今后将继续创新主题党日活动形式，引导广大侨联干部和侨界群众厚植家国情怀，当好绿色发展的宣传者、实践者、推动者，为建设人与自然和谐共生的现代化贡献侨界智慧与力量。
 
 ## 相关推荐
 
-- 2026-06-29 19:16 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 19:02 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 19:13 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 19:22 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 19:06 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 19:07 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 19:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 19:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 19:06 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 19:16 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 18:59 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 19:14 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 19:23 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 19:16 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 19:03 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 19:22 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 19:29 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 19:08 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 19:21 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 19:15 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 19:18 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 19:08 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 19:15 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:05 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/2201767.shtml)
-- 2026-06-29 19:05 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/228171834608.shtml)
-- 2026-06-29 19:12 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/537980222872.shtml)
-- 2026-06-29 19:02 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/958669144292.shtml)
-- 2026-06-29 18:56 - [大学专业未来如何洗牌](http://www.share.minike.top/Article/details/2843451.shtml)
-- 2026-06-29 18:54 - [千与千寻](http://www.blog.minike.top/Article/details/8925656030.shtml)
-- 2026-06-29 19:04 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/699469.shtml)
-- 2026-06-29 19:16 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/882989908.shtml)
-- 2026-06-29 19:18 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/52236462417.shtml)
-- 2026-06-29 19:03 - [天道](https://www.share.kurohicncr.top/Article/details/56914.shtml)
-- 2026-06-29 19:08 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/863499.shtml)
-- 2026-06-29 19:10 - [T1零封KC MSI](https://www.share.minike.top/Article/details/6221015124.shtml)
-- 2026-06-29 19:19 - [官媒首曝六代机？大V解读](https://www.share.kurohicncr.top/Article/details/025473074.shtml)
-- 2026-06-29 19:11 - [断骨增高灰产拉一人提成1.5万元](https://www.share.minike.top/Article/details/24202239116.shtml)
-- 2026-06-29 19:05 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/5566064.shtml)
+- 2026-06-29 19:19 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/3612417365.shtml)
+- 2026-06-29 19:17 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/0953835.shtml)
+- 2026-06-29 19:28 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/655072153807.shtml)
+- 2026-06-29 19:29 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/1354254.shtml)
+- 2026-06-29 19:26 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/655340.shtml)
+- 2026-06-29 19:04 - [我们的少年时代2](https://www.blog.minike.top/Article/details/6877364395.shtml)
+- 2026-06-29 19:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/5082227179.shtml)
+- 2026-06-29 19:21 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/75784518.shtml)
+- 2026-06-29 19:14 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.kurohicncr.top/Article/details/3547023315.shtml)
+- 2026-06-29 19:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/49925.shtml)
+- 2026-06-29 19:21 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/89416384854.shtml)
+- 2026-06-29 19:22 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/5372822240.shtml)
+- 2026-06-29 19:18 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.minike.top/Article/details/0852000.shtml)
+- 2026-06-29 19:26 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/7363503.shtml)
+- 2026-06-29 19:12 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/9557663.shtml)

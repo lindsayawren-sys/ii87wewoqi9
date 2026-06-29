@@ -1,55 +1,57 @@
-# 6条公交+城际加密 京冀跨省通勤惠及河北大厂民众
+# 国泰君安期货：焦煤持续下跌，交易逻辑发生了哪些变化？
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 20:56 来源：中国新闻网 5月8日早上6点20分，在北京市朝阳区第三医院工作的张媛媛走出位于河北廊坊的小区大门，不到5分钟就登上大厂专1线。自从有了这条公交线路，她的通勤从容了许多。 张媛媛的通勤路，是京冀两地民众跨省出行实现无缝衔接、就近直达的一个缩影。京津冀协同发展战略实施12年来，河北大厂跨区域交通网络互联互通步伐持续加快，首都环线高
+国泰君安期货市场分析师 陈骏昊 投资咨询证号：Z0021546 近期焦煤期货主力合约价格持续下挫，今天盘面减仓下行，跌破前低位置，收报1056.5元/吨。此前焦煤上涨的主要逻辑在于“能源替代预期”，也就是油气价格大幅抬升，市场预期煤炭作为替代能源的需求可能增加，从而推高价格。而当前焦煤价格已经回落至地缘冲突开始前的水平，交易逻辑发生了哪些变化？ 主要驱动： 1． 情绪退潮，溢价
 
 ## 正文
 
-发布时间：2026年05月08日 20:56 来源：中国新闻网 5月8日早上6点20分，在北京市朝阳区第三医院工作的张媛媛走出位于河北廊坊的小区大门，不到5分钟就登上大厂专1线。
+国泰君安期货市场分析师 陈骏昊 投资咨询证号：Z0021546 近期焦煤期货主力合约价格持续下挫，今天盘面减仓下行，跌破前低位置，收报1056.5元/吨。
 
-自从有了这条公交线路，她的通勤从容了许多。
+此前焦煤上涨的主要逻辑在于“能源替代预期”，也就是油气价格大幅抬升，市场预期煤炭作为替代能源的需求可能增加，从而推高价格。
 
-张媛媛的通勤路，是京冀两地民众跨省出行实现无缝衔接、就近直达的一个缩影。
+而当前焦煤价格已经回落至地缘冲突开始前的水平，交易逻辑发生了哪些变化？
 
-京津冀协同发展战略实施12年来，河北大厂跨区域交通网络互联互通步伐持续加快，首都环线高速大厂段、京唐城际铁路大厂段、厂通路潮白河大桥先后建成通车，区域路网通达性显著提升。
+主要驱动： 1． 情绪退潮，溢价回吐：随着近期美伊达成临时停火协议，油价短期出现快速回落，市场情绪降温，“能源替代预期”支撑松动，投机资金快速离场，盘面价格波动逐渐回归至自身基本面逻辑。
 
-截至目前，大厂已有往返北京的公交线路6条，京唐城际铁路大厂站日均开行列车增加到20班次。
+2． 临近交割，压力凸显：05合约临近交割，多头接货意愿较弱，部分选择离场或移仓，近月合约支撑削弱；同时，此前焦煤期货价格上涨后升水现货，而当情绪转弱，价格出现回落，盘面上卖出套保压力逐渐显现，令价格进一步承压。
 
-(马祥涛 李月 制作 艾广德） 责任编辑：【卢岩】
+3． 供应宽松，需求放缓：从基本面看，煤炭供应保持高位，国内煤矿复产推进，产量回升；蒙煤通关创历史新高，库存高位。
+
+需求端，钢厂利润低位，终端需求较弱，影响焦煤的采购节奏和价格接受度；同时情绪降温，投机需求也出现明显消退。
+
+整体来说，焦煤的交易逻辑从前期的能源替代预期切换为交割和基本面的现实压力。
 
 ## 相关推荐
 
-- 2026-06-29 19:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 19:10 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 19:23 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 19:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 19:18 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 19:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 19:02 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 19:10 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 19:05 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 18:58 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 19:15 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 18:56 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 19:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 19:24 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 19:11 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 19:28 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 19:17 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 19:02 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 19:08 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 19:21 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-29 19:09 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 19:01 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 19:04 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 19:20 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/229849335538.shtml)
-- 2026-06-29 19:16 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/0359110.shtml)
-- 2026-06-29 18:59 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/7346915630.shtml)
-- 2026-06-29 19:21 - [逃狱兄弟](https://www.share.minike.top/Article/details/94787153.shtml)
-- 2026-06-29 19:18 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/41017174750.shtml)
-- 2026-06-29 19:17 - [CORTIS 小牌大耍](https://www.blog.minike.top/Article/details/42265.shtml)
-- 2026-06-29 19:10 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/66554379156.shtml)
-- 2026-06-29 19:13 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/1001781801.shtml)
-- 2026-06-29 19:10 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/732428.shtml)
-- 2026-06-29 19:02 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/1913197.shtml)
-- 2026-06-29 19:13 - [斛珠夫人](https://www.blog.minike.top/Article/details/6074114943.shtml)
-- 2026-06-29 19:16 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/702614665837.shtml)
-- 2026-06-29 19:00 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/606642338.shtml)
-- 2026-06-29 19:21 - [7款高价创新药有望降价](http://www.blog.kurohicncr.top/Article/details/5320495.shtml)
-- 2026-06-29 19:12 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/884287.shtml)
+- 2026-06-29 19:28 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/9038963.shtml)
+- 2026-06-29 19:06 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/74614618.shtml)
+- 2026-06-29 19:17 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/28918875.shtml)
+- 2026-06-29 19:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/07684.shtml)
+- 2026-06-29 19:21 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/877157209.shtml)
+- 2026-06-29 19:03 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/940947412005.shtml)
+- 2026-06-29 19:02 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/311210806074.shtml)
+- 2026-06-29 19:11 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/21640373.shtml)
+- 2026-06-29 19:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/04059800889.shtml)
+- 2026-06-29 19:00 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.kurohicncr.top/Article/details/05079078.shtml)
+- 2026-06-29 19:18 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/245935708985.shtml)
+- 2026-06-29 19:23 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/736005680999.shtml)
+- 2026-06-29 19:09 - [斛珠夫人](https://www.blog.minike.top/Article/details/130259203972.shtml)
+- 2026-06-29 19:02 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/06667.shtml)
+- 2026-06-29 19:12 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.minike.top/Article/details/25623383774.shtml)

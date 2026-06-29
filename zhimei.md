@@ -1,59 +1,59 @@
-# 华泰期货：出栏计划呈现放缓，生猪预期整体偏好
+# 工信部：2025年国家高新区实现园区生产总值20.4万亿元
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 薛钧元 生猪观点 市场要闻与重要数据 期货方面，昨日收盘生猪 2607合约11380元/吨，较前交易日变动+15.00元/吨，幅度+0.13%。现货方面，河南地区外三元生猪价格10.16元/公斤，较前交易日变动+0.02元/公斤，现货基差 LH07-1220，较前交易日变动+5；江苏地区外三元生猪价格 10.29元/公斤，较前交易日变动-0.01元/公斤
+中新网4月10日电 工业和信息化部规划司司长姚珺10日表示，2025年，国家高新区实现园区生产总值20.4万亿元，占全国GDP的比重为14.5%，较“十三五”末提高1.2个百分点；实现税收收入约2.1万亿元，比“十三五”末增长10.6%。4月10日，工业和信息化部举行“推动国家高新区高质量发展”新闻发布会。会上，姚珺称，“十四五”以来，工业和信息化部落实党中央、国务院决策部署，
 
 ## 正文
 
-来源：华泰期货 作者： 薛钧元 生猪观点 市场要闻与重要数据 期货方面，昨日收盘生猪 2607合约11380元/吨，较前交易日变动+15.00元/吨，幅度+0.13%。
+中新网4月10日电 工业和信息化部规划司司长姚珺10日表示，2025年，国家高新区实现园区生产总值20.4万亿元，占全国GDP的比重为14.5%，较“十三五”末提高1.2个百分点；实现税收收入约2.1万亿元，比“十三五”末增长10.6%。
 
-现货方面，河南地区外三元生猪价格10.16元/公斤，较前交易日变动+0.02元/公斤，现货基差 LH07-1220，较前交易日变动+5；江苏地区外三元生猪价格 10.29元/公斤，较前交易日变动-0.01元/公斤，现货基差LH07-1090，较前交易日变动-25；四川地区外三元生猪价格9.53元/公斤，较前交易日变动+0.00元/公斤，现货基差LH07-1850，较前交易日变动-15。
+4月10日，工业和信息化部举行“推动国家高新区高质量发展”新闻发布会。
 
-据农业农村部监测，5月7日“农产品批发价格200指数”为115.96，比昨天下降0.15个点，“菜篮子”产品批发价格指数为116.53，比昨天下降0.17个点。
+会上，姚珺称，“十四五”以来，工业和信息化部落实党中央、国务院决策部署，与各部门、各地方一道，坚持“发展高科技、实现产业化”，推动国家高新区在中国特色高新技术产业化道路上迈出更加坚实的步伐，又“高”又“新”发展的基础更牢、成色更足。
 
-全国农产品批发市场猪肉平均价格为15.12元/公斤，比昨天下降0.5%；牛肉66.34元/公斤，比昨天下降0.6%；羊肉63.80元/公斤，比昨天下降0.8%；鸡蛋8.78元/公斤，比昨天下降0.6%；白条鸡16.74元/公斤，比昨天下降3.9%。
+今年2月，国务院批复河北雄安高新区升级为国家高新区，国家高新区总数达179家，已成为科技创新和产业创新深度融合的重要载体和高新技术产业发展的主阵地，为实现高水平科技自立自强、推进新型工业化、发展新质生产力提供了有力支撑。
 
-市场分析 生猪现货价格涨跌互现，全国均价大体稳定，节后调整幅度相对不大。
+主要成效可概括为四个“更加”。
 
-养殖端逐渐恢复正常出栏节奏，屠宰端因节后消费偏弱采购较为平淡，市场整体猪源供应充足，短期难有大幅上涨动能。
+第一，经济实力稳步提升，引擎作用更加凸显。
 
-养殖端出栏计划减量，供应压力边际改善给予行业情绪好转支撑。
+持续推动国家高新区科技创新突破、产业转型升级、新型基础设施建设，不断筑牢实体经济的根基。
 
-二次育肥入场情绪在节后仍在延续，区域主要集中于北方地区为主，放缓现阶段猪价调整幅度，但库存有所累积，叠加后续市场对大体重猪源的季节性减弱，仍需注意这部分潜在压力。
+2025年，国家高新区实现园区生产总值20.4万亿元，占全国GDP的比重为14.5%，较“十三五”末提高1.2个百分点；实现税收收入约2.1万亿元，比“十三五”末增长10.6%。
 
 ## 相关推荐
 
-- 2026-06-29 19:04 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 19:02 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 19:21 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 19:17 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 19:10 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 19:19 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 18:57 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 19:12 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 19:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 19:02 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 19:08 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 18:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 18:54 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 19:14 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 19:20 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 19:19 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 19:00 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 19:12 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 19:18 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 19:09 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 19:13 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 19:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 19:15 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 19:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 19:05 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 19:05 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:22 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/3939828.shtml)
-- 2026-06-29 19:04 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/40811.shtml)
-- 2026-06-29 18:55 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/12597.shtml)
-- 2026-06-29 18:56 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/7725436.shtml)
-- 2026-06-29 19:09 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/25470.shtml)
-- 2026-06-29 18:55 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/771718123.shtml)
-- 2026-06-29 19:04 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/017713.shtml)
-- 2026-06-29 19:06 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.kurohicncr.top/Article/details/18007517081.shtml)
-- 2026-06-29 19:11 - [周杰伦演唱会含星量](http://www.share.kurohicncr.top/Article/details/0244094.shtml)
-- 2026-06-29 19:19 - [小娘惹](https://www.share.kurohicncr.top/Article/details/16559083255.shtml)
-- 2026-06-29 19:18 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/67627149099.shtml)
-- 2026-06-29 19:04 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/70457693386.shtml)
-- 2026-06-29 19:11 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/4866188.shtml)
-- 2026-06-29 19:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/63415645108.shtml)
-- 2026-06-29 19:12 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.minike.top/Article/details/18408697.shtml)
+- 2026-06-29 19:20 - [森保一坚信日本能赢巴西](https://www.share.minike.top/Article/details/35716905330.shtml)
+- 2026-06-29 19:00 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/04236838899.shtml)
+- 2026-06-29 19:01 - [扬名立万](https://www.blog.minike.top/Article/details/32178216386.shtml)
+- 2026-06-29 19:07 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/94022515.shtml)
+- 2026-06-29 19:11 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/365771.shtml)
+- 2026-06-29 19:17 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/06672496733.shtml)
+- 2026-06-29 19:03 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/733580.shtml)
+- 2026-06-29 19:07 - [第一炉香](https://www.blog.minike.top/Article/details/28349618231.shtml)
+- 2026-06-29 19:14 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/17613921691.shtml)
+- 2026-06-29 19:19 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/5376884188.shtml)
+- 2026-06-29 19:01 - [逆天祖国人](http://www.blog.minike.top/Article/details/232410297.shtml)
+- 2026-06-29 19:10 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/02543356.shtml)
+- 2026-06-29 19:22 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/575368.shtml)
+- 2026-06-29 19:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/6412910.shtml)
+- 2026-06-29 19:00 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/58786925.shtml)

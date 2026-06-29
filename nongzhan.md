@@ -1,56 +1,56 @@
-# 美国财政部公布对伊朗和古巴新一轮制裁措施
+# 金融支持零碳园区建设论坛举办 聚焦零碳园区建设与绿色金融创新融合
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-中新网5月8日电 据外媒报道，美国财政部外国资产控制办公室7日发布公告，把来自伊拉克和古巴的多名个人和实体列入“特别指定国民清单”(SDN清单)，通过制裁进一步向伊朗和古巴施压。 消息称，制裁对象包括伊拉克石油部副部长阿里·马里吉·巴哈德利，美方指责其“滥用职权，帮助出售被挪用的石油，为伊朗政权及其在伊拉克的代理人谋取利益”。美方还制裁了与伊朗关系密切的伊拉克武装组织的3名高级
+4月9日，由中央财经大学绿色金融国际研究院主办，中国太保及旗下中国太保产险协办的“金融支持零碳园区建设”论坛在北京经开区举行。来自国家发改委能源研究所、北京经开区、苏州工业园区、浙江温岭经开区、北京绿色交易所、中国质量认证中心、中再产险、兴业银行、国网英大、国家电投等政府有关部门、金融机构、科研院所及实体企业的70余位代表出席本次活动，共同探讨金融如何赋能零碳园区建设，以推动产
 
 ## 正文
 
-中新网5月8日电 据外媒报道，美国财政部外国资产控制办公室7日发布公告，把来自伊拉克和古巴的多名个人和实体列入“特别指定国民清单”(SDN清单)，通过制裁进一步向伊朗和古巴施压。
+4月9日，由中央财经大学绿色金融国际研究院主办，中国太保及旗下中国太保产险协办的“金融支持零碳园区建设”论坛在北京经开区举行。
 
-消息称，制裁对象包括伊拉克石油部副部长阿里·马里吉·巴哈德利，美方指责其“滥用职权，帮助出售被挪用的石油，为伊朗政权及其在伊拉克的代理人谋取利益”。
+来自国家发改委能源研究所、北京经开区、苏州工业园区、浙江温岭经开区、北京绿色交易所、中国质量认证中心、中再产险、兴业银行、国网英大、国家电投等政府有关部门、金融机构、科研院所及实体企业的70余位代表出席本次活动，共同探讨金融如何赋能零碳园区建设，以推动产业低碳转型绿色升级、应对国际绿色贸易壁垒。
 
-美方还制裁了与伊朗关系密切的伊拉克武装组织的3名高级领导人。
+中央财经大学校长助理、国家财经战略研究院院长王红梅指出，零碳园区是产业绿色转型、实现“双碳”目标的核心抓手，已被纳入国家重点工作部署。
 
-根据公告，受制裁对象在美资产均被冻结，美国实体或个人不得与其进行交易。
+零碳园区建设兼具公共属性与市场属性，在能源结构、产业模式、价值链条上深刻变革，当前面临前期投资大、回报周期长、碳资产估值不健全、风险识别与分散机制缺失等突出瓶颈。
 
-美国财政部称，正对伊朗施加最大压力，随时准备对伊朗国防工业基地采取经济行动。
+金融作为支撑经济社会发展的重要手段，需提升资源配置、风险定价与产品创新能力，打通资金精准落地堵点，服务零碳园区建设及“双碳”目标实现。
 
-“任何个人或船只，凡通过秘密贸易或金融渠道协助非法石油或其他商品交易，均可能面临美国制裁。
+中国太保产险总经理陈辉表示，零碳园区是推动工业绿色转型、落实“十五五”降碳目标的关键载体，建设过程涉及能源、产业、基建、技术等多个环节，风险保障与专业配套服务至关重要。
 
-”
+保险机构可以通过强化风险保障、做强风险减量、提升碳综合服务，全方位护航零碳园区高质量建设。
+
+中国太保产险作为行业头部保险机构和负责任的险企，始终把绿色发展融入经营全局，将助力“双碳”目标实现作为重要政治责任和发展使命。
 
 ## 相关推荐
 
-- 2026-06-29 19:01 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 19:03 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 19:20 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 19:09 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 19:09 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 18:56 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 19:10 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 19:06 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 19:07 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 19:13 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 19:14 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 19:06 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 19:26 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 19:19 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 19:28 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 19:16 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 19:27 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 19:01 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 19:14 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 19:23 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 19:08 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 19:09 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:21 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/06442214.shtml)
-- 2026-06-29 19:05 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/7258764.shtml)
-- 2026-06-29 18:59 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/46772.shtml)
-- 2026-06-29 19:08 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/816000.shtml)
-- 2026-06-29 19:05 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/0824792375.shtml)
-- 2026-06-29 18:59 - [无畏为自己的猫正名了](https://www.blog.minike.top/Article/details/309077298.shtml)
-- 2026-06-29 19:00 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/259377633287.shtml)
-- 2026-06-29 19:00 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.minike.top/Article/details/11856957074.shtml)
-- 2026-06-29 18:58 - [急先锋](http://www.share.kurohicncr.top/Article/details/32820977570.shtml)
-- 2026-06-29 19:14 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/02835781258.shtml)
-- 2026-06-29 19:19 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/6304861.shtml)
-- 2026-06-29 19:08 - [四川达州发生一起交通事故致2死](http://www.share.kurohicncr.top/Article/details/92063414.shtml)
-- 2026-06-29 19:10 - [普京建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/1078854.shtml)
-- 2026-06-29 18:58 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/2157503.shtml)
-- 2026-06-29 19:11 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/623712096477.shtml)
+- 2026-06-29 19:26 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/463707.shtml)
+- 2026-06-29 19:20 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/253431627.shtml)
+- 2026-06-29 19:11 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/77203121135.shtml)
+- 2026-06-29 19:04 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/5091583.shtml)
+- 2026-06-29 19:21 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/5008149.shtml)
+- 2026-06-29 19:29 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/437135728.shtml)
+- 2026-06-29 19:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/9858083357.shtml)
+- 2026-06-29 19:22 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/385703.shtml)
+- 2026-06-29 19:13 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/964315365.shtml)
+- 2026-06-29 19:09 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/405444974288.shtml)
+- 2026-06-29 19:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/72831413.shtml)
+- 2026-06-29 19:11 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/8516817621.shtml)
+- 2026-06-29 19:08 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/9154634.shtml)
+- 2026-06-29 19:00 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/75228348573.shtml)
+- 2026-06-29 19:13 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/148589.shtml)

@@ -1,56 +1,45 @@
-# 熄了老烟囱 “热”了长江畔
+# GLP-1基因学可能指导治疗 支持未来精准医疗方法
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-“沉睡”十余年的重庆发电厂旧址改名“重庆艺术公园”，变身融合博物馆、商业空间于一体的长江畔文化新地标。 沿四川美术学院黄桷坪校区外被颜料浸染的涂鸦艺术街向南而行，朝着长江方向漫步，直到在街角拐过一道弯，视野豁然开朗。远处，两根标志性的烟囱巍然耸立，直指云端。 继续前行数百米，一方石刻映入眼帘，上面镌刻六个大字——重庆艺术公园。人们漫步于此，不经意间总会谈起这里正在发生的“蜕变”
+礼来公司（LLY）及其竞争对手获得了新的见解，一项发表在《自然》杂志上的大型研究将GLP1R/GIPR变异与司美格鲁肽/替尔泊肽在减肥和副作用风险方面的适度差异联系起来，支持了未来的精准医疗方法。责任编辑：张俊 SF065
 
 ## 正文
 
-“沉睡”十余年的重庆发电厂旧址改名“重庆艺术公园”，变身融合博物馆、商业空间于一体的长江畔文化新地标。
+礼来公司（LLY）及其竞争对手获得了新的见解，一项发表在《自然》杂志上的大型研究将GLP1R/GIPR变异与司美格鲁肽/替尔泊肽在减肥和副作用风险方面的适度差异联系起来，支持了未来的精准医疗方法。
 
-沿四川美术学院黄桷坪校区外被颜料浸染的涂鸦艺术街向南而行，朝着长江方向漫步，直到在街角拐过一道弯，视野豁然开朗。
-
-远处，两根标志性的烟囱巍然耸立，直指云端。
-
-继续前行数百米，一方石刻映入眼帘，上面镌刻六个大字——重庆艺术公园。
-
-人们漫步于此，不经意间总会谈起这里正在发生的“蜕变”。
-
-这里是新中国成立后西南地区首座自动化火力发电厂——重庆发电厂旧址，也是重庆目前保存最完好的工业遗产建筑群之一。
-
-处于三峡库区的重庆，是我国工业重镇。
-
-过去，沿江布局的工业企业在促进当地经济发展同时，也给长江生态环境带来持续的承载压力。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 18:59 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 19:07 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 19:01 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 18:58 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 19:12 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 19:23 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 19:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 19:20 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 19:07 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 19:07 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 19:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 19:21 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 19:10 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 19:23 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 19:18 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 19:09 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 19:21 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 19:09 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 19:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 19:12 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 19:26 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:06 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/867121210155.shtml)
-- 2026-06-29 18:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/710414.shtml)
-- 2026-06-29 19:02 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/81264203.shtml)
-- 2026-06-29 19:03 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/6120072783.shtml)
-- 2026-06-29 19:21 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/48661404.shtml)
-- 2026-06-29 19:04 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/02767162.shtml)
-- 2026-06-29 19:17 - [中国战机大片上新](https://www.blog.minike.top/Article/details/33702410.shtml)
-- 2026-06-29 19:01 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/65079.shtml)
-- 2026-06-29 19:14 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/0999914123.shtml)
-- 2026-06-29 19:13 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/034403.shtml)
-- 2026-06-29 19:21 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/608025.shtml)
-- 2026-06-29 19:21 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/367088653.shtml)
-- 2026-06-29 19:23 - [请回答王牌2019](http://www.blog.minike.top/Article/details/36970442940.shtml)
-- 2026-06-29 19:13 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.kurohicncr.top/Article/details/283295989.shtml)
-- 2026-06-29 19:14 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.minike.top/Article/details/2532520.shtml)
+- 2026-06-29 19:25 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/573124888.shtml)
+- 2026-06-29 19:10 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/05745.shtml)
+- 2026-06-29 19:09 - [挪威王储妃长子两次强奸获刑](http://www.share.minike.top/Article/details/06410499.shtml)
+- 2026-06-29 19:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/152727962821.shtml)
+- 2026-06-29 19:12 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/578885.shtml)
+- 2026-06-29 19:25 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/213288246.shtml)
+- 2026-06-29 19:22 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/0138292.shtml)
+- 2026-06-29 19:16 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/81941359.shtml)
+- 2026-06-29 19:24 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.kurohicncr.top/Article/details/716123113.shtml)
+- 2026-06-29 19:19 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/63465.shtml)
+- 2026-06-29 19:27 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/143471420.shtml)
+- 2026-06-29 19:29 - [王楚钦开门红](https://www.blog.minike.top/Article/details/104187583.shtml)
+- 2026-06-29 19:03 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/6091404498.shtml)
+- 2026-06-29 19:10 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/924204329129.shtml)
+- 2026-06-29 19:06 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/79630.shtml)

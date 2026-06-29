@@ -1,51 +1,58 @@
-# 国内成品油价今晚要上调 加满一箱油将多花12.5元
+# 赛力斯总裁何利扬：问界汽车用户大多都会使用辅助驾驶功能
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-央视财经 【\[话筒\]#油价今晚要上调##加满一箱油将多花12.5元#】记者今天从国家发展改革委了解到，5月8日24时国内成品油调价窗口将开启。据国家发展改革委价格监测中心监测，本轮成品油调价周期内（4月21日24时——5月8日24时），国际油价先扬后抑。5月8日24时起，国内汽、柴油价格每吨分别上调320和310元，全国平均来看，92号汽油、95号汽油和0号柴油每升分别上调0.
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 赛力斯汽车总裁何利扬认为，在汽车产业发展过程中，客观来讲技术迭代速度非常之快，如何不断采用新技术，同时满足老用户的需求，如何把握快速迭代与质量品质的平衡、兼顾用户感受，这始终是一个重要课题。
 
 ## 正文
 
-央视财经 【\[话筒\]#油价今晚要上调##加满一箱油将多花12.5元#】记者今天从国家发展改革委了解到，5月8日24时国内成品油调价窗口将开启。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-据国家发展改革委价格监测中心监测，本轮成品油调价周期内（4月21日24时——5月8日24时），国际油价先扬后抑。
+赛力斯汽车总裁何利扬认为，在汽车产业发展过程中，客观来讲技术迭代速度非常之快，如何不断采用新技术，同时满足老用户的需求，如何把握快速迭代与质量品质的平衡、兼顾用户感受，这始终是一个重要课题。
 
-5月8日24时起，国内汽、柴油价格每吨分别上调320和310元，全国平均来看，92号汽油、95号汽油和0号柴油每升分别上调0.25元、0.27元、0.27元。
+在这个过程中，赛力斯认为无论是新用户还是老用户，都必须享受到高品质的服务和高价值的体验。
 
-央视财经记者给您算了一笔账，用92号汽油加满50升的油箱将多花12.5元。
+何利扬分享几个关键数据：五年来，问界汽车获得了超过百万用户的选择。
 
-（记者 平凡 张静也）责任编辑：刘万里 SF014
+在累计行驶里程中，充电行驶里程超过了70%。
+
+他谈到，问界汽车提供的是增程与纯电的双面动力，尤其是今年以来，选择纯电车型的用户比例大幅增加，这也使得累计充电行驶里程占比超过了70%。
+
+另外，问界汽车累计辅助驾驶里程中，活跃用户占比超过了97.5%，换句话说，开问界汽车，具备辅助驾驶功能的车型的用户，大多都会使用辅助驾驶功能，这也是一个行业新突破。
+
+他还有两个更重要的数据分享：在过去30天，采用辅助驾驶或相关智能服务的用户中，依靠救援（eCall）的事故百万公里频次为0.13次，同比去年下降了55.2%——这里指的是发生重大碰撞需要拨打救援电话，或后台监测到的重大事故，这说明智能与安全极大地改善了我们的行驶安全。
 
 ## 相关推荐
 
-- 2026-06-29 19:19 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 19:07 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 18:59 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 18:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 19:08 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 18:55 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 19:22 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 18:54 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 19:18 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 19:00 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 18:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 19:22 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 19:12 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 19:26 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 19:10 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 19:05 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 19:09 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 19:22 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 19:24 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 19:12 - [中国战机大片上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 19:18 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 19:11 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 19:12 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:06 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/938692521934.shtml)
-- 2026-06-29 19:20 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/632826.shtml)
-- 2026-06-29 19:16 - [刘冰任河南南阳市代市长](https://www.blog.minike.top/Article/details/9031449794.shtml)
-- 2026-06-29 19:18 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/2845873.shtml)
-- 2026-06-29 19:16 - [花万元相亲对象是50元雇的演员](http://www.share.kurohicncr.top/Article/details/52852192361.shtml)
-- 2026-06-29 18:57 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/323076490.shtml)
-- 2026-06-29 19:12 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/503878392185.shtml)
-- 2026-06-29 19:21 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/538264212.shtml)
-- 2026-06-29 18:55 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/5691686.shtml)
-- 2026-06-29 18:54 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/00220.shtml)
-- 2026-06-29 18:57 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/4796513.shtml)
-- 2026-06-29 19:23 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/978404.shtml)
-- 2026-06-29 18:57 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/5646293154.shtml)
-- 2026-06-29 18:55 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/72135.shtml)
-- 2026-06-29 19:10 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/9652772644.shtml)
+- 2026-06-29 19:18 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/958230519717.shtml)
+- 2026-06-29 19:12 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/99840.shtml)
+- 2026-06-29 19:29 - [AG 宫斗](http://www.blog.minike.top/Article/details/642502798910.shtml)
+- 2026-06-29 19:23 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/6867149.shtml)
+- 2026-06-29 19:15 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/313623806.shtml)
+- 2026-06-29 19:20 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/59892520544.shtml)
+- 2026-06-29 19:18 - [网友晒14年前支教影像等来学生评论](http://www.blog.kurohicncr.top/Article/details/9952502992.shtml)
+- 2026-06-29 19:09 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/76605.shtml)
+- 2026-06-29 19:02 - [斗破苍穹](http://www.blog.minike.top/Article/details/59610257666.shtml)
+- 2026-06-29 19:21 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/892312432.shtml)
+- 2026-06-29 19:00 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/5000664070.shtml)
+- 2026-06-29 19:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/7580817.shtml)
+- 2026-06-29 19:03 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/3878081778.shtml)
+- 2026-06-29 19:24 - [极限挑战第一季](http://www.blog.minike.top/Article/details/19385656.shtml)
+- 2026-06-29 19:28 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/064945188718.shtml)

@@ -1,57 +1,61 @@
-# 健身连锁Planet Fitness一度跌42%，业绩指引不及预期
+# 山西“资金+监管+改革”协同发力 托起幸福“夕阳红”
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 平价健身连锁运营商Planet Fitness下调全年营收预期，主因传统新年旺季会员新增人数不及预期，公司股价创下史上最大单日跌幅。 美股盘中该股最大跌幅达 42%，跌至六年新低，并一度触发临时停牌。 这是公司 2015 年上市以来最大单日跌幅；叠加此次大跌，其年内累计跌幅已达 41%。 这家总部位于新罕布什尔州的企业发布公告称，目前预计
+中新网太原4月9日电 (记者 杨静)养老服务事关千家万户幸福安康。在山西省委宣传部、山西省人民政府新闻办公室9日举行的《山西省深化养老服务改革发展的若干举措》政策吹风会上，山西省财政厅副厅长王娅萍表示，山西将养老服务体系建设摆在财政支出保障的优先位置，通过“资金投入、绩效监管、制度改革”三管齐下，推动全省养老服务高质量发展。 数据显示，“十四五”期间，山西用于养老服务和老年人福
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 平价健身连锁运营商Planet Fitness下调全年营收预期，主因传统新年旺季会员新增人数不及预期，公司股价创下史上最大单日跌幅。
+中新网太原4月9日电 (记者 杨静)养老服务事关千家万户幸福安康。
 
-美股盘中该股最大跌幅达 42%，跌至六年新低，并一度触发临时停牌。
+在山西省委宣传部、山西省人民政府新闻办公室9日举行的《山西省深化养老服务改革发展的若干举措》政策吹风会上，山西省财政厅副厅长王娅萍表示，山西将养老服务体系建设摆在财政支出保障的优先位置，通过“资金投入、绩效监管、制度改革”三管齐下，推动全省养老服务高质量发展。
 
-这是公司 2015 年上市以来最大单日跌幅；叠加此次大跌，其年内累计跌幅已达 41%。
+数据显示，“十四五”期间，山西用于养老服务和老年人福利方面的支出达50.39亿元，年均增长53%，超过民生支出增幅48个百分点，有力支撑了养老服务供给能力和服务水平的持续提升。
 
-这家总部位于新罕布什尔州的企业发布公告称，目前预计 2026 年营收增速约7%，低于此前约 9% 的预期；同时将调整后每股收益增速下调至约 4%，远低于华尔街预期的 9.7%。
+加快完善多层次社会保障体系 在提高养老保险待遇水平方面，2025年，山西各级财政累计投入资金37亿元。
 
-公司首席执行官科琳・基廷在财报电话会议上表示，本季度恶劣天气对多个地区门店经营造成负面影响。
+其中，投入30.7亿元调整退休人员基本养老金，增幅2%，惠及323.36万退休职工。
 
-由于会员订阅收入具有强季节性，一季度新增会员偏少，会对全年业绩产生放大式拖累。
+“今年将继续提高这一标准。
 
-彭博旗下消费数据机构 Second Measure 数据显示，公司 1 月销售额同比下滑约 5%，表现落后于 Crunch Fitness、EOS Fitness、美国基督教青年会（YMCA）等同业对手。
+”王娅萍说。
 
-尽管一季度营收和利润均超出预期，但年初会员增长乏力，叠加高端黑卡会员涨价计划暂缓，令投资者信心受挫。
+同时，山西建立了全国唯一的城乡居民补充养老保险制度：年满65周岁的，每人每月发放20元；年满80周岁的，每人每月再提高10元。
 
 ## 相关推荐
 
-- 2026-06-29 19:13 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 18:55 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 19:17 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 19:03 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 19:12 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 19:23 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 19:17 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 19:22 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 18:57 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 18:56 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 19:05 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 19:17 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 19:28 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 19:13 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 19:04 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 19:04 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 19:17 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 19:09 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 19:06 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 19:03 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 19:14 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 19:24 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 19:21 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 19:27 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 19:20 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 19:21 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:04 - [天柱山回应网红打卡树枝被砍](http://www.blog.kurohicncr.top/Article/details/993491099659.shtml)
-- 2026-06-29 18:56 - [一见倾心](http://www.share.kurohicncr.top/Article/details/774709981904.shtml)
-- 2026-06-29 18:59 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.kurohicncr.top/Article/details/21611.shtml)
-- 2026-06-29 19:05 - [扩军害了世界杯吗](https://www.blog.minike.top/Article/details/820014.shtml)
-- 2026-06-29 19:06 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/26553640.shtml)
-- 2026-06-29 19:10 - [金刚川](http://www.share.minike.top/Article/details/37160136335.shtml)
-- 2026-06-29 19:13 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/7653977080.shtml)
-- 2026-06-29 19:20 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/893154183.shtml)
-- 2026-06-29 19:08 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/506336781.shtml)
-- 2026-06-29 19:03 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/94320.shtml)
-- 2026-06-29 19:02 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/3385451.shtml)
-- 2026-06-29 19:16 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/1791032670.shtml)
-- 2026-06-29 18:55 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/27663.shtml)
-- 2026-06-29 19:17 - [沙丘](http://www.blog.kurohicncr.top/Article/details/51367.shtml)
-- 2026-06-29 18:58 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/96052.shtml)
+- 2026-06-29 19:28 - [看大国重器“云端穿针引线”](http://www.share.minike.top/Article/details/84911945.shtml)
+- 2026-06-29 19:00 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/218048.shtml)
+- 2026-06-29 19:07 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/9481518.shtml)
+- 2026-06-29 19:19 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/76452.shtml)
+- 2026-06-29 19:20 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/905700408818.shtml)
+- 2026-06-29 19:20 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/80653.shtml)
+- 2026-06-29 19:23 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/57860505271.shtml)
+- 2026-06-29 19:24 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/53704330.shtml)
+- 2026-06-29 19:08 - [东宫女主是不是顶级恋爱脑](http://www.blog.kurohicncr.top/Article/details/952368792.shtml)
+- 2026-06-29 19:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/904873.shtml)
+- 2026-06-29 19:12 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/123046.shtml)
+- 2026-06-29 19:20 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/57803275.shtml)
+- 2026-06-29 19:04 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/86618.shtml)
+- 2026-06-29 19:20 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/1851640944.shtml)
+- 2026-06-29 19:15 - [让AI做一个账号，它会做成什么样？](https://www.blog.minike.top/Article/details/488362402.shtml)

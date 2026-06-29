@@ -1,58 +1,50 @@
-# 弗吉尼亚州最高法院否决选区重划提案 重挫民主党
+# 伊朗革命卫队海军：霍尔木兹海峡管控进入“新阶段”
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-核心要点 弗吉尼亚州最高法院周五裁定废除该州近期通过的选区重划公投结果，对寄望借助新国会选区版图拿下多个席位的民主党造成沉重打击。 这项选区重划公投在 4 月末以 3 个百分点的支持率获得通过，当时被视为民主党一大胜利。原本若重新划区落地，民主党有望在 11 月中期选举前新增多达 4 个众议院席位。 此次裁决正值美国两党选区操纵博弈持续之际。最高法院一项关键判决削弱了《选举权法
+中新网4月10日电 据美国全国广播公司(NBC)报道，当地时间10日凌晨，伊朗伊斯兰革命卫队海军司令部在社交媒体平台发表声明称，霍尔木兹海峡管控进入“新阶段”。 据报道，声明尚未说明新阶段的具体管控措施。 早些时候，美国《华尔街日报》援引标普全球市场财智公司的数据报道称，美国和伊朗宣布停火后，8日仅有4艘船只获准通过霍尔木兹海峡，是4月份以来最少的一天。而在美伊战事开始以前，每
 
 ## 正文
 
-核心要点 弗吉尼亚州最高法院周五裁定废除该州近期通过的选区重划公投结果，对寄望借助新国会选区版图拿下多个席位的民主党造成沉重打击。
+中新网4月10日电 据美国全国广播公司(NBC)报道，当地时间10日凌晨，伊朗伊斯兰革命卫队海军司令部在社交媒体平台发表声明称，霍尔木兹海峡管控进入“新阶段”。
 
-这项选区重划公投在 4 月末以 3 个百分点的支持率获得通过，当时被视为民主党一大胜利。
+据报道，声明尚未说明新阶段的具体管控措施。
 
-原本若重新划区落地，民主党有望在 11 月中期选举前新增多达 4 个众议院席位。
+早些时候，美国《华尔街日报》援引标普全球市场财智公司的数据报道称，美国和伊朗宣布停火后，8日仅有4艘船只获准通过霍尔木兹海峡，是4月份以来最少的一天。
 
-此次裁决正值美国两党选区操纵博弈持续之际。
-
-最高法院一项关键判决削弱了《选举权法案》部分条款后，共和党主导的南部多州正着手重新划分众议院选区。
-
-弗吉尼亚州众议院议长、民主党人唐・斯科特发表声明称： “我们尊重法院裁决。
-
-但我们会继续捍卫民主体制，让最终决定权掌握在选民手中，而非政客手中。
-
-因为在弗吉尼亚州，权力永远属于人民。
+而在美伊战事开始以前，每天有超过100艘船通过霍尔木兹海峡。
 
 ## 相关推荐
 
-- 2026-06-29 19:02 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 18:54 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 18:58 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 19:10 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 19:16 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 19:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 19:12 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 19:08 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 19:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 19:18 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 18:57 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 18:55 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 19:13 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 19:07 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 19:17 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 19:09 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 19:02 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 19:18 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 19:00 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 19:18 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 19:04 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 19:01 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 19:16 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 19:08 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:10 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/6715651349.shtml)
-- 2026-06-29 19:13 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/81480196.shtml)
-- 2026-06-29 18:54 - [女心理师](http://www.share.minike.top/Article/details/619577157573.shtml)
-- 2026-06-29 18:54 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/17429281.shtml)
-- 2026-06-29 19:20 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/86711517003.shtml)
-- 2026-06-29 19:15 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/92383889.shtml)
-- 2026-06-29 19:20 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/851776450.shtml)
-- 2026-06-29 19:15 - [媒体：听清自己内心的声音再填志愿](https://www.share.minike.top/Article/details/13258534674.shtml)
-- 2026-06-29 19:19 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/664282.shtml)
-- 2026-06-29 19:17 - [海清4次陪跑白玉兰](https://www.share.kurohicncr.top/Article/details/111937131.shtml)
-- 2026-06-29 19:02 - [T1零封KC MSI](https://www.share.minike.top/Article/details/98606022.shtml)
-- 2026-06-29 19:06 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/51434886.shtml)
-- 2026-06-29 19:21 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/3913209724.shtml)
-- 2026-06-29 18:55 - [青春环游记第三季](http://www.share.minike.top/Article/details/602562439619.shtml)
-- 2026-06-29 19:07 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/37207270.shtml)
+- 2026-06-29 19:15 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/12941756.shtml)
+- 2026-06-29 19:17 - [首个靠AI躺赢的国家](http://www.share.minike.top/Article/details/110869741465.shtml)
+- 2026-06-29 19:23 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/61888.shtml)
+- 2026-06-29 19:07 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/36206514.shtml)
+- 2026-06-29 19:02 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/956499746874.shtml)
+- 2026-06-29 19:26 - [RAY评乘风2026总决赛](https://www.share.minike.top/Article/details/364621252409.shtml)
+- 2026-06-29 19:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/8083721.shtml)
+- 2026-06-29 19:16 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/82335963949.shtml)
+- 2026-06-29 19:07 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.minike.top/Article/details/3125672.shtml)
+- 2026-06-29 19:15 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/581588.shtml)
+- 2026-06-29 19:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/24024810289.shtml)
+- 2026-06-29 19:29 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/2562272.shtml)
+- 2026-06-29 19:26 - [海清4次陪跑白玉兰](http://www.blog.minike.top/Article/details/681687581.shtml)
+- 2026-06-29 19:28 - [爱很美味](http://www.share.minike.top/Article/details/04827854.shtml)
+- 2026-06-29 19:26 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/839034970.shtml)

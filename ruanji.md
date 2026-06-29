@@ -1,46 +1,59 @@
-# 高校毕业生创新高 上海打出组合拳护航就业
+# 上海率先创建个人本外币兑换特许行业自律机制
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月07日 16:08 来源：看看新闻Knews 责任编辑：【杨彦宇】
+来源：中国人民银行上海总部 为落实国家外汇管理局总局防风险、强监管、促高质量发展要求，推动上海市个人本外币兑换特许行业健康可持续发展，3月19日，国家外汇管理局上海市分局指导成立全国首个个人本外币兑换特许行业自律协作组，探索行业自律规范发展模式，提升金融治理现代化水平。 一是立足上海实际、强化源头治理。2025年，上海地区兑换特许机构兑换业务规模共计2.2亿美元，服务人数56.
 
 ## 正文
 
-发布时间：2026年05月07日 16:08 来源：看看新闻Knews 责任编辑：【杨彦宇】
+来源：中国人民银行上海总部 为落实国家外汇管理局总局防风险、强监管、促高质量发展要求，推动上海市个人本外币兑换特许行业健康可持续发展，3月19日，国家外汇管理局上海市分局指导成立全国首个个人本外币兑换特许行业自律协作组，探索行业自律规范发展模式，提升金融治理现代化水平。
+
+一是立足上海实际、强化源头治理。
+
+2025年，上海地区兑换特许机构兑换业务规模共计2.2亿美元，服务人数56.6万人，在上海涉外支付服务等方面发挥重要作用。
+
+在行业发展的同时，部分机构也在一些方面存在风险隐患。
+
+自律协作组通过制定自律公约，以合规经营、公平竞争、客户权益保护“三条底线”切实提升行业整体合规水平。
+
+二是推动行业从被动监管向主动规范转型。
+
+自律协作组通过构建轮值组长制度、同业交流与监督、公平投诉处理、行业信息统一发布与舆情管理“四大自律机制”，坚持“契约化、轻量化、务实共赢”原则，不增设常设专职机构，推动行业从“被动合规”向“主动自律”转变，以契约精神实现行业自我管理与共同提升。
+
+三是实现防风险与促发展有机统一。
 
 ## 相关推荐
 
-- 2026-06-29 19:00 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 18:58 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 19:04 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 19:07 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 19:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 19:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 19:15 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 19:02 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 19:22 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 19:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 19:02 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 19:20 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 19:03 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 19:07 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 19:20 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 19:03 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 19:06 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 19:07 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 19:28 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 19:00 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 19:10 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 19:17 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 19:02 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 19:26 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 19:17 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 19:14 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 19:28 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:13 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/2352843.shtml)
-- 2026-06-29 18:54 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/552605590229.shtml)
-- 2026-06-29 19:13 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/45257235472.shtml)
-- 2026-06-29 18:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/0026293656.shtml)
-- 2026-06-29 19:17 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/78907497215.shtml)
-- 2026-06-29 19:06 - [滚石点名酒店员工说有急救培训](https://www.share.minike.top/Article/details/14291.shtml)
-- 2026-06-29 19:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/11992.shtml)
-- 2026-06-29 18:56 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/41057475988.shtml)
-- 2026-06-29 19:19 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/877712.shtml)
-- 2026-06-29 18:54 - [歼-15型舰载机为何被歼-15T替代](https://www.share.minike.top/Article/details/357523908227.shtml)
-- 2026-06-29 19:06 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/0519961902.shtml)
-- 2026-06-29 18:59 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/96364.shtml)
-- 2026-06-29 19:06 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/804707.shtml)
-- 2026-06-29 19:09 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.kurohicncr.top/Article/details/09166544789.shtml)
-- 2026-06-29 19:10 - [看大国重器“云端穿针引线”](https://www.blog.minike.top/Article/details/0738300752.shtml)
+- 2026-06-29 19:26 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/1581275295.shtml)
+- 2026-06-29 19:03 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/25711.shtml)
+- 2026-06-29 19:29 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/6421254.shtml)
+- 2026-06-29 19:12 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/2688176.shtml)
+- 2026-06-29 19:23 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/109731420.shtml)
+- 2026-06-29 19:10 - [刘冰任河南南阳市代市长](http://www.blog.kurohicncr.top/Article/details/366914.shtml)
+- 2026-06-29 19:13 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/2131999.shtml)
+- 2026-06-29 19:24 - [斗破苍穹](http://www.share.minike.top/Article/details/6424586436.shtml)
+- 2026-06-29 19:02 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/50455.shtml)
+- 2026-06-29 19:23 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/84614781855.shtml)
+- 2026-06-29 19:18 - [Ella回应SHE何时合体](http://www.share.minike.top/Article/details/809507550.shtml)
+- 2026-06-29 19:00 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/042406840.shtml)
+- 2026-06-29 19:24 - [金刚川](http://www.share.minike.top/Article/details/28772997886.shtml)
+- 2026-06-29 19:29 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/04621583704.shtml)
+- 2026-06-29 19:20 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/31257068501.shtml)

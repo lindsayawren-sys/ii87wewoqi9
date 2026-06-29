@@ -1,44 +1,58 @@
-# 以色列和黎巴嫩下周将在华盛顿举行更多会谈
+# 000586：公司没有算力数据中心相关业务！地缘冲突扰动供应链，铝价持续飙升
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-美国国务院一名官员称，黎巴嫩和以色列将于5月14日至15日在华盛顿举行更多会谈。责任编辑：丁文武
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！申万铝指数再度大涨。 5连板牛股盘后发布公告 今日（4月9日）盘后，5连板牛股汇源通信（000586）发布股票交易异常波动公告。 公告显示，公司主营电力光缆、电力系统在线监测装置、塑料光纤等，没有石英光纤预制棒及石英光纤制造产能，电力光缆生产所需石英光纤均需外购。其中：电力光缆是应用于电力市场的配套光缆；塑
 
 ## 正文
 
-美国国务院一名官员称，黎巴嫩和以色列将于5月14日至15日在华盛顿举行更多会谈。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-责任编辑：丁文武
+申万铝指数再度大涨。
+
+5连板牛股盘后发布公告 今日（4月9日）盘后，5连板牛股汇源通信（000586）发布股票交易异常波动公告。
+
+公告显示，公司主营电力光缆、电力系统在线监测装置、塑料光纤等，没有石英光纤预制棒及石英光纤制造产能，电力光缆生产所需石英光纤均需外购。
+
+其中：电力光缆是应用于电力市场的配套光缆；塑料光纤系列主要用于装饰照明、工业控制、电力设备、消费电子等领域，而与塑料光纤通信配套用的工控光器件产品（速度在100兆以内）主要用于自动化生产线的传感器单元、高压变频器的控制信号传输等方面（非应用数据中心及AI算力等所需高速光模块）。
+
+公司注意到，近期市场对光纤产品供需结构改善及算力数据中心相关光纤光缆、光模块产品关注度较高。
+
+公司目前不存在前述领域业务、在手订单及技术储备。
+
+2025年，公司预计实现归母净利润为亏损300万元至150万元，同比减亏67.89%至83.94%。
 
 ## 相关推荐
 
-- 2026-06-29 18:59 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 19:02 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 19:20 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 19:06 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 19:17 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 18:56 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 19:00 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 19:06 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 18:57 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 19:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 19:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 19:12 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 19:03 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 19:03 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 19:12 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 19:02 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 19:19 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 19:26 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 19:10 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 19:16 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 19:11 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 19:10 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:15 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/012364376.shtml)
-- 2026-06-29 18:56 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/35062747982.shtml)
-- 2026-06-29 18:56 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/443734742.shtml)
-- 2026-06-29 19:21 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/424968.shtml)
-- 2026-06-29 19:10 - [一生一世](http://www.share.minike.top/Article/details/228783.shtml)
-- 2026-06-29 19:13 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/431064.shtml)
-- 2026-06-29 18:54 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/23883639910.shtml)
-- 2026-06-29 19:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/9108451.shtml)
-- 2026-06-29 18:58 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/33877782321.shtml)
-- 2026-06-29 19:12 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/94839.shtml)
-- 2026-06-29 19:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/102769558.shtml)
-- 2026-06-29 19:21 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/056235877.shtml)
-- 2026-06-29 19:07 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/3211179779.shtml)
-- 2026-06-29 19:05 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/736888932318.shtml)
-- 2026-06-29 19:01 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/7298483.shtml)
+- 2026-06-29 19:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/4648870.shtml)
+- 2026-06-29 19:21 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/61633983.shtml)
+- 2026-06-29 19:06 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.kurohicncr.top/Article/details/5449066554.shtml)
+- 2026-06-29 19:22 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/048825629.shtml)
+- 2026-06-29 19:22 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/3592432715.shtml)
+- 2026-06-29 19:29 - [官媒首曝六代机？大V解读](http://www.blog.kurohicncr.top/Article/details/919018.shtml)
+- 2026-06-29 19:00 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/476351.shtml)
+- 2026-06-29 19:22 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/2955663236.shtml)
+- 2026-06-29 19:21 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/860418738.shtml)
+- 2026-06-29 19:15 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.kurohicncr.top/Article/details/34394143.shtml)
+- 2026-06-29 19:29 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/6705000.shtml)
+- 2026-06-29 19:15 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/89599.shtml)
+- 2026-06-29 19:13 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/002658.shtml)
+- 2026-06-29 19:07 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/2070364766.shtml)
+- 2026-06-29 19:01 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/6441089.shtml)

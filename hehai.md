@@ -1,60 +1,56 @@
-# 事关文物归还 法国立法简化程序有何意义？专家解读
+# 壳牌以石油交易收益平衡天然气业务疲软
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-北京时间昨晚，法国参议院以343票赞成、0票反对的投票结果，通过一项旨在简化非法所获他国文物归还程序的法律草案。该草案此前已获国民议会通过，新法将简化行政流程，为流失文物返还提供制度便利。 按程序，法律草案经法国议会两院通过完全一致的文本后，总统应在15天内颁布该法律。那么，我们应该如何看待这部法律草案？它对我国文物回归有何意义？一起来看专家解读。 这部法律实施 能解决哪些问题
+壳牌周三表示，第一季度天然气产量下降和短期流动性受到的冲击将部分被强劲的石油交易收益所抵消。这让我们得以初步了解美以对伊朗的战争如何重塑石油巨头的盈利状况。 自2月底美以开始打击伊朗，随后伊朗关闭霍尔木兹海峡并袭击包括壳牌位于卡塔尔的Pearl天然气生产厂在内的海湾邻国后，全球基准布伦特原油价格攀升至每桶近120美元的多年高点。该厂的维修可能需要大约一年时间。 壳牌表示，大宗商
 
 ## 正文
 
-北京时间昨晚，法国参议院以343票赞成、0票反对的投票结果，通过一项旨在简化非法所获他国文物归还程序的法律草案。
+壳牌周三表示，第一季度天然气产量下降和短期流动性受到的冲击将部分被强劲的石油交易收益所抵消。
 
-该草案此前已获国民议会通过，新法将简化行政流程，为流失文物返还提供制度便利。
+这让我们得以初步了解美以对伊朗的战争如何重塑石油巨头的盈利状况。
 
-按程序，法律草案经法国议会两院通过完全一致的文本后，总统应在15天内颁布该法律。
+自2月底美以开始打击伊朗，随后伊朗关闭霍尔木兹海峡并袭击包括壳牌位于卡塔尔的Pearl天然气生产厂在内的海湾邻国后，全球基准布伦特原油价格攀升至每桶近120美元的多年高点。
 
-那么，我们应该如何看待这部法律草案？
+该厂的维修可能需要大约一年时间。
 
-它对我国文物回归有何意义？
+壳牌表示，大宗商品价格波动导致库存价值大幅波动，推动营运资本（一种流动资产减去负债的流动性衡量指标）在本季度达到负100亿至负150亿美元之间。
 
-一起来看专家解读。
+壳牌表示，如果油气价格回落，营运资本的变动预计将随时间推移而逆转。
 
-这部法律实施 能解决哪些问题？
+异常的市场环境 加拿大皇家银行资本市场分析师表示，这种波动的规模突显了当前市场环境已变得多么异常，但补充说壳牌的资产负债表应能吸收这一冲击。
 
-中国政法大学教授 霍政欣：这个法案是文物追索返还领域一个非常重要的法国国内立法，开启了新篇章。
+加拿大皇家银行资本市场将壳牌第一季度净利润预期上调7%，至68亿美元，并预计扣除营运资本后的运营现金流将增长31%，达到171亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 19:03 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 19:04 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 19:08 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 19:18 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 19:02 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 19:22 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 18:57 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 19:21 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 18:59 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 19:00 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 19:05 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 19:00 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 19:03 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 19:05 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 19:29 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 19:27 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 19:19 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 19:18 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 19:05 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 19:03 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 19:20 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 19:10 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 19:00 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 19:01 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:22 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/196635530969.shtml)
-- 2026-06-29 19:00 - [人形机器人](https://www.blog.minike.top/Article/details/787893995913.shtml)
-- 2026-06-29 18:56 - [刘冰任河南南阳市代市长](https://www.share.kurohicncr.top/Article/details/499078.shtml)
-- 2026-06-29 18:56 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/8657969.shtml)
-- 2026-06-29 19:10 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.kurohicncr.top/Article/details/652870413474.shtml)
-- 2026-06-29 19:10 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/165711.shtml)
-- 2026-06-29 18:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/48994358635.shtml)
-- 2026-06-29 19:23 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/9976408.shtml)
-- 2026-06-29 19:20 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/95727568.shtml)
-- 2026-06-29 18:59 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/2456213686.shtml)
-- 2026-06-29 19:14 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/2031789.shtml)
-- 2026-06-29 19:14 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/064124675.shtml)
-- 2026-06-29 19:18 - [爱很美味](https://www.blog.minike.top/Article/details/01575037140.shtml)
-- 2026-06-29 18:55 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/4403377710.shtml)
-- 2026-06-29 19:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/61167.shtml)
+- 2026-06-29 19:26 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/5101525820.shtml)
+- 2026-06-29 19:25 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/7689089789.shtml)
+- 2026-06-29 19:13 - [外交部谈对日出口管制措施](http://www.share.kurohicncr.top/Article/details/4705569.shtml)
+- 2026-06-29 19:00 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/766843546336.shtml)
+- 2026-06-29 19:23 - [沙丘](https://www.blog.minike.top/Article/details/392494.shtml)
+- 2026-06-29 19:17 - [NBA交易](http://www.blog.minike.top/Article/details/62315.shtml)
+- 2026-06-29 19:08 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/0654251.shtml)
+- 2026-06-29 19:14 - [东方风云榜](http://www.share.minike.top/Article/details/35211138.shtml)
+- 2026-06-29 19:21 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/99122792194.shtml)
+- 2026-06-29 19:09 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/28832941.shtml)
+- 2026-06-29 19:09 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/20135.shtml)
+- 2026-06-29 19:05 - [Ella回应SHE何时合体](http://www.share.minike.top/Article/details/8895506.shtml)
+- 2026-06-29 19:12 - [特朗普两大核心赌注将迎高院裁决](https://www.share.minike.top/Article/details/9144595404.shtml)
+- 2026-06-29 19:13 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/65431929.shtml)
+- 2026-06-29 19:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/9032150.shtml)

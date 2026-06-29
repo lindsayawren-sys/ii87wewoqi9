@@ -1,58 +1,58 @@
-# 证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行
+# 跨越2600公里！新疆五家渠、甘肃武山两地联合救助车祸受伤女孩
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 ST清越（维权）（688496）、元道通信（维权）（301139）恐将强制退市。5月8日晚间，证监会通报两起重大财务造假案，涉事主体系ST清越、元道通信，两家公司均涉嫌欺诈发行、定期报告信息披露违法违规等。对于两家公司的财务造假行为，证监会也将重拳出击，其中拟对ST清越罚款1.7288亿元，拟对元道通信罚款2.3884亿元。另外
+中新网乌鲁木齐4月10日电 (杨超 何瑞娜)一场跨省联合发放仪式近日在甘肃省武山县举行。新疆五家渠垦区(市)人民检察院、武山县人民检察院，以及武山县民政、残联等部门负责人齐聚，将5万元司法救助金郑重交到小车(化名)父亲手中。 2023年9月，17岁女孩小车在新疆五家渠市遭遇严重交通事故，被紧急送入第六师医院ICU。高额医疗费与赔偿纠纷，让这个本就拮据的家庭陷入绝境，归家之路遥遥
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 ST清越（维权）（688496）、元道通信（维权）（301139）恐将强制退市。
+中新网乌鲁木齐4月10日电 (杨超 何瑞娜)一场跨省联合发放仪式近日在甘肃省武山县举行。
 
-5月8日晚间，证监会通报两起重大财务造假案，涉事主体系ST清越、元道通信，两家公司均涉嫌欺诈发行、定期报告信息披露违法违规等。
+新疆五家渠垦区(市)人民检察院、武山县人民检察院，以及武山县民政、残联等部门负责人齐聚，将5万元司法救助金郑重交到小车(化名)父亲手中。
 
-对于两家公司的财务造假行为，证监会也将重拳出击，其中拟对ST清越罚款1.7288亿元，拟对元道通信罚款2.3884亿元。
+2023年9月，17岁女孩小车在新疆五家渠市遭遇严重交通事故，被紧急送入第六师医院ICU。
 
-另外，ST清越、元道通信涉嫌触及重大违法强制退市情形，交易所也将依法启动退市程序。
+高额医疗费与赔偿纠纷，让这个本就拮据的家庭陷入绝境，归家之路遥遥无期。
 
-值得一提的是，清越科技主承销商等相关方拟共同出资设立先行赔付专项基金，用于先行赔付适格投资者的投资损失。
+此后的866天，医院垫付费用、悉心照料，用坚守撑起生命的希望；2025年下半年，五家渠垦区(市)人民检察院主动介入，联动多部门启动调解机制；2026年1月，医院核减大部分费用，并派救护车全程护送，跨越2600公里，终于将小车平安送回武山县老家。
 
-这也是A股史上第六单先行赔付。
+小车因颅脑损伤丧失语言与行动能力，每日康复护理开销大，“女儿的康复钱、一家人的生计，压得我喘不过气。
 
-近日，证监会对ST清越财务造假案件作出行政处罚事先告知。
+”小车父亲的哽咽，被办案人员宿孟华记在心里：“司法办案不能止于结案，更要看见困境背后的民生温度，案子结了，帮扶不能停。
 
-经查，ST清越2021年、2022年和2023年半年报虚增利润，涉嫌欺诈发行、定期报告信息披露违法违规等。
+” 于是，五家渠垦区(市)人民检察院首次尝试跨省联合救助，迅速与武山县检察院对接，联合当地民政、残联、政府等部门，构建“异地司法救助+社会救助”的多元帮扶模式。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 19:06 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 19:04 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 19:22 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 18:57 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 19:02 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 19:17 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-29 19:02 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 19:19 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 19:16 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 19:19 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 19:04 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 19:25 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 19:03 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 19:06 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 19:28 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 19:05 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 19:29 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 19:27 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 19:19 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 19:20 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 19:28 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 19:21 - [林逸向方筱然求婚了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 19:07 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:14 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/308949511.shtml)
-- 2026-06-29 19:05 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/2423216.shtml)
-- 2026-06-29 19:18 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.minike.top/Article/details/64588350.shtml)
-- 2026-06-29 19:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/7739730.shtml)
-- 2026-06-29 19:09 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/258460.shtml)
-- 2026-06-29 19:09 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/236463380815.shtml)
-- 2026-06-29 18:54 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/35636.shtml)
-- 2026-06-29 18:55 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/31421743567.shtml)
-- 2026-06-29 19:04 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/412539.shtml)
-- 2026-06-29 19:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/1350066.shtml)
-- 2026-06-29 19:02 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/512293.shtml)
-- 2026-06-29 19:20 - [刘冰任河南南阳市代市长](http://www.blog.kurohicncr.top/Article/details/37890491.shtml)
-- 2026-06-29 19:05 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/904286371.shtml)
-- 2026-06-29 19:10 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/780787257922.shtml)
-- 2026-06-29 19:13 - [TOP Prada](http://www.share.minike.top/Article/details/77390.shtml)
+- 2026-06-29 19:24 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/9266981.shtml)
+- 2026-06-29 19:10 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/5161250.shtml)
+- 2026-06-29 19:18 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/97653206052.shtml)
+- 2026-06-29 19:06 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/17742.shtml)
+- 2026-06-29 19:27 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/042794.shtml)
+- 2026-06-29 19:25 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/2808453622.shtml)
+- 2026-06-29 19:05 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/228765.shtml)
+- 2026-06-29 19:12 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/651834.shtml)
+- 2026-06-29 19:16 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/4950390781.shtml)
+- 2026-06-29 19:03 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/553844.shtml)
+- 2026-06-29 19:22 - [流金岁月](http://www.blog.minike.top/Article/details/909140.shtml)
+- 2026-06-29 19:23 - [主力抛售电子和通信板块](http://www.share.kurohicncr.top/Article/details/980397793834.shtml)
+- 2026-06-29 19:22 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/919854.shtml)
+- 2026-06-29 19:02 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/679603.shtml)
+- 2026-06-29 19:07 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/070983830.shtml)

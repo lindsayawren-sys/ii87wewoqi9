@@ -1,56 +1,53 @@
-# 安杰利尼制药41亿美元收购Catalyst Pharma
+# 特朗普警告伊朗：不得在霍尔木兹海峡对油轮收费
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-两家公司周四官宣，罕见病药企 Catalyst Pharmaceuticals 将被医疗集团 Angelini Pharma（安杰利尼制药） 以41 亿美元收购。 安杰利尼每股出价 31.50 美元，对应总对价约 35 亿欧元、折合 41 亿美元；收购价较该股 4 月 22 日（并购消息外泄前最后一个无影响交易日）收盘价溢价 21%。 Catalyst 总裁兼 CEO 表示，这
+中新网4月10日电 据《华尔街日报》报道，当地时间4月9日，美国总统特朗普在其社交平台“真实社交”上发文，警告伊朗称不得对途经霍尔木兹海峡的油轮收费。 据报道，特朗普当天发文，称伊朗在允许石油经霍尔木兹海峡运出上做得“非常糟糕”。特朗普写道：“有报道称，伊朗正在向通过霍尔木兹海峡的油轮收费——他们最好没有这么做；如果确有其事，最好现在就停止！” 他在随后的帖文中指责伊朗目前的做
 
 ## 正文
 
-两家公司周四官宣，罕见病药企 Catalyst Pharmaceuticals 将被医疗集团 Angelini Pharma（安杰利尼制药） 以41 亿美元收购。
+中新网4月10日电 据《华尔街日报》报道，当地时间4月9日，美国总统特朗普在其社交平台“真实社交”上发文，警告伊朗称不得对途经霍尔木兹海峡的油轮收费。
 
-安杰利尼每股出价 31.50 美元，对应总对价约 35 亿欧元、折合 41 亿美元；收购价较该股 4 月 22 日（并购消息外泄前最后一个无影响交易日）收盘价溢价 21%。
+据报道，特朗普当天发文，称伊朗在允许石油经霍尔木兹海峡运出上做得“非常糟糕”。
 
-Catalyst 总裁兼 CEO 表示，这笔交易为股东带来确定性现金收益 + 可观溢价。
+特朗普写道：“有报道称，伊朗正在向通过霍尔木兹海峡的油轮收费——他们最好没有这么做；如果确有其事，最好现在就停止！
 
-安杰利尼计划把 Catalyst 的药品管线与商业化渠道，和自身脑健康领域专业能力及产品整合，搭建下一代罕见病治疗平台。
+” 他在随后的帖文中指责伊朗目前的做法，称“那不是我们达成的协议”。
 
-合并后将形成可规模化的罕见病业务平台，扩大全球药物可及性。
+当天，伊朗最高领袖穆杰塔巴表示，伊朗不会放过任何侵略者，将追究战争损失赔偿与烈士血债。
 
-双方董事会已全票通过交易，预计2026 年第三季度完成交割。
-
-此次收购也标志着安杰利尼正式进军美国市场。
-
-安杰利尼隶属于安杰利尼工业集团，业务覆盖消费品、工业科技、医疗健康等板块。
+霍尔木兹海峡的管理也将进入新阶段。
 
 ## 相关推荐
 
-- 2026-06-29 19:17 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 19:17 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 18:57 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 19:17 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 19:20 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 19:09 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 18:55 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 19:04 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 19:13 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 19:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 19:18 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 19:10 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 19:02 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 19:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 19:07 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 19:19 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 19:02 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 19:01 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 19:10 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 19:01 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 19:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:16 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/97196552.shtml)
-- 2026-06-29 18:59 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/3887368.shtml)
-- 2026-06-29 19:05 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/4515936879.shtml)
-- 2026-06-29 19:23 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/9518304327.shtml)
-- 2026-06-29 18:55 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/81904341.shtml)
-- 2026-06-29 19:11 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/372327.shtml)
-- 2026-06-29 19:11 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/2211465856.shtml)
-- 2026-06-29 18:55 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/72001.shtml)
-- 2026-06-29 19:08 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/503669.shtml)
-- 2026-06-29 19:15 - [世界杯在中国观看最多的比赛](https://www.blog.kurohicncr.top/Article/details/36825517.shtml)
-- 2026-06-29 19:20 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/34072.shtml)
-- 2026-06-29 19:12 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/65378.shtml)
-- 2026-06-29 19:06 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.minike.top/Article/details/6919147999.shtml)
-- 2026-06-29 18:58 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/080695398.shtml)
-- 2026-06-29 19:23 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/62348.shtml)
+- 2026-06-29 19:04 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/7465651132.shtml)
+- 2026-06-29 19:27 - [中国战机大片上新](http://www.share.minike.top/Article/details/729846.shtml)
+- 2026-06-29 19:17 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/830126754367.shtml)
+- 2026-06-29 19:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/282990.shtml)
+- 2026-06-29 19:02 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/606294524.shtml)
+- 2026-06-29 19:13 - [赵今麦时隔五年再演李诗情](https://www.share.kurohicncr.top/Article/details/20352884810.shtml)
+- 2026-06-29 19:15 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/944844254.shtml)
+- 2026-06-29 19:22 - [首个靠AI躺赢的国家](https://www.blog.minike.top/Article/details/547324231769.shtml)
+- 2026-06-29 19:23 - [主力抛售电子和通信板块](http://www.blog.kurohicncr.top/Article/details/24858046233.shtml)
+- 2026-06-29 19:08 - [第一炉香](http://www.share.minike.top/Article/details/74302.shtml)
+- 2026-06-29 19:28 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/566565731.shtml)
+- 2026-06-29 19:02 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/8333475.shtml)
+- 2026-06-29 19:29 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/65607952.shtml)
+- 2026-06-29 19:22 - [看大国重器“云端穿针引线”](http://www.blog.minike.top/Article/details/701584.shtml)
+- 2026-06-29 19:00 - [小娘惹](https://www.share.minike.top/Article/details/208409543.shtml)

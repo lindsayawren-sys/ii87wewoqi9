@@ -1,46 +1,61 @@
-# 思考乐教育：受托人根据股份奖励计划购买29.6万股
+# 德国作家骑行长征路：用亲身体验讲述真实中国
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-思考乐教育（01769）发布公告，于2026年5月7日，根据股份奖励计划规则及信托契据，受托人已于市场上购入合共29.6万股股份，乃为获选参与者的利益以信托方式持有。责任编辑：卢昱君
+中新社柏林4月10日电 (记者 马秀秀)德国作家福尔克(Volker Häring)9日在柏林中国文化中心结合影像资料，分享了他与柯立思(Christian Y. Schmidt)骑行中国的见闻与思考。 2024年伊始，福尔克与柯立思从江西瑞金出发，沿中国长征路线骑行。全程历时138天，跨越近7000公里。2025年10月，两人记录此次经历的著作《漫漫骑行长征路——穿越中国70
 
 ## 正文
 
-思考乐教育（01769）发布公告，于2026年5月7日，根据股份奖励计划规则及信托契据，受托人已于市场上购入合共29.6万股股份，乃为获选参与者的利益以信托方式持有。
+中新社柏林4月10日电 (记者 马秀秀)德国作家福尔克(Volker Häring)9日在柏林中国文化中心结合影像资料，分享了他与柯立思(Christian Y. Schmidt)骑行中国的见闻与思考。
 
-责任编辑：卢昱君
+2024年伊始，福尔克与柯立思从江西瑞金出发，沿中国长征路线骑行。
+
+全程历时138天，跨越近7000公里。
+
+2025年10月，两人记录此次经历的著作《漫漫骑行长征路——穿越中国7000公里》出版。
+
+福尔克接受中新社记者专访时表示，骑行中国的经历精彩而令人着迷，他们希望将这些故事讲给更多人听。
+
+福尔克是资深骑行爱好者，每年都会前往中国。
+
+后来，他偶然结识了志同道合的柯立思，两人一拍即合，决定共同完成这次骑行。
+
+这段近7000公里、最高海拔达4114米的旅程，对两人而言既是一次冒险，也是对身体与意志的考验。
 
 ## 相关推荐
 
-- 2026-06-29 19:17 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 18:59 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 19:08 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 19:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 19:19 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 19:21 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 19:21 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 19:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 19:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 19:18 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 19:02 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 19:01 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 19:22 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 19:02 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 19:12 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 19:08 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 19:23 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 19:15 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 19:13 - [林逸向方筱然求婚了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 19:13 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 19:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 19:12 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 19:24 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 19:27 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 19:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 19:13 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 19:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:06 - [我和我的家乡](https://www.blog.minike.top/Article/details/23103.shtml)
-- 2026-06-29 19:05 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/8119983.shtml)
-- 2026-06-29 19:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/65512679.shtml)
-- 2026-06-29 19:11 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/809001678444.shtml)
-- 2026-06-29 19:03 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/362204507400.shtml)
-- 2026-06-29 18:55 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/9497671.shtml)
-- 2026-06-29 19:06 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/1020969851.shtml)
-- 2026-06-29 19:18 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/48984893423.shtml)
-- 2026-06-29 19:18 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/59814934.shtml)
-- 2026-06-29 19:07 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/27302430.shtml)
-- 2026-06-29 19:23 - [啊啊啊](https://www.share.minike.top/Article/details/8959447945.shtml)
-- 2026-06-29 19:15 - [法生态部长反对装空调却自己吹空调](http://www.share.kurohicncr.top/Article/details/2603097.shtml)
-- 2026-06-29 19:18 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/248754440310.shtml)
-- 2026-06-29 19:15 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/22664.shtml)
-- 2026-06-29 18:57 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/0618203467.shtml)
+- 2026-06-29 19:01 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/9088415905.shtml)
+- 2026-06-29 19:17 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/1837592703.shtml)
+- 2026-06-29 19:20 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/30816970550.shtml)
+- 2026-06-29 19:25 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/32593723566.shtml)
+- 2026-06-29 19:16 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/51110.shtml)
+- 2026-06-29 19:07 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/0668469.shtml)
+- 2026-06-29 19:07 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/8389004.shtml)
+- 2026-06-29 19:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/19997.shtml)
+- 2026-06-29 19:13 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.minike.top/Article/details/2393428549.shtml)
+- 2026-06-29 19:06 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/01458.shtml)
+- 2026-06-29 19:21 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/710324773.shtml)
+- 2026-06-29 19:28 - [送你一朵小红花](https://www.share.minike.top/Article/details/213359972.shtml)
+- 2026-06-29 19:18 - [官媒首曝六代机？大V解读](https://www.blog.minike.top/Article/details/37621868.shtml)
+- 2026-06-29 19:27 - [沙丘](https://www.share.minike.top/Article/details/53488262897.shtml)
+- 2026-06-29 19:21 - [法生态部长反对装空调却自己吹空调](http://www.blog.minike.top/Article/details/1687500362.shtml)

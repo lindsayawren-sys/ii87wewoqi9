@@ -1,59 +1,49 @@
-# 山西垣曲发现金代墓葬群 壁画再现宋金时期世俗图景
+# 谈判在即 伊朗提出两大先决条件
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-中新社太原5月7日电 (记者 胡健)山西省考古研究院7日公布运城市垣曲县李家窑村金墓发掘资料，当地考古人员发现两座金代仿木结构砖室壁画墓，墓室内绘有夫妇对坐、妇人启门、孝子故事等壁画，生动勾勒出宋金时期民间生活图景。 2022年12月，考古人员在李家窑村北约500米处的梯田上发现三座古墓，这三座墓葬初步推测为家族墓葬，年代属金代。其中，编号为M1的墓葬保存相对完整，墓室四壁绘有
+中新网4月11日电 据伊朗英语新闻电视台(PressTV)10日报道，一个高级别伊朗代表团已抵达巴基斯坦首都伊斯兰堡，准备与美方代表进行谈判。德黑兰方面警告称，如果对方未能满足其先决条件，将导致谈判进程受阻。 据报道，包括伊朗伊斯兰议会议长卡利巴夫、外交部长阿拉格齐在内的伊朗代表团于11日抵达巴基斯坦首都伊斯兰堡。 此前，卡利巴夫10日表示，黎巴嫩停火以及解冻伊朗被冻结的资产是
 
 ## 正文
 
-中新社太原5月7日电 (记者 胡健)山西省考古研究院7日公布运城市垣曲县李家窑村金墓发掘资料，当地考古人员发现两座金代仿木结构砖室壁画墓，墓室内绘有夫妇对坐、妇人启门、孝子故事等壁画，生动勾勒出宋金时期民间生活图景。
+中新网4月11日电 据伊朗英语新闻电视台(PressTV)10日报道，一个高级别伊朗代表团已抵达巴基斯坦首都伊斯兰堡，准备与美方代表进行谈判。
 
-2022年12月，考古人员在李家窑村北约500米处的梯田上发现三座古墓，这三座墓葬初步推测为家族墓葬，年代属金代。
+德黑兰方面警告称，如果对方未能满足其先决条件，将导致谈判进程受阻。
 
-其中，编号为M1的墓葬保存相对完整，墓室四壁绘有彩色壁画，并伴有榜题。
+据报道，包括伊朗伊斯兰议会议长卡利巴夫、外交部长阿拉格齐在内的伊朗代表团于11日抵达巴基斯坦首都伊斯兰堡。
 
-北壁绘有“妇人启门”图，一位女子侧身推门回望；东壁则是夫妇对坐图，男女主人端坐靠背椅上，神态安详，身旁有侍从站立。
-
-此外，M1东壁壁画中还绘有“郭巨埋儿”“孟宗哭竹”等孝子故事，反映了当时社会对孝道的推崇。
-
-南壁绘有八人行礼请安图，西壁则可见手持骨朵的门吏形象。
-
-这些壁画色彩丰富，人物姿态各异，为研究宋金时期民间礼仪、服饰、家具提供了实物资料。
-
-考古专家介绍，M1墓室东壁夫妇隔窗对坐的布局方式，在以往晋南地区金代壁画墓中较为罕见，可能代表了一种地域特色。
+此前，卡利巴夫10日表示，黎巴嫩停火以及解冻伊朗被冻结的资产是与美国启动谈判必须满足的先决条件。
 
 ## 相关推荐
 
-- 2026-06-29 19:06 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 19:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 19:19 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 19:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 19:20 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 19:18 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 19:02 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 19:05 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 19:04 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 19:13 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 18:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 19:02 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 19:11 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 19:28 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 19:17 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 19:11 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 19:22 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 19:16 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 19:07 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 19:28 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 19:22 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 19:03 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 19:15 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 19:25 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:20 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/1358716.shtml)
-- 2026-06-29 19:02 - [毒液2](https://www.share.kurohicncr.top/Article/details/76185730072.shtml)
-- 2026-06-29 19:04 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/856142597.shtml)
-- 2026-06-29 18:54 - [我和我的家乡](http://www.blog.minike.top/Article/details/687157571939.shtml)
-- 2026-06-29 18:58 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/724833990801.shtml)
-- 2026-06-29 19:15 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/904377875893.shtml)
-- 2026-06-29 19:00 - [V8](http://www.blog.kurohicncr.top/Article/details/878740195.shtml)
-- 2026-06-29 19:22 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/539022753923.shtml)
-- 2026-06-29 19:12 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/99650489.shtml)
-- 2026-06-29 19:11 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/740012618.shtml)
-- 2026-06-29 19:05 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.minike.top/Article/details/49561.shtml)
-- 2026-06-29 19:12 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/599840868.shtml)
-- 2026-06-29 19:21 - [王楚钦开门红](http://www.share.minike.top/Article/details/136788.shtml)
-- 2026-06-29 19:01 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/962408254.shtml)
-- 2026-06-29 18:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/48944001.shtml)
+- 2026-06-29 19:02 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/42693617673.shtml)
+- 2026-06-29 19:27 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/92176087.shtml)
+- 2026-06-29 19:07 - [断骨增高灰产拉一人提成1.5万元](http://www.share.kurohicncr.top/Article/details/2728108961.shtml)
+- 2026-06-29 19:16 - [AG 宫斗](https://www.share.minike.top/Article/details/15038.shtml)
+- 2026-06-29 19:21 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/9666339.shtml)
+- 2026-06-29 19:19 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/264071436.shtml)
+- 2026-06-29 19:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/62596.shtml)
+- 2026-06-29 19:15 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/979211453.shtml)
+- 2026-06-29 19:28 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/80956920700.shtml)
+- 2026-06-29 19:10 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/1371935.shtml)
+- 2026-06-29 19:00 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/51839079235.shtml)
+- 2026-06-29 19:18 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/78287498694.shtml)
+- 2026-06-29 19:03 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/92532.shtml)
+- 2026-06-29 19:14 - [主力抛售电子和通信板块](https://www.share.minike.top/Article/details/640121699.shtml)
+- 2026-06-29 19:24 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/33092657210.shtml)

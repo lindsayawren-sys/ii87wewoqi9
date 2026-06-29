@@ -1,54 +1,50 @@
-# 俄罗斯称伊朗布什尔核电站建设工作逐步恢复 现场工人数明显增加
+# 人民币兑美元中间价报6.8654，下调5点
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-据国际文传电讯社（IFX）报道，俄罗斯国家原子能公司首席执行官Alexey Likhachev表示，伊朗布什尔核电站的建设工作正逐步恢复，目前现场约有2，200名伊朗工人，较4月底的700人明显增加。 目前的工作重点是加固和浇筑二号动力机组。 他表示，二号机组反应堆的建设完成度已超过60%，蒸汽发生器完成度为50%；关键设备计划于明年发运。 三号机组的铸造和锻造工作也在推进。
+4月10日，人民币兑美元中间价报6.8654，下调5点。 美联储4月维持利率不变的概率为98.4% 据CME“美联储观察”：美联储4月加息25个基点的概率为1.6%，维持利率不变的概率为98.4%。美联储到6月累计降息25个基点的概率为2.1%，维持利率不变的概率为96.3%，累计加息25个基点的概率为1.5%。责任编辑：郭建
 
 ## 正文
 
-据国际文传电讯社（IFX）报道，俄罗斯国家原子能公司首席执行官Alexey Likhachev表示，伊朗布什尔核电站的建设工作正逐步恢复，目前现场约有2，200名伊朗工人，较4月底的700人明显增加。
+4月10日，人民币兑美元中间价报6.8654，下调5点。
 
-目前的工作重点是加固和浇筑二号动力机组。
+美联储4月维持利率不变的概率为98.4% 据CME“美联储观察”：美联储4月加息25个基点的概率为1.6%，维持利率不变的概率为98.4%。
 
-他表示，二号机组反应堆的建设完成度已超过60%，蒸汽发生器完成度为50%；关键设备计划于明年发运。
+美联储到6月累计降息25个基点的概率为2.1%，维持利率不变的概率为96.3%，累计加息25个基点的概率为1.5%。
 
-三号机组的铸造和锻造工作也在推进。
-
-一旦确认军事冲突不会再次爆发，俄罗斯国家原子能公司已准备好迅速安排俄方人员全面返回伊朗。
-
-该项目对俄罗斯而言仍属优先事项。
-
-责任编辑：陈钰嘉
+责任编辑：郭建
 
 ## 相关推荐
 
-- 2026-06-29 18:58 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 19:22 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 19:06 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 19:14 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 19:03 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 19:12 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 19:06 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 18:54 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 19:14 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 19:19 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 19:10 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 19:06 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 19:02 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 19:05 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 19:08 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 19:03 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 19:22 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 19:14 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 19:17 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 19:05 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 19:27 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 19:19 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:05 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.minike.top/Article/details/4998602674.shtml)
-- 2026-06-29 19:13 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/7065083169.shtml)
-- 2026-06-29 19:21 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/22641668.shtml)
-- 2026-06-29 19:07 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/96775807045.shtml)
-- 2026-06-29 19:20 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/98746674007.shtml)
-- 2026-06-29 19:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/58054153.shtml)
-- 2026-06-29 19:07 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/14639023230.shtml)
-- 2026-06-29 19:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/837140.shtml)
-- 2026-06-29 19:20 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/56557996.shtml)
-- 2026-06-29 18:59 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/00391741.shtml)
-- 2026-06-29 19:21 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/80460826393.shtml)
-- 2026-06-29 19:05 - [明星大侦探第四季](https://www.share.minike.top/Article/details/882248.shtml)
-- 2026-06-29 19:15 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/496864.shtml)
-- 2026-06-29 19:09 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/379005369.shtml)
-- 2026-06-29 19:11 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/58726866261.shtml)
+- 2026-06-29 19:27 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/18163.shtml)
+- 2026-06-29 19:03 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/261574.shtml)
+- 2026-06-29 19:05 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/65862785525.shtml)
+- 2026-06-29 19:08 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/48830752220.shtml)
+- 2026-06-29 19:16 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.kurohicncr.top/Article/details/316899498.shtml)
+- 2026-06-29 19:27 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/464275742.shtml)
+- 2026-06-29 19:19 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/8266600.shtml)
+- 2026-06-29 19:07 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/0417803.shtml)
+- 2026-06-29 19:00 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/2837632653.shtml)
+- 2026-06-29 19:10 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/7213457.shtml)
+- 2026-06-29 19:23 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/26871.shtml)
+- 2026-06-29 19:18 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/7126736821.shtml)
+- 2026-06-29 19:05 - [林逸向方筱然求婚了](http://www.blog.minike.top/Article/details/3227570194.shtml)
+- 2026-06-29 19:12 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/5392682.shtml)
+- 2026-06-29 19:16 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/6144018.shtml)

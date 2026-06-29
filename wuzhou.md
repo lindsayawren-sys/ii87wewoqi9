@@ -1,47 +1,58 @@
-# 老挝官员：老中铁路不仅象征着两国友好关系，也为两国人民带来巨大红利
+# 美联储寻求银行业提供对私募信贷公司的风险敞口详情
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 20:58 来源：中国新闻网 老挝官员：老中铁路不仅象征着两国友好关系，也为两国人民带来巨大红利 责任编辑：【翟璐】
+知情人士称，在私募信贷基金赎回激增、行业不良贷款上升之际，美联储正要求美国大型银行提供它们的私募信贷敞口详细情况。 知情人士表示，美联储检查人员提出的问题旨在评估私募信贷行业的压力程度及其向更广泛金融体系传导的可能性。 在纳入日常监管流程的一系列问题中，美联储尤其关注私募信贷基金从银行获取的贷款情况。在市场环境良好时，这类行动可以放大回报，使私募信贷基金更具吸引力；但在不利环境
 
 ## 正文
 
-发布时间：2026年05月08日 20:58 来源：中国新闻网 老挝官员：老中铁路不仅象征着两国友好关系，也为两国人民带来巨大红利 责任编辑：【翟璐】
+知情人士称，在私募信贷基金赎回激增、行业不良贷款上升之际，美联储正要求美国大型银行提供它们的私募信贷敞口详细情况。
+
+知情人士表示，美联储检查人员提出的问题旨在评估私募信贷行业的压力程度及其向更广泛金融体系传导的可能性。
+
+在纳入日常监管流程的一系列问题中，美联储尤其关注私募信贷基金从银行获取的贷款情况。
+
+在市场环境良好时，这类行动可以放大回报，使私募信贷基金更具吸引力；但在不利环境下，可能使银行面临损失风险。
+
+知情人士称，美国财政部也在就保险业对私募信贷的敞口进行问询。
+
+美联储和财政部的代表目前均未置评。
+
+这些问询表明美国监管机构正努力掌握来自私募信贷领域的潜在压力。
+
+该行业规模已膨胀至1.8万亿美元，最初面向机构投资者，如今也越来越多地向个人投资者推广。
 
 ## 相关推荐
 
-- 2026-06-29 19:04 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 19:13 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 19:12 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 19:12 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 19:23 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 19:13 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 18:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 19:22 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 19:16 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 19:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 19:02 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 18:59 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 19:01 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 19:04 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 19:08 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 19:06 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 19:27 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 19:16 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 19:11 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 19:22 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 19:06 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 19:18 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 19:01 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 19:25 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 19:09 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 19:23 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 19:05 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/75646148.shtml)
-- 2026-06-29 19:03 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/604848781190.shtml)
-- 2026-06-29 19:06 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/3982687.shtml)
-- 2026-06-29 19:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/828626899.shtml)
-- 2026-06-29 19:04 - [叠纸](http://www.share.minike.top/Article/details/6784780.shtml)
-- 2026-06-29 18:57 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/054176315960.shtml)
-- 2026-06-29 18:56 - [德国医生在没有空调的手术室工作](https://www.blog.minike.top/Article/details/7870337835.shtml)
-- 2026-06-29 19:06 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/368299016756.shtml)
-- 2026-06-29 19:17 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/1293336.shtml)
-- 2026-06-29 19:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/45335.shtml)
-- 2026-06-29 19:02 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/77198914.shtml)
-- 2026-06-29 19:21 - [95后小伙突然确诊癌症 医生提醒](http://www.share.kurohicncr.top/Article/details/29594291.shtml)
-- 2026-06-29 18:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/36827365.shtml)
-- 2026-06-29 19:17 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/47669335414.shtml)
-- 2026-06-29 19:11 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/62218576.shtml)
+- 2026-06-29 19:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/121489249602.shtml)
+- 2026-06-29 19:09 - [谢依霖夸杨幂靠谱](https://www.share.minike.top/Article/details/9674439064.shtml)
+- 2026-06-29 19:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/014889.shtml)
+- 2026-06-29 19:12 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/82947.shtml)
+- 2026-06-29 19:19 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/510328.shtml)
+- 2026-06-29 19:23 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/643037981.shtml)
+- 2026-06-29 19:10 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/95416670855.shtml)
+- 2026-06-29 19:02 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/2593620.shtml)
+- 2026-06-29 19:14 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.kurohicncr.top/Article/details/214996.shtml)
+- 2026-06-29 19:24 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/539346.shtml)
+- 2026-06-29 19:15 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/2906428.shtml)
+- 2026-06-29 19:18 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/64485292101.shtml)
+- 2026-06-29 19:02 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/725269348.shtml)
+- 2026-06-29 19:16 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/528924.shtml)
+- 2026-06-29 19:28 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/95221.shtml)

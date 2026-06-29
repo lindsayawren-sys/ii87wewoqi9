@@ -1,55 +1,48 @@
-# 优必选盘中涨近7% 近日重磅推出全新具身智能世界模型Thinker-WM
+# 暴雨蓝色预警：湖南江西等7省区市部分地区有大到暴雨
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-优必选（09880）盘中逆市涨近7%，截至发稿，股价上涨4.10%，现报114.30港元，成交额8.91亿港元。 近日，据优必选官微消息，公司立足工业场景真实作业需求与具身智能技术演进方向，基于自研具身智能大模型Thinker，重磅推出全新具身智能世界模型Thinker-WM，打造物理AI基座，实现具身大脑架构与核心能力的全方位升级。凭借在空间泛化、长程任务和综合性能上的优势，
+中国天气网讯 中央气象台4月9日18时继续发布暴雨蓝色预警： 预计，4月9日20时至10日20时，西藏东南部、四川中部、重庆东部、安徽南部、湖南东部、江西中北部、浙江西部等地部分地区有大到暴雨，其中，江西中部等地部分地区有大暴雨(100～110毫米)。上述部分地区伴有短时强降水(最大小时降雨量20～40毫米，局地可超过50毫米)，局地有雷暴大风或冰雹等强对流天气。 防御指南：
 
 ## 正文
 
-优必选（09880）盘中逆市涨近7%，截至发稿，股价上涨4.10%，现报114.30港元，成交额8.91亿港元。
+中国天气网讯 中央气象台4月9日18时继续发布暴雨蓝色预警： 预计，4月9日20时至10日20时，西藏东南部、四川中部、重庆东部、安徽南部、湖南东部、江西中北部、浙江西部等地部分地区有大到暴雨，其中，江西中部等地部分地区有大暴雨(100～110毫米)。
 
-近日，据优必选官微消息，公司立足工业场景真实作业需求与具身智能技术演进方向，基于自研具身智能大模型Thinker，重磅推出全新具身智能世界模型Thinker-WM，打造物理AI基座，实现具身大脑架构与核心能力的全方位升级。
+上述部分地区伴有短时强降水(最大小时降雨量20～40毫米，局地可超过50毫米)，局地有雷暴大风或冰雹等强对流天气。
 
-凭借在空间泛化、长程任务和综合性能上的优势，Thinker-WM在权威具身智能评测基准Libero中登顶榜首。
-
-同时参与榜单排名的还有英伟达、Physical Intelligence、小米等知名公司的模型。
-
-依托优必选在行业积累的数据及对模型架构的针对性优化，Thinker-WM构建了Diffusion Transformer统一多模态空间架构。
-
-模型在Flow Matching迭代演化过程中，实现视频表征与机器人动作空间的协同优化；在对未来场景进行智能想象推演的同时，渐进式打磨动作生成的合理性与连贯性，使其在复杂长程任务规划与执行中具备显著优势。
-
-责任编辑：卢昱君
+防御指南： 1、政府及相关部门按照职责做好防暴雨准备工作； 2、学校、幼儿园采取适当措施，保证学生和幼儿安全； 3、驾驶人员应当注意道路积水和交通阻塞，确保安全； 4、检查城市、农田、鱼塘排水系统，做好排涝准备。
 
 ## 相关推荐
 
-- 2026-06-29 19:13 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 18:56 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 19:04 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 19:22 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 19:00 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 18:57 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 19:10 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 19:22 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 19:23 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 19:15 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 19:16 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 19:14 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 19:22 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 19:25 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 19:01 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 19:09 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 19:06 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 19:14 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 19:07 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 19:08 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 19:07 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 19:10 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 19:27 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:18 - [花万元相亲对象是50元雇的演员](http://www.share.minike.top/Article/details/919225443.shtml)
-- 2026-06-29 19:22 - [极限挑战第一季](http://www.blog.minike.top/Article/details/76310820907.shtml)
-- 2026-06-29 19:16 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/769514.shtml)
-- 2026-06-29 19:06 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/6186111.shtml)
-- 2026-06-29 19:19 - [金牌调解](https://www.share.minike.top/Article/details/90307.shtml)
-- 2026-06-29 19:23 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/46753695426.shtml)
-- 2026-06-29 19:09 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/495490016919.shtml)
-- 2026-06-29 19:12 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/395484756718.shtml)
-- 2026-06-29 19:01 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/9864880.shtml)
-- 2026-06-29 19:21 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.minike.top/Article/details/363980.shtml)
-- 2026-06-29 19:09 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.kurohicncr.top/Article/details/6133529.shtml)
-- 2026-06-29 18:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/125756.shtml)
-- 2026-06-29 19:21 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/598842292988.shtml)
-- 2026-06-29 18:58 - [一见倾心](https://www.share.kurohicncr.top/Article/details/0745201.shtml)
-- 2026-06-29 18:57 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/7778036993.shtml)
+- 2026-06-29 19:19 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/0288804.shtml)
+- 2026-06-29 19:04 - [LPL第三赛段赛制公布](https://www.share.minike.top/Article/details/6971259971.shtml)
+- 2026-06-29 19:20 - [河南高院审委会原委员曲海滨被查](https://www.share.minike.top/Article/details/836089.shtml)
+- 2026-06-29 19:20 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/9624309.shtml)
+- 2026-06-29 19:20 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/54387553983.shtml)
+- 2026-06-29 19:19 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/51207499903.shtml)
+- 2026-06-29 19:21 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.kurohicncr.top/Article/details/0819749.shtml)
+- 2026-06-29 19:16 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/758033475.shtml)
+- 2026-06-29 19:23 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/7233014.shtml)
+- 2026-06-29 19:23 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/46977987864.shtml)
+- 2026-06-29 19:27 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/55306291.shtml)
+- 2026-06-29 19:02 - [周生如故](https://www.share.minike.top/Article/details/6401918939.shtml)
+- 2026-06-29 19:22 - [东宫女主是不是顶级恋爱脑](http://www.blog.minike.top/Article/details/265920971003.shtml)
+- 2026-06-29 19:20 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.minike.top/Article/details/57134316067.shtml)
+- 2026-06-29 19:27 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/587681987.shtml)

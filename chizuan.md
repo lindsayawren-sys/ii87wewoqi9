@@ -1,61 +1,56 @@
-# 因时机器人房海南：希望灵巧手真正可以帮助“干活”
+# 美国持续申领失业救济人数降至接近两年最低 表明劳动力市场企稳
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。因时机器人CMO房海南出席并演讲。 房海南引用“莫拉维克悖论”并以医疗行业举例，AI或许能比专业医生更快做出决策，但很难具体执行手术任务。而当前行业所需要的探索，正是让机器人真正“做事”。 莫拉维克悖论是人工智能领域一个著名的反直觉现象，它指出对于计算机而言，实现人类的高
+美国持续申领失业金人数降至接近两年来最低水平，进一步表明劳动力市场企稳。 截至3月28日当周，持续申领失业救济人数——也是衡量领取救济人数的替代指标——降至179万人，为2024年5月份以来最低，也低于彭博调查中所有经济学家的预估。截至4月4日当周，首次申领失业救济人数升至21.9万人。 周四公布的数据表明，劳动力市场仍处于“低招聘、低裁员”环境，申领失业救济人数接近历史低位。
 
 ## 正文
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
+美国持续申领失业金人数降至接近两年来最低水平，进一步表明劳动力市场企稳。
 
-因时机器人CMO房海南出席并演讲。
+截至3月28日当周，持续申领失业救济人数——也是衡量领取救济人数的替代指标——降至179万人，为2024年5月份以来最低，也低于彭博调查中所有经济学家的预估。
 
-房海南引用“莫拉维克悖论”并以医疗行业举例，AI或许能比专业医生更快做出决策，但很难具体执行手术任务。
+截至4月4日当周，首次申领失业救济人数升至21.9万人。
 
-而当前行业所需要的探索，正是让机器人真正“做事”。
+周四公布的数据表明，劳动力市场仍处于“低招聘、低裁员”环境，申领失业救济人数接近历史低位。
 
-莫拉维克悖论是人工智能领域一个著名的反直觉现象，它指出对于计算机而言，实现人类的高级认知能力（如逻辑推理、数学计算）相对容易，而复制人类看似简单的低级感知与运动能力（如视觉识别、行走抓取）却异常困难。
+政府月度就业报告显示，3月份众多行业的招聘出现反弹，同时失业率小幅下降。
 
-2025年，因时机器人实现了灵巧手10000台交付数。
+不过，经济学家表示，与伊朗战争以及能源成本上升相关的不确定性可能打击企业信心，进而导致企业在未来几个月缩减招聘计划。
 
-房海南介绍，灵巧手在行业内普遍被认为存在“成本、性能、可靠性”的不可能三角。
-
-“目前市面上没有任何一个产品能够突破不可能三角。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-29 18:58 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 19:17 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 19:22 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 19:05 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-29 19:06 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 18:56 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 19:12 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 19:11 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 19:23 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 18:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 18:56 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 18:56 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 19:01 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 19:08 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 19:09 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 19:21 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 19:20 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 19:16 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 19:04 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 19:11 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 19:28 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 19:06 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 19:26 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 19:11 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 19:05 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 19:16 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:58 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/0631193.shtml)
-- 2026-06-29 19:05 - [逃狱兄弟](https://www.share.minike.top/Article/details/54544516669.shtml)
-- 2026-06-29 18:54 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/79920026947.shtml)
-- 2026-06-29 19:06 - [世界杯预测史上最不吃压力之物](http://www.share.kurohicncr.top/Article/details/299168206809.shtml)
-- 2026-06-29 18:56 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/543479.shtml)
-- 2026-06-29 19:04 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/105226284.shtml)
-- 2026-06-29 19:18 - [官方通报一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/8457015086.shtml)
-- 2026-06-29 19:14 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/399920981564.shtml)
-- 2026-06-29 18:55 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/08005.shtml)
-- 2026-06-29 19:18 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/48282462.shtml)
-- 2026-06-29 18:56 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/10856975.shtml)
-- 2026-06-29 19:15 - [急先锋](http://www.share.kurohicncr.top/Article/details/1362103.shtml)
-- 2026-06-29 18:56 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/87930135.shtml)
-- 2026-06-29 18:59 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/2894022821.shtml)
-- 2026-06-29 19:19 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/513734962827.shtml)
+- 2026-06-29 19:14 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/7984173.shtml)
+- 2026-06-29 19:23 - [刘冰任河南南阳市代市长](http://www.share.minike.top/Article/details/42898.shtml)
+- 2026-06-29 19:03 - [外交部谈对日出口管制措施](https://www.blog.kurohicncr.top/Article/details/562637218294.shtml)
+- 2026-06-29 19:11 - [当家电外通风口出现鸟窝](http://www.share.minike.top/Article/details/3688760.shtml)
+- 2026-06-29 19:27 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/00007247.shtml)
+- 2026-06-29 19:19 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/9491396.shtml)
+- 2026-06-29 19:02 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/927912.shtml)
+- 2026-06-29 19:14 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/21366876530.shtml)
+- 2026-06-29 19:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/611922293548.shtml)
+- 2026-06-29 19:00 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/9001431535.shtml)
+- 2026-06-29 19:10 - [送你一朵小红花](https://www.blog.minike.top/Article/details/1059271401.shtml)
+- 2026-06-29 19:29 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/493978299045.shtml)
+- 2026-06-29 19:17 - [林逸向方筱然求婚了](http://www.share.minike.top/Article/details/78709.shtml)
+- 2026-06-29 19:10 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/352574.shtml)
+- 2026-06-29 19:06 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/901122732.shtml)

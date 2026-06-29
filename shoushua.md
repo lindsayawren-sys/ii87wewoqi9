@@ -1,57 +1,56 @@
-# 中国海警局新闻发言人发表谈话
+# 突然！超190亿，“跑了”
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-中新社北京5月7日电 中国海警局7日消息，中国海警局新闻发言人姜略表示，5月6日，中方向阳红33号船位中国鲎藤礁附近海域开展正常生态环境调查。其间，菲海岸警卫队一架岛人型机蓄意抵近滋扰，中国海警依法依规跟踪监视、管控处置，确保中方船只作业安全，行动全程专业规范。姜略表示，菲方有关言论颠倒黑白、罔顾事实，企图混淆视听。我们正告菲方立即停止非法干扰和抹黑炒作。 姜略表示，中国海警将
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【导读】昨日股票ETF资金净流出超192亿元 中国基金报记者 曹雯璟 4月9日，A股三大指数全线收跌，CPO、稀土、光纤概念股轮番演绎。股票ETF资金净流出超192亿元，化工、创新药、黄金、通信等热门主题ETF成为“吸金”大户，中证500指数、中证1000指数、沪深300指数相关宽基ETF成为“失血”大户。
 
 ## 正文
 
-中新社北京5月7日电 中国海警局7日消息，中国海警局新闻发言人姜略表示，5月6日，中方向阳红33号船位中国鲎藤礁附近海域开展正常生态环境调查。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-其间，菲海岸警卫队一架岛人型机蓄意抵近滋扰，中国海警依法依规跟踪监视、管控处置，确保中方船只作业安全，行动全程专业规范。
+【导读】昨日股票ETF资金净流出超192亿元 中国基金报记者 曹雯璟 4月9日，A股三大指数全线收跌，CPO、稀土、光纤概念股轮番演绎。
 
-姜略表示，菲方有关言论颠倒黑白、罔顾事实，企图混淆视听。
+股票ETF资金净流出超192亿元，化工、创新药、黄金、通信等热门主题ETF成为“吸金”大户，中证500指数、中证1000指数、沪深300指数相关宽基ETF成为“失血”大户。
 
-我们正告菲方立即停止非法干扰和抹黑炒作。
+昨日股票ETF资金净流出超192亿元 4月9日，A股三大指数震荡调整，截至收盘，沪指跌0.72%，深成指跌0.33%，创业板指跌0.73%。
 
-姜略表示，中国海警将依法在中国管辖海域持续开展维权执法活动，采取一切必要措施保障中方科考作业安全与南海地区和平稳定。
+从板块上看，旅游、软件开发、医药商业、保险等板块跌幅居前；CPO、稀土、光纤概念、激光雷达等板块涨幅居前。
 
-(完)
+4月9日，全市场股票ETF（含跨境ETF）资金净流出192.90亿元。
+
+从大类型来看，宽基ETF净流出居前，达168.76亿元；规模变化方面，宽基ETF规模下降259.08亿元。
+
+具体到指数维度，中证1000指数单日净流出居前，达41.96亿元。
 
 ## 相关推荐
 
-- 2026-06-29 19:00 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 19:02 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-29 19:19 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 19:20 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 18:56 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 19:03 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 19:01 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 18:54 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 19:19 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 19:21 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 19:20 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 19:22 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 19:10 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 19:17 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 19:12 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 19:10 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 19:02 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 19:01 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 19:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 19:09 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 19:16 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 19:12 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 19:24 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 19:12 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 19:27 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:03 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/98198.shtml)
-- 2026-06-29 19:01 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/557260.shtml)
-- 2026-06-29 19:23 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/111209.shtml)
-- 2026-06-29 18:56 - [大学专业未来如何洗牌](https://www.blog.kurohicncr.top/Article/details/6480269.shtml)
-- 2026-06-29 19:06 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/518614.shtml)
-- 2026-06-29 19:08 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/041664659576.shtml)
-- 2026-06-29 19:09 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/778445408.shtml)
-- 2026-06-29 19:16 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/4253853.shtml)
-- 2026-06-29 19:13 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/61300543.shtml)
-- 2026-06-29 19:04 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/525390844.shtml)
-- 2026-06-29 18:58 - [CORTIS 小牌大耍](https://www.share.kurohicncr.top/Article/details/0465055519.shtml)
-- 2026-06-29 19:14 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/6148967.shtml)
-- 2026-06-29 19:02 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/758271.shtml)
-- 2026-06-29 19:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/062231942785.shtml)
-- 2026-06-29 19:20 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/8779042277.shtml)
+- 2026-06-29 19:07 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/6483666.shtml)
+- 2026-06-29 19:03 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/09203330.shtml)
+- 2026-06-29 19:15 - [天道](http://www.share.kurohicncr.top/Article/details/89705376855.shtml)
+- 2026-06-29 19:09 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/819218336848.shtml)
+- 2026-06-29 19:12 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/63786921.shtml)
+- 2026-06-29 19:05 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/5868962.shtml)
+- 2026-06-29 19:25 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/9299524.shtml)
+- 2026-06-29 19:09 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/802140126.shtml)
+- 2026-06-29 19:16 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/66496046404.shtml)
+- 2026-06-29 19:00 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/3972368.shtml)
+- 2026-06-29 19:13 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/275739838.shtml)
+- 2026-06-29 19:14 - [天柱山回应网红打卡树枝被砍](https://www.share.kurohicncr.top/Article/details/83631048675.shtml)
+- 2026-06-29 19:24 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/2998930136.shtml)
+- 2026-06-29 19:29 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/32962615590.shtml)
+- 2026-06-29 19:26 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/829307205281.shtml)

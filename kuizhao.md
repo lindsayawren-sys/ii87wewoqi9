@@ -1,57 +1,57 @@
-# Airbnb一季度取消率因中东冲突上升 积极筹备世界杯赛事接待
+# 中汽协：一季度新能源汽车出口同比增长超过一倍
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-Airbnb在周四收盘后公布了好坏参半的第一季度业绩，并警告称伊朗战争引发的区域性疲软。 以下是该公司业绩与LSEG预期的对比： 每股收益：26美分，而预期为29美分。 营收：26.8亿美元，而预期为26.2亿美元。 本季度营收较去年同期的22.7亿美元增长18%。净利润从去年的1.54亿美元（合每股24美分）增至1.6亿美元（合每股26美分）。 对于当前季度，Airbnb发布
+中新网北京4月10日电(记者 张尼)10日，“中汽协会数据”微信公众号发布3月汽车工业产销情况。数据显示，2026年1-3月，新能源汽车出口95.4万辆，同比增长1.2倍。 数据显示，2026年3月，汽车产销分别完成291.7万辆和289.9万辆，环比分别增长74.4%和60.6%，同比分别下降3%和0.6%。 1-3月，汽车产销分别完成703.9万辆和704.8万辆，同比分别
 
 ## 正文
 
-Airbnb在周四收盘后公布了好坏参半的第一季度业绩，并警告称伊朗战争引发的区域性疲软。
+中新网北京4月10日电(记者 张尼)10日，“中汽协会数据”微信公众号发布3月汽车工业产销情况。
 
-以下是该公司业绩与LSEG预期的对比： 每股收益：26美分，而预期为29美分。
+数据显示，2026年1-3月，新能源汽车出口95.4万辆，同比增长1.2倍。
 
-营收：26.8亿美元，而预期为26.2亿美元。
+数据显示，2026年3月，汽车产销分别完成291.7万辆和289.9万辆，环比分别增长74.4%和60.6%，同比分别下降3%和0.6%。
 
-本季度营收较去年同期的22.7亿美元增长18%。
+1-3月，汽车产销分别完成703.9万辆和704.8万辆，同比分别下降6.9%和5.6%。
 
-净利润从去年的1.54亿美元（合每股24美分）增至1.6亿美元（合每股26美分）。
+一季度，汽车出口高速增长，新能源汽车表现亮眼。
 
-对于当前季度，Airbnb发布了乐观的预测，预计营收在35.4亿美元至36.0亿美元之间。
+1-3月，汽车出口222.6万辆，同比增长56.7%，其中，3月汽车出口87.5万辆，环比增长30.2%，同比增长72.7%。
 
-分析师预期营收为34.6亿美元。
+1-3月，新能源汽车出口95.4万辆，同比增长1.2倍；传统燃料汽车出口127.1万辆，同比增长29.9%。
 
-该公司将全年营收指引从12%的增长率上调至“低至中等个位数”的增长。
+据中国汽车工业协会分析，春节后，企业生产经营活动加快，市场活跃度提升。
 
 ## 相关推荐
 
-- 2026-06-29 19:13 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 19:07 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 19:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-29 19:16 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 19:23 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 19:03 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 19:08 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 19:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 19:03 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 19:22 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 19:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 19:15 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 19:28 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 19:07 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 19:10 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 19:00 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 19:14 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 19:25 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 19:01 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 19:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 19:26 - [欧洲极端高温如何影响家电股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 19:24 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:55 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/439595802257.shtml)
-- 2026-06-29 19:21 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/00683653840.shtml)
-- 2026-06-29 18:54 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/98255738765.shtml)
-- 2026-06-29 19:23 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/48290915.shtml)
-- 2026-06-29 18:55 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/62794136029.shtml)
-- 2026-06-29 19:04 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/272016.shtml)
-- 2026-06-29 19:09 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.kurohicncr.top/Article/details/61290833312.shtml)
-- 2026-06-29 19:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/14321506169.shtml)
-- 2026-06-29 19:19 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/244626.shtml)
-- 2026-06-29 18:57 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/99512.shtml)
-- 2026-06-29 18:56 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/828014859.shtml)
-- 2026-06-29 19:04 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/15276978647.shtml)
-- 2026-06-29 19:20 - [金刚川](https://www.share.kurohicncr.top/Article/details/5415665942.shtml)
-- 2026-06-29 18:56 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/53317429.shtml)
-- 2026-06-29 19:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/7981236.shtml)
+- 2026-06-29 19:12 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/73655.shtml)
+- 2026-06-29 19:20 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/6046620825.shtml)
+- 2026-06-29 19:18 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/84310.shtml)
+- 2026-06-29 19:21 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/5799392.shtml)
+- 2026-06-29 19:06 - [扩军害了世界杯吗](http://www.blog.minike.top/Article/details/432565175.shtml)
+- 2026-06-29 19:09 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/536846.shtml)
+- 2026-06-29 19:18 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/80927011389.shtml)
+- 2026-06-29 19:22 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/1292783.shtml)
+- 2026-06-29 19:13 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/441756790.shtml)
+- 2026-06-29 19:01 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/32845918444.shtml)
+- 2026-06-29 19:20 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/985708.shtml)
+- 2026-06-29 19:17 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/3554791.shtml)
+- 2026-06-29 19:20 - [时光音乐会](https://www.blog.minike.top/Article/details/85809231116.shtml)
+- 2026-06-29 19:21 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/61531289.shtml)
+- 2026-06-29 19:12 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/70041852.shtml)

@@ -1,58 +1,58 @@
-# 专家：汉坦病毒非新病毒 无需过度恐慌
+# 豆粕行情急转直下：饲企减配、养殖亏损，拐点何时现？
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-对于“洪迪厄斯”号邮轮出现汉坦病毒病例一事，世界卫生组织专家和病毒学专家表示，汉坦病毒不是新病毒，传播率很低且感染并不常见，公众无需过度恐慌。 珀布赖特研究所病毒糖蛋白组博士后研究员 朱莉娅·加洛：我认为最重要的是不要制造恐慌。正如我所说，这并不是一种新病毒。大家之所以现在才第一次听说它正是因为其传播率极低，感染并不常见。所以我建议公众要保持信息畅通，从权威媒体获取资讯。不要草
+生意社 据生意社监测数据显示：4月以来，豆粕行情不断走弱，价格下跌超6%。4月1日，豆粕市场均价3250元/吨，4月9日，豆粕市场均价3048元/吨，价格下跌6.22%。 影响本轮豆粕行情下跌的主要因素 供应面：4月上旬，因进口大豆到港量较少，部分油厂集中停机检修，导致开机率与周度压榨量下降，截至4月3日，国内豆粕库存为60万吨左右，且低于去年同期水平。原料进口大豆供应趋紧，增
 
 ## 正文
 
-对于“洪迪厄斯”号邮轮出现汉坦病毒病例一事，世界卫生组织专家和病毒学专家表示，汉坦病毒不是新病毒，传播率很低且感染并不常见，公众无需过度恐慌。
+生意社 据生意社监测数据显示：4月以来，豆粕行情不断走弱，价格下跌超6%。
 
-珀布赖特研究所病毒糖蛋白组博士后研究员 朱莉娅·加洛：我认为最重要的是不要制造恐慌。
+4月1日，豆粕市场均价3250元/吨，4月9日，豆粕市场均价3048元/吨，价格下跌6.22%。
 
-正如我所说，这并不是一种新病毒。
+影响本轮豆粕行情下跌的主要因素 供应面：4月上旬，因进口大豆到港量较少，部分油厂集中停机检修，导致开机率与周度压榨量下降，截至4月3日，国内豆粕库存为60万吨左右，且低于去年同期水平。
 
-大家之所以现在才第一次听说它正是因为其传播率极低，感染并不常见。
+原料进口大豆供应趋紧，增强了油厂对豆粕挺价的意愿，一定程度限制了豆粕价格深跌的空间。
 
-所以我建议公众要保持信息畅通，从权威媒体获取资讯。
+期货面：巴西大豆丰产，到港压力巨大。
 
-不要草率行事，比如取消所有的度假计划或者开始囤积物资，我们现在的局势远没有到那一步。
+巴西大豆收获已超八成，丰产格局确定，3月出口量就已超1400万吨。
 
-世卫组织流行病和大流行病防范与预防部门代理主任 玛丽亚·范克尔克霍夫：在此我还想补充强调一点，该病毒对普通公众的风险很低。
+美国大豆播种面积预期增加，但是中东地缘政治冲突持续，国际原油价格高位运行，对豆粕市场情绪形成间接影响，豆粕期货行情跌势放缓。
 
-我认为我们需要客观看待此事，因为目前外界对其高度关注。
+需求面：生猪养殖持续亏损，全国生猪出栏均价已跌至低位，养殖户缩减规模、加速淘汰母猪的现象增多，导致饲料企业采购心态谨慎，多以消耗库存和随用随采为主。
 
 ## 相关推荐
 
-- 2026-06-29 19:10 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 19:14 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 19:20 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 19:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-29 18:54 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 19:21 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 18:56 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 19:12 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 18:58 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 19:15 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 19:03 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 19:23 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 19:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 19:25 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 19:18 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 19:18 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 19:21 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 19:29 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 19:28 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 19:15 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 19:14 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 19:21 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 19:23 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 19:15 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:55 - [95后小伙突然确诊癌症 医生提醒](http://www.share.kurohicncr.top/Article/details/644517784.shtml)
-- 2026-06-29 19:18 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/7564385259.shtml)
-- 2026-06-29 19:01 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/57105645.shtml)
-- 2026-06-29 19:01 - [第一炉香](http://www.share.minike.top/Article/details/14327.shtml)
-- 2026-06-29 18:59 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/9164069.shtml)
-- 2026-06-29 19:06 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/3362844.shtml)
-- 2026-06-29 18:58 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/7548062383.shtml)
-- 2026-06-29 19:03 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/28822.shtml)
-- 2026-06-29 19:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/5402741807.shtml)
-- 2026-06-29 19:06 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/40440955.shtml)
-- 2026-06-29 19:05 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/832149.shtml)
-- 2026-06-29 19:04 - [7款高价创新药有望降价](http://www.blog.kurohicncr.top/Article/details/439172398590.shtml)
-- 2026-06-29 19:06 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/33068642786.shtml)
-- 2026-06-29 19:12 - [四川达州发生一起交通事故致2死](https://www.blog.minike.top/Article/details/766499.shtml)
-- 2026-06-29 19:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/219206650.shtml)
+- 2026-06-29 19:06 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/5457350.shtml)
+- 2026-06-29 19:29 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/29114702883.shtml)
+- 2026-06-29 19:00 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/563385.shtml)
+- 2026-06-29 19:07 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/195276012.shtml)
+- 2026-06-29 19:05 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/5042845.shtml)
+- 2026-06-29 19:18 - [周生如故](http://www.share.minike.top/Article/details/3936453.shtml)
+- 2026-06-29 19:24 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/87539211074.shtml)
+- 2026-06-29 19:16 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/500573860.shtml)
+- 2026-06-29 19:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/54693.shtml)
+- 2026-06-29 19:20 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/83255.shtml)
+- 2026-06-29 19:05 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.minike.top/Article/details/740274.shtml)
+- 2026-06-29 19:24 - [网红小徐直播时突遇地震](https://www.share.minike.top/Article/details/173989813.shtml)
+- 2026-06-29 19:16 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/0492579.shtml)
+- 2026-06-29 19:04 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/2752287.shtml)
+- 2026-06-29 19:01 - [金牌调解](https://www.blog.minike.top/Article/details/41445.shtml)

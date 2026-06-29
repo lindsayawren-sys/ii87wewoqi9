@@ -1,55 +1,58 @@
-# 福耀玻璃午前涨超3% 首季度毛利率表现超预期
+# 阿联酋石油CEO：停火后伊朗仍控制通行，霍尔木兹海峡并未开放
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-福耀玻璃（03606）午前涨超3%，截至发稿，股价上涨3.11%，现报64.75港元，成交额1.15亿港元。 长江证券研报指出，在26Q1全球汽车产销承压背景下，福耀玻璃Q1期间凭借高附加值玻璃占比提升及市占率持续提升，实现营业收入104.1亿元，同比增长5.1%，环比下降16.6%，收入增速表现持续超全球下游市场表现。26Q1海外天然气、电价、海运费等成本均有所上涨，公司凭借
+要点 阿布扎比国家石油公司（ADNOC）首席执行官周四表示，在美国与伊朗达成为期两周的停火协议后，霍尔木兹海峡并未恢复通航。 “此刻需要明确事实，” 苏丹・艾哈迈德・贾比尔在社交媒体发文称，“所以我们直言不讳：霍尔木兹海峡并未开放。通行受到限制、附加条件并被严格控制。” 贾比尔指出，伊朗已明确要求，船只必须获得其许可方可通过海峡。“这不是航行自由，这是强制管控。” ADNOC
 
 ## 正文
 
-福耀玻璃（03606）午前涨超3%，截至发稿，股价上涨3.11%，现报64.75港元，成交额1.15亿港元。
+要点 阿布扎比国家石油公司（ADNOC）首席执行官周四表示，在美国与伊朗达成为期两周的停火协议后，霍尔木兹海峡并未恢复通航。
 
-长江证券研报指出，在26Q1全球汽车产销承压背景下，福耀玻璃Q1期间凭借高附加值玻璃占比提升及市占率持续提升，实现营业收入104.1亿元，同比增长5.1%，环比下降16.6%，收入增速表现持续超全球下游市场表现。
+“此刻需要明确事实，” 苏丹・艾哈迈德・贾比尔在社交媒体发文称，“所以我们直言不讳：霍尔木兹海峡并未开放。
 
-26Q1海外天然气、电价、海运费等成本均有所上涨，公司凭借优秀的成本控制能力，加之国内纯碱、天然气成本下降，公司2026Q1毛利率达37.4%，同比提升2.0pct，环比增长0.3pct。
+通行受到限制、附加条件并被严格控制。
 
-该行续指，公司汽玻盈利能力远超竞争对手，后者因玻璃业务盈利较差发展重心已经转移，通过深耕汽玻业务，公司全球份额有望持续提升。
+” 贾比尔指出，伊朗已明确要求，船只必须获得其许可方可通过海峡。
 
-公司拓展“一片玻璃”的边界，加强对玻璃智能、集成趋势的研究，持续推进铝饰件业务，铝饰件业务与汽车玻璃业务具有协同效应，长期发展空间巨大，将带来全新增量。
+“这不是航行自由，这是强制管控。
 
-责任编辑：卢昱君
+” ADNOC 是阿联酋国有石油公司。
+
+阿联酋是欧佩克第三大产油国，2 月 28 日战争爆发前，日均产量达 340 万桶。
+
+美国总统特朗普周二曾表示，停火协议的前提是伊朗同意全面、立即、安全地开放霍尔木兹海峡。
 
 ## 相关推荐
 
-- 2026-06-29 19:15 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 19:07 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 19:13 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 19:14 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 19:19 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 19:11 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 19:14 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 19:05 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 19:18 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 19:06 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 19:18 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 19:20 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 19:05 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 19:20 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 19:04 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 19:26 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 19:21 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 19:07 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 19:11 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 19:28 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 19:16 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 19:20 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 19:12 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 19:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 19:00 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:24 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/174792756401.shtml)
-- 2026-06-29 19:08 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/49636.shtml)
-- 2026-06-29 19:20 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/981175644732.shtml)
-- 2026-06-29 19:21 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.minike.top/Article/details/807640.shtml)
-- 2026-06-29 19:10 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/539639012.shtml)
-- 2026-06-29 19:02 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/170575741071.shtml)
-- 2026-06-29 19:03 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/203717373.shtml)
-- 2026-06-29 19:19 - [葛军透露高考出题思路](http://www.share.kurohicncr.top/Article/details/9625088306.shtml)
-- 2026-06-29 19:07 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/04458120.shtml)
-- 2026-06-29 19:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/737540925.shtml)
-- 2026-06-29 18:59 - [韩国队主帅遭极端网友死亡威胁](http://www.share.minike.top/Article/details/736440109509.shtml)
-- 2026-06-29 19:01 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/1785310.shtml)
-- 2026-06-29 19:23 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/701884.shtml)
-- 2026-06-29 19:09 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/608066.shtml)
-- 2026-06-29 19:00 - [啊啊啊](https://www.share.minike.top/Article/details/661472.shtml)
+- 2026-06-29 19:20 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/358237961.shtml)
+- 2026-06-29 19:01 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/2921295339.shtml)
+- 2026-06-29 19:01 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/1849242.shtml)
+- 2026-06-29 19:03 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/08594.shtml)
+- 2026-06-29 19:29 - [河南高院审委会原委员曲海滨被查](http://www.blog.kurohicncr.top/Article/details/48447584680.shtml)
+- 2026-06-29 19:16 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/37424.shtml)
+- 2026-06-29 19:26 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.kurohicncr.top/Article/details/35546159.shtml)
+- 2026-06-29 19:00 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/990563461496.shtml)
+- 2026-06-29 19:04 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/684240427.shtml)
+- 2026-06-29 19:01 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/05574363685.shtml)
+- 2026-06-29 19:09 - [急先锋](http://www.share.kurohicncr.top/Article/details/583936753.shtml)
+- 2026-06-29 19:07 - [小娘惹](https://www.share.minike.top/Article/details/12701988.shtml)
+- 2026-06-29 19:03 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/57863.shtml)
+- 2026-06-29 19:01 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/55105876.shtml)
+- 2026-06-29 19:02 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/06671.shtml)

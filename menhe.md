@@ -1,56 +1,53 @@
-# 贵州榕江持续把赛事流量转化为经济增量
+# 山西芮城：男孩坠入窄洞 消防员倒立挖地施救
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-贵州榕江持续把赛事流量转化为经济增量 全域协作，“村超”消费链越“链”越长(“十五五”首季数据微视角) 《加快培育服务消费新增长点工作方案》落地实施。今年一季度，我国服务零售额同比增长5.5%，文旅、赛事等领域消费潜力不断释放。 又是一个比赛日，下午4点，透过大巴车的窗户，标语“村超欢迎你”进入广东游客杨明勇的视野，贵州榕江县城到了。这辆旅游大巴从榕江高铁站发出，直达“村超”球
+发布时间：2026年04月10日 19:17 来源：中国新闻网 近日，山西运城，芮城县一名9岁男孩不慎坠入施工桩洞。该桩洞直径不足40厘米，深度超4米。消防救援人员抵达现场后，架设救援三脚架，一名身材瘦小的消防员采取倒立姿势进入桩洞实施救援，在洞外人员配合下，缓慢将被困男童拉出洞口。经现场医护人员检查，被困人员身体并无大碍。(记者 张立程 视频来源 芮城县消防救援大队） 责任编
 
 ## 正文
 
-贵州榕江持续把赛事流量转化为经济增量 全域协作，“村超”消费链越“链”越长(“十五五”首季数据微视角) 《加快培育服务消费新增长点工作方案》落地实施。
+发布时间：2026年04月10日 19:17 来源：中国新闻网 近日，山西运城，芮城县一名9岁男孩不慎坠入施工桩洞。
 
-今年一季度，我国服务零售额同比增长5.5%，文旅、赛事等领域消费潜力不断释放。
+该桩洞直径不足40厘米，深度超4米。
 
-又是一个比赛日，下午4点，透过大巴车的窗户，标语“村超欢迎你”进入广东游客杨明勇的视野，贵州榕江县城到了。
+消防救援人员抵达现场后，架设救援三脚架，一名身材瘦小的消防员采取倒立姿势进入桩洞实施救援，在洞外人员配合下，缓慢将被困男童拉出洞口。
 
-这辆旅游大巴从榕江高铁站发出，直达“村超”球场。
+经现场医护人员检查，被困人员身体并无大碍。
 
-窗外，侗族鼓楼造型的路灯依次排开，街边商户生意红火，这让杨明勇想起2023年，自己曾来这里看第一届“村超”。
-
-球场入口，杨明勇下车，接过志愿者伍家伟递来的赛事手册。
-
-封面上，137支村级球队的名单占了半页，队伍数量较第一届“村超”增加近6倍。
-
-“现在大家参赛积极性更高了，深山里的村寨都有队伍参加。
+(记者 张立程 视频来源 芮城县消防救援大队） 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-29 18:59 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 19:07 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 19:04 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 18:56 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 19:19 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 19:07 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 19:21 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 19:14 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 19:03 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 19:14 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 19:03 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 19:23 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 19:05 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 19:18 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 19:17 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 19:00 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 19:15 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 19:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 19:27 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 19:27 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 19:28 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 19:23 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 19:18 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/30980148403.shtml)
-- 2026-06-29 19:15 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/92032644.shtml)
-- 2026-06-29 19:23 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/460948.shtml)
-- 2026-06-29 19:00 - [王俊凯命名方式](https://www.share.minike.top/Article/details/35154.shtml)
-- 2026-06-29 19:07 - [速度与激情9](http://www.share.minike.top/Article/details/73427708972.shtml)
-- 2026-06-29 19:22 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/835933.shtml)
-- 2026-06-29 19:10 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/292180833.shtml)
-- 2026-06-29 19:09 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/43971259705.shtml)
-- 2026-06-29 18:54 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/61944961093.shtml)
-- 2026-06-29 19:14 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/309427074907.shtml)
-- 2026-06-29 19:06 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/73907800.shtml)
-- 2026-06-29 18:56 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/850211.shtml)
-- 2026-06-29 19:01 - [小鹏MONAL03预售定档7月2日](http://www.blog.kurohicncr.top/Article/details/95949.shtml)
-- 2026-06-29 19:00 - [湖南耒阳“轮椅女孩”高考546分](https://www.share.kurohicncr.top/Article/details/617067.shtml)
-- 2026-06-29 19:16 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/491063445111.shtml)
+- 2026-06-29 19:27 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/2774048244.shtml)
+- 2026-06-29 19:03 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/73251576.shtml)
+- 2026-06-29 19:13 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/954487406.shtml)
+- 2026-06-29 19:09 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/490520441.shtml)
+- 2026-06-29 19:06 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/825542780569.shtml)
+- 2026-06-29 19:00 - [斗破苍穹](https://www.share.minike.top/Article/details/43757399.shtml)
+- 2026-06-29 19:28 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/0204290468.shtml)
+- 2026-06-29 19:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/12086.shtml)
+- 2026-06-29 19:22 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/0351021.shtml)
+- 2026-06-29 19:02 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/410843.shtml)
+- 2026-06-29 19:12 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/140735255515.shtml)
+- 2026-06-29 19:08 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/7860102.shtml)
+- 2026-06-29 19:12 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/9000133501.shtml)
+- 2026-06-29 19:15 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/70145163.shtml)
+- 2026-06-29 19:15 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/97304969.shtml)

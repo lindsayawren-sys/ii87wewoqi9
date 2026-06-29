@@ -1,59 +1,61 @@
-# 瑞银：亚洲经济有望保持韧性
+# 苹果妥协了！2026款产品允许用户自主更换电池和屏幕
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-中新社上海5月8日电 (记者 姜煜)瑞银财富管理投资总监办公室(CIO)8日发表机构观点称，亚洲经济有望保持韧性。 据CIO分析，2025年4月美国宣布对全球贸易伙伴加征“对等关税”，尽管当时该政策对亚洲地区影响巨大，但亚洲市场仍迅速恢复，并在随后几个季度中表现出色。亚洲股市指数(日本除外)今年年初至今上涨了18%，同期标普500指数涨幅为7%。 战争导致霍尔木兹海峡受阻，给一
+快科技4月9日消息，据媒体报道，苹果公司近日对其自助维修计划进行了新一轮更新，正式向公众开放2026年3月发布的多款新品替换部件，进一步降低用户自主维修门槛。此举以实际行动响应全球“维修权”倡议，提升产品使用与维护的便利性。本次更新覆盖产品阵容丰富，包括iPhone 17e、MacBook Neo、搭载M5芯片的MacBook Air与MacBook Pro、M4版iPad A
 
 ## 正文
 
-中新社上海5月8日电 (记者 姜煜)瑞银财富管理投资总监办公室(CIO)8日发表机构观点称，亚洲经济有望保持韧性。
+快科技4月9日消息，据媒体报道，苹果公司近日对其自助维修计划进行了新一轮更新，正式向公众开放2026年3月发布的多款新品替换部件，进一步降低用户自主维修门槛。
 
-据CIO分析，2025年4月美国宣布对全球贸易伙伴加征“对等关税”，尽管当时该政策对亚洲地区影响巨大，但亚洲市场仍迅速恢复，并在随后几个季度中表现出色。
+此举以实际行动响应全球“维修权”倡议，提升产品使用与维护的便利性。
 
-亚洲股市指数(日本除外)今年年初至今上涨了18%，同期标普500指数涨幅为7%。
+本次更新覆盖产品阵容丰富，包括iPhone 17e、MacBook Neo、搭载M5芯片的MacBook Air与MacBook Pro、M4版iPad Air以及新款Apple Studio Display XDR等主力机型。
 
-战争导致霍尔木兹海峡受阻，给一些严重依赖能源进口的经济体带来压力，然而，亚洲应对外部危机的关键支撑因素仍在。
+消费者可通过苹果官方渠道便捷购买电池、显示屏、键盘、扬声器、触控板等核心组件，同时获取配套的详细维修手册，为自主维修提供规范指引。
 
-与过往危机时相比，亚洲的能源现况及供应链已有所不同，战略储油、替代能源兴起和财政措施为短期影响提供了缓冲。
+苹果自助维修计划于2022年4月率先在美国、加拿大及欧盟多国启动，是企业顺应市场需求、回应“维修权”相关呼吁的重要举措。
 
-与此同时，人工智能热潮等结构性力量依然是亚洲地区强大的增长引擎，而宏观经济条件也相对稳健。
+计划推出初期因操作流程相对繁琐而受到外界关注，苹果随后持续优化维修政策，逐步简化流程、降低维修难度。
 
-“中国、韩国、新加坡、马来西亚等国的能源储备相对较高，可以有效缓冲地缘政治的影响。
+2023年6月，苹果取消部分组件配对限制，并将支持范围从iPhone逐步拓展至iPad系列，不断完善自助维修服务体系。
 
-我们认为，只要不出现能源供应长时间严重中断的情况，亚洲经济的韧性有望保持。
+值得关注的是，本次更新中的MacBook Neo实现了维修设计的重大革新。
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 18:56 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 19:09 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 19:02 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 18:56 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 19:16 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 19:02 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 18:56 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 19:01 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 18:59 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 19:01 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 19:19 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 19:12 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 19:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 19:22 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 19:20 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 19:24 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 19:21 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 19:28 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 19:28 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 19:20 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 19:22 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 19:21 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 19:09 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 19:02 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 19:09 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 19:22 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 19:13 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:01 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/59145410775.shtml)
-- 2026-06-29 19:14 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/012589450.shtml)
-- 2026-06-29 19:22 - [货车司机雨中帮交警挪树获表扬](https://www.share.kurohicncr.top/Article/details/7942245.shtml)
-- 2026-06-29 19:07 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/65554881088.shtml)
-- 2026-06-29 18:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/3104843967.shtml)
-- 2026-06-29 18:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/3947189.shtml)
-- 2026-06-29 18:59 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/9653182.shtml)
-- 2026-06-29 18:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/49318.shtml)
-- 2026-06-29 19:00 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/597413.shtml)
-- 2026-06-29 19:03 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/405651213.shtml)
-- 2026-06-29 19:09 - [金刚川](http://www.share.minike.top/Article/details/3867459823.shtml)
-- 2026-06-29 19:22 - [无畏为自己的猫正名了](http://www.blog.kurohicncr.top/Article/details/72441604.shtml)
-- 2026-06-29 19:19 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/775687.shtml)
-- 2026-06-29 19:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/34120.shtml)
-- 2026-06-29 19:18 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/4482052229.shtml)
+- 2026-06-29 19:27 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/109733356.shtml)
+- 2026-06-29 19:12 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/2774677.shtml)
+- 2026-06-29 19:00 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/33423358.shtml)
+- 2026-06-29 19:06 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/3400080.shtml)
+- 2026-06-29 19:16 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/711269.shtml)
+- 2026-06-29 19:13 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/5480635.shtml)
+- 2026-06-29 19:07 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/96407050038.shtml)
+- 2026-06-29 19:22 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/30118547.shtml)
+- 2026-06-29 19:00 - [日本偶像龟梨和也宣布结婚](http://www.blog.kurohicncr.top/Article/details/7898426.shtml)
+- 2026-06-29 19:06 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/53162588021.shtml)
+- 2026-06-29 19:08 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/9568507.shtml)
+- 2026-06-29 19:19 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.kurohicncr.top/Article/details/024052478.shtml)
+- 2026-06-29 19:11 - [林逸向方筱然求婚了](https://www.blog.kurohicncr.top/Article/details/742882.shtml)
+- 2026-06-29 19:19 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/8227520.shtml)
+- 2026-06-29 19:19 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/041038725.shtml)

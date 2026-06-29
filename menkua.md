@@ -1,53 +1,50 @@
-# 强军思想育新人丨向下深潜 向上生长
+# 大雾黄色预警：京津冀等9省市部分地区有大雾 局地有浓雾
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-2018年6月11日，习主席来到北部战区海军某潜艇部队视察，下舱室、进战位，详细了解武器弹药技战术性能。在潜艇上，习主席和王同严亲切交流。习主席一直牵挂着常年奋斗在深海大洋的潜艇兵们，勉励大家坚定理想信念，建设坚强集体，把打赢本领搞过硬。这些年，王同严和战友们牢记统帅嘱托，在大洋深处苦练本领、淬炼成长。 出品人：欧灿侯大伟 总策划：费士廷钱宗阳 监制：钱晓虎 黄显文 尹航 导演
+中国天气网讯 中央气象台4月9日18时继续发布大雾黄色预警： 预计，4月9日夜间至10日上午，渤海、渤海海峡、黄海北部和西部海域、东海西北部海域、长江口附近海域将有能见度不足1公里的大雾。此外，河北中南部、北京南部、天津西部、河南东北部、山东西部和北部、江苏北部、安徽中南部、湖北东部、湖南东北部等地的部分地区有大雾天气，局地有能见度不足500米的浓雾。 防御指南： 1、由于陆地
 
 ## 正文
 
-2018年6月11日，习主席来到北部战区海军某潜艇部队视察，下舱室、进战位，详细了解武器弹药技战术性能。
+中国天气网讯 中央气象台4月9日18时继续发布大雾黄色预警： 预计，4月9日夜间至10日上午，渤海、渤海海峡、黄海北部和西部海域、东海西北部海域、长江口附近海域将有能见度不足1公里的大雾。
 
-在潜艇上，习主席和王同严亲切交流。
+此外，河北中南部、北京南部、天津西部、河南东北部、山东西部和北部、江苏北部、安徽中南部、湖北东部、湖南东北部等地的部分地区有大雾天气，局地有能见度不足500米的浓雾。
 
-习主席一直牵挂着常年奋斗在深海大洋的潜艇兵们，勉励大家坚定理想信念，建设坚强集体，把打赢本领搞过硬。
+防御指南： 1、由于陆地能见度较低，驾驶人员应控制速度，确保安全。
 
-这些年，王同严和战友们牢记统帅嘱托，在大洋深处苦练本领、淬炼成长。
+2、机场、高速公路、轮渡码头采取措施，保障交通安全。
 
-出品人：欧灿侯大伟 总策划：费士廷钱宗阳 监制：钱晓虎 黄显文 尹航 导演：谢菲 脚本：谢菲韩杰李辰 摄影：宫泽 冯喆信 曹春耀 杨中帆 剪辑：韩杰 统筹：李泽 胥展 羡崑 宋润鹏 刘其旭 李嘉皓 左宇琛 周生磊 张余喻俊浩胡月潘玮源 摄制单位：解放军新闻传播中心时政部 鸣谢：中国人民解放军92330部队 解放军新闻传播中心广播电视部 海军工程大学 来源丨学习军团(ID:xuexijuntuan）
+3、航行、作业的船舶应加强瞭望，控制航速，保持航行安全距离，谨慎驾驶，确保航行安全。
 
 ## 相关推荐
 
-- 2026-06-29 19:08 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 19:21 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 18:54 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 18:57 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 19:12 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 19:10 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 19:18 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 19:12 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 18:57 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 19:13 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 19:14 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 19:21 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 19:13 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 19:14 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 19:08 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 19:01 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 19:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 19:19 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 19:02 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 19:04 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 19:06 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 19:00 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 19:22 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:59 - [网友晒14年前支教影像等来学生评论](http://www.blog.kurohicncr.top/Article/details/91164.shtml)
-- 2026-06-29 19:17 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/25115393.shtml)
-- 2026-06-29 19:10 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/2834920.shtml)
-- 2026-06-29 19:01 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/9526179872.shtml)
-- 2026-06-29 18:55 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/72759838671.shtml)
-- 2026-06-29 19:23 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.kurohicncr.top/Article/details/169049535.shtml)
-- 2026-06-29 19:12 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/21665946.shtml)
-- 2026-06-29 19:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/353191.shtml)
-- 2026-06-29 19:16 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/943534086.shtml)
-- 2026-06-29 18:54 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/64272911.shtml)
-- 2026-06-29 19:05 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/8175331.shtml)
-- 2026-06-29 18:54 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/327358.shtml)
-- 2026-06-29 19:07 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/80844.shtml)
-- 2026-06-29 19:13 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/01568827.shtml)
-- 2026-06-29 19:16 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/78599186.shtml)
+- 2026-06-29 19:21 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/6552920.shtml)
+- 2026-06-29 19:16 - [学者：建设性战略稳定重塑中美关系](http://www.blog.minike.top/Article/details/511895996.shtml)
+- 2026-06-29 19:10 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.minike.top/Article/details/1625914158.shtml)
+- 2026-06-29 19:11 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/136202397.shtml)
+- 2026-06-29 19:23 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/7528154477.shtml)
+- 2026-06-29 19:15 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/080827.shtml)
+- 2026-06-29 19:13 - [青春环游记第三季](https://www.blog.minike.top/Article/details/085717.shtml)
+- 2026-06-29 19:07 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/4615583.shtml)
+- 2026-06-29 19:12 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/6678950307.shtml)
+- 2026-06-29 19:03 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/46590258.shtml)
+- 2026-06-29 19:10 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/156692293.shtml)
+- 2026-06-29 19:02 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/54824452563.shtml)
+- 2026-06-29 19:03 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/124242549690.shtml)
+- 2026-06-29 19:05 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/1172750856.shtml)
+- 2026-06-29 19:22 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/23579329.shtml)

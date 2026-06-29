@@ -1,61 +1,60 @@
-# 赛力斯午前涨超3% 前4个月汽车销量同比增加19.02%
+# 伊朗冲突引发的石油冲击将美国通胀推至近两年最高水平
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-赛力斯（09927）盘中涨超4%，截至发稿，股价上涨3.13%，报74.05港元，成交额9742.14万港元。 近日，赛力斯发布公告，该公司2026年4月份汽车产量合计3.72万辆；汽车销量合计3.55万辆。2026年1-4月，该公司汽车产量合计12.388万辆，同比增加15.4%；汽车销量合计12.39万辆，同比增加19.02%。 华西证券指出，2026年一季度赛力斯营收同比
+专题：因油价上涨 美国3月CPI同比增3.3% 美国劳工统计局周五公布的最新数据显示，战事推动汽油价格上涨，助力美国 3 月通胀率升至 3.3%，创下近两年来最快的同比涨幅。 最新消费者价格指数数据显示，物价环比上涨 0.9%，是 2 月通胀率为 2.4% 时 0.3% 环比涨幅的三倍。 当月汽油价格飙升 21.2%，创下历史纪录，贡献了整体环比涨幅的近四分之三。 根据财经数据
 
 ## 正文
 
-赛力斯（09927）盘中涨超4%，截至发稿，股价上涨3.13%，报74.05港元，成交额9742.14万港元。
+专题：因油价上涨 美国3月CPI同比增3.3% 美国劳工统计局周五公布的最新数据显示，战事推动汽油价格上涨，助力美国 3 月通胀率升至 3.3%，创下近两年来最快的同比涨幅。
 
-近日，赛力斯发布公告，该公司2026年4月份汽车产量合计3.72万辆；汽车销量合计3.55万辆。
+最新消费者价格指数数据显示，物价环比上涨 0.9%，是 2 月通胀率为 2.4% 时 0.3% 环比涨幅的三倍。
 
-2026年1-4月，该公司汽车产量合计12.388万辆，同比增加15.4%；汽车销量合计12.39万辆，同比增加19.02%。
+当月汽油价格飙升 21.2%，创下历史纪录，贡献了整体环比涨幅的近四分之三。
 
-华西证券指出，2026年一季度赛力斯营收同比增长34.46%，主要系高端产品矩阵持续热销。
+根据财经数据提供商 FactSet 的调查，经济学家此前预计物价环比上涨 0.9%，同比涨幅攀升至 3.4%。
 
-问界品牌销量约6.8万辆，同比增长约50%。
+2 月底爆发的伊朗冲突所产生的连锁效应，迅速逆转了通胀回落的进程，同时加剧了长期存在的生活成本压力。
 
-其中问界M7销量接近4万辆，问界M8销量为1.5万辆，问界M9销量约1.2万辆，共同构成了销量的核心支撑。
+剔除波动性较强的汽油和食品类别后，3 月核心 CPI 环比上涨 0.2%，与上月持平。
 
-国泰海通认为，M6/新M9产品力扎实，26Q2往后交付曲线有望受益于新车爬坡上量。
+这一备受关注的核心通胀指标同比上涨 2.6%，高于 2 月的 2.5%。
 
-责任编辑：卢昱君
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 18:56 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 18:55 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 19:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 19:08 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 19:08 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 19:10 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 19:09 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 19:02 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 18:59 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 19:11 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 19:09 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 19:23 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 19:10 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 19:21 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 19:21 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 19:26 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 19:10 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 19:11 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 19:04 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 19:03 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 19:22 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 19:12 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 19:28 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 19:22 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 19:15 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 19:06 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 19:27 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 19:19 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 19:00 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:57 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/5011062499.shtml)
-- 2026-06-29 19:09 - [滚石点名酒店员工说有急救培训](http://www.blog.kurohicncr.top/Article/details/92069112807.shtml)
-- 2026-06-29 19:12 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/5047345431.shtml)
-- 2026-06-29 19:23 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/28394202749.shtml)
-- 2026-06-29 18:56 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/662903861283.shtml)
-- 2026-06-29 18:59 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/1555326.shtml)
-- 2026-06-29 19:14 - [不烧钱的低成本爱好](http://www.blog.kurohicncr.top/Article/details/354154863503.shtml)
-- 2026-06-29 19:10 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/058170.shtml)
-- 2026-06-29 18:57 - [刘冰任河南南阳市代市长](https://www.share.kurohicncr.top/Article/details/728212.shtml)
-- 2026-06-29 19:13 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/3464423897.shtml)
-- 2026-06-29 19:11 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/00575.shtml)
-- 2026-06-29 19:13 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/826449551.shtml)
-- 2026-06-29 19:23 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.minike.top/Article/details/3508710.shtml)
-- 2026-06-29 19:05 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/997372469570.shtml)
-- 2026-06-29 19:03 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/922550071.shtml)
+- 2026-06-29 19:07 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/48854.shtml)
+- 2026-06-29 19:12 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/621039010466.shtml)
+- 2026-06-29 19:04 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/800898.shtml)
+- 2026-06-29 19:14 - [斛珠夫人](http://www.share.minike.top/Article/details/329624101.shtml)
+- 2026-06-29 19:01 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/76868384436.shtml)
+- 2026-06-29 19:17 - [金牌调解](https://www.share.kurohicncr.top/Article/details/07423836469.shtml)
+- 2026-06-29 19:23 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/984379.shtml)
+- 2026-06-29 19:16 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/1951491684.shtml)
+- 2026-06-29 19:19 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/46054541.shtml)
+- 2026-06-29 19:23 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/4040551.shtml)
+- 2026-06-29 19:03 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/93651799078.shtml)
+- 2026-06-29 19:20 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/27107.shtml)
+- 2026-06-29 19:27 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/703404780.shtml)
+- 2026-06-29 19:00 - [无畏为自己的猫正名了](http://www.share.kurohicncr.top/Article/details/2790238702.shtml)
+- 2026-06-29 19:13 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/2582862.shtml)

@@ -1,61 +1,56 @@
-# 中方敦促欧方取消对中国产品的不公平、歧视性做法
+# 2025年中国国家高新区园区生产总值突破20万亿元
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-中新社北京5月7日电 (记者 尹倩芸)就欧盟禁止对使用中国逆变器项目提供资金支持相关问题，中国商务部新闻发言人7日表示，中方敦促欧方立即停止对中国的污名化行为，取消对中国产品的不公平、歧视性做法。 据媒体报道，有欧盟官员称，对于使用中国等“高风险国家”逆变器的项目，欧盟将禁止提供资金支持。 发言人称，欧方在没有任何实际证据的情况下，首次将中国划定为所谓“高风险国家”，并以此为由
+中新社北京4月10日电 (记者 刘亮)中国工业和信息化部10日公布，2025年中国国家高新区园区生产总值突破20万亿元(人民币，下同)，达20.4万亿元，占全国GDP的比重为14.5%，较“十三五”末提高1.2个百分点。 工信部当天在北京举行“推动国家高新区高质量发展”新闻发布会，公布上述数据。 工信部规划司司长姚珺在会上介绍，今年2月，国务院批复河北雄安高新区升级为国家高新区
 
 ## 正文
 
-中新社北京5月7日电 (记者 尹倩芸)就欧盟禁止对使用中国逆变器项目提供资金支持相关问题，中国商务部新闻发言人7日表示，中方敦促欧方立即停止对中国的污名化行为，取消对中国产品的不公平、歧视性做法。
+中新社北京4月10日电 (记者 刘亮)中国工业和信息化部10日公布，2025年中国国家高新区园区生产总值突破20万亿元(人民币，下同)，达20.4万亿元，占全国GDP的比重为14.5%，较“十三五”末提高1.2个百分点。
 
-据媒体报道，有欧盟官员称，对于使用中国等“高风险国家”逆变器的项目，欧盟将禁止提供资金支持。
+工信部当天在北京举行“推动国家高新区高质量发展”新闻发布会，公布上述数据。
 
-发言人称，欧方在没有任何实际证据的情况下，首次将中国划定为所谓“高风险国家”，并以此为由禁止对使用中国逆变器的项目提供资金支持，这是对中国的污名化行为，且对中国产品构成不公平、歧视性待遇。
+工信部规划司司长姚珺在会上介绍，今年2月，国务院批复河北雄安高新区升级为国家高新区，国家高新区总数达179家，已成为科技创新和产业创新深度融合的重要载体和高新技术产业发展的主阵地。
 
-中方拒绝接受，并坚决反对。
+姚珺介绍，近年来，中国创新能力显著增强，形成超导量子计算机、通用人工智能系统原型、小分子抗肿瘤原创新药等一批重大创新成果。
 
-发言人表示，欧盟将中国划定为“高风险国家”，将影响中欧互信，破坏双边经贸合作，不利于中欧乃至全球产供链稳定，甚至带来“脱钩断链”的风险。
+据初步统计，2025年国家高新区企业研发经费内部支出(R&D)约1.2万亿元，较“十三五”末提高约30%，研发投入强度达6.1%；企业发明专利达220万件，较“十三五”末翻一番。
 
-欧盟强行采取措施排挤中国产品，违背市场规律和公平原则，不仅损害中国企业利益，更将反噬自身，影响欧盟绿色转型和能源安全。
+同时，产业能级持续跃升，竞争优势更加显著，形成了新一代信息技术、生物医药等一批具有国际竞争力的产业集群，脑机接口、具身智能、第六代移动通信、商业航天、生物制造等新赛道蓬勃发展。
 
-发言人强调，中方敦促欧方立即停止将中国列为“高风险国家”的污名化行为，取消对中国产品的不公平、歧视性做法。
+据初步统计，2025年国家高新区高新技术企业数和上市企业数分别较“十三五”末增长约60%和70%。
 
-中方将密切关注，并认真评估欧方政策对中国企业利益和中欧产供链的影响，将采取措施维护中国企业正当合法权益。
+姚珺还介绍，据初步统计，2025年，国家高新区高技术产业营业收入达24.6万亿元，同比增长约8%。
 
 ## 相关推荐
 
-- 2026-06-29 19:16 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 19:06 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 19:07 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 18:57 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 18:57 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 19:21 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 19:02 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 19:15 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 19:22 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 19:12 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 19:07 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 18:57 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 18:55 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 19:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 19:06 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 19:05 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 19:14 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 19:27 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 19:17 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 19:24 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 19:19 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 19:12 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 19:00 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 19:04 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 19:07 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:01 - [欧洲极端高温如何影响家电股](https://www.share.kurohicncr.top/Article/details/874736249.shtml)
-- 2026-06-29 19:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/49490257011.shtml)
-- 2026-06-29 18:57 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/044474084188.shtml)
-- 2026-06-29 19:01 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/2242236.shtml)
-- 2026-06-29 19:17 - [世界杯在中国观看最多的比赛](http://www.blog.minike.top/Article/details/84191033678.shtml)
-- 2026-06-29 19:17 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/8328768.shtml)
-- 2026-06-29 19:17 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/885270808.shtml)
-- 2026-06-29 18:55 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/85734.shtml)
-- 2026-06-29 19:23 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/2058315.shtml)
-- 2026-06-29 19:08 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/22666.shtml)
-- 2026-06-29 19:09 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/99150100.shtml)
-- 2026-06-29 19:09 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/140812858.shtml)
-- 2026-06-29 19:13 - [专家预计全球央行加息节奏将出现反复](http://www.blog.kurohicncr.top/Article/details/24461406.shtml)
-- 2026-06-29 19:12 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/1364127919.shtml)
-- 2026-06-29 19:16 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/939786959.shtml)
+- 2026-06-29 19:00 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/09624.shtml)
+- 2026-06-29 19:12 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.minike.top/Article/details/4387216.shtml)
+- 2026-06-29 19:16 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/6628554.shtml)
+- 2026-06-29 19:19 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/987454583648.shtml)
+- 2026-06-29 19:19 - [赵今麦时隔五年再演李诗情](http://www.share.kurohicncr.top/Article/details/93748042903.shtml)
+- 2026-06-29 19:27 - [RAY评乘风2026总决赛](http://www.blog.kurohicncr.top/Article/details/511623345.shtml)
+- 2026-06-29 19:07 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/648105.shtml)
+- 2026-06-29 19:20 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/255388.shtml)
+- 2026-06-29 19:20 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/541361.shtml)
+- 2026-06-29 19:06 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.minike.top/Article/details/241237421.shtml)
+- 2026-06-29 19:08 - [T1零封KC MSI](http://www.share.minike.top/Article/details/205863491149.shtml)
+- 2026-06-29 19:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/01978667219.shtml)
+- 2026-06-29 19:13 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/352789284.shtml)
+- 2026-06-29 19:00 - [请回答王牌2019](http://www.share.minike.top/Article/details/024114946285.shtml)
+- 2026-06-29 19:22 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/429734561.shtml)

@@ -1,58 +1,47 @@
-# 权威访谈丨全面推行“扫码入企” 以智慧执法规范涉企行政检查——访司法部党组成员、副部长胡卫列
+# 美媒称数艘美国海军舰船通过霍尔木兹海峡
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-新华社北京5月8日电 题：全面推行“扫码入企” 以智慧执法规范涉企行政检查——访司法部党组成员、副部长胡卫列 新华社记者齐琪 为巩固深化规范涉企行政执法专项行动成果，切实提升行政检查质效，司法部近日印发《关于全面推行“扫码入企”工作 进一步规范涉企行政检查的通知》，在全国全面推行“扫码入企”。 为何要推行“扫码入企”？这将给广大企业带来哪些获得感？新华社记者专访了司法部党组成员
+新华社快讯：美国媒体报道，数艘美国海军舰船11日通过霍尔木兹海峡，此举并未与伊朗方面协调，这是伊朗战事爆发以来的首次。
 
 ## 正文
 
-新华社北京5月8日电 题：全面推行“扫码入企” 以智慧执法规范涉企行政检查——访司法部党组成员、副部长胡卫列 新华社记者齐琪 为巩固深化规范涉企行政执法专项行动成果，切实提升行政检查质效，司法部近日印发《关于全面推行“扫码入企”工作 进一步规范涉企行政检查的通知》，在全国全面推行“扫码入企”。
-
-为何要推行“扫码入企”？
-
-这将给广大企业带来哪些获得感？
-
-新华社记者专访了司法部党组成员、副部长胡卫列。
-
-以数字化科技赋能行政执法规范化 问：为何要在全国全面推行“扫码入企”？
-
-答：全国全面推行“扫码入企”智慧执法模式，是深入贯彻落实党中央关于建设全国统一大市场、持续优化法治化营商环境决策部署的重要举措，是以数字化科技赋能行政执法规范化、护航经济社会高质量发展的具体实践。
-
-党中央、国务院高度重视规范涉企行政执法工作。
-
-党的二十届三中、四中全会对规范涉企行政检查作出部署。
+新华社快讯：美国媒体报道，数艘美国海军舰船11日通过霍尔木兹海峡，此举并未与伊朗方面协调，这是伊朗战事爆发以来的首次。
 
 ## 相关推荐
 
-- 2026-06-29 19:14 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 19:08 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 19:20 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-29 19:10 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 18:58 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 19:08 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 19:18 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 19:02 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 19:11 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 18:55 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 18:56 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 19:13 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 19:16 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 19:16 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 19:19 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 19:14 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 19:21 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 19:19 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 19:29 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 19:14 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 19:07 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 19:22 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 19:08 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 19:04 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 19:12 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 19:19 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 19:06 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:18 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/01690130.shtml)
-- 2026-06-29 19:14 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/67422.shtml)
-- 2026-06-29 19:16 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/148558.shtml)
-- 2026-06-29 19:13 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/11350447.shtml)
-- 2026-06-29 19:22 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/5921543.shtml)
-- 2026-06-29 19:23 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/274660543304.shtml)
-- 2026-06-29 19:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/711552122437.shtml)
-- 2026-06-29 19:19 - [娜扎搂着我的腰和我合照](https://www.share.kurohicncr.top/Article/details/899314004176.shtml)
-- 2026-06-29 19:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/617821709943.shtml)
-- 2026-06-29 19:19 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/058561.shtml)
-- 2026-06-29 18:58 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/172780561687.shtml)
-- 2026-06-29 19:19 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/575556519258.shtml)
-- 2026-06-29 19:19 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/55706.shtml)
-- 2026-06-29 19:13 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/1659483.shtml)
-- 2026-06-29 19:18 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/094405858.shtml)
+- 2026-06-29 19:30 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/139759.shtml)
+- 2026-06-29 19:22 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/14307105.shtml)
+- 2026-06-29 19:12 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/3986258767.shtml)
+- 2026-06-29 19:13 - [两老人多次到一洗车店泼粪](https://www.blog.minike.top/Article/details/74162092.shtml)
+- 2026-06-29 19:10 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/38870.shtml)
+- 2026-06-29 19:13 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/793242.shtml)
+- 2026-06-29 19:09 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/950277198.shtml)
+- 2026-06-29 19:15 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/349511657.shtml)
+- 2026-06-29 19:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/95847524530.shtml)
+- 2026-06-29 19:17 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/81679301.shtml)
+- 2026-06-29 19:01 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/531772580199.shtml)
+- 2026-06-29 19:25 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/9270556212.shtml)
+- 2026-06-29 19:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/85244754.shtml)
+- 2026-06-29 19:23 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/013612.shtml)
+- 2026-06-29 19:09 - [CORTIS 小牌大耍](https://www.blog.kurohicncr.top/Article/details/94043061467.shtml)

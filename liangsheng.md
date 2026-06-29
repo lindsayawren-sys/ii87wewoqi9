@@ -1,57 +1,57 @@
-# 博阿兹・温斯坦旗下Saba暂停对9只英国基金的激进维权行动
+# 深圳一季度全社会用电量同比增7.39%
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-核心要点 由博阿兹・温斯坦执掌的对冲基金 Saba 资本，在敲定保障先驱投资信托未来发展的交易后，同意暂停为期三年、针对多达 9 只伦敦上市基金的激进维权行动。 先驱投资信托于周四宣布，将对自身至多 66% 的已发行股份发起要约收购，此举使其第一大股东 Saba 及其他投资者可按接近资产净值的价格卖出持股，也可选择继续持有。 就在上月，激进投资者 Saba 在与投资太空探索公司
+中新社深圳4月9日电 (索有为 向哲誉)南方电网深圳供电局9日发布的统计数据显示，2026年一季度，深圳累计用电量达253.45亿千瓦时，同比增长7.39%。 第二产业用电量体现深圳高质量发展的稳健步伐。其中，“新三样”增势持续向好：新能源整车制造业用电量同比增长16.09%，光伏设备及元器件制造业用电量同比增长25.81%，锂电池制造业用电量同比增长1.25%。 第三产业用电
 
 ## 正文
 
-核心要点 由博阿兹・温斯坦执掌的对冲基金 Saba 资本，在敲定保障先驱投资信托未来发展的交易后，同意暂停为期三年、针对多达 9 只伦敦上市基金的激进维权行动。
+中新社深圳4月9日电 (索有为 向哲誉)南方电网深圳供电局9日发布的统计数据显示，2026年一季度，深圳累计用电量达253.45亿千瓦时，同比增长7.39%。
 
-先驱投资信托于周四宣布，将对自身至多 66% 的已发行股份发起要约收购，此举使其第一大股东 Saba 及其他投资者可按接近资产净值的价格卖出持股，也可选择继续持有。
+第二产业用电量体现深圳高质量发展的稳健步伐。
 
-就在上月，激进投资者 Saba 在与投资太空探索公司 SpaceX 的爱丁堡环球投资信托的争议博弈中宣告胜出，经过长期拉锯，成功罢免其董事长及五名董事会成员。
+其中，“新三样”增势持续向好：新能源整车制造业用电量同比增长16.09%，光伏设备及元器件制造业用电量同比增长25.81%，锂电池制造业用电量同比增长1.25%。
 
-Saba 已作出不可撤销承诺，将所持先驱投资信托全部股份参与要约出售。
+第三产业用电量同比增长10.20%，体现深圳新业态新服务“电力”十足。
 
-自 2023 年建仓以来，该信托股价长期低于资产净值折价交易，此次协议将为 Saba 带来可观收益。
+特别是数字经济核心产业，信息传输、软件和信息技术服务业用电量同比增长36.56%，彰显深圳数字产业化和产业数字化的活力；与绿色出行相关的充换电服务业用电量同比增长52.01%，见证着新能源汽车普及与充电基础设施加速完善。
 
-作为交易的一部分，今年晚些时候该基金的管理权将移交安本投资；现任基金经理、信托创始人凯蒂・波茨将带领七名同事一同加入这家总部位于伦敦的资管公司。
+此外，租赁和商务服务业用电量同比增长14.03%，反映专业商务活动日趋活跃。
 
-波茨在声明中表示：“先驱投资信托自 1994 年以来始终秉持清晰且成功的投资策略，加入安本后，这套严谨的投资框架将保持不变。
+南方电网深圳供电局市场部负责人表示，先进制造加速升级，数字经济蓬勃兴起，绿色能源广泛应用，现代服务持续活跃，正是深圳大力培育新质生产力、加快构建现代化产业体系的写照。
 
-” “我们仍将聚焦科技与通信行业，该领域持续受益于技术创新，并具备强劲的长期增长前景。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:06 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 19:01 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 19:17 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 19:11 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 19:01 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 19:19 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 19:19 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 19:16 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 19:18 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 19:04 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 19:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 19:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 19:29 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 19:17 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 19:02 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 19:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 19:27 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 19:16 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 19:26 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 19:29 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 19:23 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 19:17 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:16 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/37396981.shtml)
-- 2026-06-29 19:01 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/948725.shtml)
-- 2026-06-29 19:17 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/276193.shtml)
-- 2026-06-29 19:19 - [海清4次陪跑白玉兰](http://www.share.kurohicncr.top/Article/details/05100763.shtml)
-- 2026-06-29 19:03 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/5627538830.shtml)
-- 2026-06-29 18:54 - [流金岁月](http://www.share.kurohicncr.top/Article/details/154425954.shtml)
-- 2026-06-29 18:54 - [极限挑战第一季](http://www.blog.minike.top/Article/details/73285.shtml)
-- 2026-06-29 19:18 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/80196.shtml)
-- 2026-06-29 19:23 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/03379355.shtml)
-- 2026-06-29 19:14 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/68616431.shtml)
-- 2026-06-29 19:21 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/1721472.shtml)
-- 2026-06-29 19:09 - [逆天祖国人](http://www.blog.minike.top/Article/details/76730187.shtml)
-- 2026-06-29 19:19 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/31694.shtml)
-- 2026-06-29 19:05 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/5927558951.shtml)
-- 2026-06-29 19:06 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/8045002.shtml)
+- 2026-06-29 19:11 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/640227.shtml)
+- 2026-06-29 19:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/530339.shtml)
+- 2026-06-29 19:29 - [第一炉香](http://www.share.kurohicncr.top/Article/details/54128410193.shtml)
+- 2026-06-29 19:04 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/73638.shtml)
+- 2026-06-29 19:03 - [网友晒14年前支教影像等来学生评论](https://www.blog.kurohicncr.top/Article/details/15231.shtml)
+- 2026-06-29 19:15 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/71890789.shtml)
+- 2026-06-29 19:15 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.minike.top/Article/details/09149891.shtml)
+- 2026-06-29 19:27 - [7款高价创新药有望降价](http://www.share.minike.top/Article/details/3481209108.shtml)
+- 2026-06-29 19:26 - [德国医生在没有空调的手术室工作](http://www.share.kurohicncr.top/Article/details/00096720.shtml)
+- 2026-06-29 19:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/327675502.shtml)
+- 2026-06-29 19:23 - [网红小徐直播时突遇地震](http://www.blog.kurohicncr.top/Article/details/094182500492.shtml)
+- 2026-06-29 19:25 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/96170.shtml)
+- 2026-06-29 19:09 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/230658.shtml)
+- 2026-06-29 19:12 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/595216158.shtml)
+- 2026-06-29 19:19 - [叠纸客服回应恋与深空新角色争议](https://www.share.minike.top/Article/details/338069726.shtml)

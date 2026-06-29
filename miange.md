@@ -1,59 +1,58 @@
-# 对冲基金人才截胡大战升温 明星交易员两度“鸽掉”Millennium
+# 中国官方：一季度免签入境外国人831.5万人次 同比上升29.3%
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-在第二次同意加入Millennium Management后，宏观交易员Pablo Duran Steinman再次反悔。 据知情人士透露，在原本即将开始为Izzy Englander的对冲基金帝国从事交易活动前不久，Steinman退出了已签署的工作合同。由于讨论人事问题，知情人士要求匿名。 其中一位知情人士透露，Steinman本周开始在纽约肯·格里芬的城堡投资担任高级投资
+中新社北京4月10日电 (记者 郭超凯)中国国家移民管理局10日召开新闻发布会，发布2026年一季度移民管理工作主要数据。记者从会上获悉，一季度免签入境外国人831.5万人次，同比上升29.3%。 据介绍，一季度，全国移民管理机构累计查验出入境人员1.85亿人次，同比上升13.5%；其中内地(大陆)居民9166.2万人次、港澳台居民7249.1万人次、外国人2133.3万人次，
 
 ## 正文
 
-在第二次同意加入Millennium Management后，宏观交易员Pablo Duran Steinman再次反悔。
+中新社北京4月10日电 (记者 郭超凯)中国国家移民管理局10日召开新闻发布会，发布2026年一季度移民管理工作主要数据。
 
-据知情人士透露，在原本即将开始为Izzy Englander的对冲基金帝国从事交易活动前不久，Steinman退出了已签署的工作合同。
+记者从会上获悉，一季度免签入境外国人831.5万人次，同比上升29.3%。
 
-由于讨论人事问题，知情人士要求匿名。
+据介绍，一季度，全国移民管理机构累计查验出入境人员1.85亿人次，同比上升13.5%；其中内地(大陆)居民9166.2万人次、港澳台居民7249.1万人次、外国人2133.3万人次，同比分别上升14.2%、10.3%、22.3%；免签入境外国人831.5万人次，占入境外国人77.9%，同比上升29.3%。
 
-其中一位知情人士透露，Steinman本周开始在纽约肯·格里芬的城堡投资担任高级投资组合经理，并将在那里组建他的团队。
+一季度，全国移民管理机构深入落实支持扩大开放服务高质量发展系列创新举措，协同有关部门扩大单方面免签国家范围，在河北等7省(自治区、直辖市)试点推行网上办理外国人旅馆以外住宿登记，持续推进各类出入境证件申办便利化。
 
-Steinman这一动作是对冲基金行业“截胡”大战的最新例证。
+一季度，全国移民管理机构共签发普通护照520.1万本、内地(大陆)居民往来港澳台证件签注2688万张(件)次，签发港澳台居民来往内地(大陆)通行证54.1万张；签发外国人签证证件40.6万证次。
 
-这种席卷该行业的现象指的是随着人才争夺战达到白热化程度，交易员与一家公司签订入职协议，但在最后一刻跳槽到另一家公司以获得更好的待遇。
+移民局政务服务平台为中外出入境人员提供查询等政务服务5132.2万人次，为港澳台居民、海外华侨免费提供身份核验服务2324万人次；国家移民管理机构12367服务平台受理中外人员咨询等179.7万人次，涉及全球100多个国家和地区。
 
-Steinman已于2025年离开ExodusPoint Capital Management，休了一年的“园艺假”。
+一季度，全国移民管理机构共侦办妨害国(边)境管理犯罪案件5507起，抓获犯罪嫌疑人10487人，打掉犯罪团伙67个，挂牌督办重特大案件37起；依法严厉打击口岸边境涉枪爆、贩毒走私等违法犯罪，破获毒品案件109起，抓获犯罪嫌疑人172人，缴获各类毒品约1.5吨，破获万克以上案件16起；查缴各类枪支342支，子弹1.3万余发。
 
-他当时已同意加入Millennium。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:08 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 19:19 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 19:18 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 19:03 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 19:10 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 18:58 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 19:01 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-29 19:00 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 19:17 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 19:05 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 19:19 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 19:06 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 19:20 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 19:08 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 19:02 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 19:10 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 19:02 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 19:14 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 19:27 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 19:03 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 19:14 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 19:22 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 19:17 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 19:14 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 19:27 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/66505.shtml)
-- 2026-06-29 19:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/26924598740.shtml)
-- 2026-06-29 19:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/551299050614.shtml)
-- 2026-06-29 19:12 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/550048929.shtml)
-- 2026-06-29 18:54 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/68287157445.shtml)
-- 2026-06-29 19:10 - [人形机器人](https://www.share.kurohicncr.top/Article/details/399684.shtml)
-- 2026-06-29 18:55 - [永远有话聊的原因](http://www.blog.kurohicncr.top/Article/details/066474654648.shtml)
-- 2026-06-29 18:54 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/808156422933.shtml)
-- 2026-06-29 19:15 - [王俊凯命名方式](https://www.share.minike.top/Article/details/43224888508.shtml)
-- 2026-06-29 19:20 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/40831.shtml)
-- 2026-06-29 19:16 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/1750678941.shtml)
-- 2026-06-29 19:20 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/8505936728.shtml)
-- 2026-06-29 19:00 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/738310.shtml)
-- 2026-06-29 19:12 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/798005189.shtml)
-- 2026-06-29 19:01 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/22726344.shtml)
+- 2026-06-29 19:11 - [乔家的儿女](https://www.share.minike.top/Article/details/858299.shtml)
+- 2026-06-29 19:24 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/02159.shtml)
+- 2026-06-29 19:18 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/891208.shtml)
+- 2026-06-29 19:07 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/0613057.shtml)
+- 2026-06-29 19:08 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/539448494.shtml)
+- 2026-06-29 19:22 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.kurohicncr.top/Article/details/889492684092.shtml)
+- 2026-06-29 19:06 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/4805929253.shtml)
+- 2026-06-29 19:24 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/6816435081.shtml)
+- 2026-06-29 19:22 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/5922763.shtml)
+- 2026-06-29 19:13 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/15826.shtml)
+- 2026-06-29 19:15 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.minike.top/Article/details/139392176.shtml)
+- 2026-06-29 19:01 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/56098448886.shtml)
+- 2026-06-29 19:20 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/27136.shtml)
+- 2026-06-29 19:29 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/13963.shtml)
+- 2026-06-29 19:25 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/64983.shtml)

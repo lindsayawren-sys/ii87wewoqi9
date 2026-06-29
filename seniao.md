@@ -1,56 +1,58 @@
-# （机遇香港）打造世界级黄金交易市场 香港加快构建完整黄金生态圈
+# 锂电池满屏涨停，新易盛一年猛涨830%，光纤股走弱，汇源通信跌停
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-中新社香港5月7日电 (记者 戴小橦)伦敦金属交易所(LME)“亚洲金属研讨会2026”7日在香港举行，与会业内人士认为，香港迎来黄金市场发展重要机遇期，凭借独特金融优势、区位优势与政策支撑，香港正加快构建完整黄金生态圈，打造世界级国际黄金交易市场。 在汇丰亚太区外汇固收交易部主管兼香港资本市场及证券服务部主管黄子卓看来，当前香港叠加技术革新、市场需求旺盛与特区政府大力支持的多
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨刘雪莹 李益文 林健民 4月10日早盘，A股荡反弹，沪指一度重回4000点上方，创业板指盘中大涨超3%，创2021年12月以来新高。沪深两市半日成交额1.5万亿，较上个交易日放量771亿，全市场超4400只个股上涨。 CPO概念持续爆发，龙头新易盛盘中股价最高涨至508元，续创历史新高，总市值已超50
 
 ## 正文
 
-中新社香港5月7日电 (记者 戴小橦)伦敦金属交易所(LME)“亚洲金属研讨会2026”7日在香港举行，与会业内人士认为，香港迎来黄金市场发展重要机遇期，凭借独特金融优势、区位优势与政策支撑，香港正加快构建完整黄金生态圈，打造世界级国际黄金交易市场。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在汇丰亚太区外汇固收交易部主管兼香港资本市场及证券服务部主管黄子卓看来，当前香港叠加技术革新、市场需求旺盛与特区政府大力支持的多重利好。
+记者丨刘雪莹 李益文 林健民 4月10日早盘，A股荡反弹，沪指一度重回4000点上方，创业板指盘中大涨超3%，创2021年12月以来新高。
 
-政策层面积极推动相关资产在区域及全球确立地位，特区政府持续倾听行业诉求、提供有力支撑，使香港处在全球金融与黄金市场发展的最佳时机，未来发展前景十分广阔。
+沪深两市半日成交额1.5万亿，较上个交易日放量771亿，全市场超4400只个股上涨。
 
-他认为，未来香港将继续发挥连接中国内地与全球市场的桥梁作用，在黄金交易、清算、仓储及风险管理等方面持续完善配套体系，为个人及机构投资者营造更优质的黄金投资生态，把握黄金长期配置价值。
+CPO概念持续爆发，龙头新易盛盘中股价最高涨至508元，续创历史新高，总市值已超5000亿元，过去一年累计涨超830%。
 
-鎷克士庞博(香港)有限公司大中华区区域总监沈正川指出，经过多年发展，香港已搭建起成熟完善的金融基础设施，可为全球投资者提供高效可靠的黄金全流程交易服务。
+光伏、储能概念持续走高，亿晶光电、德业股份涨停。
 
-同时，强劲的市场韧性与市场信心，也奠定了香港在全球黄金市场格局中的重要地位。
+锂电板块一度十余股涨停，截至午间收盘，信宇人20cm涨停，欣旺达涨近16%，国轩高科涨停。
 
-澳新银行北亚区暨香港金融市场部总经理及人民币主管黄柏坚表示，香港地理位置优越，物流网络成熟，是实物黄金存储与流转的适宜基地。
+据招商证券不完全统计，2026年锂电预计新增扩产接近1TWH，创历史新高。
 
-作为国际金融中心，香港拥有完善的监管与交易体系，可提供长期、高效、安全的黄金融资服务。
+东莞证券认为，全年锂电池整体需求增速预期维持乐观，产业链供需格局有望继续改善，多个环节量价齐升可期。
 
 ## 相关推荐
 
-- 2026-06-29 18:59 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 19:00 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 19:00 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 19:15 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 19:08 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 19:13 - [林逸向方筱然求婚了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 19:12 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 19:21 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 18:56 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 19:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 19:15 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 19:09 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 19:23 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 19:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 19:03 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 19:26 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 19:22 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 19:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 19:18 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 19:07 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 19:08 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 19:24 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:56 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/8730246.shtml)
-- 2026-06-29 19:16 - [AG 宫斗](https://www.share.minike.top/Article/details/53555.shtml)
-- 2026-06-29 18:59 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/380389.shtml)
-- 2026-06-29 19:14 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.kurohicncr.top/Article/details/26133.shtml)
-- 2026-06-29 19:16 - [中国战机大片上新](http://www.share.minike.top/Article/details/40872705.shtml)
-- 2026-06-29 19:09 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.share.kurohicncr.top/Article/details/8736431139.shtml)
-- 2026-06-29 19:04 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/261896.shtml)
-- 2026-06-29 19:08 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/048197866969.shtml)
-- 2026-06-29 19:21 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/90120070998.shtml)
-- 2026-06-29 18:55 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/1830298165.shtml)
-- 2026-06-29 19:03 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/272208700.shtml)
-- 2026-06-29 19:20 - [起风了](https://www.blog.kurohicncr.top/Article/details/04915038.shtml)
-- 2026-06-29 19:17 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/3365475.shtml)
-- 2026-06-29 19:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/460128711.shtml)
-- 2026-06-29 19:17 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/4530635.shtml)
+- 2026-06-29 19:00 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/2401516055.shtml)
+- 2026-06-29 19:06 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/358903489.shtml)
+- 2026-06-29 19:13 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/03097479.shtml)
+- 2026-06-29 19:23 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.minike.top/Article/details/93042316.shtml)
+- 2026-06-29 19:19 - [95后小伙突然确诊癌症 医生提醒](http://www.share.minike.top/Article/details/62272111.shtml)
+- 2026-06-29 19:02 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/2998660435.shtml)
+- 2026-06-29 19:05 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/9817585.shtml)
+- 2026-06-29 19:16 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/9533483802.shtml)
+- 2026-06-29 19:17 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/46831.shtml)
+- 2026-06-29 19:02 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/848539080.shtml)
+- 2026-06-29 19:27 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/2361129.shtml)
+- 2026-06-29 19:25 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.minike.top/Article/details/3493692.shtml)
+- 2026-06-29 19:18 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/3466550176.shtml)
+- 2026-06-29 19:01 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/7314602791.shtml)
+- 2026-06-29 19:29 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/666589347.shtml)

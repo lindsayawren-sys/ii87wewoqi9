@@ -1,59 +1,60 @@
-# 美伊冲突以来 沙特与阿联酋仍冒险经霍尔木兹海峡运输原油
+# OpenAI暂停英国“星际之门”数据中心项目
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-根据知情人士透露，自伊朗事实上关闭霍尔木兹海峡以来，沙特阿美和阿布扎比国家石油公司等企业仍在通过该水道运输原油。 尽管整体运输量仅为德黑兰近10周前关闭这一石油通道前的一小部分，但这两家公司的活动仍表明，部分供应仍能设法流入全球市场。在整个冲突期间，伊朗一直对霍尔木兹海峡航运构成威胁，并在周五遭到美国攻击后扣押了一艘船只，尽管该船似乎是一艘运载伊朗本国石油的受制裁船只。 沙特阿
+OpenAI已将其旗舰级英国数据中心项目“星际之门”（Stargate UK）搁置，这对英国打造AI“自主”算力的努力而言无疑是一重打击。 该公司将此次延期归咎于高昂的能源成本和不确定的监管环境。该项目原计划于2026年第一季度在英格兰东北部动工。 该计划包括通过数据中心初创企业Nscale部署数千个人工智能芯片，这项合作于去年9月随美国总统唐纳德·特朗普对英国进行国事访问同期
 
 ## 正文
 
-根据知情人士透露，自伊朗事实上关闭霍尔木兹海峡以来，沙特阿美和阿布扎比国家石油公司等企业仍在通过该水道运输原油。
+OpenAI已将其旗舰级英国数据中心项目“星际之门”（Stargate UK）搁置，这对英国打造AI“自主”算力的努力而言无疑是一重打击。
 
-尽管整体运输量仅为德黑兰近10周前关闭这一石油通道前的一小部分，但这两家公司的活动仍表明，部分供应仍能设法流入全球市场。
+该公司将此次延期归咎于高昂的能源成本和不确定的监管环境。
 
-在整个冲突期间，伊朗一直对霍尔木兹海峡航运构成威胁，并在周五遭到美国攻击后扣押了一艘船只，尽管该船似乎是一艘运载伊朗本国石油的受制裁船只。
+该项目原计划于2026年第一季度在英格兰东北部动工。
 
-沙特阿美拒绝置评，而阿布扎比国家石油公司未回应置评请求。
+该计划包括通过数据中心初创企业Nscale部署数千个人工智能芯片，这项合作于去年9月随美国总统唐纳德·特朗普对英国进行国事访问同期公布，是由英伟达、微软等科技巨头主导的、规模达数百亿美元的重磅投资方案的一部分。
 
-自3月初霍尔木兹海峡关闭以来，全球供应危机日益加剧。
+这一项目本有望为英国核心的“人工智能增长区”之一带来数亿美元投资。
 
-企业为将货物运出正承担更高风险并支付更高成本。
+英国政府将人工智能与技术置于经济增长议程的核心位置，并将去年9月与美国达成的科技合作协议誉为“英国迈向全球AI领先地位的决定性一步”。
 
-为了避免被发现，大多数船只通行时都关闭了应答器。
+尽管就在上月，OpenAI刚完成了创纪录的1220亿美元融资，但此次无限期暂停“星际之门”英国项目、且未公布重启时间表的决定，标志着该公司投资策略的最新转变。
 
-根据知情人士透露，在那些生产和供应受阻于波斯湾的企业中，阿布扎比国家石油公司是最早一批通过霍尔木兹海峡运输原油、燃料和天然气的公司之一。
+OpenAI及其包括甲骨文、软银在内的合作伙伴最初曾宣称，“星际之门”是一项规模达5000亿美元的计划，旨在全球范围内兴建大型人工智能计算设施。
 
 ## 相关推荐
 
-- 2026-06-29 19:23 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 19:00 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 19:15 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 19:09 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 19:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 19:14 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 19:23 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 19:19 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 19:01 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 18:57 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 18:55 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 19:20 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 19:22 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 19:02 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 19:23 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 19:07 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 19:10 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 19:09 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 19:06 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 19:24 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 19:22 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 19:22 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 19:08 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 19:08 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 19:02 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 19:13 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 19:28 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:12 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/417755263.shtml)
-- 2026-06-29 18:56 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.minike.top/Article/details/4265125.shtml)
-- 2026-06-29 19:20 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/28219.shtml)
-- 2026-06-29 19:04 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/12446027343.shtml)
-- 2026-06-29 19:07 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/7140512914.shtml)
-- 2026-06-29 19:15 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/73116920758.shtml)
-- 2026-06-29 18:54 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/240187885.shtml)
-- 2026-06-29 19:21 - [欧洲安装一台空调要花近8000元](https://www.share.minike.top/Article/details/3693545378.shtml)
-- 2026-06-29 19:00 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/161378691.shtml)
-- 2026-06-29 19:01 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/503396182.shtml)
-- 2026-06-29 19:04 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/15910.shtml)
-- 2026-06-29 19:11 - [沙丘](http://www.share.kurohicncr.top/Article/details/439557.shtml)
-- 2026-06-29 19:14 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/735567034502.shtml)
-- 2026-06-29 19:21 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/8270260.shtml)
-- 2026-06-29 19:14 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.minike.top/Article/details/74758563.shtml)
+- 2026-06-29 19:04 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/6946939.shtml)
+- 2026-06-29 19:23 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/1340035.shtml)
+- 2026-06-29 19:20 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/242111786185.shtml)
+- 2026-06-29 19:19 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/8052777525.shtml)
+- 2026-06-29 19:19 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/404426692735.shtml)
+- 2026-06-29 19:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/235335175745.shtml)
+- 2026-06-29 19:09 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/5582412.shtml)
+- 2026-06-29 19:17 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/28094580041.shtml)
+- 2026-06-29 19:21 - [德国医生在没有空调的手术室工作](http://www.blog.kurohicncr.top/Article/details/979824.shtml)
+- 2026-06-29 19:06 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/516031.shtml)
+- 2026-06-29 19:17 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/783384540.shtml)
+- 2026-06-29 19:19 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/84568021.shtml)
+- 2026-06-29 19:12 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/324330.shtml)
+- 2026-06-29 19:07 - [TTG KSG](http://www.share.kurohicncr.top/Article/details/13356220705.shtml)
+- 2026-06-29 19:04 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/82824638.shtml)

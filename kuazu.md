@@ -1,52 +1,59 @@
-# Harbour Energy一季度表现强劲，小幅上调产量展望
+# 人人租冲刺港股IPO 存助推“变种校园贷”隐忧
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-英国北海最大的油气生产商之一Harbour Energy周四在公布强劲的一季度业绩后，收窄并小幅上调了全年产量预测。尽管中东战争导致能源价格和供应出现扰动，新收购的资产帮助公司实现了良好开局。 这家伦敦上市公司近年来持续拓展英国以外的业务，已进入挪威、阿根廷、墨西哥，并于近期扩展至美国墨西哥湾。伊朗战争推高油价后，高税收和政策不确定性削弱了英国本土的投资吸引力。 Harbour
+证券时报记者 段鹏 每天花10块钱就能租一部最新款手机，听起来轻松又划算。 今年1月，人人租——广州研趣信息科技股份有限公司正式向港交所递交招股书，以“中国最大在线租用消费服务平台”之名冲刺IPO（首次上市融资）。招股书描绘了一幅“绿色循环经济”与“信用免押”共生的美好图景：2024年平台GTV（总交易金额）75亿元，日均订单1.3万笔，注册用户数超6100万，毛利率长期维持在
 
 ## 正文
 
-英国北海最大的油气生产商之一Harbour Energy周四在公布强劲的一季度业绩后，收窄并小幅上调了全年产量预测。
+证券时报记者 段鹏 每天花10块钱就能租一部最新款手机，听起来轻松又划算。
 
-尽管中东战争导致能源价格和供应出现扰动，新收购的资产帮助公司实现了良好开局。
+今年1月，人人租——广州研趣信息科技股份有限公司正式向港交所递交招股书，以“中国最大在线租用消费服务平台”之名冲刺IPO（首次上市融资）。
 
-这家伦敦上市公司近年来持续拓展英国以外的业务，已进入挪威、阿根廷、墨西哥，并于近期扩展至美国墨西哥湾。
+招股书描绘了一幅“绿色循环经济”与“信用免押”共生的美好图景：2024年平台GTV（总交易金额）75亿元，日均订单1.3万笔，注册用户数超6100万，毛利率长期维持在80%以上，甚至超过奢侈品品牌爱马仕。
 
-伊朗战争推高油价后，高税收和政策不确定性削弱了英国本土的投资吸引力。
+然而，证券时报记者调查发现：人人租平台上的“手机租赁生意”，表面是商家与用户的租赁关系，但却具有一定的类金融属性，人人租平台在其中更是起着推波助澜的关键作用。
 
-Harbour Energy目前预计2026年日产量为48万至50万桶油当量，此前预期为47.5万至50万桶油当量。
+日租看似低廉，背后却是堪比高利贷的租金；最令人警醒的是，校园贷已被全面严打，而平台上的租机模式却借壳重生，暗藏“变种校园贷”隐忧。
 
-责任编辑：张俊 SF065
+类金融本质：租赁背后的生意经 人人租在官网上宣称其是一站式循环租用服务平台。
+
+近日，证券时报记者以商家寻求入驻的名义联系上了人人租平台的招商人员刘林（化名）。
+
+他表示，他了解到的做手机租赁商家年综合利润率可达30%。
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 19:07 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 18:59 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 18:57 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 19:22 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 19:13 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 19:17 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 19:22 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 18:59 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 19:03 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 19:23 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 19:11 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 19:05 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 19:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 19:07 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 19:02 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 19:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 19:17 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 19:07 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 19:29 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 19:10 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 19:08 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 19:24 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:03 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/065664822.shtml)
-- 2026-06-29 18:54 - [医药生物行业今日涨5.91%](https://www.blog.minike.top/Article/details/67139895523.shtml)
-- 2026-06-29 19:15 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/43813900.shtml)
-- 2026-06-29 19:00 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/30523122359.shtml)
-- 2026-06-29 19:00 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/93945044131.shtml)
-- 2026-06-29 19:21 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/7299327123.shtml)
-- 2026-06-29 19:13 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/549014121.shtml)
-- 2026-06-29 19:13 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/9776013207.shtml)
-- 2026-06-29 18:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/404616.shtml)
-- 2026-06-29 19:08 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/9244068.shtml)
-- 2026-06-29 19:04 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/2509056234.shtml)
-- 2026-06-29 19:03 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/04325703225.shtml)
-- 2026-06-29 18:56 - [一见倾心](https://www.blog.minike.top/Article/details/345062408.shtml)
-- 2026-06-29 19:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/4715272526.shtml)
-- 2026-06-29 19:18 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/228483866112.shtml)
+- 2026-06-29 19:15 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/97987045037.shtml)
+- 2026-06-29 19:14 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/134188737.shtml)
+- 2026-06-29 19:11 - [第一炉香](https://www.share.kurohicncr.top/Article/details/60202491928.shtml)
+- 2026-06-29 19:25 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/21571.shtml)
+- 2026-06-29 19:09 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/0024140511.shtml)
+- 2026-06-29 19:27 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/4160683.shtml)
+- 2026-06-29 19:03 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/83264143.shtml)
+- 2026-06-29 19:11 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/64353200.shtml)
+- 2026-06-29 19:21 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/5478004402.shtml)
+- 2026-06-29 19:29 - [章若楠包场白敬亭特立独行](http://www.blog.kurohicncr.top/Article/details/55058542341.shtml)
+- 2026-06-29 19:13 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/44683.shtml)
+- 2026-06-29 19:18 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/214003.shtml)
+- 2026-06-29 19:27 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/20116757.shtml)
+- 2026-06-29 19:17 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/83411.shtml)
+- 2026-06-29 19:24 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/690951.shtml)

@@ -1,58 +1,58 @@
-# 北京科博会开幕 800余家中外企业机构参展
+# 亚马逊首次转播美国大师赛，成为赛事史上第四家媒体合作伙伴
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-中新社北京5月8日电 (记者 陈杭 吕少威)为期3天的第二十八届中国北京国际科技产业博览会(简称“北京科博会”)8日在北京开幕，800余家中外企业和机构携“硬核”成果参展，展示前沿创新技术，促进国际交流合作。 本届北京科博会以“科技引领 创享未来”为主题，展览总面积约5万平方米，设置信息科技、智能制造、医药健康、绿色双碳、数字经济和区域创新等专题展区，广泛邀请境外科技企业、科研
+要点 体育界的目光周四转向佐治亚州奥古斯塔，迎来美国大师赛首轮赛事。观众将首次可以通过亚马逊 Prime Video 观看赛事直播。 亚马逊将在首轮和次轮赛事中，于美国东部时间下午 1 点至 3 点提供独家直播报道。赛事全程四天，Prime Video 将直播奥古斯塔著名的 “阿门角”—— 即 11 号、12 号和 13 号洞。亚马逊的《走进阿门角》节目将呈现高级数据统计和专属
 
 ## 正文
 
-中新社北京5月8日电 (记者 陈杭 吕少威)为期3天的第二十八届中国北京国际科技产业博览会(简称“北京科博会”)8日在北京开幕，800余家中外企业和机构携“硬核”成果参展，展示前沿创新技术，促进国际交流合作。
+要点 体育界的目光周四转向佐治亚州奥古斯塔，迎来美国大师赛首轮赛事。
 
-本届北京科博会以“科技引领 创享未来”为主题，展览总面积约5万平方米，设置信息科技、智能制造、医药健康、绿色双碳、数字经济和区域创新等专题展区，广泛邀请境外科技企业、科研机构、行业协会、专家学者及国际组织代表参会，拓宽全球创新资源对接渠道。
+观众将首次可以通过亚马逊 Prime Video 观看赛事直播。
 
-拥有60余年历史的瑞典恩华特集团首次亮相北京科博会，展示智能垃圾自动收集系统。
+亚马逊将在首轮和次轮赛事中，于美国东部时间下午 1 点至 3 点提供独家直播报道。
 
-恩华特集团中国区副总裁孙玉辉表示，该系统摒弃传统人力清运模式，使用高速气流将垃圾经地下管网送至中央收集站，实现高效分类与低碳处理，已应用于全球45个城市的住宅、商业等场景。
+赛事全程四天，Prime Video 将直播奥古斯塔著名的 “阿门角”—— 即 11 号、12 号和 13 号洞。
 
-他期待通过北京科博会让这项绿色环保技术被更多人知晓，进一步打开中国市场。
+亚马逊的《走进阿门角》节目将呈现高级数据统计和专属镜头角度，让观众直观感受不同球手如何策略性应对这三个球洞。
 
-北京科博会上，天津、河北、重庆、广东等20余省区市跨地域联动。
+该平台还将全程转播 15 号、16 号洞，并播出部分焦点组画面，但这部分内容并非亚马逊制作。
 
-来自重庆的七腾机器人有限公司携防爆轮式机器人亮相。
+在弗雷德・里德利担任主席的奥古斯塔国家高尔夫俱乐部，亚马逊成为继派拉蒙旗下 CBS、维森特旗下美国电视网（1982—2007 年）以及迪士尼旗下 ESPN 之后，史上第四家媒体合作伙伴。
 
-工作人员梁明昌表示，该机器人搭载视觉传感器、红外热成像仪、气体监测设备等，应用于石油化工领域，可替代人工在易燃易爆、有毒有害区域开展智能巡检，量产规模达每年500到1000台。
+去年，美国大师赛将派拉蒙 + 纳入转播阵营，在周六、周日中午至下午 2 点提供两小时独家流媒体转播，该安排今年将继续保留。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 19:23 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 19:18 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 19:17 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 19:22 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 19:15 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 19:15 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 18:56 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 19:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 19:14 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 18:57 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 18:59 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 19:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 19:05 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 19:12 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 19:17 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 19:05 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 19:14 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 19:24 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 19:25 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 19:13 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 19:13 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 19:11 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 19:05 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:56 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/2321463650.shtml)
-- 2026-06-29 19:23 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/57086.shtml)
-- 2026-06-29 19:10 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/34251271.shtml)
-- 2026-06-29 19:18 - [朱雀三号重复使用遥二运载火箭新进展](http://www.share.minike.top/Article/details/824055.shtml)
-- 2026-06-29 19:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/28791937906.shtml)
-- 2026-06-29 19:07 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/953196196516.shtml)
-- 2026-06-29 19:16 - [恋与深空各大应用商店评分](http://www.share.kurohicncr.top/Article/details/9879138697.shtml)
-- 2026-06-29 19:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/11384397881.shtml)
-- 2026-06-29 18:56 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/18809893.shtml)
-- 2026-06-29 19:00 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/29148184969.shtml)
-- 2026-06-29 19:04 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/4944409.shtml)
-- 2026-06-29 19:06 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/60237897.shtml)
-- 2026-06-29 19:11 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/740818796.shtml)
-- 2026-06-29 19:15 - [欧洲极端高温如何影响家电股](http://www.blog.kurohicncr.top/Article/details/16904893.shtml)
-- 2026-06-29 19:06 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/8328610.shtml)
+- 2026-06-29 19:29 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/5889795563.shtml)
+- 2026-06-29 19:12 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/121047651066.shtml)
+- 2026-06-29 19:07 - [章若楠包场白敬亭特立独行](https://www.blog.minike.top/Article/details/280202.shtml)
+- 2026-06-29 19:04 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/79076390012.shtml)
+- 2026-06-29 19:06 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/15480955082.shtml)
+- 2026-06-29 19:06 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/553436.shtml)
+- 2026-06-29 19:12 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/62239.shtml)
+- 2026-06-29 19:12 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/2151712160.shtml)
+- 2026-06-29 19:25 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/624901682572.shtml)
+- 2026-06-29 19:11 - [沙特外交大臣将访华](https://www.share.minike.top/Article/details/0716359.shtml)
+- 2026-06-29 19:11 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/76739974.shtml)
+- 2026-06-29 19:06 - [滚石就音乐人屠颖去世事件发声明](https://www.share.kurohicncr.top/Article/details/62697.shtml)
+- 2026-06-29 19:13 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/0848415510.shtml)
+- 2026-06-29 19:00 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/512137.shtml)
+- 2026-06-29 19:03 - [送你一朵小红花](https://www.blog.minike.top/Article/details/1023282095.shtml)

@@ -1,57 +1,59 @@
-# 新疆乌恰：游客自驾游爆胎受困 交警一席话温暖人心
+# “西气东输第一源”诞生第七口百亿立方米气井
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 10:10 来源：中国新闻网 5月7日，新疆克州乌恰县G581线128公里处，两名游客自驾前往西极，途中车辆突然爆胎。不远处交通劝导站的执勤交警快步赶来，将车辆引导至安全区域。交警说道：“别担心，这一百多公里的路，我们都会为你们服务。”交警一边安抚游客，一边熟练地俯身更换备胎。最终，游客成功脱困。(作者：马振财） 责任编辑：【魏聪聪】
+中新网乌鲁木齐4月9日电 (胡嘉琛)记者9日从中国石油塔里木油田获悉，截至4月8日，该油田克拉2-5井累计生产天然气突破100亿立方米，成为克拉2气田第七口累产天然气超百亿立方米的高产气井。 克拉2-5井与此前诞生的6口百亿立方米气井共同组成中国最大规模的百亿立方米高产气井群，保持着中国单个气田平均单井产量最高纪录，进一步夯实了克拉2气田“西气东输第一源”的重要地位。 克拉2-
 
 ## 正文
 
-发布时间：2026年05月08日 10:10 来源：中国新闻网 5月7日，新疆克州乌恰县G581线128公里处，两名游客自驾前往西极，途中车辆突然爆胎。
+中新网乌鲁木齐4月9日电 (胡嘉琛)记者9日从中国石油塔里木油田获悉，截至4月8日，该油田克拉2-5井累计生产天然气突破100亿立方米，成为克拉2气田第七口累产天然气超百亿立方米的高产气井。
 
-不远处交通劝导站的执勤交警快步赶来，将车辆引导至安全区域。
+克拉2-5井与此前诞生的6口百亿立方米气井共同组成中国最大规模的百亿立方米高产气井群，保持着中国单个气田平均单井产量最高纪录，进一步夯实了克拉2气田“西气东输第一源”的重要地位。
 
-交警说道：“别担心，这一百多公里的路，我们都会为你们服务。
+克拉2-5井所在的克拉2气田，坐落于塔里木盆地北缘的天山南麓库车坳陷。
 
-”交警一边安抚游客，一边熟练地俯身更换备胎。
+塔里木油田历经多年勘探攻关，于1998年在克拉2井斩获高产天然气流，发现了中国当时最大的特高压、特高产、特高丰度整装气田——克拉2气田，并直接促成西气东输工程的启动建设。
 
-最终，游客成功脱困。
+2004年12月，克拉2气田正式投产向西气东输管道供气。
 
-(作者：马振财） 责任编辑：【魏聪聪】
+历时二十余载开发，克拉2气田保持稳产态势，连续10年稳产60亿立方米左右，累计生产天然气近1530亿立方米。
+
+气田先后诞生7口累产超100亿立方米、12口累产超10亿立方米的高产气井，实现从高产到长期稳产的跨越式发展。
+
+随着天然气勘探开发的不断深入，塔里木油田还建成年最大供气能力达400亿立方米的“西气东输第一站”，开发建设了克深、博孜、大北等19座大中型气田。
 
 ## 相关推荐
 
-- 2026-06-29 19:16 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 19:16 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 19:03 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 19:05 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 18:59 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 19:16 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 19:09 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 19:11 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 19:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 19:03 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 19:09 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 19:05 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 18:57 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 18:54 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 19:11 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 19:23 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 19:29 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 19:21 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 19:05 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 19:22 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 19:17 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 19:10 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 19:08 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 19:04 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 19:15 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 19:26 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 19:25 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 19:15 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:16 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/616136127928.shtml)
-- 2026-06-29 19:19 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/6588360.shtml)
-- 2026-06-29 19:10 - [请回答王牌2019](https://www.share.minike.top/Article/details/5132223855.shtml)
-- 2026-06-29 19:15 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/308460.shtml)
-- 2026-06-29 19:16 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/776315413.shtml)
-- 2026-06-29 19:09 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/051536.shtml)
-- 2026-06-29 19:00 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/3235042235.shtml)
-- 2026-06-29 19:03 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/4545969320.shtml)
-- 2026-06-29 18:58 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/6684173679.shtml)
-- 2026-06-29 19:13 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/44310.shtml)
-- 2026-06-29 19:07 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/5845443.shtml)
-- 2026-06-29 19:14 - [小娘惹](https://www.share.minike.top/Article/details/419140732125.shtml)
-- 2026-06-29 19:09 - [赵今麦时隔五年再演李诗情](https://www.share.kurohicncr.top/Article/details/385965511358.shtml)
-- 2026-06-29 19:00 - [大马同意延长马航370残骸搜寻工作](http://www.share.kurohicncr.top/Article/details/5103153.shtml)
-- 2026-06-29 19:02 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/660604.shtml)
+- 2026-06-29 19:27 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/26430869339.shtml)
+- 2026-06-29 19:12 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/042252358483.shtml)
+- 2026-06-29 19:10 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/52306381253.shtml)
+- 2026-06-29 19:19 - [我和我的家乡](http://www.share.minike.top/Article/details/9996051150.shtml)
+- 2026-06-29 19:29 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/7676384962.shtml)
+- 2026-06-29 19:05 - [东方风云榜](http://www.share.minike.top/Article/details/432945966.shtml)
+- 2026-06-29 19:10 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/318193298.shtml)
+- 2026-06-29 19:11 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/3929924.shtml)
+- 2026-06-29 19:11 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/74221.shtml)
+- 2026-06-29 19:03 - [NBA交易](https://www.share.kurohicncr.top/Article/details/76451.shtml)
+- 2026-06-29 19:29 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/8954502027.shtml)
+- 2026-06-29 19:16 - [毒液2](http://www.blog.kurohicncr.top/Article/details/649971.shtml)
+- 2026-06-29 19:19 - [存储三巨头被告了](https://www.share.minike.top/Article/details/3603586841.shtml)
+- 2026-06-29 19:11 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/5390526126.shtml)
+- 2026-06-29 19:00 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/69561074515.shtml)

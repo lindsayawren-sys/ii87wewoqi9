@@ -1,57 +1,61 @@
-# 新业态新模式 一季度我国智能消费设备制造增速明显
+# 智慧赋能教育 2026年汕头市潮师智库年度活动举办
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-今年一季度，在消费品以旧换新政策加力扩围、AI技术与消费产品深度融合的双重拉动下，我国智能消费设备制造发展态势向好，生产增速亮眼，成为工业经济增长的重要支撑。 这几天，多款面向普通消费者的智能设备集中亮相： 可实现识物、翻译、拍摄的智能眼镜； 具备情绪感知与人机交互能力的陪伴机器人；搭载AI技术，能实现多色彩、多材质打印的3D打印机，一系列智能产品成为大家的消费新选择。 数据显
+中新网汕头4月9日电(李怡青 林大森)2026年汕头市潮师智库年度活动9日在广东汕头举办，活动以“智慧赋能教育·厚植侨乡根脉”为主题，汇聚国内教育专家，共探侨乡教育高质量发展路径。 活动现场发布《潮师智库2026年重点行动计划》，涵盖名师领航、湾区融通、云上优课等多个项目。 活动同步公布AI教育试点校名单。在2025年探索教育数字化转型基础上，当地以试点学校为切入点，推动AI教
 
 ## 正文
 
-今年一季度，在消费品以旧换新政策加力扩围、AI技术与消费产品深度融合的双重拉动下，我国智能消费设备制造发展态势向好，生产增速亮眼，成为工业经济增长的重要支撑。
+中新网汕头4月9日电(李怡青 林大森)2026年汕头市潮师智库年度活动9日在广东汕头举办，活动以“智慧赋能教育·厚植侨乡根脉”为主题，汇聚国内教育专家，共探侨乡教育高质量发展路径。
 
-这几天，多款面向普通消费者的智能设备集中亮相： 可实现识物、翻译、拍摄的智能眼镜； 具备情绪感知与人机交互能力的陪伴机器人；搭载AI技术，能实现多色彩、多材质打印的3D打印机，一系列智能产品成为大家的消费新选择。
+活动现场发布《潮师智库2026年重点行动计划》，涵盖名师领航、湾区融通、云上优课等多个项目。
 
-数据显示，一季度，我国智能手机产量2.98亿台，同比增长6.9%，服务机器人产量超440万套，同比增长2.6%。
+活动同步公布AI教育试点校名单。
 
-整机销售也带动了上游电子元器件产量增长。
+在2025年探索教育数字化转型基础上，当地以试点学校为切入点，推动AI教育落地实施，创新教育教学模式，打造侨乡AI教育样板，以科技赋能课堂提质与学生成长。
 
-集成电路作为核心配套元器件，产量1272亿块，同比增长24.3%，为智能消费产品生产提供坚实支撑。
+现场聘请中山大学原党委书记陈春声教授担任潮师智库“荣誉顾问”，并为新一批入库专家颁发聘书。
 
-出口表现亮眼。
+目前，潮师智库入库专家超160名，通过专家引荐联系近千名教育英才，构建起覆盖学前教育、基础教育、职业教育、高等教育、教育管理等多层次专家网络，形成结构优、领域广、实力强的专业人才队伍。
 
-一季度，规模以上计算机、通信和其他电子设备制造业累计实现出口交货值同比增长4.2%，其中： 液晶电视机出口2561万台，同比增长9.0%； 集成电路出口850亿个，同比增长13.4%。
+活动现场举行“珠三角—长三角—闽三角”与汕头跨区域教育结对签约活动，9组学校参与签约，共建开放共赢的区域教育发展共同体；同步启动“暨南大学—汕头市教育局《金凤娃读本》发布暨国际中文教育协同创新项目”，公布8处研学实践示范基地，搭建研学交流平台，推动潮汕文化与中华优秀传统文化融入教育教学。
 
-中国电子信息产业发展研究院电子信息研究所副所长 马晓凯：智能消费作为人工智能商业化规模化应用的典型赛道，在政策红利的持续释放和技术创新的有效驱动下，新一代智能终端和智能体加快推广，新场景、新业态、新模式正在加速培育。
+主办方介绍，汕头将继续为潮师智库的高效运行创造最优环境，推动人工智能与教育教学深度融合，促进课程体系建设、教学方式变革、评价机制创新等方面发展。
 
 ## 相关推荐
 
-- 2026-06-29 19:13 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 18:56 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 19:03 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 19:07 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 19:12 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 18:57 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 19:18 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 19:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 19:11 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 19:13 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 19:16 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 19:05 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 19:10 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 19:19 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 19:14 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 19:02 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 19:09 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 19:28 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 19:14 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 19:03 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 19:29 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 19:01 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 19:17 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 19:25 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 19:09 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 19:15 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:56 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/8554246.shtml)
-- 2026-06-29 19:15 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/877882057.shtml)
-- 2026-06-29 19:05 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/43623355.shtml)
-- 2026-06-29 19:01 - [主力抛售电子和通信板块](https://www.share.kurohicncr.top/Article/details/10244487226.shtml)
-- 2026-06-29 19:07 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/90304.shtml)
-- 2026-06-29 19:05 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/31302026.shtml)
-- 2026-06-29 19:19 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/476914.shtml)
-- 2026-06-29 19:13 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/040763436.shtml)
-- 2026-06-29 19:24 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/493162655566.shtml)
-- 2026-06-29 19:17 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/226800.shtml)
-- 2026-06-29 19:23 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/89539153.shtml)
-- 2026-06-29 19:03 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/83019.shtml)
-- 2026-06-29 19:10 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/995167.shtml)
-- 2026-06-29 18:55 - [林逸向方筱然求婚了](http://www.blog.kurohicncr.top/Article/details/198231.shtml)
-- 2026-06-29 19:21 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.kurohicncr.top/Article/details/0634672.shtml)
+- 2026-06-29 19:25 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/273503752416.shtml)
+- 2026-06-29 19:11 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/58314.shtml)
+- 2026-06-29 19:29 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/16901214.shtml)
+- 2026-06-29 19:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/9052978.shtml)
+- 2026-06-29 19:24 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/918218.shtml)
+- 2026-06-29 19:15 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/390012051183.shtml)
+- 2026-06-29 19:22 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/913357025313.shtml)
+- 2026-06-29 19:27 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.minike.top/Article/details/9991411.shtml)
+- 2026-06-29 19:20 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/48527.shtml)
+- 2026-06-29 19:09 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.minike.top/Article/details/983936031.shtml)
+- 2026-06-29 19:00 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.share.minike.top/Article/details/327937450.shtml)
+- 2026-06-29 19:08 - [许建琼任湖南省检察院副检察长](https://www.share.kurohicncr.top/Article/details/25778.shtml)
+- 2026-06-29 19:03 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/308338614816.shtml)
+- 2026-06-29 19:05 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/33666748.shtml)
+- 2026-06-29 19:29 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/342468223844.shtml)

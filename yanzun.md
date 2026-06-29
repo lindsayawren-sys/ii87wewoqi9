@@ -1,61 +1,59 @@
-# 从商品首发到体验首发 沉浸式、策展式等首店亮相天津
+# 高瞻远“猪”：行业深度亏损下 3月存栏分化与4月走势展望
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-沉浸式、策展式等首店亮相天津—— 从商品首发到体验首发(中国消费向新而行·首发经济新变化) “十五五”规划纲要提出“积极推进首发经济”。近年来，首发经济蓬勃发展，成为大力提振消费的重要抓手，新业态新模式新场景不断涌现，规模与能级同步提升。今起，本版推出“中国消费向新而行·首发经济新变化”系列报道，聚焦4座城市消费市场向更高能级跃升的生动实践。 ——编者作为我国率先开展国际消费中
+卓创资讯生猪行业高级分析师容志发 【导语】3月能繁母猪存栏环比下滑，生猪存栏环比增加，呈现阶段性分化态势。能繁母猪下滑主要受行业深度亏损与政策调控双重驱动，养殖端淘汰低效母猪；生猪存栏增加则因前期产能充裕、出栏节奏受限及被动压栏。展望4月，能繁母猪存栏或稳步下滑，生猪存栏由增转减，整体供应压力或有所缓解。 3月能繁母猪存栏与生猪存栏走势相悖 卓创资讯监测196家样本养殖企业生猪
 
 ## 正文
 
-沉浸式、策展式等首店亮相天津—— 从商品首发到体验首发(中国消费向新而行·首发经济新变化) “十五五”规划纲要提出“积极推进首发经济”。
+卓创资讯生猪行业高级分析师容志发 【导语】3月能繁母猪存栏环比下滑，生猪存栏环比增加，呈现阶段性分化态势。
 
-近年来，首发经济蓬勃发展，成为大力提振消费的重要抓手，新业态新模式新场景不断涌现，规模与能级同步提升。
+能繁母猪下滑主要受行业深度亏损与政策调控双重驱动，养殖端淘汰低效母猪；生猪存栏增加则因前期产能充裕、出栏节奏受限及被动压栏。
 
-今起，本版推出“中国消费向新而行·首发经济新变化”系列报道，聚焦4座城市消费市场向更高能级跃升的生动实践。
+展望4月，能繁母猪存栏或稳步下滑，生猪存栏由增转减，整体供应压力或有所缓解。
 
-——编者作为我国率先开展国际消费中心城市培育建设的5个城市之一，天津正加快发展首发经济。
+3月能繁母猪存栏与生猪存栏走势相悖 卓创资讯监测196家样本养殖企业生猪存出栏数据显示，3月能繁母猪存栏与生猪存栏走势不同。
 
-从历史街区到现代商圈，从艺术院校到科技场馆，融合了文化、科技、艺术与本地特色的复合型首发生态加速形成。
+能繁母猪存栏延续1月跌势，且跌幅扩大，2月份下滑0.98%。
 
-近日，记者走进天津，探访这座城市的首发经济如何从“卖商品”向“售体验”“营场景”“塑生态”深化拓展。
+而生猪存栏量增幅收窄，由2月份增加0.80%收窄至3月份增加0.15%。
 
-业态融合 销售终端转变为文化体验、产业联动的放大器 “五一”假期首日，位于天津市和平区五大道公园地下空间的中国国家地理探索中心天津站排起长队，由于超过接待人数上限，场馆不得不开启限流模式。
+养殖亏损叠加政策引导 3月能繁母猪存栏下滑 卓创资讯监测196家样本养殖企业数据显示，3月份能繁母猪存栏量环比下降。
 
-8岁男孩卢侠羽来自浙江丽水，在“好奇心补给站”前领取并绑定专属手环，开始“山海探险之旅”。
+主要受行业深度亏损与政策调控双重驱动。
 
 ## 相关推荐
 
-- 2026-06-29 19:01 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 19:21 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 19:09 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 19:16 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 19:04 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 19:12 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 19:09 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 19:07 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 19:09 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 19:18 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 19:08 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 19:08 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 19:13 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 19:01 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 19:22 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 19:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 19:22 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 19:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 19:19 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 19:05 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 19:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 19:02 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 19:15 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 19:08 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 19:18 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 19:05 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 19:29 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 19:15 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/624023876.shtml)
-- 2026-06-29 19:12 - [中方向委方追加1亿元援助](https://www.share.minike.top/Article/details/46070478158.shtml)
-- 2026-06-29 19:02 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/6855039.shtml)
-- 2026-06-29 19:22 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/302682921.shtml)
-- 2026-06-29 19:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/02409852.shtml)
-- 2026-06-29 19:17 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.kurohicncr.top/Article/details/704330003.shtml)
-- 2026-06-29 19:09 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/9887235.shtml)
-- 2026-06-29 19:22 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/97054526.shtml)
-- 2026-06-29 19:10 - [赵今麦时隔五年再演李诗情](http://www.blog.minike.top/Article/details/99660.shtml)
-- 2026-06-29 19:18 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/275228534320.shtml)
-- 2026-06-29 19:09 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/51118454.shtml)
-- 2026-06-29 19:18 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/920840668005.shtml)
-- 2026-06-29 19:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/624415.shtml)
-- 2026-06-29 19:05 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/278602.shtml)
-- 2026-06-29 19:15 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/13813751.shtml)
+- 2026-06-29 19:28 - [海清4次陪跑白玉兰](https://www.share.kurohicncr.top/Article/details/59091.shtml)
+- 2026-06-29 19:01 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/7485027.shtml)
+- 2026-06-29 19:05 - [7款高价创新药有望降价](http://www.blog.kurohicncr.top/Article/details/030716344.shtml)
+- 2026-06-29 19:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/181250404631.shtml)
+- 2026-06-29 19:18 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/9440765006.shtml)
+- 2026-06-29 19:05 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/61804.shtml)
+- 2026-06-29 19:24 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/81002.shtml)
+- 2026-06-29 19:19 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/650195452360.shtml)
+- 2026-06-29 19:24 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/7496621.shtml)
+- 2026-06-29 19:00 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/2278676053.shtml)
+- 2026-06-29 19:29 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/1176967.shtml)
+- 2026-06-29 19:04 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/4551073400.shtml)
+- 2026-06-29 19:19 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/29183074639.shtml)
+- 2026-06-29 19:04 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/7199299551.shtml)
+- 2026-06-29 19:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/8561197.shtml)

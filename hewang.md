@@ -1,49 +1,47 @@
-# 特朗普证实美三艘军舰遭袭 施压伊朗“速签协议”
+# 长电科技：2025年度净利润15.65亿元 同比下降2.75%
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-中新网5月8日电 美国总统特朗普7日在社交媒体发文，证实三艘美国驱逐舰在霍尔木兹海峡遭到伊朗袭击。 特朗普称，这三艘军舰没有受到任何损伤，但伊朗方面“遭受重创”。 特朗普威胁伊朗称，如不“迅速签署协议”，未来美方“将以更猛烈、更暴力”的手段对其进行打击。
+每经AI快讯，4月9日，长电科技(600584.SH)发布2025年年度报告，实现营业收入388.71亿元，同比增长8.09%；归属于上市公司股东的净利润为15.65亿元，同比下降2.75%。公司拟向全体股东每10股派发现金红利1.00元(含税)。
 
 ## 正文
 
-中新网5月8日电 美国总统特朗普7日在社交媒体发文，证实三艘美国驱逐舰在霍尔木兹海峡遭到伊朗袭击。
+每经AI快讯，4月9日，长电科技(600584.SH)发布2025年年度报告，实现营业收入388.71亿元，同比增长8.09%；归属于上市公司股东的净利润为15.65亿元，同比下降2.75%。
 
-特朗普称，这三艘军舰没有受到任何损伤，但伊朗方面“遭受重创”。
-
-特朗普威胁伊朗称，如不“迅速签署协议”，未来美方“将以更猛烈、更暴力”的手段对其进行打击。
+公司拟向全体股东每10股派发现金红利1.00元(含税)。
 
 ## 相关推荐
 
-- 2026-06-29 19:07 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 19:18 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 19:04 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 19:09 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 18:58 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 19:20 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 19:01 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 19:03 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 18:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 19:08 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 19:08 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 19:00 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 19:13 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 19:22 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 19:29 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 19:19 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 19:25 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 19:15 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 19:09 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 19:10 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 19:01 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 19:27 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 19:19 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 19:21 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 19:25 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 19:18 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [中方向委方追加1亿元援助](https://www.blog.minike.top/Article/details/635212611670.shtml)
-- 2026-06-29 19:08 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.minike.top/Article/details/128412273750.shtml)
-- 2026-06-29 18:59 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/20575.shtml)
-- 2026-06-29 19:11 - [欧洲极端高温如何影响家电股](http://www.blog.minike.top/Article/details/22658013893.shtml)
-- 2026-06-29 19:06 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/346561374522.shtml)
-- 2026-06-29 19:22 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/819874547.shtml)
-- 2026-06-29 19:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/931315.shtml)
-- 2026-06-29 19:01 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/832018352143.shtml)
-- 2026-06-29 19:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/42316092283.shtml)
-- 2026-06-29 19:20 - [河南高院审委会原委员曲海滨被查](http://www.share.kurohicncr.top/Article/details/785752998926.shtml)
-- 2026-06-29 19:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/647346.shtml)
-- 2026-06-29 19:17 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/076765.shtml)
-- 2026-06-29 18:59 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/5704517.shtml)
-- 2026-06-29 19:15 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/6261438021.shtml)
-- 2026-06-29 19:02 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.kurohicncr.top/Article/details/1508832845.shtml)
+- 2026-06-29 19:13 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/76794776523.shtml)
+- 2026-06-29 19:22 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/273405524876.shtml)
+- 2026-06-29 19:27 - [人形机器人](http://www.share.kurohicncr.top/Article/details/78094837.shtml)
+- 2026-06-29 19:24 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/94844.shtml)
+- 2026-06-29 19:12 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/286192.shtml)
+- 2026-06-29 19:11 - [一生一世](https://www.blog.minike.top/Article/details/3269256737.shtml)
+- 2026-06-29 19:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/12152.shtml)
+- 2026-06-29 19:08 - [海口塔吊事故处罚结果公布](http://www.blog.minike.top/Article/details/51191.shtml)
+- 2026-06-29 19:11 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/72951672514.shtml)
+- 2026-06-29 19:18 - [送你一朵小红花](https://www.share.minike.top/Article/details/74514810587.shtml)
+- 2026-06-29 19:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/557516330862.shtml)
+- 2026-06-29 19:18 - [沙丘](https://www.share.kurohicncr.top/Article/details/11516.shtml)
+- 2026-06-29 19:13 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/526878.shtml)
+- 2026-06-29 19:22 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/1620124.shtml)
+- 2026-06-29 19:19 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/57622476190.shtml)

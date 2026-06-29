@@ -1,61 +1,60 @@
-# Peloton之鉴：AI热潮会以同样方式结束吗？
+# 一季度中国铁路发送旅客人次同比增5.5%
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-当市场热议人工智能将如何重塑世界时，一个看似不相关的公司名字被频频提起：Peloton。这家联网健身设备制造商从500亿美元估值巅峰跌至仅约20亿美元的惨痛经历，正在被投资者视为AI热潮的一面镜子。 从神话到笑话：Peloton做错了什么？ 疫情期间，Peloton股价在九个月内飙升750%，押注的是人们居家健身的习惯将永久固化。然而随着世界重新开放，需求如潮水般退去。公司收入
+中新社北京4月9日电 (记者 刘文文)2026年一季度，中国铁路累计发送旅客11.33亿人次、同比增长5.5%。 中国国家铁路集团有限公司(简称国铁集团)9日发布上述数据。据介绍，一季度，铁路客运产品供给持续优化。铁路部门加强春运和元旦假期等客流高峰时段运输组织，在客流高峰时段采取增开临时旅客列车、动车组重联、普速旅客列车加挂等方式扩充运力，最大限度满足旅客出行需求。一季度全国
 
 ## 正文
 
-当市场热议人工智能将如何重塑世界时，一个看似不相关的公司名字被频频提起：Peloton。
+中新社北京4月9日电 (记者 刘文文)2026年一季度，中国铁路累计发送旅客11.33亿人次、同比增长5.5%。
 
-这家联网健身设备制造商从500亿美元估值巅峰跌至仅约20亿美元的惨痛经历，正在被投资者视为AI热潮的一面镜子。
+中国国家铁路集团有限公司(简称国铁集团)9日发布上述数据。
 
-从神话到笑话：Peloton做错了什么？
+据介绍，一季度，铁路客运产品供给持续优化。
 
-疫情期间，Peloton股价在九个月内飙升750%，押注的是人们居家健身的习惯将永久固化。
+铁路部门加强春运和元旦假期等客流高峰时段运输组织，在客流高峰时段采取增开临时旅客列车、动车组重联、普速旅客列车加挂等方式扩充运力，最大限度满足旅客出行需求。
 
-然而随着世界重新开放，需求如潮水般退去。
+一季度全国铁路日均开行旅客列车12072列，同比增长7.1%。
 
-公司收入连续四年下滑，联网健身订阅用户数同比下降7.6%，而CEO承认消费者正将支出转向旅游和体验。
+铁路部门积极适应旅客春季出游、踏青、赏花需求，一季度全国铁路开行旅游列车627列，有力促进旅游经济、银发经济、冰雪经济发展。
 
-Peloton的错误在于：将一个暂时性的需求激增误判为永久性的新常态，并据此疯狂扩张产能。
+各地铁路部门聚焦节庆、展会、赛事、演艺等新兴客流，定制化开行“歌迷专列”“球迷专列”“研学专列”“赏花专列”等主题列车，打造消费新场景，促进了消费新业态发展。
 
-当预期落空时，股价暴跌94%，这是对需求假设式投资最严厉的惩罚。
+此外，铁路部门精心组织跨境旅客运输，一季度广深港高铁发送跨境旅客866.0万人次，同比增长17.7%，中老铁路发送跨境旅客11.2万人次、同比增长31.6%，开好中蒙、中俄、中越、中朝国际旅客列车，助力跨境人员往来和经贸交流。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 19:12 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 19:06 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 19:00 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 19:18 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 19:19 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 19:22 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 19:14 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 19:20 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 18:56 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 18:56 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 19:02 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 19:00 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 19:22 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 19:17 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 19:03 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 19:11 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 19:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 19:16 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 19:20 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 19:13 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 19:25 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 19:13 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 19:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 19:12 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 19:05 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 19:08 - [永远有话聊的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 19:17 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 19:00 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:06 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/563761993.shtml)
-- 2026-06-29 18:59 - [花万元相亲对象是50元雇的演员](https://www.blog.minike.top/Article/details/1315485243.shtml)
-- 2026-06-29 18:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/14875.shtml)
-- 2026-06-29 18:58 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/400229.shtml)
-- 2026-06-29 19:13 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/614234673.shtml)
-- 2026-06-29 18:59 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/95206115398.shtml)
-- 2026-06-29 19:18 - [请回答王牌2019](http://www.share.minike.top/Article/details/225665876.shtml)
-- 2026-06-29 19:11 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/6032731.shtml)
-- 2026-06-29 18:59 - [周生如故](https://www.share.kurohicncr.top/Article/details/22847.shtml)
-- 2026-06-29 19:20 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/582046.shtml)
-- 2026-06-29 19:04 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/7447765017.shtml)
-- 2026-06-29 19:17 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/10356.shtml)
-- 2026-06-29 18:55 - [许建琼任湖南省检察院副检察长](http://www.blog.kurohicncr.top/Article/details/7046709.shtml)
-- 2026-06-29 19:16 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/36605630099.shtml)
-- 2026-06-29 19:18 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/4040066.shtml)
+- 2026-06-29 19:15 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/8038206.shtml)
+- 2026-06-29 19:10 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/024751662.shtml)
+- 2026-06-29 19:00 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/00561.shtml)
+- 2026-06-29 19:05 - [明星大侦探第四季](https://www.share.minike.top/Article/details/23763124.shtml)
+- 2026-06-29 19:19 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/0694777.shtml)
+- 2026-06-29 19:25 - [谢依霖夸杨幂靠谱](https://www.share.minike.top/Article/details/24047.shtml)
+- 2026-06-29 19:21 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/500134796.shtml)
+- 2026-06-29 19:16 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/045428.shtml)
+- 2026-06-29 19:19 - [RAY评乘风2026总决赛](https://www.share.kurohicncr.top/Article/details/101087943025.shtml)
+- 2026-06-29 19:11 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/7774234943.shtml)
+- 2026-06-29 19:24 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.minike.top/Article/details/221479.shtml)
+- 2026-06-29 19:20 - [第一炉香](http://www.blog.minike.top/Article/details/772105558.shtml)
+- 2026-06-29 19:10 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/3902986348.shtml)
+- 2026-06-29 19:19 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/20439385.shtml)
+- 2026-06-29 19:03 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/23807.shtml)

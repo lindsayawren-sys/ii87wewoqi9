@@ -1,56 +1,60 @@
-# 6天5板！AI验布机概念罕见爆发，603095，紧急提示！
+# （经济观察）全球能源危机下中国电力稳供优势凸显
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：上市之家 5月7日，浙江越剑智能装备股份有限公司（股票代码：603095，简称“越剑智能”）股价在反复开板后封住涨停板，报收26.60元，涨幅10.01%总市值升至68.70亿元。这是公司近六个交易日内第五次以涨停价收盘，累计涨幅达53.58%。 同日，越剑智能发布了关于股票交易风险提示的正式公告，指
+中新社北京4月10日电 (记者 王梦瑶)每使用3度电就有1度绿电，中国凭借高比例的绿电应用与煤炭发电的特有结构在动荡国际局势下实现电力稳供。 中东紧张局势持续，霍尔木兹海峡航运受阻后，国际能源价格集体上涨，国际油价一度超过每桶120美元。摩根士丹利称，全球液化天然气(LNG)市场2026年预计出现约1500万吨(约4%)供应缺口。国际能源署官员称，中东冲突升级正使世界陷入几十年
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京4月10日电 (记者 王梦瑶)每使用3度电就有1度绿电，中国凭借高比例的绿电应用与煤炭发电的特有结构在动荡国际局势下实现电力稳供。
 
-来源：上市之家 5月7日，浙江越剑智能装备股份有限公司（股票代码：603095，简称“越剑智能”）股价在反复开板后封住涨停板，报收26.60元，涨幅10.01%总市值升至68.70亿元。
+中东紧张局势持续，霍尔木兹海峡航运受阻后，国际能源价格集体上涨，国际油价一度超过每桶120美元。
 
-这是公司近六个交易日内第五次以涨停价收盘，累计涨幅达53.58%。
+摩根士丹利称，全球液化天然气(LNG)市场2026年预计出现约1500万吨(约4%)供应缺口。
 
-同日，越剑智能发布了关于股票交易风险提示的正式公告，指岀，公司股价短期涨幅较大，“显著高于上证指数涨幅和同行业上市公司涨幅，已严重偏离上市公司基本面，存在市场情绪过热、非理性炒作风险，后续存在短期大幅下跌的风险”。
+国际能源署官员称，中东冲突升级正使世界陷入几十年来最严重的能源危机。
 
-公告还提示，截至5月7日，公司静态市盈率已高达80.46倍，滚动市盈率更是攀升至98.91倍，而公司所在“专用设备制造业”行业的静态市盈率和滚动市盈率分别仅为44.47倍和44.62倍。
+“任何电力生产高度依赖进口LNG或石油的经济体，都将面临电力价格暴涨和潜在电力短缺的问题。
 
-消息面上，作为一家主营纺织装备的企业，越剑智能近期持续走强主要受多重概念催化，包括AI验布机、高端装备和纺织机械等题材。
+”野村中国首席经济学家陆挺表示，全球能源危机中，中国在电力供应方面具有比较优势。
 
-公开信息显示，公司自主研发的“YJAI智能验布机”已被浙江省经信厅认定为2025年度浙江省首台套装备，基于边缘计算与云端协同技术，可实现纺织全产业链数字化质量追溯。
+中国电力系统的一次能源来源几乎自给自足，发电环节几乎不使用天然气或石油，主要依赖国内开采的煤炭且备用产能充足。
 
-此外，公司于2026年4月25日发布了2026年度“提质增效重回报”行动方案，明确将AI技术深度融入纺织装备，加速智能化转型。
+官方数据显示，煤电长期以来在保障中国电力安全稳定供应方面发挥“顶梁柱”和“压舱石”作用，煤电装机以不到40%的装机占比提供了约60%的发电量。
 
 ## 相关推荐
 
-- 2026-06-29 19:13 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 19:09 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 19:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 19:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 19:16 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 19:00 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 19:02 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 19:17 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 19:05 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 19:23 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 19:09 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 19:18 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 19:14 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 19:28 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 19:05 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 19:07 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 19:12 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 19:19 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 19:26 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 19:24 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 19:20 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 19:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 19:28 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 19:01 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/7682677719.shtml)
-- 2026-06-29 19:01 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/59396613902.shtml)
-- 2026-06-29 19:06 - [徐昕暂不参加NBA夏季联赛](http://www.blog.minike.top/Article/details/144836364770.shtml)
-- 2026-06-29 19:05 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/10727612.shtml)
-- 2026-06-29 19:08 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/49245739428.shtml)
-- 2026-06-29 19:04 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/706248308198.shtml)
-- 2026-06-29 19:19 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/99993739163.shtml)
-- 2026-06-29 19:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/0167311.shtml)
-- 2026-06-29 19:01 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/695313.shtml)
-- 2026-06-29 19:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/8108875287.shtml)
-- 2026-06-29 19:13 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/61036963434.shtml)
-- 2026-06-29 19:18 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/9905462015.shtml)
-- 2026-06-29 19:01 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/305432746430.shtml)
-- 2026-06-29 19:08 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/90953.shtml)
-- 2026-06-29 18:59 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/8879340373.shtml)
+- 2026-06-29 19:23 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/44421911133.shtml)
+- 2026-06-29 19:11 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/286226643.shtml)
+- 2026-06-29 19:26 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/054977991.shtml)
+- 2026-06-29 19:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/832659.shtml)
+- 2026-06-29 19:08 - [我们的少年时代2](https://www.blog.minike.top/Article/details/68122.shtml)
+- 2026-06-29 19:09 - [欧洲安装一台空调要花近8000元](http://www.blog.minike.top/Article/details/4192669.shtml)
+- 2026-06-29 19:05 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/25157020529.shtml)
+- 2026-06-29 19:21 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/88807126.shtml)
+- 2026-06-29 19:11 - [一见倾心](https://www.share.minike.top/Article/details/276935.shtml)
+- 2026-06-29 19:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/212155593516.shtml)
+- 2026-06-29 19:16 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/4274046.shtml)
+- 2026-06-29 19:06 - [媒体：听清自己内心的声音再填志愿](https://www.share.minike.top/Article/details/49505330968.shtml)
+- 2026-06-29 19:01 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/542404.shtml)
+- 2026-06-29 19:19 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/100005511869.shtml)
+- 2026-06-29 19:04 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/9670525685.shtml)

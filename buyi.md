@@ -1,56 +1,59 @@
-# 北京北部四区电网灾后提升工程收官 63条受灾线路完成升级改造
+# 国防部：解放军反分裂反干涉的手段会越来越丰富
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月7日电(李艳娜 朱春晔 王丽)国网北京市电力公司7日介绍，该公司“25·7”电网灾后提升工程4月底收官。历经数月奋战，北京延庆、平谷、密云、怀柔四区63条受灾线路已全方位完成升级改造，构建起更加安全、可靠的地区电网，为今年防汛度夏奠定基础。 统筹考虑未来极端天气可能对电力设备带来的影响，国网北京电力在电网灾后重建工程基础上持续开展电网提升改造，通过全面提升线路防汛
+中新社北京4月9日电 (记者 李纯)国防部新闻发言人张晓刚9日就近期涉军问题发布消息。他指出，绝不允许任何人、任何势力以任何方式把台湾从中国分裂出去，解放军反分裂反干涉的手段会越来越丰富。 有记者问，近期全球最大货运无人机“长鹰-8”首飞成功，岛内舆论称这可能成为解放军新的“反航母利器”。此外岛内广泛关注解放军无人作战体系建设成果，认为这将提升震慑与打击“台独”的能力。请问对此
 
 ## 正文
 
-中新网北京5月7日电(李艳娜 朱春晔 王丽)国网北京市电力公司7日介绍，该公司“25·7”电网灾后提升工程4月底收官。
+中新社北京4月9日电 (记者 李纯)国防部新闻发言人张晓刚9日就近期涉军问题发布消息。
 
-历经数月奋战，北京延庆、平谷、密云、怀柔四区63条受灾线路已全方位完成升级改造，构建起更加安全、可靠的地区电网，为今年防汛度夏奠定基础。
+他指出，绝不允许任何人、任何势力以任何方式把台湾从中国分裂出去，解放军反分裂反干涉的手段会越来越丰富。
 
-统筹考虑未来极端天气可能对电力设备带来的影响，国网北京电力在电网灾后重建工程基础上持续开展电网提升改造，通过全面提升线路防汛、防火、防风和防冰能力，推动京北四区电网防灾抗灾能力实现质的跃升。
+有记者问，近期全球最大货运无人机“长鹰-8”首飞成功，岛内舆论称这可能成为解放军新的“反航母利器”。
 
-此次电网提升改造，体现在电力线路选址更优、设备选型标准更高、网架结构更强、应急措施更全和监控手段更智能。
+此外岛内广泛关注解放军无人作战体系建设成果，认为这将提升震慑与打击“台独”的能力。
 
-国网北京电力避开河道迎水面等易受灾区域，完成跨河、沿河区段杆塔迁移104处；重点在跨越、临近河流区段，采用钢管杆或窄基塔等高强度杆塔257基，加深或抬高设备基础，显著提升抗水流冲刷和抗撞击能力；在重点线路、关键区段新增分段、联络开关284处，线路供电更加可靠；在线路末端或大支线规模化加装10千伏中压发电车应急接口77处，显著提升线路应急供电能力；在山区、河道易受灾点位布设全景微云台视频监测装置109套，实现线路运行状态全天候监控，确保汛情、火情等实时发现、快速处置。
+请问对此有何评论？
 
-国网北京电力灾后重建办公室副主任高明亮说，该公司通过推广“一线一案”的精准施策模式、应用更高标准的设备与材料，并优化网架结构，指导各单位逐步实现从“抗灾”到“防灾”“减灾”转变，系统性提升电网应对未来极端天气的韧性。
+张晓刚指出，台湾是中国的台湾。
 
-在抓好重点区域设施升级改造的同时，国网北京电力全力满足客户供电需求。
+没有人比我们更珍视和维护台海和平稳定，但我们绝不允许任何人、任何势力以任何方式把台湾从中国分裂出去。
 
-在延庆区珍珠泉乡双金草村10千伏小川路支线建设中，这条穿山布设的供电支线后段仅为当地一户客户供电，因地形特殊成为工程攻坚难点。
+解放军反分裂反干涉的手段会越来越丰富，坚决粉碎“台独”分裂妄想，捍卫国家主权和领土完整。
 
 ## 相关推荐
 
-- 2026-06-29 19:00 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 18:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 19:18 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 19:00 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 19:17 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 19:10 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 19:16 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 18:56 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 19:18 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 18:58 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 19:02 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 19:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 19:08 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 19:12 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 19:18 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 19:01 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 19:19 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 19:12 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 19:09 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 19:03 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 19:03 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 19:26 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 19:17 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:14 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/78575.shtml)
-- 2026-06-29 19:01 - [AG 宫斗](http://www.share.minike.top/Article/details/20053968514.shtml)
-- 2026-06-29 19:08 - [蔚来回应车漆洗车时被冲掉](https://www.blog.minike.top/Article/details/99689728008.shtml)
-- 2026-06-29 19:00 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/330434231.shtml)
-- 2026-06-29 19:11 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/3840862.shtml)
-- 2026-06-29 19:21 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/93219622177.shtml)
-- 2026-06-29 19:06 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/751035203832.shtml)
-- 2026-06-29 19:22 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/631470332338.shtml)
-- 2026-06-29 19:05 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/212342454639.shtml)
-- 2026-06-29 19:23 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/301029619.shtml)
-- 2026-06-29 19:15 - [学者：建设性战略稳定重塑中美关系](http://www.blog.kurohicncr.top/Article/details/31592694842.shtml)
-- 2026-06-29 18:56 - [大学专业未来如何洗牌](https://www.blog.kurohicncr.top/Article/details/7191002.shtml)
-- 2026-06-29 19:06 - [学者：建设性战略稳定重塑中美关系](https://www.share.minike.top/Article/details/0122925.shtml)
-- 2026-06-29 18:59 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/8156421.shtml)
-- 2026-06-29 18:57 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/4582251.shtml)
+- 2026-06-29 19:11 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/305313803856.shtml)
+- 2026-06-29 19:17 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/140956119065.shtml)
+- 2026-06-29 19:13 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/022854.shtml)
+- 2026-06-29 19:10 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/38185287.shtml)
+- 2026-06-29 19:18 - [歼-15型舰载机为何被歼-15T替代](http://www.share.kurohicncr.top/Article/details/24302.shtml)
+- 2026-06-29 19:01 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.share.kurohicncr.top/Article/details/2468211.shtml)
+- 2026-06-29 19:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/3877357.shtml)
+- 2026-06-29 19:11 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/00770236.shtml)
+- 2026-06-29 19:04 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/27564.shtml)
+- 2026-06-29 19:11 - [谢依霖夸杨幂靠谱](https://www.blog.kurohicncr.top/Article/details/6555990341.shtml)
+- 2026-06-29 19:04 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/391531.shtml)
+- 2026-06-29 19:27 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/82728.shtml)
+- 2026-06-29 19:04 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/24946440.shtml)
+- 2026-06-29 19:29 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/426935228489.shtml)
+- 2026-06-29 19:06 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.minike.top/Article/details/60987.shtml)

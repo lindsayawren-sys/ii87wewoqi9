@@ -1,59 +1,58 @@
-# 卖不动了！ 老板电器交出史上最差业绩：产品全线“哑火”，接班人年薪腰斩，谁靠分红套现？ | BUG
+# 欧阳明高：增程插电占比下降，纯电动力主导终局会提前到来
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-文 丨 《BUG》栏目 周文猛 曾言要在2025年“再造一个新老板电器”，却在2025年交出了史上最差的年报。 近日，老板电器发布2025年度报告。财报显示，2025年全年老板电器营收101.16亿元，同比下滑9.78%；归母净利润12.56亿元，同比下滑20.38%。营收、净利润双双下降。 《BUG》栏目统计发现，这是老板电器自2010年上市以来首次营收同比下滑，同时也是首次
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。清华大学教授欧阳明高出席并演讲。 欧阳明高指出，“十五五”提倡从卷价格到卷价值转变，通常讲的价值包括功能价值和情绪价值。对于零部件厂而言，主要是功能价值，汽车厂商主要是情绪价值，其实还有一个价
 
 ## 正文
 
-文 丨 《BUG》栏目 周文猛 曾言要在2025年“再造一个新老板电器”，却在2025年交出了史上最差的年报。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-近日，老板电器发布2025年度报告。
+清华大学教授欧阳明高出席并演讲。
 
-财报显示，2025年全年老板电器营收101.16亿元，同比下滑9.78%；归母净利润12.56亿元，同比下滑20.38%。
+欧阳明高指出，“十五五”提倡从卷价格到卷价值转变，通常讲的价值包括功能价值和情绪价值。
 
-营收、净利润双双下降。
+对于零部件厂而言，主要是功能价值，汽车厂商主要是情绪价值，其实还有一个价值，就是资产价值。
 
-《BUG》栏目统计发现，这是老板电器自2010年上市以来首次营收同比下滑，同时也是首次归母净利润同比下滑超20%。
+他强调，要把功能价值、情绪价值和资产价值同等重视，让三个价值互相耦合。
 
-更严重的是，双降趋势仍延续到了今年Q1季度。
+欧阳明高还表示，要从高速发展到高质量发展，安全监管加严、技术门槛提高、舆论环境改善。
 
-惨淡的业绩背后，长期贡献70%以上营收份额的“烟灶”产品线集体哑火，以及蒸烤箱、洗碗机及集成灶等主营外“第二曲线”类业务大幅度下滑，直接拖累业绩。
+“最近舆论环境也在改善，有很多技术粉丝在做自媒体，比以前好多了，而且经常看到黑公关被抓，这是好事。
 
-伴随年报发布，曾在老板电器“新三年战略（2023-2025）”担任重要管理职务的副董事长任富佳，副总经理何亚东及周海昕等人，均出现大幅度降薪情况。
+” 他提到，新旧动能转换，纯电动力主导。
 
 ## 相关推荐
 
-- 2026-06-29 19:13 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 19:18 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 19:13 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 19:04 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 19:17 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 19:07 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 18:56 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 19:21 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 18:56 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 19:12 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 19:21 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 19:06 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 19:08 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 19:01 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 19:13 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 19:07 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 19:08 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 19:22 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 19:16 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 19:25 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 19:26 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 19:27 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 19:22 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 19:27 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 19:24 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:02 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/63889921.shtml)
-- 2026-06-29 19:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/397871581290.shtml)
-- 2026-06-29 19:10 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/33377193.shtml)
-- 2026-06-29 19:06 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/497045.shtml)
-- 2026-06-29 19:09 - [一生一世](https://www.blog.kurohicncr.top/Article/details/97732989940.shtml)
-- 2026-06-29 19:18 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/9445239.shtml)
-- 2026-06-29 18:54 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/71049246.shtml)
-- 2026-06-29 18:57 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/304034764992.shtml)
-- 2026-06-29 19:03 - [大马同意延长马航370残骸搜寻工作](https://www.blog.minike.top/Article/details/452867834043.shtml)
-- 2026-06-29 19:15 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/1137272.shtml)
-- 2026-06-29 19:08 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/10510860.shtml)
-- 2026-06-29 18:55 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/203760447.shtml)
-- 2026-06-29 19:22 - [官媒首曝六代机？大V解读](https://www.share.kurohicncr.top/Article/details/730363022868.shtml)
-- 2026-06-29 19:18 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.minike.top/Article/details/591613.shtml)
-- 2026-06-29 19:22 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/044903718992.shtml)
+- 2026-06-29 19:27 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/360537.shtml)
+- 2026-06-29 19:27 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/0620415692.shtml)
+- 2026-06-29 19:25 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/016847.shtml)
+- 2026-06-29 19:00 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/347425898.shtml)
+- 2026-06-29 19:21 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/30789789455.shtml)
+- 2026-06-29 19:18 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/70712.shtml)
+- 2026-06-29 19:18 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/29972.shtml)
+- 2026-06-29 19:10 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/51284.shtml)
+- 2026-06-29 19:16 - [医药生物行业今日涨5.91%](http://www.share.kurohicncr.top/Article/details/5391517706.shtml)
+- 2026-06-29 19:00 - [女心理师](http://www.share.kurohicncr.top/Article/details/5913639718.shtml)
+- 2026-06-29 19:14 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/87463759.shtml)
+- 2026-06-29 19:28 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/333417290.shtml)
+- 2026-06-29 19:27 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/018658582622.shtml)
+- 2026-06-29 19:07 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/530682.shtml)
+- 2026-06-29 19:24 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/805416651.shtml)

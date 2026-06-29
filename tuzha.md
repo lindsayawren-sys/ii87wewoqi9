@@ -1,60 +1,57 @@
-# 马士基股价下跌，CEO警告伊朗战争未来数月影响将加剧
+# 香港金管局发出首批稳定币发行人牌照
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-核心要点 丹麦航运巨头马士基首席执行官文森特・克莱尔周四向 CNBC 表示，美伊战争为全球贸易敲响了 “新警钟”，并警告其影响在未来数月或将进一步恶化。 在马士基公布第一季度财报后，克莱尔做客 CNBC《欧洲早间财经》栏目时称，集团正面临巨大成本压力，而这些成本势必转嫁至客户。 马士基股价最新下跌约 7.2%，较早前跌幅有所收窄。财报显示，公司盈利能力大幅下滑，但维持全年业绩指
+中新社香港4月10日电 (记者 魏华都)香港金融管理局(简称“金管局”)10日公布首批稳定币发行人牌照名单。金融管理专员根据《稳定币条例》向碇点金融科技有限公司、香港上海汇丰银行有限公司授予稳定币发行人牌照，以在香港发行稳定币，牌照即日生效。 金管局总裁余伟文表示，审批牌照时主要考虑两方面因素，一是申请人是否具备充分的风险管理能力和经验，并遵守香港和其他地区的相关法规；二是申请
 
 ## 正文
 
-核心要点 丹麦航运巨头马士基首席执行官文森特・克莱尔周四向 CNBC 表示，美伊战争为全球贸易敲响了 “新警钟”，并警告其影响在未来数月或将进一步恶化。
+中新社香港4月10日电 (记者 魏华都)香港金融管理局(简称“金管局”)10日公布首批稳定币发行人牌照名单。
 
-在马士基公布第一季度财报后，克莱尔做客 CNBC《欧洲早间财经》栏目时称，集团正面临巨大成本压力，而这些成本势必转嫁至客户。
+金融管理专员根据《稳定币条例》向碇点金融科技有限公司、香港上海汇丰银行有限公司授予稳定币发行人牌照，以在香港发行稳定币，牌照即日生效。
 
-马士基股价最新下跌约 7.2%，较早前跌幅有所收窄。
+金管局总裁余伟文表示，审批牌照时主要考虑两方面因素，一是申请人是否具备充分的风险管理能力和经验，并遵守香港和其他地区的相关法规；二是申请人能否提出具体的应用场景及可行的业务方案和发展计划。
 
-财报显示，公司盈利能力大幅下滑，但维持全年业绩指引不变，同时警示中东持续冲突的冲击。
+他指出，上述两家持牌发行人在符合法例相关发牌要求的基础上，展示其稳妥管理风险的能力，并提出确切的应用场景和未来的发展计划。
 
-“我们属于高能源消耗行业，当前局势催生了全新的市场环境，必须着手应对。
+而且它们都具有银行背景，并参与了金管局有关央行数字货币和代币化存款等实验项目，有利于探索“未来支付”的各种可能性。
 
-这将对第二、第三季度业绩产生重大影响。
+余伟文称，此次发放牌照标志着香港稳定币监管制度进入新阶段。
 
-” 中东战事升级推动油价飙升，霍尔木兹海峡通航受限的持续不确定性也令油价维持高位。
+香港上海汇丰银行有限公司对获得牌照表示欢迎，并计划于2026年下半年推出港元稳定币，接入旗下两个数码平台“PayMe”和“流动理财应用程序”，初步阶段可进行个人对个人、个人对商户支付，以及认购投资产品等。
 
-油价暴涨还引发市场担忧：多国通胀水平或将进一步抬升。
+由渣打银行(香港)、香港电讯、安拟集团组成的合资企业——碇点金融科技有限公司，计划于2026年第二季度分阶段发行受规管、与港元挂钩的稳定币“HKDAP”。
 
 ## 相关推荐
 
-- 2026-06-29 19:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 19:02 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 19:02 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 19:21 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 19:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 19:11 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 19:04 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 19:09 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 19:00 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 19:05 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 18:57 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 19:08 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 18:55 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 19:15 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 19:18 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 19:20 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 19:22 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 19:14 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 19:18 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 19:23 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 19:28 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 19:07 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-29 19:22 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 19:03 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 19:18 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [千与千寻](http://www.blog.minike.top/Article/details/722716.shtml)
-- 2026-06-29 19:19 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.kurohicncr.top/Article/details/406031.shtml)
-- 2026-06-29 19:19 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/692659.shtml)
-- 2026-06-29 19:22 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/9429522002.shtml)
-- 2026-06-29 19:05 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/263461.shtml)
-- 2026-06-29 19:19 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/41121187348.shtml)
-- 2026-06-29 18:55 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/20642952121.shtml)
-- 2026-06-29 18:55 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/494334914347.shtml)
-- 2026-06-29 19:18 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/69910.shtml)
-- 2026-06-29 19:19 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/906751393.shtml)
-- 2026-06-29 19:03 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/40415004944.shtml)
-- 2026-06-29 18:54 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/860809054451.shtml)
-- 2026-06-29 19:24 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/61507539036.shtml)
-- 2026-06-29 19:10 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/480653833532.shtml)
-- 2026-06-29 19:02 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.minike.top/Article/details/167264.shtml)
+- 2026-06-29 19:00 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/598880604528.shtml)
+- 2026-06-29 19:25 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/68691.shtml)
+- 2026-06-29 19:17 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/00258.shtml)
+- 2026-06-29 19:12 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/102047.shtml)
+- 2026-06-29 19:10 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/261694117.shtml)
+- 2026-06-29 19:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/86686.shtml)
+- 2026-06-29 19:27 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/036680.shtml)
+- 2026-06-29 19:12 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/7578058.shtml)
+- 2026-06-29 19:29 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/626373388353.shtml)
+- 2026-06-29 19:03 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/6255894367.shtml)
+- 2026-06-29 19:11 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/112076734840.shtml)
+- 2026-06-29 19:13 - [美人鱼](https://www.share.kurohicncr.top/Article/details/9059030.shtml)
+- 2026-06-29 19:12 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/3083883902.shtml)
+- 2026-06-29 19:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/73217768440.shtml)
+- 2026-06-29 19:09 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/50762.shtml)

@@ -1,60 +1,59 @@
-# 中国银行武剑：2025年末境内绿色贷款余额近5万亿元，较“十四五”初期增幅超400%
+# 农行广西分行跨境人民币业务量劲增 服务面向东盟金融开放
 
-> 更新时间：2026-06-29 19:24:03 UTC+8
+> 更新时间：2026-06-29 19:30:02 UTC+8
 
 ## 摘要
 
-专题：第五届气候投融国际研讨会 4月29-30日，“2026第五届气候投融资国际研讨会”在京举办，主题为“碳融新局·筑绿未来”。中国银行党委委员、副行长武剑出席并致辞。 武剑谈到，当前，全球气候治理迈入务实发展的新阶段，各国进一步明确了加快减排和适应气候变化的任务目标，绿色低碳转型已由全球共识落地为具体的行动。去年在联合国气候变化峰会上，中国宣布了新一轮的2035年国家自主贡献
+中新网南宁4月10日电 (陈秋霞 黎永军)广西持续推进跨境金融创新，提升跨境金融服务水平，与东盟金融合作展现出旺盛活力。中国农业银行广西壮族自治区分行10日披露，该分行2025年以来累计完成跨境人民币结算量143.2亿元(人民币，下同)，同比增长6.1%，其中，2025年跨境人民币业务量同比增长186.42%。中国农业银行广西壮族自治区分行副行长胡汉军10日在新闻通气会上介绍，
 
 ## 正文
 
-专题：第五届气候投融国际研讨会 4月29-30日，“2026第五届气候投融资国际研讨会”在京举办，主题为“碳融新局·筑绿未来”。
+中新网南宁4月10日电 (陈秋霞 黎永军)广西持续推进跨境金融创新，提升跨境金融服务水平，与东盟金融合作展现出旺盛活力。
 
-中国银行党委委员、副行长武剑出席并致辞。
+中国农业银行广西壮族自治区分行10日披露，该分行2025年以来累计完成跨境人民币结算量143.2亿元(人民币，下同)，同比增长6.1%，其中，2025年跨境人民币业务量同比增长186.42%。
 
-武剑谈到，当前，全球气候治理迈入务实发展的新阶段，各国进一步明确了加快减排和适应气候变化的任务目标，绿色低碳转型已由全球共识落地为具体的行动。
+中国农业银行广西壮族自治区分行副行长胡汉军10日在新闻通气会上介绍，该分行针对大中小企业推出差异化跨境金融服务，持续加大国际业务信用支持力度；落地中国农行首个境内外联动服务东盟工作机制，累计引入境外低成本资金为广西企业办理国际商转贷24亿元，与境外金融机构合作办理跨境资产转让业务4.82亿元。
 
-去年在联合国气候变化峰会上，中国宣布了新一轮的2035年国家自主贡献目标。
+此外，该分行拓展边境服务网络，2025年，边贸结算业务量同比增长4.4%；创新“跨境直贷+内保外贷”模式，为马中关丹产业园350万吨钢铁项目累计办理150亿元融资用信业务，支持广西企业“走出去”。
 
-“这一重要宣誓为全球气候治理注入了巨大的信心，也为气候投融资开辟了广阔的空间。
+近年来，广西跨境金融服务不断提升，面向东盟的金融开放门户优势凸显。
 
-” 他指出，纵观目前国际趋势，全球绿色低碳转型加速深化，气候治理格局深刻调整，国际气候谈判形式愈加复杂，金融与实体经济的深度融合将成为推动气候治理重要引擎。
+当地出台了中国首个省区级“人工智能+金融”实施方案，搭建中国—东盟“人工智能+金融”创新合作基地，金融机构依托基地上线多款“流水贷”系列信贷产品，支持企业融资。
 
-结合中国银行的实践经验，他从金融角度分享了几点看法。
-
-第一，在战略谋划上，气候投融资不仅是应对气候变化行动的关键支撑，更是连接资金与实体经济的桥梁。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:04 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 19:07 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 19:01 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 19:09 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 18:54 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 18:58 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 18:58 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 19:05 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 19:02 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 19:20 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 18:58 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 19:11 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 19:03 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 19:07 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 19:04 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 19:26 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 19:05 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 19:10 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 19:00 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 19:03 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 19:03 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 19:06 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 19:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 19:12 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 19:27 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 19:03 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 19:22 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 19:17 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 19:02 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/433316419.shtml)
-- 2026-06-29 19:01 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/16654.shtml)
-- 2026-06-29 19:04 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/74073.shtml)
-- 2026-06-29 19:07 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/90068188.shtml)
-- 2026-06-29 19:22 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/091598611.shtml)
-- 2026-06-29 18:55 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/4875454.shtml)
-- 2026-06-29 18:58 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/832682802.shtml)
-- 2026-06-29 19:23 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/571655.shtml)
-- 2026-06-29 19:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/878521232813.shtml)
-- 2026-06-29 19:09 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/349355808.shtml)
-- 2026-06-29 19:05 - [四川达州发生一起交通事故致2死](http://www.share.kurohicncr.top/Article/details/568273.shtml)
-- 2026-06-29 18:58 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/1136980.shtml)
-- 2026-06-29 19:22 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/0778126.shtml)
-- 2026-06-29 19:20 - [一生一世](http://www.share.minike.top/Article/details/3413940789.shtml)
-- 2026-06-29 19:11 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/416405126888.shtml)
+- 2026-06-29 19:21 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/200698140148.shtml)
+- 2026-06-29 19:26 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/259197054550.shtml)
+- 2026-06-29 19:21 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/5603994447.shtml)
+- 2026-06-29 19:24 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/634931528408.shtml)
+- 2026-06-29 19:01 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/5793840818.shtml)
+- 2026-06-29 19:04 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/086093797135.shtml)
+- 2026-06-29 19:17 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/720162373709.shtml)
+- 2026-06-29 19:29 - [法生态部长反对装空调却自己吹空调](https://www.blog.kurohicncr.top/Article/details/56208.shtml)
+- 2026-06-29 19:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/67603188.shtml)
+- 2026-06-29 19:05 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/25792254.shtml)
+- 2026-06-29 19:06 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/176210.shtml)
+- 2026-06-29 19:06 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/3209236357.shtml)
+- 2026-06-29 19:09 - [四川达州发生一起交通事故致2死](http://www.blog.kurohicncr.top/Article/details/3529247618.shtml)
+- 2026-06-29 19:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/88838.shtml)
+- 2026-06-29 19:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/325987.shtml)
