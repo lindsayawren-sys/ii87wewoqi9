@@ -1,56 +1,61 @@
-# 业绩下滑“踩刹车”！白酒板块创年内最大周涨幅，市场激辩“筑底信号”：拐点真的来了吗？
+# 凌晨，全线下跌！美联储，突传重磅！
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 转自：金融投资报 金融投资报记者 林珂 白酒周期调整的寒气仍在，但当前市场却依稀嗅到了一丝暖意。 营收与净利降幅显著收窄，多家公司增速转正，市场对于白酒行业拐点的关注热度也因此水涨船高。近期，多家机构关于“筑底信号”“L型复苏”“估值修复”等方面的探讨逐步增多。二级市场则是闻风而动，白酒指数于上周一举大涨5.8%，创下9
+超级风暴突袭美股科技股。 昨夜今晨，受美债收益率飙升影响，美股科技股持续遭遇抛售，纳指盘中一度跌近1.5%，多只大型科技股重挫。美股盘中，美国30年期国债收益率一度升至5.194%，续创2007年以来最高水平。美债30年期收益率上一次达到这一水平还是在2007年全球金融危机爆发前夕。 受此影响，市场对美联储加息预期持续升温，芝商所的“美联储观察”工具显示，目前市场认为美联储20
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 转自：金融投资报 金融投资报记者 林珂 白酒周期调整的寒气仍在，但当前市场却依稀嗅到了一丝暖意。
+超级风暴突袭美股科技股。
 
-营收与净利降幅显著收窄，多家公司增速转正，市场对于白酒行业拐点的关注热度也因此水涨船高。
+昨夜今晨，受美债收益率飙升影响，美股科技股持续遭遇抛售，纳指盘中一度跌近1.5%，多只大型科技股重挫。
 
-近期，多家机构关于“筑底信号”“L型复苏”“估值修复”等方面的探讨逐步增多。
+美股盘中，美国30年期国债收益率一度升至5.194%，续创2007年以来最高水平。
 
-二级市场则是闻风而动，白酒指数于上周一举大涨5.8%，创下9个月以来的单周最大涨幅。
+美债30年期收益率上一次达到这一水平还是在2007年全球金融危机爆发前夕。
 
-白酒行业业绩初现向好变化 业绩降幅收窄，被业内视为行业出现向好变化的关键因素之一。
+受此影响，市场对美联储加息预期持续升温，芝商所的“美联储观察”工具显示，目前市场认为美联储2026年年内加息的概率已接近60%。
 
-据统计，2026年一季度，上市白酒企业累计实现营业收入超过1300亿元，同比降幅不足1%；实现归母净利润超过500亿元，同比降幅不足2%。
+中东局势方面，据央视新闻报道，美国总统特朗普当地时间5月19日表示，美方可能不得不对伊朗“再予以一击”，目前尚不确定。
 
-板块营收、净利润依旧同比双降，但对比2025年全年营收下滑18%、净利润下滑24%的业绩表现，一季度降幅显著收窄。
+美国副总统万斯表示，美国与伊朗之间的直接谈判已在建立沟通渠道和推动外交进程方面取得“很大进展”，但他拒绝透露当前幕后磋商的具体内容。
 
-单看行业公司，贵州茅台作为白酒行业的龙头，虽然2025年出现营收与净利“双降”，但2026年开年业绩便逐步企稳，营收同比增长6.33%，净利增速同样转正，同比增长1.47%。
+美债风暴来袭 美东时间5月19日，美股三大指数集体走低，其中标普500指数、纳指连跌三个交易日，截至收盘，道指跌0.65%，标普500指数跌0.67%，纳指跌0.84%。
 
 ## 相关推荐
 
-- 2026-06-30 07:16 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 07:14 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 06:55 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 07:07 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-30 06:54 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 07:02 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 07:01 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-30 07:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 06:53 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 06:53 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 07:11 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 06:54 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 06:56 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-30 07:15 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 06:59 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 06:57 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 07:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 07:22 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 07:12 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 07:16 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 07:06 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 07:18 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 07:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 07:18 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 07:09 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:58 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/718151001652.shtml)
-- 2026-06-30 06:52 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/099111014.shtml)
-- 2026-06-30 07:13 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/310411666.shtml)
-- 2026-06-30 07:06 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/308986889.shtml)
-- 2026-06-30 07:05 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/49496.shtml)
-- 2026-06-30 07:05 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/9060217.shtml)
-- 2026-06-30 07:12 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/71974.shtml)
-- 2026-06-30 07:10 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/00684011541.shtml)
-- 2026-06-30 06:58 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/71848714.shtml)
-- 2026-06-30 07:16 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/29238194732.shtml)
-- 2026-06-30 07:13 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/4294006.shtml)
-- 2026-06-30 07:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/8382447.shtml)
-- 2026-06-30 06:56 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/93302208024.shtml)
-- 2026-06-30 07:12 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/7449375240.shtml)
-- 2026-06-30 06:55 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/661667.shtml)
+- 2026-06-30 07:09 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/012935027.shtml)
+- 2026-06-30 07:14 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/26704.shtml)
+- 2026-06-30 06:56 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/3577846264.shtml)
+- 2026-06-30 07:05 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/4141477477.shtml)
+- 2026-06-30 07:02 - [斛珠夫人](https://www.blog.minike.top/Article/details/65854098761.shtml)
+- 2026-06-30 07:12 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/1152112.shtml)
+- 2026-06-30 07:16 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/5168903.shtml)
+- 2026-06-30 07:01 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/646858658.shtml)
+- 2026-06-30 07:05 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/267875516219.shtml)
+- 2026-06-30 07:21 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/32703.shtml)
+- 2026-06-30 07:15 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/6613481.shtml)
+- 2026-06-30 06:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/2733274.shtml)
+- 2026-06-30 07:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/53594064308.shtml)
+- 2026-06-30 07:05 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/543244.shtml)
+- 2026-06-30 07:07 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/106473.shtml)

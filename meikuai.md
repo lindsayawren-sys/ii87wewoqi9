@@ -1,57 +1,56 @@
-# 莫斯科欢迎中国游客：数百名中文导游、餐厅也有中文菜单
+# 华安基金：险资加仓高股息板块，港股央企红利迎配置窗口
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新网北京6月3日电(记者 苏婧欣)“莫斯科有数百名导游会说中文，许多餐厅也提供中文菜单，这样可以方便我们的中国游客。”2日晚，俄罗斯莫斯科市旅游委员会主席叶夫根尼·科兹洛夫在“莫斯科市旅游推介会”上表示，莫斯科的旅游服务正在适应中国游客的需求。 2026世界旅游城市联合会北京香山旅游峰会6月2日在北京开幕。当晚，由俄罗斯莫斯科市旅游委员会主办的“莫斯科市旅游推介会”在北京友谊
+行情回顾及主要观点： 港股方面，上周恒生港股通中国央企红利指数下跌1.80%，恒生指数下跌1.44%，恒生科技指数下跌3.09%。A股方面，上周中证国企红利指数下跌1.42%，沪深300下跌0.19%。（数据来源：Wind，截至2026/5/15，均为对应全收益指数的收益率） 2026年一季度保险资金运用数据显示，在权益市场震荡调整中，险资逆势提升权益占比，高股息板块获连续净增
 
 ## 正文
 
-中新网北京6月3日电(记者 苏婧欣)“莫斯科有数百名导游会说中文，许多餐厅也提供中文菜单，这样可以方便我们的中国游客。
+行情回顾及主要观点： 港股方面，上周恒生港股通中国央企红利指数下跌1.80%，恒生指数下跌1.44%，恒生科技指数下跌3.09%。
 
-”2日晚，俄罗斯莫斯科市旅游委员会主席叶夫根尼·科兹洛夫在“莫斯科市旅游推介会”上表示，莫斯科的旅游服务正在适应中国游客的需求。
+A股方面，上周中证国企红利指数下跌1.42%，沪深300下跌0.19%。
 
-2026世界旅游城市联合会北京香山旅游峰会6月2日在北京开幕。
+（数据来源：Wind，截至2026/5/15，均为对应全收益指数的收益率） 2026年一季度保险资金运用数据显示，在权益市场震荡调整中，险资逆势提升权益占比，高股息板块获连续净增持，反映出中长期资金对稳定现金流资产的配置偏好持续强化。
 
-当晚，由俄罗斯莫斯科市旅游委员会主办的“莫斯科市旅游推介会”在北京友谊饭店举办。
+与此同时，恒生港股通中国央企红利指数凭借其在银行、公用事业、交通运输等领域的央企权重，与险资低估值、高股息、久期匹配的配置需求高度契合。
 
-俄罗斯驻华大使馆公使衔参赞安德烈·波瓦利亚叶夫特别提到了北京友谊饭店的意义。
+在当前低利率与地缘风险交织的宏观环境下，港股央企红利资产的战略配置价值正进一步凸显。
 
-“这里曾是来华援助新中国建设的苏联专家的家，这种友好的传统在新时代得到了传承。
+险资逆市加仓，高股息板块获集中配置。
 
-”他说，在两国元首的战略引领下，俄中新时代全面战略协作伙伴关系行稳致远，每年都有成千上万的游客跨越国界，领略彼此的旅游魅力。
+2026年一季度，保险资金运用余额达39.4万亿元，较年初增长2.5%。
 
-科兹洛夫说，莫斯科与北京非常相似，都拥有深厚的历史底蕴，并且同样执着于追求更加美好的未来。
+险资“股票+基金”合计余额仍较年初增加2010亿元，其中股票增加1024亿元，基金增加986亿元。
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 07:10 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 07:10 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 07:08 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 06:54 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 06:49 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 06:58 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 06:48 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 07:01 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 07:16 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 06:50 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 07:13 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 07:14 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 06:59 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 07:02 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 07:16 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 07:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 07:21 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 07:08 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 07:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 06:57 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:54 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/675475.shtml)
-- 2026-06-30 07:12 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/0881346.shtml)
-- 2026-06-30 07:09 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/0290249818.shtml)
-- 2026-06-30 06:54 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/68556346993.shtml)
-- 2026-06-30 07:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/9008956.shtml)
-- 2026-06-30 07:16 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/026802.shtml)
-- 2026-06-30 07:12 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/57016039.shtml)
-- 2026-06-30 07:02 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/94993708.shtml)
-- 2026-06-30 06:59 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/237017.shtml)
-- 2026-06-30 07:09 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/224308898823.shtml)
-- 2026-06-30 07:00 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/750743.shtml)
-- 2026-06-30 07:17 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/29666813.shtml)
-- 2026-06-30 07:01 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/414878734939.shtml)
-- 2026-06-30 07:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/30410731189.shtml)
-- 2026-06-30 07:10 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/89626148107.shtml)
+- 2026-06-30 07:01 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/91720056424.shtml)
+- 2026-06-30 07:16 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/2989145.shtml)
+- 2026-06-30 06:56 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/319402908.shtml)
+- 2026-06-30 06:55 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/9480504.shtml)
+- 2026-06-30 07:04 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/2478637747.shtml)
+- 2026-06-30 07:14 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/672607577.shtml)
+- 2026-06-30 07:22 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/03679.shtml)
+- 2026-06-30 06:58 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/182575637871.shtml)
+- 2026-06-30 07:05 - [美股](http://www.blog.kurohicncr.top/Article/details/4223824.shtml)
+- 2026-06-30 06:59 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/1810505078.shtml)
+- 2026-06-30 07:02 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/740498118.shtml)
+- 2026-06-30 07:12 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/000301.shtml)
+- 2026-06-30 07:07 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/073674183000.shtml)
+- 2026-06-30 07:21 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/736233113065.shtml)
+- 2026-06-30 07:13 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/8780593.shtml)

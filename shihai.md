@@ -1,56 +1,61 @@
-# 东北亚具身智能创新中心在沈阳正式运营
+# 刚果（金）埃博拉疫情扩散 疑似死亡病例达118例
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新网沈阳6月2日电 (记者 李晛 赵桂华)6月2日，2026沈阳机器人大会具身智能产学研融合与产业赋能论坛，在沈阳市浑南区举办。 论坛现场完成了沈阳市具身智能专家委员会成立、联创实验室达成战略合作等一系列关键落地动作，标志着东北亚具身智能创新中心正式投入运营，覆盖技术研发、人才培养、产业转化到场景应用的全链条创新生态正式启动。 东北亚具身智能创新中心由沈阳产业投资集团与浑南区
+中新社北京5月19日电 据刚果(金)媒体报道，该国东部伊图里省暴发的新一轮埃博拉疫情仍在扩散。刚果(金)新闻和媒体部长兼政府发言人穆亚亚当地时间18日表示，目前已报告疑似死亡病例118例。 穆亚亚表示，这一数据来自刚卫生部。15日伊图里省疑似死亡病例为80例，三天内增加近40例；与15日相比，新增两个受影响的卫生区，疫情迅速蔓延。据英国广播公司报道，另有超过390例疑似病例。
 
 ## 正文
 
-中新网沈阳6月2日电 (记者 李晛 赵桂华)6月2日，2026沈阳机器人大会具身智能产学研融合与产业赋能论坛，在沈阳市浑南区举办。
+中新社北京5月19日电 据刚果(金)媒体报道，该国东部伊图里省暴发的新一轮埃博拉疫情仍在扩散。
 
-论坛现场完成了沈阳市具身智能专家委员会成立、联创实验室达成战略合作等一系列关键落地动作，标志着东北亚具身智能创新中心正式投入运营，覆盖技术研发、人才培养、产业转化到场景应用的全链条创新生态正式启动。
+刚果(金)新闻和媒体部长兼政府发言人穆亚亚当地时间18日表示，目前已报告疑似死亡病例118例。
 
-东北亚具身智能创新中心由沈阳产业投资集团与浑南区联合共建，定位为沈阳市具身智能创新发展公共服务平台、国家级创新平台与国际化交流平台。
+穆亚亚表示，这一数据来自刚卫生部。
 
-中心锚定具身智能领域国际前沿技术方向，以产业真实应用场景为牵引，深度融合数字技术与沈阳本土制造优势、市场优势，为机器人企业、科研院所及智慧城市建设赋能，推动沈阳市具身智能产业链上下游企业协同创新、联动发展，助力“数字沈阳、智造强市”建设。
+15日伊图里省疑似死亡病例为80例，三天内增加近40例；与15日相比，新增两个受影响的卫生区，疫情迅速蔓延。
 
-中心按照“一平台、两实验室、三中心”的总体发展格局布局建设，打造具身智能基础实验室与联合创新实验室，配套设立具身智能机器人数采中心(训练场)、人才培养认证中心与具身智能产业孵化中心。
+据英国广播公司报道，另有超过390例疑似病例。
 
-未来将围绕应用场景需求，联合本地高校开展高端人才培养与实训，同时依托沈阳产投集团的产业投资优势，为初创企业成长赋能、为龙头企业升级助力。
+此外，乌干达于15日和16日报告了2例实验室确诊病例，其中1人已经死亡，均为从刚果(金)返回人员。
 
-活动现场，东北亚具身智能创新中心展厅首次对外开放，展厅覆盖工业应用、商业服务、特种作业、本体生态等多个核心领域，包括人形机器人、协作机械臂、四足机器狗、VR交互设备等30余种多样态的创新展品集体亮相，全方位展现了沈阳具身智能产业的最新成果。
+世界卫生组织已于17日宣布，刚果(金)和乌干达出现的埃博拉疫情已构成“国际关注的突发公共卫生事件”，可能对周边国家带来传播风险。
 
-当天，沈阳市具身智能专家委员会正式宣告成立，6位来自产学研界的专家代表现场获颁聘书，为产业业态创新、跨主体协作搭建起高端智力纽带。
+此次疫情由本迪布焦型埃博拉病毒引发，是埃博拉病毒中不常见的一种，容易通过血液和其他体液，以及受污染的表面传播。
 
 ## 相关推荐
 
-- 2026-06-30 06:52 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 07:08 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 06:49 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 07:03 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-30 07:17 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 06:56 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-30 06:54 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 06:49 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 06:50 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 07:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 07:12 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 06:59 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 06:58 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 07:14 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 06:54 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 07:13 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 07:08 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 06:54 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 07:03 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 06:55 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 06:54 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 07:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-30 06:55 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 07:04 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-30 07:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:09 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/515133755442.shtml)
-- 2026-06-30 07:06 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/515073952045.shtml)
-- 2026-06-30 07:08 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/4712510870.shtml)
-- 2026-06-30 06:53 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/569775433.shtml)
-- 2026-06-30 07:01 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/30035055.shtml)
-- 2026-06-30 07:12 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/156981412396.shtml)
-- 2026-06-30 07:07 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/572509877.shtml)
-- 2026-06-30 06:53 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/811763157.shtml)
-- 2026-06-30 07:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/7144363530.shtml)
-- 2026-06-30 07:06 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/59140643213.shtml)
-- 2026-06-30 06:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/8192811.shtml)
-- 2026-06-30 07:13 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/010477.shtml)
-- 2026-06-30 07:13 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/223496.shtml)
-- 2026-06-30 07:00 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/61619842420.shtml)
-- 2026-06-30 07:05 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/930302760271.shtml)
+- 2026-06-30 07:05 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/623341924.shtml)
+- 2026-06-30 07:14 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/19016.shtml)
+- 2026-06-30 07:20 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/51876.shtml)
+- 2026-06-30 07:17 - [极限挑战第一季](http://www.share.minike.top/Article/details/175889.shtml)
+- 2026-06-30 07:23 - [庆祝中国共产党成立105周年音乐会](https://www.blog.kurohicncr.top/Article/details/22785.shtml)
+- 2026-06-30 07:16 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/6279587481.shtml)
+- 2026-06-30 07:08 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/09681.shtml)
+- 2026-06-30 07:22 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/3239291.shtml)
+- 2026-06-30 07:01 - [武磊：日本队有能力跟任何强队抗衡](http://www.blog.minike.top/Article/details/52443591401.shtml)
+- 2026-06-30 07:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/69442.shtml)
+- 2026-06-30 07:00 - [天道](https://www.share.minike.top/Article/details/41613959109.shtml)
+- 2026-06-30 07:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/3086198319.shtml)
+- 2026-06-30 06:58 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/5442959830.shtml)
+- 2026-06-30 07:07 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/44169129636.shtml)
+- 2026-06-30 07:19 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/43953308151.shtml)

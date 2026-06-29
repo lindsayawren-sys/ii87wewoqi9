@@ -1,61 +1,58 @@
-# 香港机场快线全面开通银联移动支付
+# 破壁垒、畅循环，让统一大市场活力奔涌
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-6月2日金融一线消息，据中国银联发布，银联国际今日宣布，港铁机场快线正式开通银联移动支付服务。至此，银联支付全面覆盖港铁重铁线路，为香港市民和赴港游客提供高效便捷的出行支付体验。 在香港机场快线，银联用户可通过云闪付APP扫码乘车、银联信用卡闪付通行，或使用绑定银联信用卡的Apple Pay、Huawei Pay等手机Pay产品“挥”机过闸。此外，使用云闪付APP、银联手机Pa
+好评中国·“经”彩开局｜破壁垒、畅循环，让统一大市场活力奔涌 市场监管总局近日正式印发专项行动方案，自今年5月至12月，在全系统组织开展破除妨碍统一市场和公平竞争卡点堵点专项行动，以更大力度和更实举措规范竞争秩序，力争到2026年底，废止、整合一批地方标准，基本消除地方标准造成的潜在市场分割和地方保护。 高质量发展是全面建设社会主义现代化国家的首要任务。高质量发展的一个核心特征
 
 ## 正文
 
-6月2日金融一线消息，据中国银联发布，银联国际今日宣布，港铁机场快线正式开通银联移动支付服务。
+好评中国·“经”彩开局｜破壁垒、畅循环，让统一大市场活力奔涌 市场监管总局近日正式印发专项行动方案，自今年5月至12月，在全系统组织开展破除妨碍统一市场和公平竞争卡点堵点专项行动，以更大力度和更实举措规范竞争秩序，力争到2026年底，废止、整合一批地方标准，基本消除地方标准造成的潜在市场分割和地方保护。
 
-至此，银联支付全面覆盖港铁重铁线路，为香港市民和赴港游客提供高效便捷的出行支付体验。
+高质量发展是全面建设社会主义现代化国家的首要任务。
 
-在香港机场快线，银联用户可通过云闪付APP扫码乘车、银联信用卡闪付通行，或使用绑定银联信用卡的Apple Pay、Huawei Pay等手机Pay产品“挥”机过闸。
+高质量发展的一个核心特征就是资源的高效配置。
 
-此外，使用云闪付APP、银联手机Pay搭乘机场快线，每次行程可立减2港元，为出行用户带来更多实惠。
+在割裂的市场中，劳动力、资本、技术、数据等生产要素难以向效率更高的地区和行业顺畅流动。
 
-港铁是香港主要公共交通系统，近年来，银联与港铁支付合作持续深化。
+比如，一个地方为了保护本地落后企业，设置隐性壁垒不让外地优质产品进入，结果就是本地消费者花更高的价格买更低质量的产品，本地资源被低效企业占用，而外地高效企业无法顺利扩大市场。
 
-2022年，港铁重铁（不含机场快线）正式上线云闪付APP乘车码；2024年，该线路又开通银联非接支付服务。
+这样的“内耗”和低水平重复建设，显然是经济高质量发展的绊脚石。
 
-银联成为首家同时提供扫码、闪付两种过闸方式的支付品牌。
+大国经济的优势就是内部可循环，超大规模市场是我国经济发展的内在动力、韧性和潜力所在。
 
-此次机场快线完成设备与服务升级，标志着银联在港铁重铁线路实现全域覆盖。
+规模越大的市场，越需要规范统一。
 
 ## 相关推荐
 
-- 2026-06-30 06:55 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 07:13 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 06:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 06:51 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 06:59 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 06:48 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-30 07:16 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 07:06 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-30 07:11 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 07:09 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 07:01 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 06:50 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 07:13 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 07:09 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 06:52 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 07:01 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 07:23 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 07:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 07:05 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 07:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 07:13 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 07:18 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 07:13 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 07:10 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 07:20 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 07:04 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 07:09 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:13 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/81191106.shtml)
-- 2026-06-30 07:01 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/5168429799.shtml)
-- 2026-06-30 06:50 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/92876774389.shtml)
-- 2026-06-30 07:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/4671022685.shtml)
-- 2026-06-30 06:56 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/163816190049.shtml)
-- 2026-06-30 07:02 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/0251306.shtml)
-- 2026-06-30 07:03 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/988459.shtml)
-- 2026-06-30 06:53 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/1611802.shtml)
-- 2026-06-30 07:05 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/872410089097.shtml)
-- 2026-06-30 06:53 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/29841107.shtml)
-- 2026-06-30 07:00 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/032240496363.shtml)
-- 2026-06-30 07:09 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/12730869.shtml)
-- 2026-06-30 06:59 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/11264809379.shtml)
-- 2026-06-30 07:05 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/877381247.shtml)
-- 2026-06-30 07:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/96553624448.shtml)
+- 2026-06-30 06:54 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/908062534004.shtml)
+- 2026-06-30 07:10 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/177916393.shtml)
+- 2026-06-30 07:12 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/553622460381.shtml)
+- 2026-06-30 07:19 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/41388.shtml)
+- 2026-06-30 07:18 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/8990748621.shtml)
+- 2026-06-30 06:59 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/418001067.shtml)
+- 2026-06-30 07:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/99835077.shtml)
+- 2026-06-30 06:54 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/095108496754.shtml)
+- 2026-06-30 07:02 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/6149923.shtml)
+- 2026-06-30 07:16 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/20969835468.shtml)
+- 2026-06-30 07:00 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/1610469.shtml)
+- 2026-06-30 07:02 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.minike.top/Article/details/62331104.shtml)
+- 2026-06-30 07:10 - [请回答王牌2019](http://www.share.minike.top/Article/details/375449450045.shtml)
+- 2026-06-30 07:15 - [毒液2](http://www.blog.kurohicncr.top/Article/details/241308.shtml)
+- 2026-06-30 07:23 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/948740688.shtml)

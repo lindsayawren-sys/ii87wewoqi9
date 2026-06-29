@@ -1,49 +1,44 @@
-# 中越跨境铁路物流线路进一步拓展
+# 弘阳服务于5月20日起停牌 以待刊发内幕消息
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 20:59 来源：中国新闻网 6月1日晚，一列满载青海聚氯乙烯的集装箱班列从广西凭祥站驶出，开往越南胡志明市。 据了解，该班列从青藏铁路西宁双寨物流中心始发，装载共计约1000吨聚氯乙烯，分三批次从广西凭祥铁路口岸出境，全程铁路运输约3200公里，相关货物于6月1日晚全部抵达越南。这是青海首次开行直达胡志明市的国际货运班列，也是广西依托面向东盟
+弘阳服务（01971）发布公告，应本公司要求，另诚如该公告所披露有关声称要求之事项及股东特别大会之整个议事程序及提呈决议案可能无效，本公司股份已自2025年5月20日上午9时正起于香港联合交易所有限公司暂停买卖，以待本公司就上述事项的决议案另行刊发内幕消息公告。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年06月02日 20:59 来源：中国新闻网 6月1日晚，一列满载青海聚氯乙烯的集装箱班列从广西凭祥站驶出，开往越南胡志明市。
+弘阳服务（01971）发布公告，应本公司要求，另诚如该公告所披露有关声称要求之事项及股东特别大会之整个议事程序及提呈决议案可能无效，本公司股份已自2025年5月20日上午9时正起于香港联合交易所有限公司暂停买卖，以待本公司就上述事项的决议案另行刊发内幕消息公告。
 
-据了解，该班列从青藏铁路西宁双寨物流中心始发，装载共计约1000吨聚氯乙烯，分三批次从广西凭祥铁路口岸出境，全程铁路运输约3200公里，相关货物于6月1日晚全部抵达越南。
-
-这是青海首次开行直达胡志明市的国际货运班列，也是广西依托面向东盟的区位优势，持续拓展跨境物流线路的重要突破。
-
-(制作 陈沿佑 视频来源 中国铁路南宁局集团有限公司） 责任编辑：【叶攀】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:48 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 07:16 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 07:14 - [巴拉圭进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 07:01 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 06:49 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 07:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-30 07:11 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 06:49 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 07:04 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 06:48 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 06:54 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 06:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 07:00 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 07:13 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 07:19 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 07:06 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 07:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 07:11 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 07:01 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 07:16 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 07:12 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:49 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/46374159.shtml)
-- 2026-06-30 07:14 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/54626998.shtml)
-- 2026-06-30 07:01 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/841637480.shtml)
-- 2026-06-30 06:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/1687520908.shtml)
-- 2026-06-30 06:49 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/5101829179.shtml)
-- 2026-06-30 06:51 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/837615.shtml)
-- 2026-06-30 07:16 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/797362897.shtml)
-- 2026-06-30 07:14 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/781874365688.shtml)
-- 2026-06-30 06:59 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/6934798.shtml)
-- 2026-06-30 07:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/5339276.shtml)
-- 2026-06-30 07:11 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/595032931601.shtml)
-- 2026-06-30 07:05 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/28355.shtml)
-- 2026-06-30 07:10 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/34188352089.shtml)
-- 2026-06-30 07:09 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/613288203.shtml)
-- 2026-06-30 06:49 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/1678971.shtml)
+- 2026-06-30 07:05 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/4403658247.shtml)
+- 2026-06-30 06:58 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/610344.shtml)
+- 2026-06-30 07:12 - [日本五次世界杯淘汰赛全败](https://www.share.minike.top/Article/details/2993356.shtml)
+- 2026-06-30 07:04 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/483708.shtml)
+- 2026-06-30 07:14 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/01624325.shtml)
+- 2026-06-30 07:22 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/602847.shtml)
+- 2026-06-30 07:05 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/241207801880.shtml)
+- 2026-06-30 07:12 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/692124800205.shtml)
+- 2026-06-30 07:03 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/13204.shtml)
+- 2026-06-30 07:04 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/22844.shtml)
+- 2026-06-30 07:19 - [德国巴拉圭 折磨](https://www.blog.kurohicncr.top/Article/details/7184480065.shtml)
+- 2026-06-30 07:18 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/942591494.shtml)
+- 2026-06-30 06:58 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/89814273904.shtml)
+- 2026-06-30 07:14 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/646971.shtml)
+- 2026-06-30 07:17 - [索马里女大使：想和中国一起搞事业](http://www.blog.minike.top/Article/details/9516976.shtml)

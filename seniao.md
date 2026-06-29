@@ -1,60 +1,55 @@
-# 城堡准备付费从其他对冲基金收集交易洞见 再将其纳入自身量化策略
+# 中方：对阿联酋核电站相关设施遭受袭击深表关切
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-随着业内巨头争夺市场数据和更多资金部署渠道，肯·格里芬的城堡投资正准备推出一项新计划，支付一定费用向其他对冲基金收集交易洞见，并将这些信息纳入自身量化策略。 据知情人士透露，这项新的买方“阿尔法捕捉”（alpha capture）项目将设在城堡的全球量化策略业务之下。由于所涉信息未公开，知情人士要求匿名。其中一位知情人士补充说，该项目将从具备业绩记录的外部主观交易管理人那里收集
+中新网北京5月19日电 (记者 李京泽)中国外交部发言人郭嘉昆19日主持例行记者会。 有记者提问：5月17日，一架无人机袭击了阿联酋巴拉卡核电站相关配套基础设施，中方对于针对和平核能实施的袭击行为持何立场？ 郭嘉昆：中方对阿联酋核电站相关设施遭受袭击深表关切，反对武装攻击和平核设施。中方始终认为，中东海湾各国主权、安全和领土完整都应得到切实尊重，平民和非军事目标应当得到保护。当
 
 ## 正文
 
-随着业内巨头争夺市场数据和更多资金部署渠道，肯·格里芬的城堡投资正准备推出一项新计划，支付一定费用向其他对冲基金收集交易洞见，并将这些信息纳入自身量化策略。
+中新网北京5月19日电 (记者 李京泽)中国外交部发言人郭嘉昆19日主持例行记者会。
 
-据知情人士透露，这项新的买方“阿尔法捕捉”（alpha capture）项目将设在城堡的全球量化策略业务之下。
+有记者提问：5月17日，一架无人机袭击了阿联酋巴拉卡核电站相关配套基础设施，中方对于针对和平核能实施的袭击行为持何立场？
 
-由于所涉信息未公开，知情人士要求匿名。
+郭嘉昆：中方对阿联酋核电站相关设施遭受袭击深表关切，反对武装攻击和平核设施。
 
-其中一位知情人士补充说，该项目将从具备业绩记录的外部主观交易管理人那里收集交易信号。
+中方始终认为，中东海湾各国主权、安全和领土完整都应得到切实尊重，平民和非军事目标应当得到保护。
 
-在回应置评请求时，城堡全球量化策略业务负责人Navneet Arora在声明中表示，该部门长期以来一直将量化与主观判断方法结合起来，为其策略提供依据。
+当务之急是立即全面停火止战，防止战火进一步蔓延。
 
-Arora于2013年加入城堡，担任高级量化研究员，并于2019年升任现职。
-
-“阿尔法捕捉”旨在通过海量数据以及外部人士提供的交易想法生成交易信号，并为此支付费用。
-
-该方法由Marshall Wace在二十多年前率先采用，传统上主要吸收卖方市场参与者提供的洞见，例如银行分析师的观点，但近来已演变为也从买方获取想法的项目。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:12 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 06:57 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 07:15 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 06:51 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 07:14 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 07:06 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-30 06:50 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 06:50 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 06:56 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 06:48 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 06:56 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 07:04 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 07:01 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-30 06:55 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 06:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 07:07 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 07:06 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 07:12 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 06:55 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 07:21 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 07:22 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 07:07 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 06:54 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 07:04 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 06:58 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 07:05 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 06:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:58 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/2291224.shtml)
-- 2026-06-30 07:15 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/35853684105.shtml)
-- 2026-06-30 07:11 - [金牌调解](https://www.share.minike.top/Article/details/169092.shtml)
-- 2026-06-30 07:05 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/181298479320.shtml)
-- 2026-06-30 07:00 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/485991762.shtml)
-- 2026-06-30 06:54 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/3415466339.shtml)
-- 2026-06-30 06:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/40954281716.shtml)
-- 2026-06-30 07:14 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/73711.shtml)
-- 2026-06-30 06:57 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/375101.shtml)
-- 2026-06-30 06:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/509305181733.shtml)
-- 2026-06-30 07:03 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/42044800788.shtml)
-- 2026-06-30 07:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/582525.shtml)
-- 2026-06-30 06:49 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/3084315710.shtml)
-- 2026-06-30 06:54 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/454006693237.shtml)
-- 2026-06-30 06:59 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/66823814.shtml)
+- 2026-06-30 07:03 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/70261891.shtml)
+- 2026-06-30 07:09 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/52173.shtml)
+- 2026-06-30 07:21 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/14340177929.shtml)
+- 2026-06-30 07:07 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/0360777593.shtml)
+- 2026-06-30 07:21 - [森保一致歉：世界第一目标没能实现](https://www.blog.kurohicncr.top/Article/details/1842665.shtml)
+- 2026-06-30 06:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/3609901989.shtml)
+- 2026-06-30 07:23 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/534259.shtml)
+- 2026-06-30 07:07 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/8799976.shtml)
+- 2026-06-30 07:04 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/336380.shtml)
+- 2026-06-30 06:56 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/86714027343.shtml)
+- 2026-06-30 06:57 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/185816438709.shtml)
+- 2026-06-30 06:57 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/412915792.shtml)
+- 2026-06-30 07:14 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/73488988785.shtml)
+- 2026-06-30 07:02 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/3655328.shtml)
+- 2026-06-30 07:11 - [刘念回应](http://www.share.minike.top/Article/details/6613853952.shtml)

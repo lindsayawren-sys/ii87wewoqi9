@@ -1,60 +1,60 @@
-# 跨越山海赴边疆 台州援疆干部以专业实干赋能受援地发展
+# 建设银行全力保障柳州5.2级地震灾区金融服务工作
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐6月3日电 (卿朋)从东海之滨的温岭到塔克拉玛干沙漠北缘的新疆生产建设兵团第一师阿拉尔市，第十一批台州援疆干部陈清荣，带着20余年技术研发与行政管理的复合从业积淀，助力阿拉尔发展。 身为台州市援疆指挥部产业发展与就业促进组组长、第一师阿拉尔市工信局工业科副科长，他以精准产业赋能、科创技术落地、民族温情帮扶为抓手，在边疆走出一条务实长效的援疆之路。 携技赴疆：复合型
+来源：今日建行 5月18日0时21分，广西柳州市柳南区发生5.2级地震，震源深度8千米。当日21时44分再次发生5.2级地震，震源深度8千米。 面对突发地震灾害，建设银行高度重视，第一时间统筹排查广西柳州全辖各营业网点、办公大楼、自助设备安全及运营状况，全面摸清机构受灾情况，严防次生安全风险，确保金融服务渠道安全、稳定、畅通；同时，重点聚焦柳南区太阳村镇等震中核心区域，压实片区
 
 ## 正文
 
-中新网乌鲁木齐6月3日电 (卿朋)从东海之滨的温岭到塔克拉玛干沙漠北缘的新疆生产建设兵团第一师阿拉尔市，第十一批台州援疆干部陈清荣，带着20余年技术研发与行政管理的复合从业积淀，助力阿拉尔发展。
+来源：今日建行 5月18日0时21分，广西柳州市柳南区发生5.2级地震，震源深度8千米。
 
-身为台州市援疆指挥部产业发展与就业促进组组长、第一师阿拉尔市工信局工业科副科长，他以精准产业赋能、科创技术落地、民族温情帮扶为抓手，在边疆走出一条务实长效的援疆之路。
+当日21时44分再次发生5.2级地震，震源深度8千米。
 
-携技赴疆：复合型履历夯实援疆底气 援疆之行，于陈清荣而言，是深思熟虑的使命奔赴，亦是专业能力的跨域践行。
+面对突发地震灾害，建设银行高度重视，第一时间统筹排查广西柳州全辖各营业网点、办公大楼、自助设备安全及运营状况，全面摸清机构受灾情况，严防次生安全风险，确保金融服务渠道安全、稳定、畅通；同时，重点聚焦柳南区太阳村镇等震中核心区域，压实片区相关支行主体责任，细化排查任务，实时跟踪地方灾情动态，主动融入地方抗震救灾工作大局。
 
-大学工业自动化的专业积淀，让他以电子工程师身份深耕研发一线；后续读研深造、入职外企的经历，锤炼了他成熟的项目管理能力与国际化视野。
+灾情就是命令。
 
-2011年，陈清荣返乡投身温岭开发区建设，八年深耕完成从技术研发人才到政务管理干部的精准转型，成为兼具技术素养与行政能力的复合型干部。
+建设银行广西柳州分行辖内各支行组织张富清党员突击队，通过电话、微信等方式逐一摸排受影响区域小微企业、个体工商户、农户等客户受灾情况，建立受灾主体台账，详细了解客户生产经营、资金周转及金融服务需求，针对性制定帮扶措施，全力为受灾群众和企业提供应急金融支持。
 
-2023年，依托突出的综合素养与产业工作经验，陈清荣被选定为产业援疆核心人选。
+广西某智能农机装备有限责任公司生产厂房位于震中太阳村，受此次地震冲击，企业生产被迫临时停工，生产线暂停运转，生产排布受到影响，短期生产经营、资金周转面临较大压力。
 
-抵达阿拉尔后的所见所感，让他深刻共情兵团艰苦奋斗的精神内核，与台州垦荒精神同频共振，为后续援疆工作打牢了精神根基。
+5月18日上午，柳州分行了解到企业困境后，深入对接灾后复工资金需求，开通信贷绿色审批通道，助力企业尽快复工复产。
 
-精准赋能：以产业科创激活边疆动能 立足“师市所需、台州所能”，陈清荣聚焦产业提质、科创赋能、就业富民三大核心，精准落地援疆举措。
+下一步，建行将持续密切关注震区灾情变化和灾后恢复重建进度，全力做好各项金融服务保障工作，以实际行动践行“金融为民”的初心使命，助力柳州恢复生产生活秩序。
 
 ## 相关推荐
 
-- 2026-06-30 07:17 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 07:15 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-30 07:01 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 06:58 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 06:56 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 07:07 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 06:51 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-30 07:11 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-30 06:59 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 07:05 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 06:57 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-30 06:59 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 07:18 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-30 06:54 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 07:00 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 07:15 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 07:21 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 06:56 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 07:01 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-30 07:08 - [三星投资计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 06:56 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 07:11 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 07:22 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 07:06 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 07:10 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 07:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 07:20 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 07:00 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:57 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/3837343.shtml)
-- 2026-06-30 06:54 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/40130.shtml)
-- 2026-06-30 06:59 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/65669.shtml)
-- 2026-06-30 06:57 - [我们的少年时代2](https://www.blog.minike.top/Article/details/12655320.shtml)
-- 2026-06-30 06:53 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/59110705.shtml)
-- 2026-06-30 06:49 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/61234340331.shtml)
-- 2026-06-30 07:04 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/553928120380.shtml)
-- 2026-06-30 07:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/367270092546.shtml)
-- 2026-06-30 07:11 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/94852824.shtml)
-- 2026-06-30 06:52 - [一生一世](https://www.blog.minike.top/Article/details/20077617.shtml)
-- 2026-06-30 07:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/241653398.shtml)
-- 2026-06-30 06:54 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/0318146.shtml)
-- 2026-06-30 06:53 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/91829.shtml)
-- 2026-06-30 07:08 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/96002720729.shtml)
-- 2026-06-30 07:02 - [明星大侦探第四季](https://www.share.minike.top/Article/details/3185515301.shtml)
+- 2026-06-30 07:02 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/086989.shtml)
+- 2026-06-30 07:17 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/21832.shtml)
+- 2026-06-30 07:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/84549211684.shtml)
+- 2026-06-30 07:04 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/73575371.shtml)
+- 2026-06-30 06:58 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/03603744879.shtml)
+- 2026-06-30 07:21 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/388041858.shtml)
+- 2026-06-30 07:18 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/49608452819.shtml)
+- 2026-06-30 07:12 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/056375571547.shtml)
+- 2026-06-30 07:10 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/250282416.shtml)
+- 2026-06-30 07:00 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/090990885629.shtml)
+- 2026-06-30 07:08 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/36395436.shtml)
+- 2026-06-30 07:16 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/682780253496.shtml)
+- 2026-06-30 07:16 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/40069152.shtml)
+- 2026-06-30 06:57 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/5808516.shtml)
+- 2026-06-30 07:18 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/29165241594.shtml)

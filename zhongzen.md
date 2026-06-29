@@ -1,57 +1,57 @@
-# 英伟达助推，素来节俭的美光踩中AI风口、冲刺万亿市值
+# 显卡定价尘埃落定：这家初创企业将英伟达芯片打造成稳健优质抵押资产
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-作者：斯蒂芬・内利斯 美光科技（MU）迈向万亿美元市值之路极具戏剧性：一年前，其市值仅略超 1000 亿美元。 此番股价暴涨并非源于美光一贯奉行的低成本经营策略，而是得益于英伟达临门一脚的推动，让这家美国存储芯片厂商跻身人工智能产业热潮核心赛道。 这家总部位于爱达荷州的企业数十年来靠着极致压缩建厂开支、复用二手设备、谨慎规避前沿高风险投资艰难存续。这套保守经营思路帮助公司扛过存
+人工智能热潮席卷之下，大批新建电站、芯片与数据中心相继落地，与此同时，一套更为隐性的配套金融体系也应运而生，为高价硬件资产抵押贷款业务搭建起可行渠道。 迈阿密金融科技初创公司Barkr正是搭建这套金融服务体系的企业之一，主营 AI 芯片抵押资产评估业务，目前已获得英伟达方面关注。此前笔者在旧金山主持一场围绕贷款机构如何为人工智能基建项目开展信贷审核的专题论坛时，结识了该公司首席
 
 ## 正文
 
-作者：斯蒂芬・内利斯 美光科技（MU）迈向万亿美元市值之路极具戏剧性：一年前，其市值仅略超 1000 亿美元。
+人工智能热潮席卷之下，大批新建电站、芯片与数据中心相继落地，与此同时，一套更为隐性的配套金融体系也应运而生，为高价硬件资产抵押贷款业务搭建起可行渠道。
 
-此番股价暴涨并非源于美光一贯奉行的低成本经营策略，而是得益于英伟达临门一脚的推动，让这家美国存储芯片厂商跻身人工智能产业热潮核心赛道。
+迈阿密金融科技初创公司Barkr正是搭建这套金融服务体系的企业之一，主营 AI 芯片抵押资产评估业务，目前已获得英伟达方面关注。
 
-这家总部位于爱达荷州的企业数十年来靠着极致压缩建厂开支、复用二手设备、谨慎规避前沿高风险投资艰难存续。
+此前笔者在旧金山主持一场围绕贷款机构如何为人工智能基建项目开展信贷审核的专题论坛时，结识了该公司首席执行官兼联合创始人托马斯・加尔布雷思。
 
-这套保守经营思路帮助公司扛过存储芯片行业数次剧烈的牛熊周期，在行业洗牌中熬走一众竞品，如今跻身全球三大存储巨头之列，另外两家为韩国三星电子与 SK 海力士。
+加尔布雷思所处的赛道，隶属于结构复杂的资产支持融资领域中一个十分细分的板块。
 
-但美光把存储当作大宗商品的经营思路，与英伟达的 AI 产业布局理念背道而驰。
+该公司主要为实物硬资产提供带保险背书的估值服务，评估品类涵盖汽车、艺术品、商用设备，如今也正式纳入 AI 芯片。
 
-英伟达 CEO 黄仁勋上月在媒体采访中透露，三年前他与美光 CEO 桑杰・梅赫罗特拉会面，阐述了自己对存储行业未来发展的预判。
+Barkr 本身不直接发放贷款，而是为放贷机构出具权威可信、可直接用于信贷业务的资产估值结果。
 
-黄仁勋很早就预判：除算力芯片外，存储器会成为 AI 发展关键瓶颈，倒逼美光这类厂商在技术路线与资本开支上重新规划。
+开展这项业务需要极强的底气：一旦 Barkr 估值出现偏差，借款人发生违约，相关差价损失将由该公司承担赔付。
 
-黄仁勋受访时表示：“我十分庆幸美光与英伟达最终达成全产品线技术路线协同。
+Barkr 成立于 2023 年，最初业务是为收藏级豪车、私人飞机等资产定价，方便放贷机构合理设定贷款额度。
 
 ## 相关推荐
 
-- 2026-06-30 07:03 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-30 07:07 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-30 06:56 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 07:04 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 06:59 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 06:50 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 07:06 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 07:09 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 07:17 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 07:11 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 06:52 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 07:06 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 07:12 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 07:16 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 07:11 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 07:21 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 07:07 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 07:22 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 07:05 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 07:13 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 07:14 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 07:23 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:02 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/27084210575.shtml)
-- 2026-06-30 06:49 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/397440.shtml)
-- 2026-06-30 07:06 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/022503462790.shtml)
-- 2026-06-30 07:15 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/91557839923.shtml)
-- 2026-06-30 07:01 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/96356508542.shtml)
-- 2026-06-30 07:05 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/734519.shtml)
-- 2026-06-30 07:13 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/4868224947.shtml)
-- 2026-06-30 06:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/651271.shtml)
-- 2026-06-30 06:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/5857075940.shtml)
-- 2026-06-30 06:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/159129.shtml)
-- 2026-06-30 07:17 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/58972971.shtml)
-- 2026-06-30 07:04 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/597107.shtml)
-- 2026-06-30 07:02 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/71560.shtml)
-- 2026-06-30 06:52 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/83679.shtml)
-- 2026-06-30 07:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/940605934.shtml)
+- 2026-06-30 07:13 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/84465718225.shtml)
+- 2026-06-30 07:08 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/2091250.shtml)
+- 2026-06-30 07:12 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/5494009518.shtml)
+- 2026-06-30 07:19 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/703703093697.shtml)
+- 2026-06-30 07:01 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/641529317.shtml)
+- 2026-06-30 06:55 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/59451.shtml)
+- 2026-06-30 07:04 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/39109.shtml)
+- 2026-06-30 07:19 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/0826314.shtml)
+- 2026-06-30 07:00 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/48421293467.shtml)
+- 2026-06-30 07:02 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/780192.shtml)
+- 2026-06-30 06:59 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/679132534167.shtml)
+- 2026-06-30 07:09 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/38815603.shtml)
+- 2026-06-30 07:05 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/857158406.shtml)
+- 2026-06-30 07:01 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/9953138140.shtml)
+- 2026-06-30 07:22 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/766757335.shtml)

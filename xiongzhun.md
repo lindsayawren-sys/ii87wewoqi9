@@ -1,58 +1,55 @@
-# 中国—东盟人工智能创新合作研修班启动
+# 贝森特敦促七国集团协助美国打击伊朗资金渠道
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新网南宁6月2日电(黄令妍 韦天聪)6月1日，由广西国际博览事务局(中国—东盟博览会秘书处)承办的中国—东盟人工智能创新合作研修班在南宁启动。来自文莱、柬埔寨、老挝、马来西亚、泰国5个东盟国家的28名学员跨越山海，共同开启人工智能创新合作的学习之旅。 中国—东盟博览会秘书处秘书长王继才表示，当前，人工智能正以前所未有的速度重塑产业格局，重构经济形态，也为中国—东盟合作注入新动
+核心要点 美国财政部长斯科特・贝森特于周二在七国集团会议上呼吁各国领导人协同美国，斩断支撑伊朗相关恐怖活动的资金链条，合力打击相关势力。 贝森特在巴黎举办的 “杜绝恐怖融资” 会议上发表讲话，出台一套全新准则，推动实施强硬且精准定向的制裁措施。 2026 年 5 月 18 日，美国财政部长斯科特・贝森特抵达巴黎，出席七国集团财长与央行行长会议，为同年 6 月在埃维昂举行的七国集
 
 ## 正文
 
-中新网南宁6月2日电(黄令妍 韦天聪)6月1日，由广西国际博览事务局(中国—东盟博览会秘书处)承办的中国—东盟人工智能创新合作研修班在南宁启动。
+核心要点 美国财政部长斯科特・贝森特于周二在七国集团会议上呼吁各国领导人协同美国，斩断支撑伊朗相关恐怖活动的资金链条，合力打击相关势力。
 
-来自文莱、柬埔寨、老挝、马来西亚、泰国5个东盟国家的28名学员跨越山海，共同开启人工智能创新合作的学习之旅。
+贝森特在巴黎举办的 “杜绝恐怖融资” 会议上发表讲话，出台一套全新准则，推动实施强硬且精准定向的制裁措施。
 
-中国—东盟博览会秘书处秘书长王继才表示，当前，人工智能正以前所未有的速度重塑产业格局，重构经济形态，也为中国—东盟合作注入新动力。
+2026 年 5 月 18 日，美国财政部长斯科特・贝森特抵达巴黎，出席七国集团财长与央行行长会议，为同年 6 月在埃维昂举行的七国集团国家元首及政府首脑峰会做筹备。
 
-中国—东盟自贸区3.0版即将实施，双方人工智能合作前景广阔。
+贝森特表示：“美国正全力打击敌对势力用于实施恐怖活动的金融网络，我方相信各位出席此次会议，意味着愿意全力与美国并肩行动。
 
-中国—东盟博览会已举办22届，搭建双边合作的重要平台，也开展了一系列面向东盟的研修培训项目，包括中国—东盟青年领军者成长计划研修班、中国—东盟农产品电商贸易研修班、中国—东盟东部增长区电子商务(新业态)研修班等，受到东盟国家参训学员的广泛好评。
+” 他提出具体行动要求：“这就需要欧洲盟友与美国统一行动，针对伊朗采取一系列举措，认定其资金融通相关人员、清查空壳公司与掩护企业、关停相关银行分支机构、瓦解其代理势力。
 
-老挝科技与通信部国家信息中心副主任瓦拉赛·达拉莱作为学员代表发言。
+” “简言之，倘若各国同样对伊朗破坏地区稳定的行径、企图挟持全球经济的恐怖分子、危害社会的贩毒集团以及威胁平民生命安全的各类行为感到愤慨，那么当下正是携手美国采取强力行动的最佳时机。
 
-他表示，人工智能已经成为推动全球发展的变革力量，中国引领人工智能研究、创新和应用场景落地，东盟各国正致力于将AI技术融入各行各业。
-
-此次研修班项目为东盟国家提供了绝佳平台，让各国学员更好地学习中国的先进经验、交流心得，有助于整体提升东盟国家人工智能运用能力。
+”责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 06:57 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 07:14 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 06:52 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 07:09 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 07:09 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 07:11 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-30 06:54 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 06:58 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-30 07:13 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 06:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 07:17 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 07:10 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 07:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 06:58 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 07:04 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 07:13 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 07:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 07:20 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 07:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 07:12 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 07:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 06:55 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 07:15 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:59 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/11331611.shtml)
-- 2026-06-30 07:05 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/1401295589.shtml)
-- 2026-06-30 06:59 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/8912409.shtml)
-- 2026-06-30 07:08 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/874723824.shtml)
-- 2026-06-30 07:08 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.minike.top/Article/details/365242.shtml)
-- 2026-06-30 07:08 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/49272942957.shtml)
-- 2026-06-30 07:03 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/483491458.shtml)
-- 2026-06-30 06:54 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/84186545.shtml)
-- 2026-06-30 06:54 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/947560711.shtml)
-- 2026-06-30 07:10 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/54811663687.shtml)
-- 2026-06-30 07:02 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/383376411.shtml)
-- 2026-06-30 06:59 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/4967009.shtml)
-- 2026-06-30 07:06 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/239939.shtml)
-- 2026-06-30 06:48 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/058538.shtml)
-- 2026-06-30 06:56 - [一生一世](https://www.blog.kurohicncr.top/Article/details/93450255.shtml)
+- 2026-06-30 07:11 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/334027610267.shtml)
+- 2026-06-30 07:22 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/32628145553.shtml)
+- 2026-06-30 07:01 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/5226665.shtml)
+- 2026-06-30 07:21 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/347303.shtml)
+- 2026-06-30 07:22 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/7956641.shtml)
+- 2026-06-30 07:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/1355276706.shtml)
+- 2026-06-30 07:09 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/7743302000.shtml)
+- 2026-06-30 07:17 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/96356590.shtml)
+- 2026-06-30 07:14 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/009334.shtml)
+- 2026-06-30 06:55 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/912548.shtml)
+- 2026-06-30 06:54 - [起风了](https://www.share.minike.top/Article/details/5364305.shtml)
+- 2026-06-30 06:58 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/9926103.shtml)
+- 2026-06-30 07:10 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/108635.shtml)
+- 2026-06-30 07:01 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/2133537964.shtml)
+- 2026-06-30 07:01 - [世界杯](http://www.share.minike.top/Article/details/8902227196.shtml)

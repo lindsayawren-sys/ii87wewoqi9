@@ -1,57 +1,57 @@
-# 中国个体劳动者协会发布服务个体工商户发展十大典型案例
+# Mango创始人之子被捕 昔日徒步坠亡案重启调查
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新网6月2日电 据“市说新语”微信公众号消息，近年来，各级个体劳动者私营企业协会在市场监管部门的指导下，认真贯彻落实党中央、国务院决策部署，积极为个体工商户解难题办实事、创造发展条件、提升发展质量。为展示工作成效，树立工作典范，推动提升服务水平，近日，中国个体劳动者协会发布个私协会系统服务个体工商户发展十大典型案例。1.河北省：开展数字化赋能个私企业行活动 河北省个体劳动者协
+据调查相关知情人士透露，西班牙警方已将时尚品牌Mango的亿万富豪创始人之子逮捕，围绕其父亲死亡事件展开调查。 据一位参与调查的警官称，乔纳森・安迪奇于周二在家中被捕，目前被关押在巴塞罗那西北部的一个警局，地点靠近其父亲出事地。 2024年12月，71岁的伊萨克・安迪奇在蒙特塞拉特山区与儿子徒步时，从超过300英尺（约90米）高处坠落身亡，事发时父子二人独处。 安迪奇家族发言人
 
 ## 正文
 
-中新网6月2日电 据“市说新语”微信公众号消息，近年来，各级个体劳动者私营企业协会在市场监管部门的指导下，认真贯彻落实党中央、国务院决策部署，积极为个体工商户解难题办实事、创造发展条件、提升发展质量。
+据调查相关知情人士透露，西班牙警方已将时尚品牌Mango的亿万富豪创始人之子逮捕，围绕其父亲死亡事件展开调查。
 
-为展示工作成效，树立工作典范，推动提升服务水平，近日，中国个体劳动者协会发布个私协会系统服务个体工商户发展十大典型案例。
+据一位参与调查的警官称，乔纳森・安迪奇于周二在家中被捕，目前被关押在巴塞罗那西北部的一个警局，地点靠近其父亲出事地。
 
-1.河北省：开展数字化赋能个私企业行活动 河北省个体劳动者协会开展以“数字赋能·冀企腾飞”为主题的数字化赋能个私企业行活动，帮助个体私营企业紧跟数字化转型步伐，稳步实现提质增效、可持续发展。
+2024年12月，71岁的伊萨克・安迪奇在蒙特塞拉特山区与儿子徒步时，从超过300英尺（约90米）高处坠落身亡，事发时父子二人独处。
 
-联手平台企业以全覆盖模式开展培训，为个体私营企业提供系统化运营支撑。
+安迪奇家族发言人表示，乔纳森是无辜的，并会全力配合调查。
 
-提供“一对一”解决方案，助力个体私营企业“广开源”“促转化”“稳客户”。
+发言人强调：“目前没有任何合法的罪证指向他，未来也不会找到。
 
-聚焦“县域特色产业集群+传统产业转型”双轮驱动，打造“一县一标杆、一业一方案”数字化应用场景。
+” 这起事件让西班牙最富有家族之一及其掌控的快时尚商业帝国受到外界高度关注。
 
-活动覆盖全省11个地市、1200余家企业，为个体私营经济高质量发展注入强劲数字动能。
+据《福布斯》数据，伊萨克・安迪奇去世时身家约45亿美元。
 
-2.内蒙古自治区：以品牌为笔 绘“名特优新”蝶变画卷 内蒙古自治区个体私营企业协会以“亮丽北疆·名特优新”品牌赋能计划为抓手，助力个体工商户提升竞争力。
+1984年，他在巴塞罗那开出第一家门店，将Mango发展为拥有数千家门店、年销售额数十亿美元的国际零售品牌。
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 07:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 07:07 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 06:48 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 07:04 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 06:52 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 07:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 06:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 07:04 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 07:17 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 06:49 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 07:02 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 06:58 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 07:15 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 07:13 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 06:58 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 07:10 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 06:57 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 07:04 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 07:02 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 07:11 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 07:08 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:54 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/1541605.shtml)
-- 2026-06-30 07:15 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/300818.shtml)
-- 2026-06-30 07:14 - [日本领先巴西](https://www.share.minike.top/Article/details/553216779.shtml)
-- 2026-06-30 06:51 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/597655.shtml)
-- 2026-06-30 06:48 - [起风了](https://www.blog.kurohicncr.top/Article/details/7872560048.shtml)
-- 2026-06-30 07:14 - [小娘惹](http://www.share.minike.top/Article/details/551868848159.shtml)
-- 2026-06-30 06:49 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/248536067248.shtml)
-- 2026-06-30 06:50 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/1681476.shtml)
-- 2026-06-30 06:58 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/6365939.shtml)
-- 2026-06-30 07:07 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/1921520.shtml)
-- 2026-06-30 06:53 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/7115196.shtml)
-- 2026-06-30 07:06 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/01957.shtml)
-- 2026-06-30 07:06 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/302466271.shtml)
-- 2026-06-30 06:55 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/65544082.shtml)
-- 2026-06-30 07:15 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/58303393890.shtml)
+- 2026-06-30 06:55 - [日本五次世界杯淘汰赛全败](http://www.blog.minike.top/Article/details/45448141.shtml)
+- 2026-06-30 07:04 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/68048.shtml)
+- 2026-06-30 07:01 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/04034.shtml)
+- 2026-06-30 07:00 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/131365479.shtml)
+- 2026-06-30 07:11 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/904107837.shtml)
+- 2026-06-30 07:05 - [索马里女大使：想和中国一起搞事业](http://www.blog.minike.top/Article/details/55389397351.shtml)
+- 2026-06-30 06:58 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/844865209.shtml)
+- 2026-06-30 06:58 - [乔家的儿女](http://www.blog.minike.top/Article/details/08927846755.shtml)
+- 2026-06-30 06:56 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/04282.shtml)
+- 2026-06-30 06:56 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/22419.shtml)
+- 2026-06-30 07:16 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/413490.shtml)
+- 2026-06-30 07:01 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/404441.shtml)
+- 2026-06-30 07:13 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/6673345.shtml)
+- 2026-06-30 07:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/26048420071.shtml)
+- 2026-06-30 07:13 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/5958010.shtml)

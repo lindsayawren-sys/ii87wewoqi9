@@ -1,44 +1,58 @@
-# 伊朗媒体发布最高领袖照片
+# 期待物业公司找回“服务”初心
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新网6月2日电 伊朗塔斯尼姆通讯社当地时间6月1日深夜在社交媒体平台发布一张照片，并配文称“伊朗最高领袖穆杰塔巴·哈梅内伊鲜少人知的照片”。 帖文中没说明这张照片于何时何地拍摄。
+本报记者 张守坤 前不久，河南的赵女士发现，每逢下雨自家阳台就漏水严重，墙面还出现多处裂缝，其中一侧返潮渗水情况尤为明显。她随即线下向物业公司反映问题。 第一次反馈时，物业工作人员只登记了相关情况；两天后赵女士再次询问，客服称已经上报，但维修时间未定；又过一天，赵女士直接找到物业工程部，工作人员却把维修时间推到下个月，还无法保证能彻底修好。 赵女士多次联系，希望物业公司派人先上
 
 ## 正文
 
-中新网6月2日电 伊朗塔斯尼姆通讯社当地时间6月1日深夜在社交媒体平台发布一张照片，并配文称“伊朗最高领袖穆杰塔巴·哈梅内伊鲜少人知的照片”。
+本报记者 张守坤 前不久，河南的赵女士发现，每逢下雨自家阳台就漏水严重，墙面还出现多处裂缝，其中一侧返潮渗水情况尤为明显。
 
-帖文中没说明这张照片于何时何地拍摄。
+她随即线下向物业公司反映问题。
+
+第一次反馈时，物业工作人员只登记了相关情况；两天后赵女士再次询问，客服称已经上报，但维修时间未定；又过一天，赵女士直接找到物业工程部，工作人员却把维修时间推到下个月，还无法保证能彻底修好。
+
+赵女士多次联系，希望物业公司派人先上门查看现场情况，都被对方以“上门看了也没用，要等上报公司、专人到场才行”为由搪塞推托。
+
+随后，赵女士拨打市民热线反映了情况，第二天，物业公司就派人上门查看，并给出了解决方案。
+
+“不投诉就不回复，物业公司为什么不能积极跟进呢？
+
+”赵女士对此感到十分困惑。
+
+赵女士的遭遇并非个例。
 
 ## 相关推荐
 
-- 2026-06-30 06:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 07:02 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 07:01 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-30 07:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 06:59 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-30 07:10 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 07:12 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 06:52 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 07:09 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 07:02 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 07:12 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 07:18 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 07:18 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 07:06 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 07:00 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-30 07:16 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 07:08 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 06:56 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 06:55 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 07:19 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 06:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 07:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:13 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/011668.shtml)
-- 2026-06-30 07:04 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/884833743135.shtml)
-- 2026-06-30 07:12 - [哈弗茨头球破门](https://www.share.kurohicncr.top/Article/details/47014.shtml)
-- 2026-06-30 07:05 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/929931.shtml)
-- 2026-06-30 07:08 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/4430305177.shtml)
-- 2026-06-30 07:13 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/09140746985.shtml)
-- 2026-06-30 07:07 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/59865199934.shtml)
-- 2026-06-30 07:16 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/3375554.shtml)
-- 2026-06-30 06:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/8595280.shtml)
-- 2026-06-30 06:52 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/087557.shtml)
-- 2026-06-30 07:10 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/31278917.shtml)
-- 2026-06-30 07:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/826658369.shtml)
-- 2026-06-30 07:10 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/148093.shtml)
-- 2026-06-30 07:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/55989894.shtml)
-- 2026-06-30 07:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/3688722.shtml)
+- 2026-06-30 06:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/503001953.shtml)
+- 2026-06-30 07:13 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/81000.shtml)
+- 2026-06-30 07:01 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/312524.shtml)
+- 2026-06-30 07:14 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/028040747254.shtml)
+- 2026-06-30 07:23 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/03497912.shtml)
+- 2026-06-30 07:11 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/601229.shtml)
+- 2026-06-30 07:03 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/43206113.shtml)
+- 2026-06-30 07:01 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/246508987.shtml)
+- 2026-06-30 07:00 - [一生一世](https://www.blog.minike.top/Article/details/323297.shtml)
+- 2026-06-30 06:59 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/61368455.shtml)
+- 2026-06-30 07:10 - [天道](http://www.blog.minike.top/Article/details/577953.shtml)
+- 2026-06-30 07:02 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/76887428.shtml)
+- 2026-06-30 07:23 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/8752636940.shtml)
+- 2026-06-30 07:22 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/028414965.shtml)
+- 2026-06-30 07:08 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/87317518474.shtml)

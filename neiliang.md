@@ -1,44 +1,58 @@
-# 今年汛期暴雨态势 “趋多 趋强 趋广”
+# 工商银行原首席技术官吕仲涛：智能体将成为未来银行的核心基础设施
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 10:48 来源：央视新闻 责任编辑：【王祎】
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 红星资本局5月19日消息，今日，在成都举行的2026清华五道口全球金融论坛之“金融监管新挑战：绿色、数字与人工智能”主题论坛上，中国工商银行原首席技术官吕仲涛表示，AI正驱动金融业迎来企业与效能的双重深度变革，智能体将成为未来银行的核心基础设施，正推动银行从3.0的开放银行迈向4.0的智能体银行，对内重塑组织形
 
 ## 正文
 
-发布时间：2026年06月02日 10:48 来源：央视新闻 责任编辑：【王祎】
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 红星资本局5月19日消息，今日，在成都举行的2026清华五道口全球金融论坛之“金融监管新挑战：绿色、数字与人工智能”主题论坛上，中国工商银行原首席技术官吕仲涛表示，AI正驱动金融业迎来企业与效能的双重深度变革，智能体将成为未来银行的核心基础设施，正推动银行从3.0的开放银行迈向4.0的智能体银行，对内重塑组织形态，对外提供更加普惠便利的服务。
+
+吕仲涛称，AI智能体实现了从“看、说、想”的认知能力向“自主决策、协同执行”的行动能力跨越，正成为企业落地的核心抓手。
+
+以OpenClaw为代表的开源个人智能体展现出真正做事的数字员工潜力。
+
+在吕仲涛看来，为构筑差异化的竞争壁垒，关键在于把企业专属业务知识和隐性经验沉淀为可复用的知识资产，以此拓展认知半径，让智能体在复杂任务中表现更专业，构建“人类把控核心决策、智能体精准执行”的人机互补模式。
+
+现阶段应以岗位智能体为抓手，推进“岗位+技能”建设，形成“岗位+事务”的业务闭环，全面赋能客户和员工。
+
+提及AI应用安全方面，吕仲涛指出，生成式AI蓬勃发展的同时，大模型固有的内容幻觉风险催生出提示词注入、认知规划误操作、工具投毒等多维新型安全风险。
+
+安全已成为企业AI应用的主要瓶颈。
+
+企业急需围绕智能体定位、知识工程约束、多智能体制衡、权限治理、攻防能力、全流程监控这六大方向，系统性构建可监测、可追溯、可干预、可审计的全域安全防线。
 
 ## 相关推荐
 
-- 2026-06-30 07:16 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 06:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 07:05 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 07:01 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 06:51 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 07:09 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 06:51 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 07:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-30 06:49 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 07:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 06:59 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 06:53 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 07:16 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 06:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 07:07 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 07:08 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 06:56 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 07:10 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 07:03 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 07:21 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 07:03 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 07:04 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 07:04 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 07:00 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:50 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/5600038.shtml)
-- 2026-06-30 07:00 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/2552073381.shtml)
-- 2026-06-30 06:48 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/82742447632.shtml)
-- 2026-06-30 07:00 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/962397.shtml)
-- 2026-06-30 06:49 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/97080264514.shtml)
-- 2026-06-30 06:59 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/36343076.shtml)
-- 2026-06-30 07:07 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/0051922959.shtml)
-- 2026-06-30 06:56 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/929926538937.shtml)
-- 2026-06-30 07:01 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/197456719811.shtml)
-- 2026-06-30 06:54 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/144997297618.shtml)
-- 2026-06-30 06:59 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/14617.shtml)
-- 2026-06-30 06:53 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/5275230.shtml)
-- 2026-06-30 07:01 - [刘宇宁高情商化解谁站C位](http://www.blog.minike.top/Article/details/49985.shtml)
-- 2026-06-30 06:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/5060709.shtml)
-- 2026-06-30 07:06 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/2592039.shtml)
+- 2026-06-30 07:21 - [一生一世](https://www.blog.kurohicncr.top/Article/details/10099536.shtml)
+- 2026-06-30 07:01 - [金刚川](https://www.blog.kurohicncr.top/Article/details/785043640.shtml)
+- 2026-06-30 06:55 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/58527.shtml)
+- 2026-06-30 07:11 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/8418264.shtml)
+- 2026-06-30 07:03 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/997279.shtml)
+- 2026-06-30 07:01 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/7973499744.shtml)
+- 2026-06-30 07:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/4222802096.shtml)
+- 2026-06-30 07:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/89961667524.shtml)
+- 2026-06-30 07:08 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/834706363.shtml)
+- 2026-06-30 06:55 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/786162.shtml)
+- 2026-06-30 07:03 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/6946019033.shtml)
+- 2026-06-30 07:09 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/52863492361.shtml)
+- 2026-06-30 07:20 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/92787.shtml)
+- 2026-06-30 07:04 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/4187762.shtml)
+- 2026-06-30 06:56 - [女心理师](http://www.blog.minike.top/Article/details/37029.shtml)

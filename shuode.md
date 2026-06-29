@@ -1,61 +1,58 @@
-# 比特币跌至2月以来最低水平，投资者将更多资金投向股市
+# 长江有色：19日碳酸锂价下跌 供给扰动叠加隐性库存担忧
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-比特币价格周三跌至2月以来的最低水平，其他资产类别继续吸引投资者抛售加密货币。 北京时间周三上午，比特币一度跌至65385美元，跌幅达2.3%。此前，标普500指数和纳斯达克100指数周二均创下历史新高。亚洲股市周三普遍上涨，日经225指数盘中创下历史新高。 QCP交易部门表示：“更广泛的问题是流动性轮动。随着股票市场持续跑赢加密货币，加密货币正面临资金竞争，无论是加密货币原生
+长江有色金属网 期货方面： 根据广州期货交易所数据，2026年5月19日，碳酸锂主力合约（LC2609）遭遇大幅回调。当日合约开盘于190，980元/吨，盘中一度冲高至192，120元/吨，但随后掉头向下，最低探至182，060元/吨，最终收报184，400元/吨，较前一交易日结算价下跌7，100元，单日跌幅达3.71%。全天成交344，515手，持仓量增加20，533手至44
 
 ## 正文
 
-比特币价格周三跌至2月以来的最低水平，其他资产类别继续吸引投资者抛售加密货币。
+长江有色金属网 期货方面： 根据广州期货交易所数据，2026年5月19日，碳酸锂主力合约（LC2609）遭遇大幅回调。
 
-北京时间周三上午，比特币一度跌至65385美元，跌幅达2.3%。
+当日合约开盘于190，980元/吨，盘中一度冲高至192，120元/吨，但随后掉头向下，最低探至182，060元/吨，最终收报184，400元/吨，较前一交易日结算价下跌7，100元，单日跌幅达3.71%。
 
-此前，标普500指数和纳斯达克100指数周二均创下历史新高。
+全天成交344，515手，持仓量增加20，533手至446，424手，呈现“放量增仓下跌”的格局。
 
-亚洲股市周三普遍上涨，日经225指数盘中创下历史新高。
+现货方面： 根据长江有色金属网2026年5月19日发布的最新现货行情数据，国内碳酸锂市场遭遇显著回调。
 
-QCP交易部门表示：“更广泛的问题是流动性轮动。
+当日，电池级碳酸锂（99.5%）市场均价报185，000元/吨，价格区间为180，000-190，000元/吨；工业级碳酸锂（99.2%）市场均价报182，000元/吨，价格区间为177，000-187，000元/吨。
 
-随着股票市场持续跑赢加密货币，加密货币正面临资金竞争，无论是加密货币原生投资者还是传统资产管理公司，都被更强劲的股票投资前景所吸引。
+两者均较前一交易日下跌5，500元/吨，日跌幅分别高达约2.89%与2.93%。
 
-” QCP表示，投资者可能正在释放比特币的流动性，以寻求在私募市场或SpaceX、OpenAI和Anthropic等公司的首次公开募股（IPO）机会。
+从供给端审视，市场正面临“海外扰动”与“国内约束”的双重挤压。
 
-尤其是IPO，更是今年最受瞩目的市场事件之一。
+海外核心资源国政策不确定性是主要扰动源。
 
 ## 相关推荐
 
-- 2026-06-30 07:01 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 06:50 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 07:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 07:17 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 06:49 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 06:53 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 07:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 06:51 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 07:08 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 07:09 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 06:55 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 06:55 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 06:57 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-30 07:13 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 06:52 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 07:09 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 07:15 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 07:06 - [三星投资计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 07:19 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 07:18 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 07:14 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 07:19 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 07:19 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 07:01 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 07:15 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 07:01 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 07:10 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:49 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/52900848168.shtml)
-- 2026-06-30 07:16 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/976423838326.shtml)
-- 2026-06-30 06:57 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/8211245.shtml)
-- 2026-06-30 07:06 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/7310885617.shtml)
-- 2026-06-30 07:12 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/144027.shtml)
-- 2026-06-30 07:03 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/83190397065.shtml)
-- 2026-06-30 06:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/0756042.shtml)
-- 2026-06-30 07:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/91553.shtml)
-- 2026-06-30 06:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/499812145891.shtml)
-- 2026-06-30 07:16 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/232749516.shtml)
-- 2026-06-30 07:04 - [千香](https://www.blog.minike.top/Article/details/55522.shtml)
-- 2026-06-30 07:13 - [速度与激情9](http://www.share.minike.top/Article/details/9085773257.shtml)
-- 2026-06-30 06:59 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/335372538161.shtml)
-- 2026-06-30 07:13 - [三星投资计划](http://www.blog.kurohicncr.top/Article/details/74270832.shtml)
-- 2026-06-30 06:54 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/56960.shtml)
+- 2026-06-30 07:09 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/18093449593.shtml)
+- 2026-06-30 07:12 - [爱很美味](http://www.share.kurohicncr.top/Article/details/48471101.shtml)
+- 2026-06-30 07:15 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/646916539194.shtml)
+- 2026-06-30 07:07 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/710395514.shtml)
+- 2026-06-30 07:08 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/812603876182.shtml)
+- 2026-06-30 07:02 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/562047558882.shtml)
+- 2026-06-30 07:02 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/50494227502.shtml)
+- 2026-06-30 07:20 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/2077171.shtml)
+- 2026-06-30 07:14 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/75006357166.shtml)
+- 2026-06-30 07:06 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/233421.shtml)
+- 2026-06-30 06:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/1115525.shtml)
+- 2026-06-30 07:04 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/16418153087.shtml)
+- 2026-06-30 07:17 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/81700.shtml)
+- 2026-06-30 07:11 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/20459313.shtml)
+- 2026-06-30 07:09 - [极限挑战第一季](http://www.blog.minike.top/Article/details/35579.shtml)

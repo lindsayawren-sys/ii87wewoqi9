@@ -1,60 +1,58 @@
-# 酒价内参6月2日价格发布：古井贡古20与青花郎领跌 总价再度回落
+# 哔哩哔哩-W早盘涨逾3% 今日将发布第一季度业绩
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月2日整体再度走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日下跌14元，将将守住9900元关口。市场在前一日明显反弹后再现显著分化，终端交投情绪整体仍偏谨慎，中腰部产品古井贡古20与青花郎的跌幅较重，而昨日这两款
+哔哩哔哩-W （09626）早盘涨超3%，截至发稿，股价上涨2.78%，现报154.80港元，成交额2.97亿港元。 哔哩哔哩今日将发布截至2026年3月31日止第一季度业绩。里昂此前研报指出，哔哩哔哩2026年第一季预计将维持稳健的收入增长，盈利能力进一步改善。该行预计总收入同比增长7%至75亿元人民币，经调整净利润5.43亿元人民币。报告指，哔哩哔哩广告收入应持续强劲增长，
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月2日整体再度走弱。
+哔哩哔哩-W （09626）早盘涨超3%，截至发稿，股价上涨2.78%，现报154.80港元，成交额2.97亿港元。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日下跌14元，将将守住9900元关口。
+哔哩哔哩今日将发布截至2026年3月31日止第一季度业绩。
 
-市场在前一日明显反弹后再现显著分化，终端交投情绪整体仍偏谨慎，中腰部产品古井贡古20与青花郎的跌幅较重，而昨日这两款酒品均为大涨。
+里昂此前研报指出，哔哩哔哩2026年第一季预计将维持稳健的收入增长，盈利能力进一步改善。
 
-今日白酒市场11大单品三涨六跌两平，输家占据明显上风。
+该行预计总收入同比增长7%至75亿元人民币，经调整净利润5.43亿元人民币。
 
-上涨方面，习酒君品的涨幅居前，上涨7元/瓶，两连阳快速走出月内低点；飞天茅台上涨3元/瓶，成功固守1735元一线；国窖1573上涨2元/瓶。
+报告指，哔哩哔哩广告收入应持续强劲增长，主要受游戏广告需求稳健以及AI应用推广增加所带动。
 
-下跌方面，古井贡古20与青花郎跌幅居前，均下跌6元/瓶，前者仍囿于月内低点附近，后者再度失守700元关口；精品茅台下跌5元/瓶；五粮液普五八代下跌4元/瓶；洋河梦之蓝M6+下跌3元/瓶，回吐昨日全部涨幅，再度失守600元大关；水晶剑南春下跌2元/瓶，亦尽失昨日涨幅。
+同时认为，哔哩哔哩凭借年轻用户群体，是捕捉AI广告的重要平台之一。
 
-五粮液1618与青花汾20的价格环比保持不变，后者平近一个月最低价纪录。
+花旗也看好公司强劲的广告增长势头将推动未来利润增长。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+预期哔哩哔哩今年第一季收入将同比增长7%至75亿元人民币，非公认会计准则经营利润为5.53亿元人民币，均大致符合市场预期。
 
 ## 相关推荐
 
-- 2026-06-30 06:54 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 07:06 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 07:13 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 06:50 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 07:05 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 06:48 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-30 07:13 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-30 06:48 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 07:16 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 07:10 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 07:06 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 07:04 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 07:08 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-30 07:00 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 07:03 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 06:58 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 07:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 06:54 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 06:56 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 07:12 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 07:04 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 06:58 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 06:54 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 07:22 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-30 07:11 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 07:03 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:08 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/77621.shtml)
-- 2026-06-30 07:17 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/620566801988.shtml)
-- 2026-06-30 06:59 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/46556750.shtml)
-- 2026-06-30 06:56 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/9169100.shtml)
-- 2026-06-30 07:02 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/21070262488.shtml)
-- 2026-06-30 07:06 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/630576752.shtml)
-- 2026-06-30 06:58 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/948002.shtml)
-- 2026-06-30 07:08 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/2914271599.shtml)
-- 2026-06-30 07:08 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/634161.shtml)
-- 2026-06-30 07:06 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/051197116232.shtml)
-- 2026-06-30 06:58 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/437005.shtml)
-- 2026-06-30 06:48 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/797783.shtml)
-- 2026-06-30 06:59 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/01110193.shtml)
-- 2026-06-30 07:09 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/2804274.shtml)
-- 2026-06-30 06:52 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/6774013.shtml)
+- 2026-06-30 07:04 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/762439.shtml)
+- 2026-06-30 07:20 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/60450.shtml)
+- 2026-06-30 07:08 - [三星投资计划](https://www.share.kurohicncr.top/Article/details/414828.shtml)
+- 2026-06-30 07:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/066336559762.shtml)
+- 2026-06-30 07:11 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/99452148.shtml)
+- 2026-06-30 06:58 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/880555790918.shtml)
+- 2026-06-30 07:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/5435463.shtml)
+- 2026-06-30 07:15 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/2909005768.shtml)
+- 2026-06-30 07:20 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/8857421431.shtml)
+- 2026-06-30 07:13 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/1501633440.shtml)
+- 2026-06-30 07:05 - [森保一致歉：世界第一目标没能实现](http://www.share.kurohicncr.top/Article/details/365737256621.shtml)
+- 2026-06-30 07:01 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/91709868079.shtml)
+- 2026-06-30 06:54 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/020769751.shtml)
+- 2026-06-30 07:20 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/16463279251.shtml)
+- 2026-06-30 07:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/712482598508.shtml)

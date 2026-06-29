@@ -1,45 +1,60 @@
-# 特朗普称与伊朗或在“一周内”达成协议
+# 伦敦国王学院中国学联举办中英商业交流会
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-新华社华盛顿6月1日电(记者黄强 徐剑梅)美国总统特朗普1日在接受美国广播公司采访时称，他认为在“未来一周内”将与伊朗达成一项协议，以延长停火期限并重新开放霍尔木兹海峡。
+中新网伦敦5月19日电 (记者 欧阳开宇)伦敦国王学院中国学联日前在伦敦举办“商道汇融·国际共生——全球环境、中英商业与未来发展交流会”，活动聚焦“文化与商业”与“科技与商业”两大主题，邀请来自英国剑桥大学、帝国理工等高校的学者，以及来自宏观经济、国际媒体、科技创新与传统产业领域的资深从业者，共同探讨全球格局变化下的中英商业合作与未来发展路径。主办方表示，本次商业交流活动不仅是
 
 ## 正文
 
-新华社华盛顿6月1日电(记者黄强 徐剑梅)美国总统特朗普1日在接受美国广播公司采访时称，他认为在“未来一周内”将与伊朗达成一项协议，以延长停火期限并重新开放霍尔木兹海峡。
+中新网伦敦5月19日电 (记者 欧阳开宇)伦敦国王学院中国学联日前在伦敦举办“商道汇融·国际共生——全球环境、中英商业与未来发展交流会”，活动聚焦“文化与商业”与“科技与商业”两大主题，邀请来自英国剑桥大学、帝国理工等高校的学者，以及来自宏观经济、国际媒体、科技创新与传统产业领域的资深从业者，共同探讨全球格局变化下的中英商业合作与未来发展路径。
+
+主办方表示，本次商业交流活动不仅是一场关于知识与信息的深度分享，也为不同领域之间的跨界交流与资源联结提供了重要平台。
+
+活动上，经济学家Boris But从国际能源格局、地缘政治变化以及全球产业链重构等角度，分析了当前中英商业合作面临的新趋势与新挑战。
+
+资深媒体人陈时荣认为，过去商业依赖信息差、渠道与规模化，而AI时代的核心竞争力，将逐渐回归到“意义创造”。
+
+在AI时代，最具竞争力的人才，将是那些能够在不同文明、不同文化体系之间“翻译意义”的人。
+
+随后，明允马球创始人刘子闻认为通过品牌化与当代化表达，马球运动正在被重新赋予新的文化意义获得新的生命力，“不仅活在历史中，更活在当下，并走向更远的世界”。
+
+论坛还邀请深耕英国医药、文化与媒体行业的实践者展开深入对话，包括荷伯颍中医连锁药店创始人王台生、英国北京联合会会长李海，以及资深媒体人陈时荣，围绕中医药文化传播、华人文化交流以及英国媒体发展等议题展开讨论，展现了华人企业与文化机构在英国社会中的积极影响力。
+
+王台生介绍了中医药在英国的发展历程与商业实践路径，并分享了中医在英国本土化发展的经验。
 
 ## 相关推荐
 
-- 2026-06-30 07:15 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 06:58 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 07:14 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 07:03 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-30 07:10 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-30 06:51 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 07:16 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-30 07:12 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 06:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 06:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 07:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 07:14 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 07:16 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 07:23 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 07:11 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 06:58 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 06:57 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 06:56 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 07:05 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 06:55 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 07:15 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 07:07 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 07:16 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 07:17 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 07:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 07:13 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 07:02 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:52 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/31679524.shtml)
-- 2026-06-30 07:13 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/2340537289.shtml)
-- 2026-06-30 07:12 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/34240.shtml)
-- 2026-06-30 07:16 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/67601765583.shtml)
-- 2026-06-30 07:08 - [刘念回应](http://www.blog.minike.top/Article/details/08055157958.shtml)
-- 2026-06-30 07:09 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/220501.shtml)
-- 2026-06-30 07:16 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/2054442209.shtml)
-- 2026-06-30 06:49 - [扫黑风暴](http://www.share.minike.top/Article/details/05629.shtml)
-- 2026-06-30 07:15 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/358323631.shtml)
-- 2026-06-30 07:00 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/162636.shtml)
-- 2026-06-30 07:07 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/08446.shtml)
-- 2026-06-30 06:49 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/74422152122.shtml)
-- 2026-06-30 06:56 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/563871795639.shtml)
-- 2026-06-30 07:05 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/705805121861.shtml)
-- 2026-06-30 07:09 - [我和我的家乡](https://www.share.minike.top/Article/details/16372477157.shtml)
+- 2026-06-30 07:23 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/868484612301.shtml)
+- 2026-06-30 07:00 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/044437394.shtml)
+- 2026-06-30 07:15 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/98385561426.shtml)
+- 2026-06-30 07:19 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/099032198.shtml)
+- 2026-06-30 06:59 - [毒液2](https://www.share.kurohicncr.top/Article/details/16660.shtml)
+- 2026-06-30 06:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/42614779.shtml)
+- 2026-06-30 07:01 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/190147948988.shtml)
+- 2026-06-30 07:00 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/555800220.shtml)
+- 2026-06-30 07:19 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/335444247.shtml)
+- 2026-06-30 07:20 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/3084992349.shtml)
+- 2026-06-30 07:22 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/73281041.shtml)
+- 2026-06-30 07:19 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/39195169.shtml)
+- 2026-06-30 07:13 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/10796624.shtml)
+- 2026-06-30 07:21 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/59377.shtml)
+- 2026-06-30 06:54 - [千与千寻](http://www.share.minike.top/Article/details/39581386343.shtml)

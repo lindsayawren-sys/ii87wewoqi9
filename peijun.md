@@ -1,57 +1,56 @@
-# Royce Small-Cap Trust宣布第二季度每股派息0.31美元，较上期增长3.3%
+# 前4月河北对东盟进出口同比增长38.7% 东盟成最大贸易伙伴
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-Royce Small-Cap Trust， Inc．今日宣布，将向普通股股东派发2026年第二季度现金股息，每股0.31美元。本次股息较上一季度的0.30美元增长了约3.3%，延续了基金的稳定派息政策。 根据公告，本次股息将于2026年6月29日支付，股权登记日为6月11日，除息日为6月11日。股东可选择以现金形式收取股息，或以股息再投资方式增持基金股份。股份再投资的价格将于
+【东盟专线】前4月河北对东盟进出口同比增长38.7% 东盟成最大贸易伙伴 中新社石家庄5月19日电 (赵丹媚 杨炯阅 张垚)石家庄海关19日消息，据统计，今年前4个月，河北省对东盟国家进出口总值达289亿元(人民币，下同)，同比增长38.7%，东盟成为河北最大贸易伙伴。其中，出口214.7亿元，同比增长46.7%；进口74.3亿元，同比增长19.6%。 具体来看，河北传统产业和
 
 ## 正文
 
-Royce Small-Cap Trust， Inc．今日宣布，将向普通股股东派发2026年第二季度现金股息，每股0.31美元。
+【东盟专线】前4月河北对东盟进出口同比增长38.7% 东盟成最大贸易伙伴 中新社石家庄5月19日电 (赵丹媚 杨炯阅 张垚)石家庄海关19日消息，据统计，今年前4个月，河北省对东盟国家进出口总值达289亿元(人民币，下同)，同比增长38.7%，东盟成为河北最大贸易伙伴。
 
-本次股息较上一季度的0.30美元增长了约3.3%，延续了基金的稳定派息政策。
+其中，出口214.7亿元，同比增长46.7%；进口74.3亿元，同比增长19.6%。
 
-根据公告，本次股息将于2026年6月29日支付，股权登记日为6月11日，除息日为6月11日。
+具体来看，河北传统产业和新兴产业对东盟出口业务“齐头并进”。
 
-股东可选择以现金形式收取股息，或以股息再投资方式增持基金股份。
+传统产业中，钢材出口37.7亿元，同比增长1.3倍；农产品出口17.2亿元，同比增长17.9%。
 
-股份再投资的价格将于6月18日确定。
+新兴产业中，电工器材、电子元件、汽车分别出口12.9亿元、4.6亿元、4.4亿元，分别同比增长2.8倍、75.4%、1.2倍。
 
-Royce Small-Cap Trust为封闭式多元化管理投资公司，其普通股在纽约证券交易所上市交易。
+此外，“新三样”产品(电动汽车、锂离子蓄电池和光伏产品)出口12.1亿元，同比增长4.8倍。
 
-基金的主要投资目标为长期资本增值，在正常情况下，至少将80%的净资产投资于小盘公司的权益证券。
+河北对生产原料需求旺盛，自东盟进口基本有机化学品3.4亿元，同比增长66%；未锻轧铜及铜材2.1亿元，同比增长2.6倍。
 
-基金采用季度派息政策，按前四个日历季度末资产净值滚动平均值的7%年化率进行分配，第四季度分配则为1.75%的滚动平均值与美国国税局规定的最低分配额两者中较高者。
+自东盟进口的特色农产品丰富了中国国内的消费选择，其中进口糖浆1.7亿元、木薯淀粉1.5亿元、植物油9017.1万元。
 
 ## 相关推荐
 
-- 2026-06-30 06:59 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 07:09 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 07:02 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 07:15 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 07:05 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 06:48 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 06:56 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 07:06 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 06:53 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 07:15 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 07:01 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 07:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 07:11 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 07:14 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 07:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 06:58 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 07:22 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 07:01 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 07:00 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 06:57 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 07:17 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:57 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/66790.shtml)
-- 2026-06-30 06:55 - [日本进球](https://www.share.kurohicncr.top/Article/details/3326698107.shtml)
-- 2026-06-30 07:15 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/287510553.shtml)
-- 2026-06-30 07:05 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/4328102.shtml)
-- 2026-06-30 07:04 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/33572404.shtml)
-- 2026-06-30 06:48 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/68179.shtml)
-- 2026-06-30 06:57 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/05337228.shtml)
-- 2026-06-30 07:12 - [极限挑战第一季](https://www.share.minike.top/Article/details/977681.shtml)
-- 2026-06-30 07:14 - [这一刀 会很帅](http://www.share.minike.top/Article/details/5761617405.shtml)
-- 2026-06-30 06:51 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/549176586911.shtml)
-- 2026-06-30 06:48 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/3600901.shtml)
-- 2026-06-30 07:05 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/5454038847.shtml)
-- 2026-06-30 07:01 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/86755130271.shtml)
-- 2026-06-30 06:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/18757.shtml)
-- 2026-06-30 07:07 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/601784439.shtml)
+- 2026-06-30 07:16 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/0717526.shtml)
+- 2026-06-30 07:06 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/13925645624.shtml)
+- 2026-06-30 07:16 - [刘宇宁高情商化解谁站C位](https://www.blog.kurohicncr.top/Article/details/17859.shtml)
+- 2026-06-30 07:01 - [世界杯](http://www.share.minike.top/Article/details/705072939.shtml)
+- 2026-06-30 07:13 - [啊啊啊](http://www.blog.minike.top/Article/details/1027230.shtml)
+- 2026-06-30 07:12 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/2061190757.shtml)
+- 2026-06-30 06:59 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/910045143.shtml)
+- 2026-06-30 07:17 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/65530177200.shtml)
+- 2026-06-30 07:21 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/23682.shtml)
+- 2026-06-30 07:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/5473571713.shtml)
+- 2026-06-30 06:57 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/14201507186.shtml)
+- 2026-06-30 06:57 - [金刚川](http://www.blog.minike.top/Article/details/44783625036.shtml)
+- 2026-06-30 07:00 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/667908.shtml)
+- 2026-06-30 07:03 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/47396.shtml)
+- 2026-06-30 07:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/016934923.shtml)

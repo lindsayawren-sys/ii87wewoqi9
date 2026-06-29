@@ -1,54 +1,49 @@
-# 台风“蔷薇”袭击日本西南部 致9人受伤数万户停电
+# 香洲海关2026—2028年物业管理服务项目中标公告
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新网6月2日电 据法新社报道，台风“蔷薇”2日袭击日本西南部，造成数万户家庭停电、数百架航班取消，并导致9人受伤。 据报道，九州岛宫崎市约39万全体居民已被敦促撤离。2日上午，冲绳约1.7万户家庭、鹿儿岛地区超过3万户家庭停电。日本内阁官房长官木原稔表示，“蔷薇”已在冲绳造成9人受伤。 日本广播协会报道称，部分伤者是因风暴吹起物体砸中汽车，或因强风导致站立不稳而受伤。目前，日
+一、项目编号：26CDA39D01196(招标文件编号：26CDA39D01196) 二、项目名称：香洲海关2026—2028年物业管理服务项目 三、中标(成交)信息 供应商名称：珠海市金湾保安服务有限公司 供应商地址：珠海市金湾区红旗镇珠海大道6366号6#厂房3楼357室 中标(成交)金额：195.0000000(万元) 四、主要标的信息 五、评审专家(单一来源采购人员)名
 
 ## 正文
 
-中新网6月2日电 据法新社报道，台风“蔷薇”2日袭击日本西南部，造成数万户家庭停电、数百架航班取消，并导致9人受伤。
+一、项目编号：26CDA39D01196(招标文件编号：26CDA39D01196) 二、项目名称：香洲海关2026—2028年物业管理服务项目 三、中标(成交)信息 供应商名称：珠海市金湾保安服务有限公司 供应商地址：珠海市金湾区红旗镇珠海大道6366号6#厂房3楼357室 中标(成交)金额：195.0000000(万元) 四、主要标的信息 五、评审专家(单一来源采购人员)名单： 周兴华、钟达夫、康赫男、钟少华、吕辉明(采购人代表) 六、代理服务收费标准及金额： 本项目代理费收费标准：按招标文件执行。
 
-据报道，九州岛宫崎市约39万全体居民已被敦促撤离。
+本项目代理费总金额：2.260000 万元(人民币) 七、公告期限 自本公告发布之日起1个工作日。
 
-2日上午，冲绳约1.7万户家庭、鹿儿岛地区超过3万户家庭停电。
+八、其它补充事宜 1、评审情况 2、推荐以下单位为中标候选人： 九、凡对本次公告内容提出询问，请按以下方式联系。
 
-日本内阁官房长官木原稔表示，“蔷薇”已在冲绳造成9人受伤。
-
-日本广播协会报道称，部分伤者是因风暴吹起物体砸中汽车，或因强风导致站立不稳而受伤。
-
-目前，日本两大航空公司全日空和日本航空已取消1日至3日期间共计600架次航班。
+1.采购人信息 名 称：拱北海关后勤管理中心 地址：珠海市拱北侨光路5号拱北海关后勤管理中心政府采购工作办公室 联系方式：陈先生，谢小姐、0756-8164360,8162467 2.采购代理机构信息 名 称：深圳国际招标咨询有限公司 地 址：珠海市香洲区兴国街4号中立信大厦902 联系方式：陈翠萍 何新坚0760-88385502、18923332559 3.项目联系方式 项目联系人：陈翠萍 何新坚 电 话：0760-88385502、18923332559 拱北海关后勤管理中心 深圳国际招标咨询有限公司 2026年5月19日
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 06:54 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 07:11 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 07:00 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 06:53 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 06:56 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 07:01 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 06:53 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 07:01 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 07:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 07:06 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 07:06 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 07:21 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 07:14 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 06:56 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 07:16 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 07:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 07:19 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 07:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 07:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 07:14 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 07:20 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 07:07 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:02 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/761099800.shtml)
-- 2026-06-30 07:01 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/431753.shtml)
-- 2026-06-30 07:17 - [急先锋](https://www.blog.kurohicncr.top/Article/details/35891999.shtml)
-- 2026-06-30 06:50 - [恋与深空 日服](http://www.blog.minike.top/Article/details/2884794.shtml)
-- 2026-06-30 07:02 - [扫黑风暴](http://www.blog.minike.top/Article/details/166743594592.shtml)
-- 2026-06-30 07:10 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/827638901996.shtml)
-- 2026-06-30 06:59 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/4032471.shtml)
-- 2026-06-30 06:50 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/185881811.shtml)
-- 2026-06-30 07:07 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/51711.shtml)
-- 2026-06-30 06:49 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/95403598.shtml)
-- 2026-06-30 07:02 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/972382199544.shtml)
-- 2026-06-30 07:14 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/084281821.shtml)
-- 2026-06-30 07:15 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/547478542.shtml)
-- 2026-06-30 07:00 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/719159379642.shtml)
-- 2026-06-30 07:17 - [点菜也要教吗](http://www.blog.minike.top/Article/details/4227105.shtml)
+- 2026-06-30 07:12 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/72812.shtml)
+- 2026-06-30 07:05 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/1060508.shtml)
+- 2026-06-30 06:58 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/808495.shtml)
+- 2026-06-30 07:00 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/131357226749.shtml)
+- 2026-06-30 07:00 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/190681815.shtml)
+- 2026-06-30 07:17 - [我和我的家乡](http://www.share.minike.top/Article/details/955767.shtml)
+- 2026-06-30 07:17 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/8470120.shtml)
+- 2026-06-30 07:09 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/532611.shtml)
+- 2026-06-30 07:02 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/42750711.shtml)
+- 2026-06-30 07:04 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/835414203.shtml)
+- 2026-06-30 07:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/167955309623.shtml)
+- 2026-06-30 07:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/542290175.shtml)
+- 2026-06-30 07:08 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/259620.shtml)
+- 2026-06-30 07:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/307087913.shtml)
+- 2026-06-30 07:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/22141902.shtml)

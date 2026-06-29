@@ -1,55 +1,59 @@
-# 今年1月至5月 清远海关监管出口凉茶等饮品饮料3640吨
+# 丹麦籍巨轮首泊天津港 边检“绿色通道”助力高效通关
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新网清远6月3日电 (张璐 关清)据广州海关所属清远海关(简称“清远海关”)3日消息，今年1月至5月共监管出口凉茶、乳酸菌等饮品饮料重量3640吨、货值2471万元。 近日，经清远海关监管合格，清远加多宝饮料有限公司一批重105吨、货值55.5万元的凉茶饮料出口至柬埔寨。该公司负责人梁坤明介绍，近年来，广式凉茶受到越来越多的海外消费者喜爱，该公司今年前4个月的出口订单货值同比
+中新网天津5月19日电 (记者 周亚强)19日，丹麦籍集装箱巨轮“阿莱塔马士基”靠泊天津港码头。在东港边检站“绿色通道”全程护航下，该轮首航天津港实现“靠泊即作业、离港零延时”，4000余标准箱装卸作业比原计划提前近2小时完成。 “阿莱塔马士基”轮是马士基航运A-class系列集装箱船，总长351米、型宽54米，最大载箱量15794标准箱，载重吨位超17万吨，配备双燃料发动机，
 
 ## 正文
 
-中新网清远6月3日电 (张璐 关清)据广州海关所属清远海关(简称“清远海关”)3日消息，今年1月至5月共监管出口凉茶、乳酸菌等饮品饮料重量3640吨、货值2471万元。
+中新网天津5月19日电 (记者 周亚强)19日，丹麦籍集装箱巨轮“阿莱塔马士基”靠泊天津港码头。
 
-近日，经清远海关监管合格，清远加多宝饮料有限公司一批重105吨、货值55.5万元的凉茶饮料出口至柬埔寨。
+在东港边检站“绿色通道”全程护航下，该轮首航天津港实现“靠泊即作业、离港零延时”，4000余标准箱装卸作业比原计划提前近2小时完成。
 
-该公司负责人梁坤明介绍，近年来，广式凉茶受到越来越多的海外消费者喜爱，该公司今年前4个月的出口订单货值同比增长18.1%。
+“阿莱塔马士基”轮是马士基航运A-class系列集装箱船，总长351米、型宽54米，最大载箱量15794标准箱，载重吨位超17万吨，配备双燃料发动机，为目前全球最先进的集装箱船舶之一。
 
-今年该公司开拓了塞内加尔等国家市场。
+此次系该轮2024年建成投入运营后首次到访天津港。
 
-“凉茶属于植物性饮料，各个国家和地区的添加剂使用和标签要求不同，例如柬埔寨要求产品标签需包含产品名称、批次、生产商、原产国等信息，能够完整溯源。
+为保障首航万无一失，东港边检站提前启动专项保障机制，与码头公司、船舶代理建立“三方联动”渠道，实时掌握船舶轨迹、船员信息及靠泊计划，量身制定“一船一策”保障方案。
 
-”清远海关查检科科长商春表示，针对夏季饮品饮料货架期短、流通快等特点，该关通过提供预约查检、属地查检绿色通道、检验检疫证书“云签发”等服务提升通关时效，同时紧密衔接海关属地查检的抽样送检、检验检疫证书和出口检验检疫电子底账出具等各环节，助力企业饮料产品应季出口。
+依托国际贸易“单一窗口”平台，执勤民警提前完成全部船员证件信息核查与风险评估，最大限度压缩通关准备时间。
 
-(完)
+船舶靠港后，专项执勤组第一时间登轮查验，确保作业快速展开。
+
+“4000多集装箱的作业量比预计时间提前了近2个小时，这为我们节省了宝贵的时间成本。
 
 ## 相关推荐
 
-- 2026-06-30 07:14 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 06:53 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 06:56 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 07:15 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 06:48 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 07:01 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 07:00 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 07:12 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 06:51 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-30 07:04 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 07:12 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 06:56 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 07:12 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 07:08 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 07:03 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 07:07 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 07:21 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 07:19 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-30 07:05 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 07:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 07:03 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 07:11 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 07:19 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 07:15 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:17 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/543149088.shtml)
-- 2026-06-30 07:03 - [日本反击率先破门](https://www.blog.minike.top/Article/details/3375253001.shtml)
-- 2026-06-30 07:06 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/984636607.shtml)
-- 2026-06-30 07:05 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/086873873.shtml)
-- 2026-06-30 07:04 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/592733608230.shtml)
-- 2026-06-30 07:00 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/92270.shtml)
-- 2026-06-30 06:50 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/799004.shtml)
-- 2026-06-30 06:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/27006375.shtml)
-- 2026-06-30 07:09 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/65192827096.shtml)
-- 2026-06-30 07:13 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/7088764185.shtml)
-- 2026-06-30 07:01 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/41635386.shtml)
-- 2026-06-30 07:02 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/78439860644.shtml)
-- 2026-06-30 07:03 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/309357621.shtml)
-- 2026-06-30 07:01 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/85995960.shtml)
-- 2026-06-30 07:02 - [韩国球迷凌晨4点接机怒骂主教练](https://www.blog.kurohicncr.top/Article/details/9688083.shtml)
+- 2026-06-30 07:00 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/55607404580.shtml)
+- 2026-06-30 07:03 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.kurohicncr.top/Article/details/6375192.shtml)
+- 2026-06-30 07:20 - [金刚川](http://www.blog.minike.top/Article/details/31157.shtml)
+- 2026-06-30 07:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/194456731106.shtml)
+- 2026-06-30 07:09 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/073786903055.shtml)
+- 2026-06-30 07:12 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/43440.shtml)
+- 2026-06-30 07:06 - [日本五次世界杯淘汰赛全败](https://www.share.minike.top/Article/details/7359640791.shtml)
+- 2026-06-30 07:14 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/31075813774.shtml)
+- 2026-06-30 07:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/7257259578.shtml)
+- 2026-06-30 07:20 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/351090991038.shtml)
+- 2026-06-30 07:01 - [绘画区你赢了](http://www.share.minike.top/Article/details/26162.shtml)
+- 2026-06-30 06:56 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/12090751707.shtml)
+- 2026-06-30 06:54 - [日本反击率先破门](http://www.share.minike.top/Article/details/5933499.shtml)
+- 2026-06-30 07:10 - [美股](https://www.blog.kurohicncr.top/Article/details/6173420.shtml)
+- 2026-06-30 07:10 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/371637.shtml)

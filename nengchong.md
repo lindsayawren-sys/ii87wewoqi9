@@ -1,56 +1,58 @@
-# 开盘：美股周二低开 市场关注美伊局势发展
+# YieldMax Magnificent 7基金宣布每周派息0.1525美元
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-北京时间6月2日晚，美股周二低开。交易员正在消化近期美股迭创新高的走势，同时关注美伊关系最新进展以及主要科技股的动向。 道指跌209.77点，跌幅为0.41%，报50869.11点；纳指跌64.17点，跌幅为0.24%，报27022.64点；标普500指数跌14.04点，跌幅为0.18%，报7585.92点。 Alphabet股价走低，此前该公司表示将通过出售股票筹集800亿美
+YieldMax Magnificent 7期权收益ETF基金于5月19日宣布，将向股东派发每股0.1525美元的每周股息。该股息将于5月21日发放，股权登记日为5月20日，同日为除息交易日。 聚焦科技七巨头 YMAG是一只主动管理的基金中的基金，主要投资于七只YieldMax期权收益ETF，分别对应“科技七巨头”标的：苹果、亚马逊、谷歌、Meta、微软、英伟达和特斯拉。该基金
 
 ## 正文
 
-北京时间6月2日晚，美股周二低开。
+YieldMax Magnificent 7期权收益ETF基金于5月19日宣布，将向股东派发每股0.1525美元的每周股息。
 
-交易员正在消化近期美股迭创新高的走势，同时关注美伊关系最新进展以及主要科技股的动向。
+该股息将于5月21日发放，股权登记日为5月20日，同日为除息交易日。
 
-道指跌209.77点，跌幅为0.41%，报50869.11点；纳指跌64.17点，跌幅为0.24%，报27022.64点；标普500指数跌14.04点，跌幅为0.18%，报7585.92点。
+聚焦科技七巨头 YMAG是一只主动管理的基金中的基金，主要投资于七只YieldMax期权收益ETF，分别对应“科技七巨头”标的：苹果、亚马逊、谷歌、Meta、微软、英伟达和特斯拉。
 
-Alphabet股价走低，此前该公司表示将通过出售股票筹集800亿美元，用于人工智能基础设施建设。
+该基金通过在各底层ETF中构建合成备兑看涨期权策略，旨在为投资者提供当期收入，同时间接参与七巨头股价走势，但上行空间有限。
 
-其中包括来自伯克希尔-哈撒韦的100亿美元投资。
+高派息率吸引收入型投资者 此次每周派息0.1525美元，年化派息率约为46%至51%。
 
-谷歌在周一盘后交易中曾一度上涨，随后转跌。
+这一高派息水平得益于基金通过卖出看涨期权获取权利金收入的策略，使其能在市场波动期间持续产生收益。
 
-Vital Knowledge的亚当-克里萨富利表示，Alphabet公司售股融资的消息“最终是利空的”。
+截至5月8日，YMAG资产规模约为3.159亿美元，收盘价为13.09美元。
 
-他指出：“如果说资本主义历史上最伟大的商业模式（就规模、增长、利润率和现金流而言）都无法靠自身内部运营来为人工智能提供资金，那还有谁能做到？
+该基金自2024年1月成立以来，市场价格累计回报约19.1%。
 
 ## 相关推荐
 
-- 2026-06-30 06:48 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 06:54 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-30 07:00 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-30 06:55 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 07:01 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 07:11 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 07:02 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 07:06 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 06:55 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 07:12 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 07:14 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 07:20 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 07:09 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 07:19 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 07:17 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 06:54 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-30 07:15 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 06:54 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 07:02 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 07:10 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 06:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 07:17 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:01 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/70408220.shtml)
-- 2026-06-30 07:14 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/896486.shtml)
-- 2026-06-30 06:51 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/331931392.shtml)
-- 2026-06-30 07:11 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/830510070.shtml)
-- 2026-06-30 06:55 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/731916.shtml)
-- 2026-06-30 06:48 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/03699.shtml)
-- 2026-06-30 07:17 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/338530.shtml)
-- 2026-06-30 07:05 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/26679715625.shtml)
-- 2026-06-30 07:12 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/735767934.shtml)
-- 2026-06-30 07:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/504466137189.shtml)
-- 2026-06-30 07:02 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/686076.shtml)
-- 2026-06-30 07:05 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/97699.shtml)
-- 2026-06-30 07:11 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/738271617683.shtml)
-- 2026-06-30 07:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/453483607.shtml)
-- 2026-06-30 07:17 - [巴拉圭先进球了](https://www.blog.minike.top/Article/details/244932.shtml)
+- 2026-06-30 07:04 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/29197949.shtml)
+- 2026-06-30 07:07 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/00930112.shtml)
+- 2026-06-30 07:23 - [中国新一轮出口管制直指日本命脉](http://www.blog.minike.top/Article/details/779889.shtml)
+- 2026-06-30 07:08 - [人类...完蛋了...](https://www.share.minike.top/Article/details/41749990.shtml)
+- 2026-06-30 07:11 - [流金岁月](https://www.share.kurohicncr.top/Article/details/41712184.shtml)
+- 2026-06-30 07:09 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/89000255.shtml)
+- 2026-06-30 07:15 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/25419268606.shtml)
+- 2026-06-30 07:05 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/28825.shtml)
+- 2026-06-30 06:59 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/2339932716.shtml)
+- 2026-06-30 07:15 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/82928459901.shtml)
+- 2026-06-30 07:05 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/927537399.shtml)
+- 2026-06-30 07:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/7515657569.shtml)
+- 2026-06-30 07:11 - [沙丘](http://www.share.kurohicncr.top/Article/details/63409371.shtml)
+- 2026-06-30 07:15 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/4721803911.shtml)
+- 2026-06-30 07:09 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/475461.shtml)

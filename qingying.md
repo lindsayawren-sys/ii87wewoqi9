@@ -1,58 +1,45 @@
-# 特朗普：对美伊谈判是否破裂“毫不在乎”
+# 现场视频！习近平为俄罗斯总统普京举行欢迎仪式
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普于周一对美伊和平谈判可能破裂的消息表现得满不在乎，他在接受采访时直言：“老实说，就算谈判结束了我也无所谓。” 当被问及“因以色列在黎巴嫩的军事行动，伊朗谈判代表将停止与美国沟通”的相关报道时，特朗普在电话采访中表示：“我真的不在乎。我根本一点都不在乎。” 特朗普还透露，他打算向以色列总理内塔尼亚胡“问问黎巴嫩那边到底是怎么回事”。 此外，针对伊朗国家媒体宣称德黑兰
+发布时间：2026年05月20日 13:06 来源：中国新闻网 责任编辑：【田博川】
 
 ## 正文
 
-美国总统特朗普于周一对美伊和平谈判可能破裂的消息表现得满不在乎，他在接受采访时直言：“老实说，就算谈判结束了我也无所谓。
-
-” 当被问及“因以色列在黎巴嫩的军事行动，伊朗谈判代表将停止与美国沟通”的相关报道时，特朗普在电话采访中表示：“我真的不在乎。
-
-我根本一点都不在乎。
-
-” 特朗普还透露，他打算向以色列总理内塔尼亚胡“问问黎巴嫩那边到底是怎么回事”。
-
-此外，针对伊朗国家媒体宣称德黑兰誓言要“彻底封锁”霍尔木兹海峡并暂停谈判的报道，特朗普同样表示自己并不担忧由此引发的油价飙升。
-
-他说：“我认为在非常近的未来，也就是极短的时间内，油价就会直线暴跌。
-
-”责任编辑：李桐
+发布时间：2026年05月20日 13:06 来源：中国新闻网 责任编辑：【田博川】
 
 ## 相关推荐
 
-- 2026-06-30 06:54 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-30 07:03 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 06:49 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 07:11 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 06:58 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 07:02 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 06:59 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-30 07:01 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 07:02 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 07:10 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 07:06 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 07:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 07:01 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 06:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 07:11 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 06:55 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 07:23 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 07:10 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 07:16 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 07:19 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 07:01 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 07:14 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 07:20 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 06:55 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 07:15 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 07:16 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 07:23 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:11 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/44155.shtml)
-- 2026-06-30 07:04 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/9691897.shtml)
-- 2026-06-30 06:50 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/898222.shtml)
-- 2026-06-30 07:09 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/08180145.shtml)
-- 2026-06-30 06:51 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/275760.shtml)
-- 2026-06-30 06:57 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/943799282.shtml)
-- 2026-06-30 07:10 - [第一炉香](https://www.blog.minike.top/Article/details/161239289.shtml)
-- 2026-06-30 07:01 - [流金岁月](https://www.blog.minike.top/Article/details/5654042.shtml)
-- 2026-06-30 06:57 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/366947.shtml)
-- 2026-06-30 07:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/1067823.shtml)
-- 2026-06-30 07:11 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/317474.shtml)
-- 2026-06-30 07:04 - [速度与激情9](http://www.share.minike.top/Article/details/7436167.shtml)
-- 2026-06-30 07:04 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/395997011.shtml)
-- 2026-06-30 07:05 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/712956.shtml)
-- 2026-06-30 07:12 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/241371.shtml)
+- 2026-06-30 07:18 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/205914.shtml)
+- 2026-06-30 07:03 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/4199022851.shtml)
+- 2026-06-30 06:59 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/459227.shtml)
+- 2026-06-30 07:03 - [送你一朵小红花](http://www.share.minike.top/Article/details/4207576155.shtml)
+- 2026-06-30 07:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/43664127512.shtml)
+- 2026-06-30 07:17 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/701860842.shtml)
+- 2026-06-30 07:13 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/919800455.shtml)
+- 2026-06-30 06:59 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/229248446992.shtml)
+- 2026-06-30 07:02 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/50775.shtml)
+- 2026-06-30 06:55 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/989856681063.shtml)
+- 2026-06-30 07:22 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/09003752.shtml)
+- 2026-06-30 07:16 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/4463829145.shtml)
+- 2026-06-30 07:01 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/02057869687.shtml)
+- 2026-06-30 07:23 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/575986141.shtml)
+- 2026-06-30 07:05 - [哈弗茨头球破门](http://www.share.kurohicncr.top/Article/details/6996976.shtml)

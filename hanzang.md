@@ -1,58 +1,52 @@
-# 港中大（深圳）音乐学院打击乐音乐会奏响湾区美育新声
+# 首程控股旗下基金持续加码投资加速进化 深化具身智能产业布局
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新网深圳6月2日电 (记者 王坚)“乐动湾区·恒鸣无界”——香港中文大学(深圳)音乐学院打击乐团专场音乐会近日在深圳上演。该专场演出以节奏连接舞台与观众，生动展现粤港澳大湾区在培养新时代音乐人才、艺术交流等领域的发展。 音乐会现场气氛热烈，既有充满活力的青年学子，也有在家长陪伴下前来感受音乐魅力的儿童，更有不少银发观众沉浸其中。不同年龄层观众因节奏相聚，在木槌、鼓面、镲片与马
+首程控股（00697）发布公告，近日，本集团所属首程资本旗下公司（本公司的全资附属公司） 所管理的基金投资北京加速进化科技有限公司（加速进化）。本次投资是继2025年7月和12月两轮投资后的持续加码，将进一步促进被投企业加快全球交付网络建设、深化具身模型算法开发和推动机器人产品持续迭代升级。 加速进化是一家专注于人形机器人研发与生态建设的科技公司，始终坚持简单、可靠、实用的产品
 
 ## 正文
 
-中新网深圳6月2日电 (记者 王坚)“乐动湾区·恒鸣无界”——香港中文大学(深圳)音乐学院打击乐团专场音乐会近日在深圳上演。
+首程控股（00697）发布公告，近日，本集团所属首程资本旗下公司（本公司的全资附属公司） 所管理的基金投资北京加速进化科技有限公司（加速进化）。
 
-该专场演出以节奏连接舞台与观众，生动展现粤港澳大湾区在培养新时代音乐人才、艺术交流等领域的发展。
+本次投资是继2025年7月和12月两轮投资后的持续加码，将进一步促进被投企业加快全球交付网络建设、深化具身模型算法开发和推动机器人产品持续迭代升级。
 
-音乐会现场气氛热烈，既有充满活力的青年学子，也有在家长陪伴下前来感受音乐魅力的儿童，更有不少银发观众沉浸其中。
+加速进化是一家专注于人形机器人研发与生态建设的科技公司，始终坚持简单、可靠、实用的产品理念，依托“本体+系统+开发者工具”的差异化产品战略，构建软硬体一体化的人形机器人开发平台。
 
-不同年龄层观众因节奏相聚，在木槌、鼓面、镲片与马林巴交织出的声响世界中，共同体验打击乐多元而鲜活的艺术魅力。
+此次投资将为加速进化在全球交付体系建设、商业场景拓展和产品迭代升级等方面提供更大动能，加速机器人技术的产业化与商业化进程，引领具身智能时代的生产力变革。
 
-据介绍，本场音乐会由香港中文大学(深圳)音乐学院教授、打击乐团艺术总监余乐携该学院打击乐团9位学生共同呈现。
+本集团未来将坚定不移地持续加大在机器人产业的投资布局，持续深化与行业头部企业的战略合作，通过资本赋能与产业协同，推动机器人技术在多维场景中的规模化落地与生态渗透，引领机器人产业实现规模化与商业化突破，为构建具身智能时代的全新产业格局注入强劲动能。
 
-作为一场兼具专业性、观赏性与普及性的打击乐专场，音乐会通过中外当代打击乐作品的集中展示，呈现了打击乐在节奏组织、音色变化、空间调度与身体表达等方面的丰富可能，也展现出该学院打击乐教学与舞台实践的扎实成果。
-
-当晚演出以学院教师、打击乐团艺术指导刘恒创作的《土星光环》开启。
-
-四位演奏者围绕同一台马林巴从正反两面共同演奏在行进与旋转中构成独特的视觉画面。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 07:01 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 07:17 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 07:03 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 07:16 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 07:00 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 06:55 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 06:51 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 06:48 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 07:11 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 06:56 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 06:59 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 07:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 07:06 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 06:56 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 07:18 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 07:15 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 07:12 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 06:57 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 07:20 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 07:22 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 07:17 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 06:57 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:56 - [周冬雨多次说演不了话剧文城](https://www.blog.kurohicncr.top/Article/details/88929276486.shtml)
-- 2026-06-30 07:04 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/4546957531.shtml)
-- 2026-06-30 07:10 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/8651852969.shtml)
-- 2026-06-30 06:50 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/913085981.shtml)
-- 2026-06-30 07:16 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/490458006224.shtml)
-- 2026-06-30 07:05 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/7657662.shtml)
-- 2026-06-30 07:04 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/577136046375.shtml)
-- 2026-06-30 07:03 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/61996545.shtml)
-- 2026-06-30 06:54 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/84537411328.shtml)
-- 2026-06-30 06:53 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/60487412.shtml)
-- 2026-06-30 06:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/6204572.shtml)
-- 2026-06-30 07:14 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/795585104.shtml)
-- 2026-06-30 06:56 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/14545.shtml)
-- 2026-06-30 07:05 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/65787363.shtml)
-- 2026-06-30 06:56 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/7779291.shtml)
+- 2026-06-30 07:20 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/7516778673.shtml)
+- 2026-06-30 07:22 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/520495315.shtml)
+- 2026-06-30 07:07 - [《共患难》](http://www.blog.minike.top/Article/details/08553.shtml)
+- 2026-06-30 07:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/01993906.shtml)
+- 2026-06-30 07:23 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/06987.shtml)
+- 2026-06-30 06:59 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/6724518512.shtml)
+- 2026-06-30 06:59 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/1366266186.shtml)
+- 2026-06-30 07:02 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/73616.shtml)
+- 2026-06-30 07:04 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/81594506556.shtml)
+- 2026-06-30 06:57 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/3344466220.shtml)
+- 2026-06-30 07:13 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/446666463701.shtml)
+- 2026-06-30 07:12 - [起风了](https://www.share.minike.top/Article/details/619540112877.shtml)
+- 2026-06-30 06:55 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/525683.shtml)
+- 2026-06-30 06:59 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/473925414469.shtml)
+- 2026-06-30 07:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/65196872.shtml)

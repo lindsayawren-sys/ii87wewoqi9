@@ -1,61 +1,56 @@
-# 超越美债，黄金成为全球最大储备资产
+# 青海举办铸牢中华民族共同体意识专题研讨班
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-作者 | 第一财经 樊志菁 欧央行在最新发布的年度重磅报告中表示，在各国央行持续增持实物黄金、金价稳居历史高位附近的背景下，黄金已超越美国国债，成为全球最大储备资产。 地缘因素催生需求 欧洲央行周二发布《2026年度欧元国际地位报告》称，黄金持仓占比已经超越美国国债，登顶全球央行储备榜首。 截至2025年年末，在包含外汇与黄金的全球官方储备总量中，黄金占比升至27%，上年同期为
+中新网西宁5月19日电 (祁绣娟)5月18日，为期五天的第5期铸牢中华民族共同体意识专题研讨班在青海省委党校开班。 此次培训班旨在提高参训学员对于青海省情的把握能力和依法处理民族事务的能力，为全面推动青海民族团结进步事业高质量发展储备一批骨干力量、拓宽干部思维视野。 青海省委常委、统战部部长班果出席开班式并作辅导讲话时表示，青海正处于全面完成创建全国民族团结进步示范省战略目标，
 
 ## 正文
 
-作者 | 第一财经 樊志菁 欧央行在最新发布的年度重磅报告中表示，在各国央行持续增持实物黄金、金价稳居历史高位附近的背景下，黄金已超越美国国债，成为全球最大储备资产。
+中新网西宁5月19日电 (祁绣娟)5月18日，为期五天的第5期铸牢中华民族共同体意识专题研讨班在青海省委党校开班。
 
-地缘因素催生需求 欧洲央行周二发布《2026年度欧元国际地位报告》称，黄金持仓占比已经超越美国国债，登顶全球央行储备榜首。
+此次培训班旨在提高参训学员对于青海省情的把握能力和依法处理民族事务的能力，为全面推动青海民族团结进步事业高质量发展储备一批骨干力量、拓宽干部思维视野。
 
-截至2025年年末，在包含外汇与黄金的全球官方储备总量中，黄金占比升至27%，上年同期为20%；美国国债占比从25%回落至22%，欧元计价储备占比维持15%不变。
+青海省委常委、统战部部长班果出席开班式并作辅导讲话时表示，青海正处于全面完成创建全国民族团结进步示范省战略目标，着力向高标准建设铸牢中华民族共同体意识示范省跃升的新的起点，准确把握铸牢中华民族共同体意识的基本原则与科学方法，深刻理解其核心要义、实践要求与内在规律，对于推动新时代民族工作高质量发展，具有重要的实践指导意义。
 
-此次位次变动主要由估值变动推动：去年全球央行的黄金实际购金节奏有所放缓，但国际金价大幅飙升。
+班果要求，全省各地区、各部门要围绕铸牢中华民族共同体意识示范省建设体制机制、构筑中华民族共有精神家园、促进各民族交往交流交融、促进各民族实现共同富裕、推进民族事务治理体系和治理能力现代化等重点工作，坚持把铸牢中华民族共同体意识主线要求、民族团结进步促进法贯彻实施、树立和践行正确政绩观贯穿今后工作始终。
 
-欧洲央行表示，若沿用2023年金价核算，美国国债仍以26%的占比稳居首位，黄金仅为16%。
+据介绍，铸牢中华民族共同体意识专题研讨班自实施创建全国民族团结进步示范省战略以来已连续举办了5期，5年来共培训各地区、各部门领导干部270余人次。
 
-欧洲央行行长克里斯蒂娜・拉加德在报告中写道：“地缘紧张局势持续助推各国央行大举配置黄金。
+此次研讨班由青海省委组织部、青海省委统战部联合举办。
 
-”欧洲央行表示，新兴经济体中国、波兰、土耳其、印度等国持续购金重塑了全球储备配置结构，叠加金价大幅上涨，共同推高黄金在储备总资产中的权重。
+青海省委铸牢中华民族共同体意识暨省民族团结进步事业工作领导小组各成员单位有关负责人、各市州委统战部部长、民宗委主任共54人参加。
 
-储备结构变动折射出多国推进外汇储备去美元化、分散储备币种的大趋势，不过美元依旧是全球首要储备货币。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-30 07:13 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 07:10 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-30 07:09 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 07:01 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 07:05 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 06:56 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-30 07:05 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 07:16 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 06:49 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 07:04 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 07:06 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 07:00 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 06:52 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 07:11 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 07:15 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 07:20 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-30 07:03 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 07:13 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 06:57 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 07:12 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 07:21 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 07:16 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 07:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 07:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:09 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/498160247.shtml)
-- 2026-06-30 06:59 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/7871055.shtml)
-- 2026-06-30 06:56 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/96044.shtml)
-- 2026-06-30 07:17 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/1187704.shtml)
-- 2026-06-30 07:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/133409964028.shtml)
-- 2026-06-30 06:53 - [送你一朵小红花](https://www.share.minike.top/Article/details/9493708.shtml)
-- 2026-06-30 06:55 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/99166090876.shtml)
-- 2026-06-30 07:12 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/93246696.shtml)
-- 2026-06-30 07:13 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/04953184186.shtml)
-- 2026-06-30 06:55 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/71204040482.shtml)
-- 2026-06-30 06:49 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/71198501.shtml)
-- 2026-06-30 06:57 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/4129701073.shtml)
-- 2026-06-30 06:57 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/275052608.shtml)
-- 2026-06-30 06:48 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/40568.shtml)
-- 2026-06-30 07:03 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/21998853177.shtml)
+- 2026-06-30 07:11 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/2963810.shtml)
+- 2026-06-30 07:18 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/91673536633.shtml)
+- 2026-06-30 07:05 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/073498.shtml)
+- 2026-06-30 07:21 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/22468.shtml)
+- 2026-06-30 07:22 - [扬名立万](https://www.blog.minike.top/Article/details/078305.shtml)
+- 2026-06-30 07:20 - [恋与深空 日服](http://www.share.minike.top/Article/details/89336988373.shtml)
+- 2026-06-30 07:00 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/2805450994.shtml)
+- 2026-06-30 07:15 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/605610993447.shtml)
+- 2026-06-30 07:09 - [千香](https://www.share.minike.top/Article/details/18129.shtml)
+- 2026-06-30 06:57 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/556596594532.shtml)
+- 2026-06-30 07:09 - [千与千寻](https://www.share.kurohicncr.top/Article/details/8605624224.shtml)
+- 2026-06-30 06:55 - [张凌赫 客串](https://www.blog.minike.top/Article/details/941181278.shtml)
+- 2026-06-30 07:22 - [日本反击率先破门](https://www.blog.minike.top/Article/details/75416161.shtml)
+- 2026-06-30 07:22 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/05335423.shtml)
+- 2026-06-30 07:21 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/530115614351.shtml)

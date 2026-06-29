@@ -1,60 +1,60 @@
-# 意大利驻华大使：为意中友谊干杯
+# 不是“拉肚子”那么简单：专家解读炎症性肠病防治
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 10:24 来源：中国新闻网 “为意中友谊干杯！” 意大利驻华大使安博思6月1日在北京如是说。 当日，意大利共和国成立80周年庆祝活动在意大利驻华大使馆举行，安博思出席并致辞。 去年是中意建交55周年。安博思说，在现代外交的时代到来前，两国文明就已经开始对话。“得益于众多旅行家、商人、学者和传教士的不懈努力，中国与西方的联系不断深化，知识也得以
+中新网沈阳5月19日电 (王涵 禹瑞斋)5月19日是“世界炎症性肠病日”。近年来，炎症性肠病(IBD)在国内发病率持续攀升。近日，中国医科大学附属盛京医院第一消化内科主任田丰接受采访，就IBD的认知与防治进行专业解读，呼吁公众打破“拉肚子”的认知误区，做到早诊早治。田丰表示，IBD不是普通的肠胃炎，而是包括溃疡性结肠炎和克罗恩病在内的严重肠道毁损性疾病。其中，克罗恩病对青少年影
 
 ## 正文
 
-发布时间：2026年06月02日 10:24 来源：中国新闻网 “为意中友谊干杯！
+中新网沈阳5月19日电 (王涵 禹瑞斋)5月19日是“世界炎症性肠病日”。
 
-” 意大利驻华大使安博思6月1日在北京如是说。
+近年来，炎症性肠病(IBD)在国内发病率持续攀升。
 
-当日，意大利共和国成立80周年庆祝活动在意大利驻华大使馆举行，安博思出席并致辞。
+近日，中国医科大学附属盛京医院第一消化内科主任田丰接受采访，就IBD的认知与防治进行专业解读，呼吁公众打破“拉肚子”的认知误区，做到早诊早治。
 
-去年是中意建交55周年。
+田丰表示，IBD不是普通的肠胃炎，而是包括溃疡性结肠炎和克罗恩病在内的严重肠道毁损性疾病。
 
-安博思说，在现代外交的时代到来前，两国文明就已经开始对话。
+其中，克罗恩病对青少年影响尤甚，患者常面临着腹痛、腹泻、消瘦、贫血，严重的营养不良等困境，对工作和生活造成极大困扰。
 
-“得益于众多旅行家、商人、学者和传教士的不懈努力，中国与西方的联系不断深化，知识也得以传播。
+针对IBD发病率攀升的原因，田丰指出，这与国人生活方式变迁密切相关。
 
-” 在安博思看来，文化是意中关系发展的关键驱动力。
+油炸等过加工食品的普及，都与发病率呈正相关。
 
-“文化是我们(双边)关系的核心，是促进相互理解与交往的重要力量，这种理解与交往不仅存在于机构之间，也在民众之间。
+此外，现代人生活“过度洁净”使儿童肠道免疫系统在发育过程中缺乏必要的病原微生物和寄生虫的刺激从而导致发育异常，是IBD的发生率明显升高的重要原因。
 
 ## 相关推荐
 
-- 2026-06-30 07:10 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 06:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 06:50 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-30 07:06 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 07:12 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 07:09 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 06:51 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 07:03 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 07:13 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 06:53 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 06:53 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 06:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 06:58 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 07:00 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 06:54 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 07:23 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 07:19 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 07:16 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 06:57 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 07:05 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 07:09 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 07:00 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 07:06 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 07:22 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-30 07:20 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 07:04 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 07:02 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 07:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/4913896506.shtml)
-- 2026-06-30 06:54 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/2869150.shtml)
-- 2026-06-30 07:05 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/414189584693.shtml)
-- 2026-06-30 06:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/015672497276.shtml)
-- 2026-06-30 06:54 - [周生如故](http://www.share.minike.top/Article/details/889764852.shtml)
-- 2026-06-30 07:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/083171.shtml)
-- 2026-06-30 06:59 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/321612.shtml)
-- 2026-06-30 07:15 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/568192.shtml)
-- 2026-06-30 07:05 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/039463827.shtml)
-- 2026-06-30 07:17 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/270717992.shtml)
-- 2026-06-30 07:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/2820291690.shtml)
-- 2026-06-30 07:13 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/285811836573.shtml)
-- 2026-06-30 07:11 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/996339488.shtml)
-- 2026-06-30 07:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/92975373385.shtml)
-- 2026-06-30 06:56 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/1075314507.shtml)
+- 2026-06-30 06:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/0519828884.shtml)
+- 2026-06-30 06:55 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/549694.shtml)
+- 2026-06-30 07:09 - [恋与深空 巧合](http://www.share.minike.top/Article/details/67933.shtml)
+- 2026-06-30 07:04 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/809821062.shtml)
+- 2026-06-30 07:19 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/1388327.shtml)
+- 2026-06-30 06:54 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/649113514.shtml)
+- 2026-06-30 06:54 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/9132767098.shtml)
+- 2026-06-30 07:00 - [起风了](https://www.blog.minike.top/Article/details/406438289997.shtml)
+- 2026-06-30 07:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/21711.shtml)
+- 2026-06-30 07:11 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/13815564.shtml)
+- 2026-06-30 07:21 - [女心理师](http://www.share.kurohicncr.top/Article/details/115292.shtml)
+- 2026-06-30 07:10 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/760855751358.shtml)
+- 2026-06-30 07:03 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/3462207579.shtml)
+- 2026-06-30 07:03 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/55898.shtml)
+- 2026-06-30 06:58 - [急先锋](http://www.blog.kurohicncr.top/Article/details/01680.shtml)

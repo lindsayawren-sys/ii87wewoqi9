@@ -1,52 +1,59 @@
-# 山东烟台：果园来了个新家伙 专门给苹果“穿衣服”
+# 东盟国家官员：中国—东盟商贸资讯平台发挥积极作用
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 13:51 来源：中国新闻网 近日，山东烟台，由山东渤聚通云计算有限公司联合东南大学研发的苹果幼果套袋机器人，进入果园开展实地测试。烟台是中国苹果主产区之一，长期面临套袋环节用工难、成本高、标准化程度低的产业痛点。这款机器人融合了计算机视觉与智能机械技术，有望为果农破解“套袋难”问题。(姜鹏飞 制作 刘昊） 责任编辑：【罗攀】
+中新社南宁5月19日电 (阚枫 陈秋霞)中国—东盟商贸资讯平台座谈会18日在广西南宁举行。座谈会上，东盟国家驻南宁总领事馆官员就促进各自国家同中国经贸合作和人文交流，加强东盟国家同中国贸易畅通和民心相通分享了看法。中国—东盟商贸资讯平台是中国新闻网围绕中国—东盟经贸合作打造的一站式商贸资讯服务平台，重点面向东盟商贸部门、行业协会、华侨华人、跨境企业等群体，提供一站式商贸信息服务
 
 ## 正文
 
-发布时间：2026年06月02日 13:51 来源：中国新闻网 近日，山东烟台，由山东渤聚通云计算有限公司联合东南大学研发的苹果幼果套袋机器人，进入果园开展实地测试。
+中新社南宁5月19日电 (阚枫 陈秋霞)中国—东盟商贸资讯平台座谈会18日在广西南宁举行。
 
-烟台是中国苹果主产区之一，长期面临套袋环节用工难、成本高、标准化程度低的产业痛点。
+座谈会上，东盟国家驻南宁总领事馆官员就促进各自国家同中国经贸合作和人文交流，加强东盟国家同中国贸易畅通和民心相通分享了看法。
 
-这款机器人融合了计算机视觉与智能机械技术，有望为果农破解“套袋难”问题。
+中国—东盟商贸资讯平台是中国新闻网围绕中国—东盟经贸合作打造的一站式商贸资讯服务平台，重点面向东盟商贸部门、行业协会、华侨华人、跨境企业等群体，提供一站式商贸信息服务。
 
-(姜鹏飞 制作 刘昊） 责任编辑：【罗攀】
+平台网页、客户端于2026年1月起陆续上线试运行，已成为广受欢迎的中国—东盟经贸合作信息窗口。
+
+柬埔寨驻南宁总领事馆总领事唐肃安表示，当前背景下，信息共享变得至关重要。
+
+柬中合作成果丰硕，从企业角度来看，信息服务方面的沟通与合作十分重要，中国—东盟商贸资讯平台在推动商贸合作、助力企业转型方面发挥了积极作用。
+
+柬中合作源于传统友谊，面向未来，愿持续拓展合作领域，赋能产业升级，实现互利共赢。
+
+缅甸驻南宁总领事馆总领事凯素林认为，在中国—东盟自贸区3.0版升级议定书签署的大背景下，充分发挥中国—东盟商贸资讯平台价值尤为重要。
 
 ## 相关推荐
 
-- 2026-06-30 06:59 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 07:00 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 07:17 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 06:54 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 06:48 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 07:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-30 07:09 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 07:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 06:53 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 07:01 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 06:52 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 07:09 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 07:03 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 07:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 07:17 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 07:11 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 07:11 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 06:59 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 07:02 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 07:00 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 07:04 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 07:12 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 07:02 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 07:23 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 07:09 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 07:22 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 07:15 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:53 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/89995.shtml)
-- 2026-06-30 07:11 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/16153.shtml)
-- 2026-06-30 06:48 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/1320904757.shtml)
-- 2026-06-30 07:07 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/238503153911.shtml)
-- 2026-06-30 06:52 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/24851099.shtml)
-- 2026-06-30 07:16 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/593830.shtml)
-- 2026-06-30 07:09 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/890784279226.shtml)
-- 2026-06-30 07:09 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/06942.shtml)
-- 2026-06-30 07:08 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/6950850.shtml)
-- 2026-06-30 06:59 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/903754.shtml)
-- 2026-06-30 07:04 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/92058140059.shtml)
-- 2026-06-30 07:14 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/461430663.shtml)
-- 2026-06-30 06:50 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/91998519.shtml)
-- 2026-06-30 07:02 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/908096.shtml)
-- 2026-06-30 06:56 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/8643850.shtml)
+- 2026-06-30 07:07 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/222554.shtml)
+- 2026-06-30 07:12 - [沙丘](https://www.blog.minike.top/Article/details/27044.shtml)
+- 2026-06-30 07:12 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/866160048990.shtml)
+- 2026-06-30 06:54 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/86231833222.shtml)
+- 2026-06-30 07:21 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/153676112606.shtml)
+- 2026-06-30 07:14 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/122762393.shtml)
+- 2026-06-30 06:57 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/229700.shtml)
+- 2026-06-30 07:07 - [索马里女大使：想和中国一起搞事业](http://www.share.minike.top/Article/details/86677992670.shtml)
+- 2026-06-30 07:18 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/203217013.shtml)
+- 2026-06-30 07:10 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/25576875.shtml)
+- 2026-06-30 07:12 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/656733311.shtml)
+- 2026-06-30 07:16 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/330560.shtml)
+- 2026-06-30 07:03 - [曝灰熊将莫兰特交易至开拓者](http://www.share.kurohicncr.top/Article/details/3532330539.shtml)
+- 2026-06-30 07:17 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/85586.shtml)
+- 2026-06-30 07:00 - [斗破苍穹](http://www.share.minike.top/Article/details/7699934611.shtml)

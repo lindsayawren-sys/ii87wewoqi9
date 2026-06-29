@@ -1,61 +1,57 @@
-# 让儿童手表回归定位与通话，怎么就这么难？
+# 陈果：卖铲人也可以伤人最深--从JDSU看1999华尔街“要站在光里”启示录
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-给孩子戴上手表本是为了多一分安全保障，怎么反而成了一个防不胜防的隐患源头？ 在我国，儿童智能手表普及率近三成，相当于每三个孩子中就有一人佩戴。实时定位、一键通话等功能，确实为家庭联络提供了便利。然而，当防沉迷系统形同虚设、支付漏洞频频发生、不适宜的有害内容隐匿其中时，我们不得不追问：这块戴在孩子手腕上的智能设备，究竟是在守护安全，还是在算计儿童？ 针对行业乱象，国家层面已经出台
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！这轮美股AI牛的光通信明星股LITE（Lumentum Holdings），正是当年那只让华尔街爱恨交织的JDSU（JDS Uniphase）的转世真身。2015年，老JDSU宣布一分为二，其最核心的光通信零部件业务独立分拆上市，代码正式变更为LITE。 时光倒流回互联网牛巅峰时刻，当年的JDSU是华尔街成
 
 ## 正文
 
-给孩子戴上手表本是为了多一分安全保障，怎么反而成了一个防不胜防的隐患源头？
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在我国，儿童智能手表普及率近三成，相当于每三个孩子中就有一人佩戴。
+这轮美股AI牛的光通信明星股LITE（Lumentum Holdings），正是当年那只让华尔街爱恨交织的JDSU（JDS Uniphase）的转世真身。
 
-实时定位、一键通话等功能，确实为家庭联络提供了便利。
+2015年，老JDSU宣布一分为二，其最核心的光通信零部件业务独立分拆上市，代码正式变更为LITE。
 
-然而，当防沉迷系统形同虚设、支付漏洞频频发生、不适宜的有害内容隐匿其中时，我们不得不追问：这块戴在孩子手腕上的智能设备，究竟是在守护安全，还是在算计儿童？
+时光倒流回互联网牛巅峰时刻，当年的JDSU是华尔街成长股机构爱得最深、抱团最紧的“超级核心票”。
 
-针对行业乱象，国家层面已经出台了硬约束。
+在1999年到2000年初的狂欢中DSU在光通信产业链中处于最顶端“卖铲人”位置。
 
-我国首部儿童手表领域强制性国家标准——《儿童手表安全技术要求》已正式批准发布，并将于2027年1月1日起全面实施。
+它生产的光纤激光器、光调制器和密集波分复用（DWDM）核心芯片，是思科、朗讯、北电这些硬件巨头制造通信设备时，绝对不可替代的底层零部件。
 
-这份覆盖了内容安全、防沉迷、付费管控等领域的国家标准，为长期野蛮生长的市场划定了不可逾越的底线。
+由于其技术壁垒极高，在当时被华尔街视为整个互联网基建中不可卡脖子的咽喉”。
 
-但一纸标准仅是治理的起点，要让标准穿透到日常使用场景中，就必须看清那些急需被规范的乱象背后，本质上是商业逻辑对安全边界的持续蚕食。
+光芒四射：业绩高速增长驱动股价上涨 今天的投资人对JDSU这名字已经比较陌生，但其在美股历史上有着光芒四射的阶段： 股价与预期：JDSU的季度营收从1998年底的几千万美元，一路飙升到1999年底的单季超3亿美元，同比增速高达200%以上。
 
 ## 相关推荐
 
-- 2026-06-30 07:00 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 07:11 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 06:48 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 07:06 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 06:48 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 07:10 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 07:08 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 06:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 07:03 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 07:17 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 07:07 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-30 07:17 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-30 07:13 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 06:58 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 07:02 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 06:54 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 07:10 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 07:17 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 06:56 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 07:04 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 07:21 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 07:16 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 06:58 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 07:15 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 07:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 07:08 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:05 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/550237.shtml)
-- 2026-06-30 07:18 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/845108614.shtml)
-- 2026-06-30 07:07 - [扫黑风暴](https://www.share.minike.top/Article/details/3577156.shtml)
-- 2026-06-30 07:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/0544177310.shtml)
-- 2026-06-30 07:00 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/21816.shtml)
-- 2026-06-30 07:14 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/009896.shtml)
-- 2026-06-30 06:49 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/5800869.shtml)
-- 2026-06-30 07:05 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/835125767.shtml)
-- 2026-06-30 07:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/9885721.shtml)
-- 2026-06-30 07:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/84825023013.shtml)
-- 2026-06-30 06:51 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/602206922090.shtml)
-- 2026-06-30 07:16 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/9236214901.shtml)
-- 2026-06-30 07:00 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/78330008.shtml)
-- 2026-06-30 06:48 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/738526.shtml)
-- 2026-06-30 07:01 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/214921804523.shtml)
+- 2026-06-30 07:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/56153.shtml)
+- 2026-06-30 07:18 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/45496617661.shtml)
+- 2026-06-30 06:55 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/314083651993.shtml)
+- 2026-06-30 07:16 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/54471684492.shtml)
+- 2026-06-30 07:19 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/7404626814.shtml)
+- 2026-06-30 06:59 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/556000.shtml)
+- 2026-06-30 07:13 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/630636.shtml)
+- 2026-06-30 07:18 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/98968722391.shtml)
+- 2026-06-30 07:06 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/29858.shtml)
+- 2026-06-30 06:57 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/544874422155.shtml)
+- 2026-06-30 07:04 - [千香](https://www.share.kurohicncr.top/Article/details/69116692517.shtml)
+- 2026-06-30 07:00 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/831287593624.shtml)
+- 2026-06-30 07:04 - [内马尔替补](http://www.share.minike.top/Article/details/5830246.shtml)
+- 2026-06-30 07:10 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/5564210398.shtml)
+- 2026-06-30 07:11 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/40128827594.shtml)

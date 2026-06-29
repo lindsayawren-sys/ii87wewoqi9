@@ -1,58 +1,61 @@
-# 多边央行货币桥落地澳门，首批共11家澳门本地银行参与
+# 基流科技港股IPO：收入规模仅同行一半市场份额反高0.1个点 研发费用率仅个位数过半发明专利系受让取得
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-数字澳门元目前已进入平稳有序的沙盒测试阶段，下一阶段将逐步拓展应用场景，覆盖电子政务、公共交通、校园服务等领域。 日前，在澳门金融管理局举办的“中国-葡语国家央行数字货币发展与跨境创新应用高端研讨会”上，中国人民银行副行长陆磊表示，目前澳门已加入mBridge（多边央行数字货币桥）项目，并有序开展数字澳门元沙盒测试。 澳门金融管理局行政管理委员会委员刘杏娟在会上公布了多项重要进
+出品：新浪财经上市公司研究院 作者：渚 4月29日，上海基流科技股份有限公司（以下简称“基流科技”或“公司”）向联交所主板提交上市申请，国泰君安国际为独家保荐人。 成立短短3年时间，基流科技估值暴涨至91.6亿元，PE高达294倍，远超行业平均水平。估值大涨之际，实控人胡效赫累计减持套现3600万元。 业绩层面，基流科技净利润与现金流严重背离，经调整净利润的增长更多是“纸面富贵
 
 ## 正文
 
-数字澳门元目前已进入平稳有序的沙盒测试阶段，下一阶段将逐步拓展应用场景，覆盖电子政务、公共交通、校园服务等领域。
+出品：新浪财经上市公司研究院 作者：渚 4月29日，上海基流科技股份有限公司（以下简称“基流科技”或“公司”）向联交所主板提交上市申请，国泰君安国际为独家保荐人。
 
-日前，在澳门金融管理局举办的“中国-葡语国家央行数字货币发展与跨境创新应用高端研讨会”上，中国人民银行副行长陆磊表示，目前澳门已加入mBridge（多边央行数字货币桥）项目，并有序开展数字澳门元沙盒测试。
+成立短短3年时间，基流科技估值暴涨至91.6亿元，PE高达294倍，远超行业平均水平。
 
-澳门金融管理局行政管理委员会委员刘杏娟在会上公布了多项重要进展。
+估值大涨之际，实控人胡效赫累计减持套现3600万元。
 
-她介绍，数字澳门元目前已进入平稳有序的沙盒测试阶段，下一阶段将逐步拓展应用场景，覆盖电子政务、公共交通、校园服务等领域，同时依托数字货币技术优化升级澳门“聚易用”支付清算结算体系，提升整体运行效率。
+业绩层面，基流科技净利润与现金流严重背离，经调整净利润的增长更多是“纸面富贵”，而非真金白银的流入。
 
-据悉，澳门金融管理局已完成与mBridge项目成员的系统对接，成功搭建起高效、安全、低成本的跨境资金支付结算通道，并于6月2日正式开放本地银行接入mBridge开展跨境交易，首批共有11家澳门本地银行参与。
+与此同时，大量资金滞留在基流科技的应收账款中，造成营运资金持续承压。
 
-分别是：农业银行澳门分行、中国银行澳门分行、建设银行澳门分行、澳门发展银行、广发银行澳门分行、工银澳门、澳门国际银行、大丰银行、立桥银行、交通银行澳门分行、创兴银行澳门分行。
+此外，截至目前，基流科技共持有9项授权发明专利，其中有5项系受让取得，而非公司自主研发取得。
 
-mBridge项目由中国人民银行、香港金融管理局、泰国中央银行、阿联酋中央银行联合牵头，国际清算银行创新中心协调推进，是基于区块链与分布式账本技术的央行数字货币跨境支付结算平台。
+且该部分专利属可编程网络及软件定义网络领域，与公司主营的AI算力集群并无强相关。
 
-简单来说，就是各央行利用央行数字货币搭建互通桥梁，形成跨境支付网络。
+PE高达294倍 估值大涨之际实控人减持套现3600万 2023年2月，基流科技正式成立，定义为全栈自主的算力建筑商，专注搭建智算系统的软硬件全栈基础设施。
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 06:58 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 06:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 06:59 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 07:06 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 06:53 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 06:48 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-30 07:01 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 06:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 06:57 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 07:16 - [《共患难》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 06:56 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 07:13 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 06:57 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 07:12 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 07:07 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 07:19 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 07:21 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 06:57 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 07:17 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-30 06:59 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 07:15 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 06:55 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-30 06:54 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 07:06 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 07:11 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 06:58 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:17 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/97953169.shtml)
-- 2026-06-30 06:59 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/013483596154.shtml)
-- 2026-06-30 06:58 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/96975.shtml)
-- 2026-06-30 07:01 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/92938.shtml)
-- 2026-06-30 06:52 - [刘宇宁高情商化解谁站C位](https://www.blog.kurohicncr.top/Article/details/07128193.shtml)
-- 2026-06-30 07:16 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/997797292867.shtml)
-- 2026-06-30 06:55 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/2409202.shtml)
-- 2026-06-30 07:01 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/00696.shtml)
-- 2026-06-30 07:03 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/73109880.shtml)
-- 2026-06-30 07:05 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/829955.shtml)
-- 2026-06-30 06:54 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/244174948938.shtml)
-- 2026-06-30 06:50 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/990970615.shtml)
-- 2026-06-30 07:01 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/3327928.shtml)
-- 2026-06-30 06:57 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/00021518500.shtml)
-- 2026-06-30 07:17 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/6937054809.shtml)
+- 2026-06-30 07:11 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/02393.shtml)
+- 2026-06-30 07:09 - [森保一致歉：世界第一目标没能实现](http://www.blog.kurohicncr.top/Article/details/778038122006.shtml)
+- 2026-06-30 07:21 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/3723295328.shtml)
+- 2026-06-30 07:03 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/909916068160.shtml)
+- 2026-06-30 07:14 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/75409977.shtml)
+- 2026-06-30 07:15 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/156497217205.shtml)
+- 2026-06-30 06:57 - [德国巴拉圭加时](http://www.blog.minike.top/Article/details/897192474.shtml)
+- 2026-06-30 06:58 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/00251406.shtml)
+- 2026-06-30 07:23 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/0976375684.shtml)
+- 2026-06-30 07:00 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/438416729.shtml)
+- 2026-06-30 07:20 - [电影后室值得看吗](http://www.share.minike.top/Article/details/57758728.shtml)
+- 2026-06-30 07:04 - [哈弗茨头球破门](http://www.blog.minike.top/Article/details/1022210.shtml)
+- 2026-06-30 06:55 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/1887880.shtml)
+- 2026-06-30 07:12 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/507050901.shtml)
+- 2026-06-30 07:11 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/8907381.shtml)

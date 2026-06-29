@@ -1,60 +1,61 @@
-# 国金证券：原油进入新的定价状态
+# 油价维持高位叠加美元强势，美元兑印度卢比逼近历史高位
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-霍尔木兹危机不是新一轮油价长期牛市的起点，而是旧定价机制松动后的风险再定价，虽然会带来阶段性中枢抬升，但需求决定了高油价难以长期站稳。 雪涛宏观笔记 文：国金宏观宋雪涛/联系人厉梦颖 过去几十年运行相对稳定的原油定价体系，正在同时受到实物端与制度端的双重冲击。美以伊冲突引发的霍尔木兹海峡危机削弱了市场对关键能源通道持续畅通的信任。阿联酋退群则暴露出是石油联盟内部协调能力下降。二
+汇通财经APP讯——美元兑印度卢比周二亚洲时段继续维持强势，汇价运行于96.35附近，接近此前创下的历史高位96.62。当前国际原油价格持续高企，加之美元整体走强，令高度依赖能源进口的印度经济面临明显压力，印度卢比因此连续第10个交易日维持弱势。 国际油价近期持续受到中东供应风险推动。由于霍尔木兹海峡能源运输流动受限，市场对于全球原油供应紧张的担忧明显升温。霍尔木兹海峡承担全球
 
 ## 正文
 
-霍尔木兹危机不是新一轮油价长期牛市的起点，而是旧定价机制松动后的风险再定价，虽然会带来阶段性中枢抬升，但需求决定了高油价难以长期站稳。
+汇通财经APP讯——美元兑印度卢比周二亚洲时段继续维持强势，汇价运行于96.35附近，接近此前创下的历史高位96.62。
 
-雪涛宏观笔记 文：国金宏观宋雪涛/联系人厉梦颖 过去几十年运行相对稳定的原油定价体系，正在同时受到实物端与制度端的双重冲击。
+当前国际原油价格持续高企，加之美元整体走强，令高度依赖能源进口的印度经济面临明显压力，印度卢比因此连续第10个交易日维持弱势。
 
-美以伊冲突引发的霍尔木兹海峡危机削弱了市场对关键能源通道持续畅通的信任。
+国际油价近期持续受到中东供应风险推动。
 
-阿联酋退群则暴露出是石油联盟内部协调能力下降。
+由于霍尔木兹海峡能源运输流动受限，市场对于全球原油供应紧张的担忧明显升温。
 
-二者叠加，意味着本轮油价波动不能仅用短期地缘风险溢价解释，原油定价机制本身可能也需要重新校准。
+霍尔木兹海峡承担全球约20%的海运原油运输，任何运输中断风险都会迅速推升国际油价。
 
-一、历史上油价的两次“换挡” 回顾1946年以来的原油市场，全球油价大体经历了两轮中枢的结构性上移，每一轮都对应着定价机制的切换。
+目前WTI原油价格维持在102美元上方运行，周一一度触及104.74美元，创下近两周高位。
 
-第一轮中枢上移发生在1973年石油危机之后，是定价权转移、议价能力转移和货币体系重定价共同作用的结果。
+虽然美国总统特朗普最新表态暗示美国与伊朗谈判可能取得积极进展，短线限制了油价进一步飙升，但整体供应担忧情绪依然存在。
 
-1973年以前，国际油价长期由西方石油巨头“七姐妹”主导，产油国更多处于价格和分成安排的接受方。
+特朗普表示，原计划针对伊朗的军事行动已经被推迟，因为谈判出现“积极进展”，并称双方达成协议的可能性较高。
 
 ## 相关推荐
 
-- 2026-06-30 06:51 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 06:57 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 07:05 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 07:09 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 07:16 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-30 07:04 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 06:51 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 07:10 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 07:12 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 06:59 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 07:05 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 06:49 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 07:18 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 06:49 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-30 07:06 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 07:17 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 06:58 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 06:54 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 07:21 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 07:10 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 06:56 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 07:15 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 07:02 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 07:09 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 06:55 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 07:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 07:06 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 07:12 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 07:11 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:02 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/44735252869.shtml)
-- 2026-06-30 07:11 - [千香](https://www.share.kurohicncr.top/Article/details/6474434525.shtml)
-- 2026-06-30 06:56 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/3249627529.shtml)
-- 2026-06-30 07:08 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/77472.shtml)
-- 2026-06-30 06:56 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/75349442617.shtml)
-- 2026-06-30 07:00 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/64194269891.shtml)
-- 2026-06-30 06:58 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/97790535825.shtml)
-- 2026-06-30 07:08 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/197189037070.shtml)
-- 2026-06-30 06:53 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/27117831.shtml)
-- 2026-06-30 07:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/130637705353.shtml)
-- 2026-06-30 06:55 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/29508712.shtml)
-- 2026-06-30 07:15 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/5728225754.shtml)
-- 2026-06-30 06:55 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/6885312.shtml)
-- 2026-06-30 07:14 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/42042563.shtml)
-- 2026-06-30 07:14 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/70869766414.shtml)
+- 2026-06-30 07:23 - [日本领先巴西](https://www.blog.minike.top/Article/details/10586352537.shtml)
+- 2026-06-30 07:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/2509154003.shtml)
+- 2026-06-30 07:02 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/95664.shtml)
+- 2026-06-30 07:06 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/89126.shtml)
+- 2026-06-30 07:16 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/7373537466.shtml)
+- 2026-06-30 07:06 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/05967629402.shtml)
+- 2026-06-30 07:01 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/8768353.shtml)
+- 2026-06-30 07:18 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/75023084.shtml)
+- 2026-06-30 07:23 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/853432.shtml)
+- 2026-06-30 07:14 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/802086217.shtml)
+- 2026-06-30 07:03 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/37658059557.shtml)
+- 2026-06-30 06:54 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/016727245682.shtml)
+- 2026-06-30 07:07 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/379008.shtml)
+- 2026-06-30 07:19 - [巴拉圭进球](http://www.share.minike.top/Article/details/46655072462.shtml)
+- 2026-06-30 06:55 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/461365.shtml)

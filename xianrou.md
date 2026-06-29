@@ -1,58 +1,58 @@
-# 亚历山大·王欲重振Meta人工智能优势
+# 四家消金公司挂牌转让不良贷款31.45亿
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-在马克·扎克伯格任命亚历山大·王将Meta的人工智能工作转入战时状态一年后，这家市值1.5万亿美元的公司推出了Muse Spark，这是其迄今为止最可信的AI模型。 扎克伯格将重振Meta人工智能的重任交给了一位当时年仅28岁的初创公司创始人，而非一位资深研究员。他押注的是，局外人的紧迫感和野心能够在公司原有的AI组织苦苦挣扎之处取得成功。 根据对Meta现任和前任员工以及王的
+来源：中国网财经 中国网财经5月19日讯 日前，中银消费金融、马上消费金融、锦程消费金融、唯品富邦消费金融四家消金公司同日在银行业信贷资产登记流转中心有限公司（简称“银登中心”）挂牌转让不良贷款本息合计31.45亿元。 从4家消费金融公司发布的个人不良贷款转让公告来看，中银消费金融一连挂牌3期个人不良贷款，未偿本息合计27.96亿元，加权平均逾期天数均超2700天。 截至目前，
 
 ## 正文
 
-在马克·扎克伯格任命亚历山大·王将Meta的人工智能工作转入战时状态一年后，这家市值1.5万亿美元的公司推出了Muse Spark，这是其迄今为止最可信的AI模型。
+来源：中国网财经 中国网财经5月19日讯 日前，中银消费金融、马上消费金融、锦程消费金融、唯品富邦消费金融四家消金公司同日在银行业信贷资产登记流转中心有限公司（简称“银登中心”）挂牌转让不良贷款本息合计31.45亿元。
 
-扎克伯格将重振Meta人工智能的重任交给了一位当时年仅28岁的初创公司创始人，而非一位资深研究员。
+从4家消费金融公司发布的个人不良贷款转让公告来看，中银消费金融一连挂牌3期个人不良贷款，未偿本息合计27.96亿元，加权平均逾期天数均超2700天。
 
-他押注的是，局外人的紧迫感和野心能够在公司原有的AI组织苦苦挣扎之处取得成功。
+截至目前，中银消费金融年内已累计挂牌转让13期不良贷款，累计转让规模达60.7亿元。
 
-根据对Meta现任和前任员工以及王的身边人的采访，这位亿万富翁神童如今已开始逐步取得成果，同时也在应对对其经验不足的批评、早期研究面临的挑战，以及在一家科技巨头工作所涉及的深奥复杂的内部政治。
+从资产质量来看，其出让不良多数逾期时长超3年，最长加权平均逾期更是超过7年。
 
-在近12个月的时间里，王组建了一支薪酬高达数百万美元的精英研究团队，重塑了Meta的部分人工智能业务，并已成为公司内部最具影响力的高管之一——他是去年与扎克伯格一同出席由唐纳德·特朗普总统主持的白宫晚宴、与硅谷顶级人物会面的唯一Meta领导人。
+马上消费金融挂牌的不良贷款，未偿本息为2.40亿元，加权平均逾期天数309.70天；唯品富邦消金、锦程消费金融的挂牌不良贷款未偿本息分别为2348.01万元、8575.48万元，加权平均逾期天数分别为158.40天、172.23天。
 
-今年4月，Meta还发布了Muse Spark，这是从王领导的秘密研究团队——TBD实验室——诞生的首个重要模型。
+今年以来，消费金融公司挂牌转让不良贷款规模处在高位。
 
-支持王的人将这一模型的发布视为Meta人工智能重建工作正在取得进展的最明确信号，并相信预计将在未来几个月推出的后续模型有望进一步缩小与OpenAI、谷歌和Anthropic的差距。
+据银登中心网站公开信息统计，截至目前，年内已有22家消费金融公司发布个人不良贷款转让公告，累计挂牌转让不良贷款规模超340亿元。
 
-卡内基梅隆大学计算机科学教授、Meta前人工智能研究副总裁鲁斯·萨拉赫特迪诺夫表示：“TBD实验室在短时间内完成的工作量令人印象深刻。
+素喜智研高级研究员苏筱芮表示，消金公司今年以来不良资产包转让出现增长，属于持牌消金行业贷后风险暴露与政策市场手段提供出清通道的共同作用结果。
 
 ## 相关推荐
 
-- 2026-06-30 07:00 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 07:09 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 06:59 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 07:14 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 07:06 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 07:00 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 06:59 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 06:50 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 07:13 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 06:58 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 06:54 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-30 07:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 07:08 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 07:10 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 07:12 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 07:07 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 07:07 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 07:08 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 07:17 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 07:14 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 07:05 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 06:59 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 07:08 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 07:06 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:12 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/257535.shtml)
-- 2026-06-30 07:00 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/927195.shtml)
-- 2026-06-30 07:09 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/1183085.shtml)
-- 2026-06-30 07:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/834773757.shtml)
-- 2026-06-30 06:52 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/875627457.shtml)
-- 2026-06-30 07:17 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/260670963.shtml)
-- 2026-06-30 07:00 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/060095754123.shtml)
-- 2026-06-30 07:05 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/82357.shtml)
-- 2026-06-30 07:12 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/50279896822.shtml)
-- 2026-06-30 06:49 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/79542955.shtml)
-- 2026-06-30 06:57 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/5380670.shtml)
-- 2026-06-30 06:54 - [一生一世](http://www.share.kurohicncr.top/Article/details/10990.shtml)
-- 2026-06-30 06:51 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/7582515277.shtml)
-- 2026-06-30 07:12 - [庆祝中国共产党成立105周年音乐会](https://www.blog.kurohicncr.top/Article/details/8560038566.shtml)
-- 2026-06-30 06:56 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/98900.shtml)
+- 2026-06-30 07:20 - [巴西扳平比分](https://www.share.minike.top/Article/details/2335277.shtml)
+- 2026-06-30 07:22 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/97027388123.shtml)
+- 2026-06-30 07:19 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/40557.shtml)
+- 2026-06-30 07:11 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/038213.shtml)
+- 2026-06-30 06:55 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/116577723.shtml)
+- 2026-06-30 07:07 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/4948547121.shtml)
+- 2026-06-30 07:23 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/799365357.shtml)
+- 2026-06-30 07:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/34580250.shtml)
+- 2026-06-30 07:17 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/9731436129.shtml)
+- 2026-06-30 07:04 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/6734480.shtml)
+- 2026-06-30 07:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/92859385216.shtml)
+- 2026-06-30 07:09 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/62380943.shtml)
+- 2026-06-30 07:14 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/4688342.shtml)
+- 2026-06-30 06:55 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/16540592479.shtml)
+- 2026-06-30 07:04 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/5912745.shtml)

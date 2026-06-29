@@ -1,60 +1,56 @@
-# 华泰证券：光模块功耗提升驱动液冷加速渗透
+# 第八届两岸（湖北）青年东湖交流季启幕
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！华泰睿思 核心观点 AI算力扩容驱动光模块需求高增，800G/1.6T产品高速迭代带动功耗攀升，液冷散热成为必选项，催生光模块液冷Cage广阔市场空间。传统Cage厂商产线复用性强、客户资源稳固，通过液冷模组延伸价值链，相关公司积极布局液冷产品，扩充产能，充分把握行业升级红利。 光模块需求随算力扩容攀升，高
+中新网武汉5月19日电 (马芙蓉 杨凯)第八届两岸(湖北)青年东湖交流季启动仪式暨主旨活动19日在中南民族大学举行，两岸有关方面嘉宾、青年约700人共聚，在交流互动中增进心灵契合。 当天，来自两岸人工智能、文化、医疗、餐饮、教育等领域的17名青年，登台分享了求学生活、创业就业经验及感悟。歌舞、机器人表演、情景演绎等节目穿插其中，展现青年创造力与活力。 台湾青年歌手赖煜哲与中南民
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网武汉5月19日电 (马芙蓉 杨凯)第八届两岸(湖北)青年东湖交流季启动仪式暨主旨活动19日在中南民族大学举行，两岸有关方面嘉宾、青年约700人共聚，在交流互动中增进心灵契合。
 
-华泰睿思 核心观点 AI算力扩容驱动光模块需求高增，800G/1.6T产品高速迭代带动功耗攀升，液冷散热成为必选项，催生光模块液冷Cage广阔市场空间。
+当天，来自两岸人工智能、文化、医疗、餐饮、教育等领域的17名青年，登台分享了求学生活、创业就业经验及感悟。
 
-传统Cage厂商产线复用性强、客户资源稳固，通过液冷模组延伸价值链，相关公司积极布局液冷产品，扩充产能，充分把握行业升级红利。
+歌舞、机器人表演、情景演绎等节目穿插其中，展现青年创造力与活力。
 
-光模块需求随算力扩容攀升，高速产品引领结构升级 随着AI大模型的兴起与不断迭代，算力需求呈现指数级增长，驱动数据中心扩容与升级，光模块作为数据中心通信系统的核心组件有望显著受益。
+台湾青年歌手赖煜哲与中南民族大学学生合作，表演了融合演唱与说唱的节目《楚歌行》。
 
-根据LightCounting预测，光模块市场25年全球销售额约为195亿美元，同比增长约82%，2031年全球市场规模将达到638亿美元，对应2025-2031年的CAGR为22%。
+“音乐是一座桥梁，把我们连接在一起，不同思想碰撞出来的作品反而更有生命力。
 
-从结构角度看，随着分布式训练架构成为主流，节点间模型参数同步对光收发模块的带宽与时延性能提出了更高要求，推动高速光模块加速渗透。
+”赖煜哲说，“期待与大陆青年一起‘玩’音乐，创作出属于我们这代人的好作品。
 
-目前，800G光模块已成为全球数据中心领域应用的主流产品，1.6T甚至3.2T光模块也将逐步进入商业化阶段。
+” 在湖北襄阳开咖啡店的台青陈郁婷与其邻居刘青，一起骑着自行车来到舞台。
 
-根据LightCounting 预测，预计2029年800G+1.6T全球光模块市场规模将超160亿美元。
+陈郁婷与开自行车店的刘青因骑行结缘，在创业中互相成就。
 
 ## 相关推荐
 
-- 2026-06-30 07:06 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 06:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 06:50 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 06:55 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 07:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 07:05 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 06:56 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 07:00 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 07:14 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 06:51 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 07:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 07:13 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 06:55 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 06:53 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 07:20 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 07:08 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 07:16 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 07:04 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 07:21 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 07:22 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 06:55 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 07:06 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 07:06 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 07:11 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:57 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/6369530566.shtml)
-- 2026-06-30 07:10 - [日本进球](http://www.blog.minike.top/Article/details/9917223.shtml)
-- 2026-06-30 07:10 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/52278.shtml)
-- 2026-06-30 07:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/2513412.shtml)
-- 2026-06-30 07:02 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/635702237.shtml)
-- 2026-06-30 07:07 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/7998331409.shtml)
-- 2026-06-30 07:14 - [金刚川](http://www.blog.minike.top/Article/details/4804665.shtml)
-- 2026-06-30 07:15 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/9478765878.shtml)
-- 2026-06-30 06:56 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/57141696467.shtml)
-- 2026-06-30 07:12 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/68357.shtml)
-- 2026-06-30 06:55 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/6201976380.shtml)
-- 2026-06-30 06:55 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/73644.shtml)
-- 2026-06-30 06:54 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/33390.shtml)
-- 2026-06-30 07:06 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/78266.shtml)
-- 2026-06-30 06:56 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/112453710.shtml)
+- 2026-06-30 07:17 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/6320416889.shtml)
+- 2026-06-30 07:05 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/2784293335.shtml)
+- 2026-06-30 06:58 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/8466990.shtml)
+- 2026-06-30 07:23 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/4697700.shtml)
+- 2026-06-30 07:18 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/5908597233.shtml)
+- 2026-06-30 07:23 - [青春环游记第三季](https://www.blog.minike.top/Article/details/60146308.shtml)
+- 2026-06-30 06:56 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/5343661.shtml)
+- 2026-06-30 07:17 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/301610047195.shtml)
+- 2026-06-30 07:00 - [请回答王牌2019](http://www.blog.minike.top/Article/details/501725.shtml)
+- 2026-06-30 07:23 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/4035518.shtml)
+- 2026-06-30 07:21 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/282039630419.shtml)
+- 2026-06-30 06:54 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/53881.shtml)
+- 2026-06-30 06:59 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/5428113881.shtml)
+- 2026-06-30 07:17 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/09985.shtml)
+- 2026-06-30 07:16 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/8975725.shtml)

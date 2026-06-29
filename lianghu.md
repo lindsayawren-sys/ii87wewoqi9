@@ -1,59 +1,60 @@
-# Kevin Guest呼吁专业人士在“职业健康月”优先关注健康
+# 从“口粮咖啡”到“冰箱水替” 隅田川咖啡转型即饮赛道
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-USANA Health Sciences董事长兼首席执行官Kevin Guest呼吁专业人士、领导者和组织在六月的“职业健康月”期间，将健康置于工作和生活的优先位置。他强调，更健康的习惯能塑造更强大的个人、团队和社区。职业健康月旨在强调个人健康与职业成功之间的联系，研究表明健康的员工效率更高、参与度更强，也更能管理压力和创造积极的工作环境。 “职业健康早在你走进办公室之前就开
+2025年初，当隅田川咖啡创始人林浩的00后下属在好特卖顺手买下三瓶900毫升装的咖啡饮料时，没有人预料到，这次无关紧要的购物会改变一家年销售额数十亿的咖啡公司的未来方向。仅用一年时间，隅田川的1升装即饮美式咖啡销量突破1000万瓶，2026年销售额预计接近2亿元。这家以挂耳咖啡起家、连续多年稳居天猫挂耳咖啡类目第一的品牌，正在完成一场深刻的战略转身。 从冲调咖啡的“天花板”到
 
 ## 正文
 
-USANA Health Sciences董事长兼首席执行官Kevin Guest呼吁专业人士、领导者和组织在六月的“职业健康月”期间，将健康置于工作和生活的优先位置。
+2025年初，当隅田川咖啡创始人林浩的00后下属在好特卖顺手买下三瓶900毫升装的咖啡饮料时，没有人预料到，这次无关紧要的购物会改变一家年销售额数十亿的咖啡公司的未来方向。
 
-他强调，更健康的习惯能塑造更强大的个人、团队和社区。
+仅用一年时间，隅田川的1升装即饮美式咖啡销量突破1000万瓶，2026年销售额预计接近2亿元。
 
-职业健康月旨在强调个人健康与职业成功之间的联系，研究表明健康的员工效率更高、参与度更强，也更能管理压力和创造积极的工作环境。
+这家以挂耳咖啡起家、连续多年稳居天猫挂耳咖啡类目第一的品牌，正在完成一场深刻的战略转身。
 
-“职业健康早在你走进办公室之前就开始了，”Guest表示，“你睡觉、活动、饮食、管理压力和对待他人的方式，影响着你的工作表现。
+从冲调咖啡的“天花板”到即饮赛道的“新大陆”，隅田川的转型绝非一个爆款产品的偶然成功，而是创始人基于对行业结构性变化的敏锐判断，以及对企业生命周期的冷静审视之后的必然选择。
 
-照顾好自己，你才能更好地支持身边的人。
+在GMV突破10亿、挂耳咖啡市占率超过30%之后，林浩清晰地看到：存量市场的激战已经走到尽头，真正的增长蓝海，藏在10亿不喝咖啡的中国人的冰箱里。
 
-”他认为健康不是奢侈品，而是领导责任和个人承诺。
+天花板已至：冲调咖啡赛道的三重困境 要理解隅田川为何决意转型即饮，首先要回答一个问题：在这个被资本追捧了五年的中国咖啡市场里，挂耳咖啡和咖啡液这样的冲调品类，到底还剩下多少增长空间？
 
-在世界经历“全球健康觉醒”的背景下，Guest鼓励关注四个习惯：保持规律睡眠并保证恢复时间；通过锻炼或散步每天活动身体；与同事、家人和朋友建立真诚的关系；寻找鼓励、认可和帮助他人的机会。
+答案是——不多了。
 
-他表示，“最伟大的健康投资之一就是人际关系，人们在被看见、被重视和被连接时会表现得更好。
+隅田川创始人林浩对此毫不讳言：“当年我亲自下场操盘抖音、淘宝，各种方法用尽了，都毫无结果。
 
 ## 相关推荐
 
-- 2026-06-30 07:00 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 07:06 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 06:54 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 07:12 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 07:01 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 06:50 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 07:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 07:00 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 07:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 07:03 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 07:03 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 07:12 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 06:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 07:14 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 06:58 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 07:04 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 07:06 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 07:23 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 07:10 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 07:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 06:59 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 06:54 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 07:22 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 07:03 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 06:56 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 07:01 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 07:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:53 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/132327291.shtml)
-- 2026-06-30 06:57 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/8534317.shtml)
-- 2026-06-30 07:11 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/067881.shtml)
-- 2026-06-30 07:08 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/158302571.shtml)
-- 2026-06-30 06:52 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/230148924536.shtml)
-- 2026-06-30 06:53 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/17363268258.shtml)
-- 2026-06-30 06:59 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/6593212.shtml)
-- 2026-06-30 07:10 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/4459669.shtml)
-- 2026-06-30 06:54 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/7147565477.shtml)
-- 2026-06-30 07:12 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/2777800209.shtml)
-- 2026-06-30 06:55 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/3262816681.shtml)
-- 2026-06-30 06:53 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/549851.shtml)
-- 2026-06-30 07:02 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/5286389576.shtml)
-- 2026-06-30 06:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/57055.shtml)
-- 2026-06-30 06:58 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/66692367.shtml)
+- 2026-06-30 07:16 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/8762278986.shtml)
+- 2026-06-30 07:22 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/5387439.shtml)
+- 2026-06-30 07:16 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/83482.shtml)
+- 2026-06-30 06:54 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/423381483018.shtml)
+- 2026-06-30 06:56 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/420845.shtml)
+- 2026-06-30 07:09 - [周冬雨多次说演不了话剧文城](http://www.blog.minike.top/Article/details/97107.shtml)
+- 2026-06-30 07:13 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/41263713766.shtml)
+- 2026-06-30 07:05 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/15016.shtml)
+- 2026-06-30 07:19 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/267433.shtml)
+- 2026-06-30 07:12 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/089490527.shtml)
+- 2026-06-30 07:06 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/75906.shtml)
+- 2026-06-30 07:11 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/8943836052.shtml)
+- 2026-06-30 07:00 - [巴西扳平比分](https://www.share.minike.top/Article/details/530454.shtml)
+- 2026-06-30 07:00 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/197829674673.shtml)
+- 2026-06-30 07:19 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/90652746411.shtml)

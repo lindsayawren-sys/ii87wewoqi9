@@ -1,56 +1,59 @@
-# 四大证券报头版头条内容精华摘要_2026年6月2日_财经新闻
+# 国有大行齐发力，华宝基金百亿银行ETF（512800）涨逾1%，机构：银行具备确定性强的绝对收益空间
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月2日（星期二），今日报刊头条主要内容精华如下： 中国证券报 五部门出台非化石能源电力消费核算指南 国家发展改革委网站6月1日消息，国家发展改革委、国家能源局等五部门日前联合印发了《非化石能源电力消费核算指南（试行）》。《指南》自印发之日起试行，用于2026年及以后年份非化石能源电力
+5月19日，银行股集体走强，工、农、中、建、交均涨超1%，成都银行、江苏银行、宁波银行等涨幅居前。百亿顶流银行ETF华宝（512800）场内价格现涨逾1%，站上5日线。 华创证券指出，中长期资金入市和公募基金改革的核心逻辑未变，重视银行板块配置机会，银行欠配幅度仍然较大。预计2026年仍是银行板块估值系统性回升的一年：从防御到攻守兼备，基本面回暖和资金驱动共同发力。 中信证券研
 
 ## 正文
 
-专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+5月19日，银行股集体走强，工、农、中、建、交均涨超1%，成都银行、江苏银行、宁波银行等涨幅居前。
 
-6月2日（星期二），今日报刊头条主要内容精华如下： 中国证券报 五部门出台非化石能源电力消费核算指南 国家发展改革委网站6月1日消息，国家发展改革委、国家能源局等五部门日前联合印发了《非化石能源电力消费核算指南（试行）》。
+百亿顶流银行ETF华宝（512800）场内价格现涨逾1%，站上5日线。
 
-《指南》自印发之日起试行，用于2026年及以后年份非化石能源电力消费核算。
+华创证券指出，中长期资金入市和公募基金改革的核心逻辑未变，重视银行板块配置机会，银行欠配幅度仍然较大。
 
-《指南》明确，交易认定包括电能量交易（包括非化石能源常规电能量交易、绿电交易等）、绿证交易（含绿证划转等）等两种认定方式。
+预计2026年仍是银行板块估值系统性回升的一年：从防御到攻守兼备，基本面回暖和资金驱动共同发力。
 
-对于可再生能源电力消费量，省级行政区域受入（送出）规模以电能量交易、绿证交易进行认定；地级行政区域和电力用户下网规模以绿证交易、绿电交易进行认定。
+中信证券研究表示，4月信贷偏弱符合预期，一方面归因于银行业扩表策略走向高质量发展逻辑；另一方面受宏观需求审慎的现实条件影响，叠加年初早投放策略后的季节性回落。
 
-用绿证作为认定依据的，应为绿证核销量，并按照绿证对应电量生产时间计入相应核算年度，鼓励电力用户随用随购、随购随销。
+预计二季度信贷增长偏弱，5月略有恢复，6月季末月相对积极。
 
-对于核电电力消费量，省级行政区域受入（送出）规模、地级行政区域和电力用户下网规模以电能量交易进行认定。
+板块投资上，尽管银行股受短期市场风格影响明显，相对收益存在波动；但由于上市银行步入基本面修复通道，行业估值提升可期，且股息率对于低风偏资金具备持续吸引力，具备确定性强的绝对收益空间。
 
-“算力金属”行情走高 锡行业上市公司业绩表现亮眼 6月1日，“算力金属”锡行业概念股逆势大涨。
+银行ETF（512800）及其联接基金（A类：240019；C类：006697）被动跟踪中证银行指数，成份股囊括A股42家上市银行，是跟踪银行板块整体行情的高效投资工具。
 
 ## 相关推荐
 
-- 2026-06-30 07:03 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 07:08 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-30 07:16 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 07:04 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-30 06:59 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 06:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 07:04 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 07:00 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 07:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 06:55 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 07:21 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 07:14 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 07:00 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 07:20 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 07:13 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 07:19 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 07:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 07:01 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 07:11 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-30 06:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-30 07:23 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 06:58 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 07:23 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:55 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/7642551608.shtml)
-- 2026-06-30 06:58 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/665654597499.shtml)
-- 2026-06-30 06:58 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/04877.shtml)
-- 2026-06-30 06:50 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/400581.shtml)
-- 2026-06-30 07:10 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/460121.shtml)
-- 2026-06-30 06:51 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/95625540829.shtml)
-- 2026-06-30 07:16 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/770010579.shtml)
-- 2026-06-30 07:09 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/0555305822.shtml)
-- 2026-06-30 07:03 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/7292387759.shtml)
-- 2026-06-30 06:49 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/02275515555.shtml)
-- 2026-06-30 06:54 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/8653054.shtml)
-- 2026-06-30 06:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/8644463.shtml)
-- 2026-06-30 07:16 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/82254312.shtml)
-- 2026-06-30 06:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/31393827.shtml)
-- 2026-06-30 07:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/44716944552.shtml)
+- 2026-06-30 07:20 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/2832621862.shtml)
+- 2026-06-30 06:56 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/69576936607.shtml)
+- 2026-06-30 07:00 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/2667501.shtml)
+- 2026-06-30 07:22 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/991434.shtml)
+- 2026-06-30 07:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/72256770463.shtml)
+- 2026-06-30 07:21 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/604848.shtml)
+- 2026-06-30 07:18 - [啊啊啊](https://www.blog.minike.top/Article/details/94910600.shtml)
+- 2026-06-30 07:12 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/51118.shtml)
+- 2026-06-30 07:19 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/836239742325.shtml)
+- 2026-06-30 07:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/848579883.shtml)
+- 2026-06-30 07:15 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/28793.shtml)
+- 2026-06-30 07:07 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/7583279.shtml)
+- 2026-06-30 07:20 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/133456168.shtml)
+- 2026-06-30 07:18 - [扫黑风暴](https://www.blog.minike.top/Article/details/66352573844.shtml)
+- 2026-06-30 07:21 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/744031170180.shtml)

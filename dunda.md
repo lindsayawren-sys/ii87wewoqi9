@@ -1,60 +1,56 @@
-# 美伊就谈判进展说法不一，伊朗称沟通中断特朗普否认
+# 美国联合航空预计夏季出行旅客数量将有所增长
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-伊朗媒体周二报道称，伊朗正在审议一项旨在与美方停战的协议文本，但已数日未与华盛顿沟通。不过，美国总统特朗普表示谈判一直在持续进行。 在美国与以色列对伊朗发动袭击三个多月后，冲突陷入僵局，目前维持着一项脆弱的停火安排，而关键的霍尔木兹海峡的海上交通基本处于关闭状态。 伊朗迈赫尔通讯社援引消息人士的话称，伊朗尚未就临时协议的最终文本作出回应，鉴于伊方认为美国长期存在不履约行为且双方
+饱受通胀压力困扰的消费者并未放弃夏日度假计划。 联合航空于周二表示，预计今年夏季旅客出行人次将达5300万，较去年增加约300万人次。 该公司补充称，那些能体验毕生难忘特色活动的旅游目的地，出行需求尤为旺盛，比如欧洲日全食观赏地、国际足球赛事举办地以及各大全球巡回演唱会举办城市。 联合航空透露，受8月12日日全食带动，前往马德里、巴塞罗那等地的机票预订量涨幅超50%。 公司还指
 
 ## 正文
 
-伊朗媒体周二报道称，伊朗正在审议一项旨在与美方停战的协议文本，但已数日未与华盛顿沟通。
+饱受通胀压力困扰的消费者并未放弃夏日度假计划。
 
-不过，美国总统特朗普表示谈判一直在持续进行。
+联合航空于周二表示，预计今年夏季旅客出行人次将达5300万，较去年增加约300万人次。
 
-在美国与以色列对伊朗发动袭击三个多月后，冲突陷入僵局，目前维持着一项脆弱的停火安排，而关键的霍尔木兹海峡的海上交通基本处于关闭状态。
+该公司补充称，那些能体验毕生难忘特色活动的旅游目的地，出行需求尤为旺盛，比如欧洲日全食观赏地、国际足球赛事举办地以及各大全球巡回演唱会举办城市。
 
-伊朗迈赫尔通讯社援引消息人士的话称，伊朗尚未就临时协议的最终文本作出回应，鉴于伊方认为美国长期存在不履约行为且双方缺乏信任，伊朗正采取“强硬”立场。
+联合航空透露，受8月12日日全食带动，前往马德里、巴塞罗那等地的机票预订量涨幅超50%。
 
-半官方的法尔斯通讯社同样援引消息人士称，围绕这一潜在协议（或谅解备忘录）的信息往来在几天前已中断，最后一条信息是德黑兰就黎巴嫩问题发出的“明确信息”。
+公司还指出，2026年国际足联世界杯北美赛事承办城市的整体机票预订量涨幅接近20%。
 
-伊朗正寻求制止以色列对其盟友真主党的军事行动。
-
-特朗普称上述说法“虚假且错误”，并表示双方对话一直未曾中断。
-
-“我们之间的对话一直在持续进行，包括四天前、三天前、两天前、一天前以及今天，”他在社交媒体发文称。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 07:15 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 07:11 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 07:03 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 07:00 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 06:56 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 07:10 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 06:51 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 06:51 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 07:05 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 06:59 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 07:13 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 07:12 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 07:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 06:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-30 07:16 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 07:15 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 07:10 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 07:09 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 07:06 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 07:06 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 07:01 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 07:08 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 06:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 07:20 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 07:11 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 07:01 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 07:11 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 07:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:54 - [人类...完蛋了...](http://www.share.minike.top/Article/details/39750.shtml)
-- 2026-06-30 07:16 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/545604.shtml)
-- 2026-06-30 07:14 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/954454271.shtml)
-- 2026-06-30 07:00 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/5617326.shtml)
-- 2026-06-30 06:58 - [爱很美味](https://www.share.minike.top/Article/details/6562515.shtml)
-- 2026-06-30 07:11 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/89872416.shtml)
-- 2026-06-30 06:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/56237577.shtml)
-- 2026-06-30 07:01 - [安切洛蒂 换人](https://www.blog.kurohicncr.top/Article/details/75126.shtml)
-- 2026-06-30 06:55 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/123134.shtml)
-- 2026-06-30 07:04 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/011687261076.shtml)
-- 2026-06-30 06:50 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/41752.shtml)
-- 2026-06-30 07:10 - [极限挑战第一季](http://www.blog.minike.top/Article/details/168883163601.shtml)
-- 2026-06-30 06:58 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/542660208.shtml)
-- 2026-06-30 06:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/7185618.shtml)
-- 2026-06-30 06:56 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/36017861810.shtml)
+- 2026-06-30 06:54 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/6877151.shtml)
+- 2026-06-30 07:14 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/566929.shtml)
+- 2026-06-30 07:06 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/11609164.shtml)
+- 2026-06-30 07:11 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/27619843.shtml)
+- 2026-06-30 07:09 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/68057816583.shtml)
+- 2026-06-30 07:14 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/87966.shtml)
+- 2026-06-30 07:11 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/470320.shtml)
+- 2026-06-30 06:54 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/238089258661.shtml)
+- 2026-06-30 07:18 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/678316.shtml)
+- 2026-06-30 06:59 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/218149.shtml)
+- 2026-06-30 07:16 - [千香](http://www.blog.minike.top/Article/details/350164.shtml)
+- 2026-06-30 07:07 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/754606044.shtml)
+- 2026-06-30 06:59 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/43305212177.shtml)
+- 2026-06-30 07:21 - [巴拉圭先进球了](http://www.share.kurohicncr.top/Article/details/2010284.shtml)
+- 2026-06-30 07:03 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/14277.shtml)

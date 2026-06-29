@@ -1,56 +1,56 @@
-# 现货黄金年内最大回撤超26%，多家银行挂钩结构性存款收益率“缩水”
+# 业绩高增+显著滞涨，有色ETF补涨可期？此前日线4连跌，资金或迎逢跌布局机会！
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-来源：北京商报 今年以来，国际黄金市场走出暴涨暴跌的“过山车”行情，伦敦金现年内最大回撤幅度突破26%。伴随金价进入深度调整，多家国际投行与研究机构也对黄金后市作出“短期谨慎、中长期乐观”的预期。6月1日，北京商报记者梳理发现，近期交通银行、华夏银行、招商银行等多家银行挂钩黄金的结构性存款产品预期收益率普遍下调，市场热度明显降温。业内分析指出，本轮黄金结构性存款收益率集体下行，
+今日（5月20日）揽尽有色金属行业龙头的有色ETF华宝（159876）早盘随市回调，深陷水面以下，午后快速拉升，场内价格盘中摸高0.77%，当前在水面附近震荡，现小幅回调0.1%，此前日线4连跌，资金或迎逢跌布局机会。 成份股方面，铅锌龙头国城矿业领涨超7%，铜业龙头金田股份、锂业龙头盛新锂能涨逾4%，铝业龙头明泰铝业、华峰铝业涨超3%，涨幅居前。 “光”之后，哪些行业有望补涨
 
 ## 正文
 
-来源：北京商报 今年以来，国际黄金市场走出暴涨暴跌的“过山车”行情，伦敦金现年内最大回撤幅度突破26%。
+今日（5月20日）揽尽有色金属行业龙头的有色ETF华宝（159876）早盘随市回调，深陷水面以下，午后快速拉升，场内价格盘中摸高0.77%，当前在水面附近震荡，现小幅回调0.1%，此前日线4连跌，资金或迎逢跌布局机会。
 
-伴随金价进入深度调整，多家国际投行与研究机构也对黄金后市作出“短期谨慎、中长期乐观”的预期。
+成份股方面，铅锌龙头国城矿业领涨超7%，铜业龙头金田股份、锂业龙头盛新锂能涨逾4%，铝业龙头明泰铝业、华峰铝业涨超3%，涨幅居前。
 
-6月1日，北京商报记者梳理发现，近期交通银行、华夏银行、招商银行等多家银行挂钩黄金的结构性存款产品预期收益率普遍下调，市场热度明显降温。
+“光”之后，哪些行业有望补涨？
 
-业内分析指出，本轮黄金结构性存款收益率集体下行，核心源于黄金市场波动格局收敛，叠加银行净息差承压、负债成本高企、资产收益回落，银行权衡风控与盈利下调产品收益的考量。
+中信证券认为，在6个月的中长期维度，能跑赢的行业往往需兼具基本面景气和筹码结构较好两个条件。
 
-市场预期金价“短期谨慎、中长期乐观” 2026年，国际黄金市场走出大幅震荡的“过山车”行情。
+当前，有色金属板块是兼具上述两大特点的典型行业之一。
 
-年初，伦敦金现一度冲高至5598.75美元/盎司，创下历史新高，此后两个交易日呈现深度调整，此后震荡上行。
+业绩方面，2026年一季度，有色ETF华宝（159876）60只成份股中，59只个股实现盈利，八成个股实现归母净利两位数增长，22只个股实现归母净利同比三位数大增！
 
-而进入3月后，金价再度迎来断崖式大跌，最低下探至4098.25美元/盎司。
+西部黄金、天齐锂业更是同比暴增21倍、17倍！
 
-此轮调整后，金价迎来快速反弹，重回4500美元/盎司关口上方，随后整体进入深度调整阶段。
+中国银河证券指出，有色金属价格的持续强劲上涨，使A股有色金属行业业绩在2025Q4与2026Q1提速增长，且当下行业整体估值仍保持在历史较低水平。
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 06:56 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 06:52 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 07:05 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 07:14 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 07:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 07:06 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 06:54 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 06:52 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 07:04 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 06:59 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 07:18 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 07:02 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 07:09 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 07:12 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 07:16 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 07:19 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 07:04 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 07:21 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 07:18 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:08 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/44311656122.shtml)
-- 2026-06-30 06:55 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/628014948420.shtml)
-- 2026-06-30 06:51 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/307805.shtml)
-- 2026-06-30 07:10 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/67327657359.shtml)
-- 2026-06-30 06:51 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/56343175877.shtml)
-- 2026-06-30 07:11 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/50608.shtml)
-- 2026-06-30 07:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/960727166.shtml)
-- 2026-06-30 07:02 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/9197709.shtml)
-- 2026-06-30 07:14 - [感动全网的699分女生想报考清华](https://www.share.minike.top/Article/details/7549196.shtml)
-- 2026-06-30 07:16 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/22642.shtml)
-- 2026-06-30 07:01 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/344737455484.shtml)
-- 2026-06-30 07:11 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/1212090.shtml)
-- 2026-06-30 06:52 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/405370368.shtml)
-- 2026-06-30 07:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/37405.shtml)
-- 2026-06-30 06:59 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/1812695817.shtml)
+- 2026-06-30 07:23 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/51317762.shtml)
+- 2026-06-30 07:00 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/002859.shtml)
+- 2026-06-30 07:02 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/033164.shtml)
+- 2026-06-30 07:06 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/604042676473.shtml)
+- 2026-06-30 07:16 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/8247896.shtml)
+- 2026-06-30 06:58 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/85545.shtml)
+- 2026-06-30 06:57 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/67989577833.shtml)
+- 2026-06-30 07:21 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/7174994.shtml)
+- 2026-06-30 07:08 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/1632118545.shtml)
+- 2026-06-30 07:05 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/6300632.shtml)
+- 2026-06-30 07:13 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/1072450276.shtml)
+- 2026-06-30 07:03 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/135412921669.shtml)
+- 2026-06-30 06:55 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/8321788025.shtml)
+- 2026-06-30 07:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/3098516363.shtml)
+- 2026-06-30 07:01 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/42536778238.shtml)

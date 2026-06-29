@@ -1,61 +1,57 @@
-# 英伟达联手加持、大厂扎堆投资！宇树科技“闪电”提交IPO注册
+# 首届中国新文创市集暨潮玩游园会在京开幕 “文旅中国·数智赋能”系列创新产品在京发布
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月2日晚间，上交所官网显示，宇树科技科创板IPO于6月1日过会，并于6月2日“闪电”提交注册。 回顾其上市进程，宇树科技的推进速度极为高效。宇树科技IPO申请于2026年3月20日获上交所正式受理，至6月1日上会并通过审议，全程仅用时73天。这一速度刷新了
+中新网北京5月19日电 (陈昊星)5月19日，由中国文化传媒集团主办的“文旅中国·数智赋能”系列创新产品发布会在北京朝阳公园举办。 中国文化传媒集团由文化和旅游部主管，此次发布会集中发布了三款数智技术赋能产品，用于展示文化央企在数智科技赋能传统文化传承与全球传播领域的创新实践。 其中，“文旅中国·数智空间(CFπ)”依托中国文化传媒新文创藏品平台海量数智文化艺术内容，以数智科技
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京5月19日电 (陈昊星)5月19日，由中国文化传媒集团主办的“文旅中国·数智赋能”系列创新产品发布会在北京朝阳公园举办。
 
-6月2日晚间，上交所官网显示，宇树科技科创板IPO于6月1日过会，并于6月2日“闪电”提交注册。
+中国文化传媒集团由文化和旅游部主管，此次发布会集中发布了三款数智技术赋能产品，用于展示文化央企在数智科技赋能传统文化传承与全球传播领域的创新实践。
 
-回顾其上市进程，宇树科技的推进速度极为高效。
+其中，“文旅中国·数智空间(CFπ)”依托中国文化传媒新文创藏品平台海量数智文化艺术内容，以数智科技创新文化艺术策展形式，通过全息交互数智展柜、沉浸式数智体验舱、眼动捕捉数智终端等模块化数智设备，实现超高清鉴赏、AI多语种语音交互、多点位专家深度解析及文物纹饰精准鉴赏等功能。
 
-宇树科技IPO申请于2026年3月20日获上交所正式受理，至6月1日上会并通过审议，全程仅用时73天。
+“数智故宫乾隆花园光影展”以故宫“乾隆花园”为核心IP，通过环境模拟、虚拟现实等前沿数字技术，将故宫“乾隆花园”的建筑美学与历史故事转化为可感知、可交互的体验场景。
 
-这一速度刷新了2026年以来科创板IPO的审核纪录，也使其成为继长鑫科技之后，科创板IPO“预先审阅”机制落地以来的第二单标杆案例。
+“中国手艺网国际站”创新打造“非遗产品+跨境电商+内容传播”三位一体的出海模式。
 
-在上市委审议会议上，宇树科技的首发申请被认定符合发行条件、上市条件和信息披露要求。
+截至2026年初，平台已整合刺绣、陶瓷、木雕等16个品类、350余款非遗产品，通过18种语言远销全球200多个国家和地区。
 
-招股书显示，宇树科技拟公开发行不低于4044.64万股，新股发行比例不低于10%，拟募资42.02亿元，投向智能机器人模型研发、机器人本体研发、新型智能机器人产品开发及智能机器人制造基地建设四大项目。
+发布会期间，首届中国新文创市集暨潮玩游园也同步开展，供现场观众交流体验并选购心仪的文创产品。
 
-2024年、2025年，宇树科技分别实现营业收入3.93亿元和16.99亿元，扣非净利润分别为7847.65万元和5.91亿元，增长态势显著。
+活动汇集了包括故宫博物院、国家博物馆等在内的文创资源，展示和售卖的文创产品数量万余种。
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 06:52 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 07:06 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 06:58 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 07:14 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 06:59 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 07:01 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 07:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 06:55 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 06:50 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 06:49 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 07:17 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 07:01 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 07:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 06:52 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 07:04 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 06:56 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 07:13 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 06:56 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 07:04 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 07:00 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 07:22 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 07:03 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 07:02 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 07:09 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 07:06 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:15 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/44836.shtml)
-- 2026-06-30 06:48 - [二次元提前预演明日巴西对日本](http://www.blog.kurohicncr.top/Article/details/27088.shtml)
-- 2026-06-30 07:08 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/374498418.shtml)
-- 2026-06-30 06:56 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/79951.shtml)
-- 2026-06-30 06:58 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/682122010929.shtml)
-- 2026-06-30 07:09 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/95157.shtml)
-- 2026-06-30 07:03 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/0892599027.shtml)
-- 2026-06-30 06:53 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/565713.shtml)
-- 2026-06-30 06:54 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/0029178.shtml)
-- 2026-06-30 07:12 - [孙兴慜道歉](https://www.share.minike.top/Article/details/70429655218.shtml)
-- 2026-06-30 06:50 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/54686871849.shtml)
-- 2026-06-30 07:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/409067309177.shtml)
-- 2026-06-30 07:13 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/853920220742.shtml)
-- 2026-06-30 07:13 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/530770716.shtml)
-- 2026-06-30 07:03 - [恋与深空道歉声明](http://www.share.minike.top/Article/details/15429.shtml)
+- 2026-06-30 07:21 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/44793.shtml)
+- 2026-06-30 07:20 - [请回答王牌2019](https://www.share.minike.top/Article/details/943662.shtml)
+- 2026-06-30 07:17 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/870254479.shtml)
+- 2026-06-30 07:00 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/3164843460.shtml)
+- 2026-06-30 07:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/797663.shtml)
+- 2026-06-30 07:19 - [《共患难》](https://www.blog.minike.top/Article/details/390917.shtml)
+- 2026-06-30 07:18 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/5709523856.shtml)
+- 2026-06-30 06:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/658405214748.shtml)
+- 2026-06-30 06:54 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/31502301695.shtml)
+- 2026-06-30 07:04 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/764209.shtml)
+- 2026-06-30 07:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/4957056041.shtml)
+- 2026-06-30 07:12 - [索马里女大使：想和中国一起搞事业](https://www.blog.minike.top/Article/details/894466246978.shtml)
+- 2026-06-30 07:06 - [千香](http://www.share.kurohicncr.top/Article/details/9809256.shtml)
+- 2026-06-30 07:03 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/385669183.shtml)
+- 2026-06-30 07:09 - [女心理师](http://www.blog.minike.top/Article/details/9280323.shtml)

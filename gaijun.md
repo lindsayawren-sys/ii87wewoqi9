@@ -1,61 +1,61 @@
-# 光大期货0602热点追踪：氧化铝跌幅居前，几内亚政策空窗期左侧风险偏高
+# 精彩回顾 | 第二届“加强医保商保有效衔接，支持创新药械发展”会议成功举办
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-截至撰稿，氧化铝期货跌幅约1.5%，领跌有色板块，空头持续离场情绪明显 基本面层面，当前氧化铝承受多重压力叠加。供应端，新产能持续放量，进口端集中到港尚未结束，整体供给增量持续涌入市场；需求端，下游电解铝厂提货节奏偏慢，去库动力不足，由此导致累库节奏存在进一步加速的可能，价格重心仍有下移空间。 在几内亚铝土矿配额政策尚未明确的空窗期内，市场预期难以有效锚定，供应端扰动变量仍处于
+2026年5月17日，第二届“加强医保商保有效衔接，支持创新药械发展”会议在上海圆满举办。本场会议由中国医药教育协会、北京中康联公益基金会、北京中西医慢病防治促进会联合主办，艾社康承办，并获得中欧校友医疗健康产业协会的学术合作支持。 本届会议特邀多位多层次医疗保障相关政策专家、保险行业代表，以及药械产业代表为核心嘉宾，分享完善多层次医疗保障制度体系的思路与先进经验，探索基本医保
 
 ## 正文
 
-截至撰稿，氧化铝期货跌幅约1.5%，领跌有色板块，空头持续离场情绪明显 基本面层面，当前氧化铝承受多重压力叠加。
+2026年5月17日，第二届“加强医保商保有效衔接，支持创新药械发展”会议在上海圆满举办。
 
-供应端，新产能持续放量，进口端集中到港尚未结束，整体供给增量持续涌入市场；需求端，下游电解铝厂提货节奏偏慢，去库动力不足，由此导致累库节奏存在进一步加速的可能，价格重心仍有下移空间。
+本场会议由中国医药教育协会、北京中康联公益基金会、北京中西医慢病防治促进会联合主办，艾社康承办，并获得中欧校友医疗健康产业协会的学术合作支持。
 
-在几内亚铝土矿配额政策尚未明确的空窗期内，市场预期难以有效锚定，供应端扰动变量仍处于不确定状态。
+本届会议特邀多位多层次医疗保障相关政策专家、保险行业代表，以及药械产业代表为核心嘉宾，分享完善多层次医疗保障制度体系的思路与先进经验，探索基本医保与商业健康险更紧密地协同与衔接，共同支持创新药械发展。
 
-在政策方向明朗之前，贸然左侧布空面临预期被快速修正的风险，宜保持观望，待政策落地、市场完成预期修正后，再择机寻找做空窗口。
+罗念慈 中欧校友医疗健康产业协会副会长，上海健贤医疗行业创新研究院院长 刘畅 艾社康亚洲创始人兼CEO 本次会议由中欧校友医疗健康产业协会副会长，上海健贤医疗行业创新研究院院长罗念慈和艾社康亚洲创始人兼CEO刘畅共同主持。
 
-信息来源：光大期货研究所 撰稿：姚涛 从业资格：F3082336 交易咨询资格：Z0018553 免责声明：本报告的信息均来源于公开资料，我公司对这些信息的准确性、可靠性和完整性不作任何保证，也不保证所包含的信息和建议不会发生任何变更。
+邓坚 中欧校友医疗健康产业协会医疗器械IVD专委会副会长、美敦力全球副总裁及中国法定代表人 中欧校友医疗健康产业协会医疗器械IVD专委会副会长、美敦力全球副总裁及中国法定代表人邓坚为本次会议致欢迎词。
 
-我们已力求报告内容的客观、公正，但文中的观点、结论和建议仅供参考，并不构成任何具体产品、业务的推介以及相关品种的操作依据和建议，投资者据此作出的任何投资决策自负盈亏，与本公司和作者无关。
+邓坚总代表主办方向各位嘉宾和同仁表示热烈欢迎，并指出，在医学科技持续进步、健康需求不断升级的背景下，医保商保的有效衔接，不仅是支付机制的优化，更是推动保障体系、服务体系和产业创新协同配合的关键命题。
 
-所有交易策略及方法均无法做盈利保证。
+他强调，创新的真正价值不止于药械获批上市，更在于能否被患者有效获得、被支付方合理承接。
 
-期市有风险，交易需谨慎！
+在中国独特的医疗保障体系下，探索符合国情的医保商保衔接路径，是一项值得长期实践的重要课题。
 
 ## 相关推荐
 
-- 2026-06-30 07:02 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 06:48 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 06:58 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 06:59 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 07:10 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 07:01 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 07:00 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 07:13 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 07:03 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 06:58 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 07:00 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-30 07:16 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 07:09 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 06:58 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 07:14 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 07:10 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 07:06 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 07:09 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 07:03 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 07:14 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 07:05 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 07:11 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 07:19 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-30 07:06 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 07:19 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 06:54 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 06:55 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 07:17 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 07:00 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 07:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:48 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/00533.shtml)
-- 2026-06-30 07:08 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/22259.shtml)
-- 2026-06-30 07:09 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/95389.shtml)
-- 2026-06-30 07:11 - [田中碧失误](http://www.blog.kurohicncr.top/Article/details/6018832.shtml)
-- 2026-06-30 06:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/5870573.shtml)
-- 2026-06-30 07:00 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/241380272184.shtml)
-- 2026-06-30 07:12 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/746086895.shtml)
-- 2026-06-30 07:02 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/50964909.shtml)
-- 2026-06-30 06:57 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/899315.shtml)
-- 2026-06-30 07:00 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/934933214.shtml)
-- 2026-06-30 07:01 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/278751497417.shtml)
-- 2026-06-30 06:49 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/4653783394.shtml)
-- 2026-06-30 06:59 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/00289537.shtml)
-- 2026-06-30 06:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/25298.shtml)
-- 2026-06-30 06:53 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/09453531.shtml)
+- 2026-06-30 07:07 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/67885763187.shtml)
+- 2026-06-30 07:16 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/71332069927.shtml)
+- 2026-06-30 06:57 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/1149336804.shtml)
+- 2026-06-30 07:21 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/27293174.shtml)
+- 2026-06-30 06:54 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/640644883226.shtml)
+- 2026-06-30 06:55 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/60333768.shtml)
+- 2026-06-30 07:15 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/51493.shtml)
+- 2026-06-30 07:14 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/4784425.shtml)
+- 2026-06-30 07:18 - [小娘惹](http://www.share.minike.top/Article/details/566619577502.shtml)
+- 2026-06-30 07:16 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/76514117.shtml)
+- 2026-06-30 07:23 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/8738670.shtml)
+- 2026-06-30 07:07 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/899957791.shtml)
+- 2026-06-30 07:05 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/123680.shtml)
+- 2026-06-30 07:16 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/21948499112.shtml)
+- 2026-06-30 07:16 - [85花告别古偶](https://www.blog.minike.top/Article/details/6199275071.shtml)

@@ -1,61 +1,56 @@
-# AI双雄上市 OpenAI和Anthropic能否经受住考验
+# 邦达亚洲:市场的风险情绪转暖 澳元小幅反弹
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-SpaceX筹划中的首次公开募股（IPO）成为今春投资界热议焦点。然而，当纳斯达克上市庆典的彩带尚未清扫干净时，OpenAI和Anthropic PBC也将接踵登陆美股市场。这两家人工智能领域最具影响力的公司预计最快将于今年秋季上市。 6月1日，Anthropic宣称已保密提交IPO注册文件草案，而OpenAI预计将在未来数天或数周内跟进。作为ChatGPT的开发商，OpenA
+5月19日，中金发布研报称，近期多项美国通胀数据超预期，就业市场则趋于稳定。债券出现抛售，市场对通胀的担忧持续升温。与此同时，美伊和平谈判未见实质性进展，霍尔木兹海峡仍处于事实封闭状态，能源价格上行风险难以消退。基准情形下，该行预计美国PCE通胀全年或将维持在3.5%以上，核心PCE通胀将在3%以上，均显著高于美联储2%的政策目标。在此背景下，美联储政策立场将转为更加审慎的方向
 
 ## 正文
 
-SpaceX筹划中的首次公开募股（IPO）成为今春投资界热议焦点。
+5月19日，中金发布研报称，近期多项美国通胀数据超预期，就业市场则趋于稳定。
 
-然而，当纳斯达克上市庆典的彩带尚未清扫干净时，OpenAI和Anthropic PBC也将接踵登陆美股市场。
+债券出现抛售，市场对通胀的担忧持续升温。
 
-这两家人工智能领域最具影响力的公司预计最快将于今年秋季上市。
+与此同时，美伊和平谈判未见实质性进展，霍尔木兹海峡仍处于事实封闭状态，能源价格上行风险难以消退。
 
-6月1日，Anthropic宣称已保密提交IPO注册文件草案，而OpenAI预计将在未来数天或数周内跟进。
+基准情形下，该行预计美国PCE通胀全年或将维持在3.5%以上，核心PCE通胀将在3%以上，均显著高于美联储2%的政策目标。
 
-作为ChatGPT的开发商，OpenAI今年3月估值达到8520亿美元，而开发了Claude模型的Anthropic融资估值已超过9650亿美元。
+在此背景下，美联储政策立场将转为更加审慎的方向，年内或难以进一步降息（此前预计下一次降息在第四季度）。
 
-按这一水平计算，这两家公司每一家的市值都将超过摩根大通和埃克森美孚等企业巨头。
+新任主席沃什上任后，建立政策公信力将是首要任务，及时向市场传递明确的抗通胀信号，既是应有之义，也是稳定预期的必要之举。
 
-为什么SpaceX的IPO与其他任何IPO都不同 围绕这些公司的狂热情绪席卷私募市场。
+对市场而言，这意味着美元流动性边际收紧的概率上升，单纯依靠流动性驱动的资产或将持续承压。
 
-在那里，只有富裕投资者、金融机构和相关企业员工才能接触到这类股票。
+另外，在全球地缘政治版图持续重塑、通胀阴云挥之不去的复杂背景下，高盛对全球央行黄金购买量做出显著上调，并重申年底金价5400美元/盎司的看涨目标。
 
 ## 相关推荐
 
-- 2026-06-30 07:14 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 07:03 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 06:49 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 06:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 07:17 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 07:14 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 06:56 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 07:01 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 06:59 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 06:54 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 06:48 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-30 06:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 06:56 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 07:18 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 06:51 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 07:09 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-30 07:01 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 07:13 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 07:02 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 07:10 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 07:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 06:57 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 07:21 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 07:07 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 06:54 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:11 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/86665117.shtml)
-- 2026-06-30 06:57 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/584224171.shtml)
-- 2026-06-30 07:02 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/135294416669.shtml)
-- 2026-06-30 07:11 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/3367242225.shtml)
-- 2026-06-30 07:16 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/73046701580.shtml)
-- 2026-06-30 06:58 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/45275327.shtml)
-- 2026-06-30 06:50 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/87734.shtml)
-- 2026-06-30 07:02 - [苗族银饰](http://www.share.minike.top/Article/details/9242515053.shtml)
-- 2026-06-30 06:55 - [金牌调解](https://www.blog.minike.top/Article/details/967183521.shtml)
-- 2026-06-30 06:54 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/445643324952.shtml)
-- 2026-06-30 07:06 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/9253377.shtml)
-- 2026-06-30 07:07 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/5109718817.shtml)
-- 2026-06-30 07:12 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/679911579.shtml)
-- 2026-06-30 07:03 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/392030985.shtml)
-- 2026-06-30 07:09 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/27543117259.shtml)
+- 2026-06-30 07:13 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/933822.shtml)
+- 2026-06-30 06:58 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/68374864.shtml)
+- 2026-06-30 07:00 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/42935918878.shtml)
+- 2026-06-30 07:05 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/0840172987.shtml)
+- 2026-06-30 07:16 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/0140039.shtml)
+- 2026-06-30 07:22 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/64702011.shtml)
+- 2026-06-30 07:20 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/77078252.shtml)
+- 2026-06-30 07:13 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/1906190.shtml)
+- 2026-06-30 07:13 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/61362034797.shtml)
+- 2026-06-30 07:20 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/40924185.shtml)
+- 2026-06-30 07:20 - [85花告别古偶](http://www.share.minike.top/Article/details/53319419.shtml)
+- 2026-06-30 07:19 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/810245800680.shtml)
+- 2026-06-30 07:10 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/7414954659.shtml)
+- 2026-06-30 06:58 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/739434658.shtml)
+- 2026-06-30 07:15 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/132124.shtml)

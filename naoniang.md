@@ -1,60 +1,59 @@
-# 长江有色：矿端三重扰动及AI算力半导体高景气度提振 2日锡价或大涨
+# 数读成品家居年报 | *ST亚振跨界矿产股价飙涨 趣睡科技经营现金流暴跌78.7%垫底
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 期货市场：美指齐涨宏观环境回暖与产业链供需共振资金涌入，隔夜伦锡收涨2.63%；最新收盘报56805美元/吨，上涨1455美元，涨幅为2.63%，成交量为723手，持仓量19965万手；国内市场，夜盘沪锡主力合约2607最新收报438130元/吨，上涨10510元，涨幅为2.46%。 伦敦金属交易所（LME）6月1日伦锡库存量8850吨，较前一交易日库存量增加2
+出品：新浪财经上市公司研究院 作者：木予 2025年，国内房地产市场仍处于结构性调整的余波之中。国家统计局数据显示，全年新建商品房销售面积和销售额分别同比下降8.7%、12.6%，其中住宅销售面积下降9.2%，住宅销售额下降13.0%。与此同时，城镇住宅房龄超20年的住宅占比已达35%，预计2026年存量房翻新市场规模将突破2.5万亿元，年复合增长率保持在8%以上。这意味着，存
 
 ## 正文
 
-长江有色金属网 期货市场：美指齐涨宏观环境回暖与产业链供需共振资金涌入，隔夜伦锡收涨2.63%；最新收盘报56805美元/吨，上涨1455美元，涨幅为2.63%，成交量为723手，持仓量19965万手；国内市场，夜盘沪锡主力合约2607最新收报438130元/吨，上涨10510元，涨幅为2.46%。
+出品：新浪财经上市公司研究院 作者：木予 2025年，国内房地产市场仍处于结构性调整的余波之中。
 
-伦敦金属交易所（LME）6月1日伦锡库存量8850吨，较前一交易日库存量增加20吨。
+国家统计局数据显示，全年新建商品房销售面积和销售额分别同比下降8.7%、12.6%，其中住宅销售面积下降9.2%，住宅销售额下降13.0%。
 
-长江锡业网讯：今日沪锡期货全线高开，主力月2607合约开盘报435000元/吨较前一日收盘涨7380元/吨，9：10分沪锡主力2607合约报442450元/吨，上涨14810元，涨幅为3.46%，沪期锡高开高走盘面维持高位运行；宏观面，重磅！
+与此同时，城镇住宅房龄超20年的住宅占比已达35%，预计2026年存量房翻新市场规模将突破2.5万亿元，年复合增长率保持在8%以上。
 
-隔夜伦锡强势领涨基本金属板块，多重利好共振引爆本轮行情。
+这意味着，存量房翻新已正式取代新房装修，成为家居消费的主要需求来源。
 
-宏观面，中东局势缓和带动全球避险情绪回落，美元走弱叠加美股科技股全线大涨，头部芯片企业新品发布进一步点燃全球 AI 算力建设热潮。
+另一方面，“以旧换新”政策持续释放红利。
 
-产业端，海外主要产锡国同步出现供应扰动，AI 产业链爆发式增长带来的结构性需求激增，成为支撑锡价走强的核心逻辑。
+2025年，社会消费品零售总额达50.12万亿元，同比增长3.7%。
 
-锡产业链供需与原材料现状 原材料端呈现明显分化：原生矿方面，锡石、黄锡矿、砂锡矿全球供应持续偏紧，刚果（金）暂停部分地区锡矿开采三个月，印尼大幅提高锡矿特许权使用费税率，缅甸矿山复产进度不及预期，三重因素叠加导致锡精矿进口成本飙升；再生锡原料供应相对平稳，但整体占比有限，难以弥补原生矿缺口。
+其中，家具类消费品全年零售额实现同比增长14.6%，较2024年显著提速，智能家居和适老化改造成为新增长极；建筑及装潢材料类受房地产市场转型期影响，零售额同比下降约2.7%，但降幅已明显收窄。
 
-产业链现状方面，上游矿端供应不确定性陡增，国内冶炼厂被迫维持较低开工率；下游光伏、白电市场表现疲软，但新能源汽车重回景气区间，半导体行业高景气对锡消费形成强力支撑，整体消费韧性较强。
+截至4月30日，A股17家成品家居（按申万三级行业分类）上市公司均已披露2025年报。
 
 ## 相关推荐
 
-- 2026-06-30 07:00 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 06:56 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 06:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 06:49 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 06:58 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 07:09 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 07:08 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-30 06:50 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 07:01 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 07:03 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 07:06 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 06:56 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 07:05 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 07:10 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-30 07:00 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 07:07 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 07:00 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 07:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 07:13 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 06:56 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 06:58 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 07:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 06:59 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 07:14 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 07:14 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 07:19 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 06:59 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:17 - [德国巴拉圭 折磨](https://www.blog.kurohicncr.top/Article/details/82357674673.shtml)
-- 2026-06-30 07:03 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/5894624129.shtml)
-- 2026-06-30 07:16 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/66375708.shtml)
-- 2026-06-30 06:49 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/94337423730.shtml)
-- 2026-06-30 06:54 - [85花告别古偶](https://www.blog.minike.top/Article/details/290709.shtml)
-- 2026-06-30 07:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/104413880333.shtml)
-- 2026-06-30 07:08 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/6702305.shtml)
-- 2026-06-30 06:55 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/893353776449.shtml)
-- 2026-06-30 07:05 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/80359473123.shtml)
-- 2026-06-30 07:09 - [一生一世](http://www.blog.kurohicncr.top/Article/details/99941204.shtml)
-- 2026-06-30 06:58 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/57879429846.shtml)
-- 2026-06-30 06:54 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/458761541.shtml)
-- 2026-06-30 06:50 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/579257209091.shtml)
-- 2026-06-30 07:16 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/385252902.shtml)
-- 2026-06-30 07:02 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/39343204.shtml)
+- 2026-06-30 07:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/79208.shtml)
+- 2026-06-30 07:11 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/2392212.shtml)
+- 2026-06-30 07:14 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/789089961.shtml)
+- 2026-06-30 07:08 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/07320094.shtml)
+- 2026-06-30 07:17 - [绘画区你赢了](https://www.share.minike.top/Article/details/7957679498.shtml)
+- 2026-06-30 07:08 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/614634530001.shtml)
+- 2026-06-30 07:11 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/99393172.shtml)
+- 2026-06-30 07:11 - [日本五次世界杯淘汰赛全败](https://www.share.kurohicncr.top/Article/details/490488.shtml)
+- 2026-06-30 07:02 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/44406753.shtml)
+- 2026-06-30 07:08 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/86637346125.shtml)
+- 2026-06-30 07:05 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/212815611176.shtml)
+- 2026-06-30 07:18 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/55328359619.shtml)
+- 2026-06-30 07:03 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/9186857070.shtml)
+- 2026-06-30 07:18 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/5503997793.shtml)
+- 2026-06-30 07:16 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/16331.shtml)

@@ -1,50 +1,57 @@
-# 真主党已向特朗普表示同意停火
+# 4月中国全社会用电量同比增长6.0%
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-据以色列Channel 12未说明消息来源报道，真主党已向美国总统特朗普表示，同意在不设任何先决条件的情况下立即停火。 另据以色列公共广播公司Kan未说明消息来源报道，特朗普曾与以色列总理内塔尼亚胡通话。责任编辑：李桐
+中新社北京5月19日电 (记者 王梦瑶)中国国家能源局19日发布的数据显示，4月份，中国全社会用电量8205亿千瓦时，同比增长6.0%。 从分产业用电看，第一产业用电量112亿千瓦时，同比增长2.0%。第二产业用电量5584亿千瓦时，同比增长5.3%；其中，工业用电量同比增长5.5%，高技术装备制造业用电量同比增长10.1%。第三产业用电量1517亿千瓦时，同比增长8.9%；其
 
 ## 正文
 
-据以色列Channel 12未说明消息来源报道，真主党已向美国总统特朗普表示，同意在不设任何先决条件的情况下立即停火。
+中新社北京5月19日电 (记者 王梦瑶)中国国家能源局19日发布的数据显示，4月份，中国全社会用电量8205亿千瓦时，同比增长6.0%。
 
-另据以色列公共广播公司Kan未说明消息来源报道，特朗普曾与以色列总理内塔尼亚胡通话。
+从分产业用电看，第一产业用电量112亿千瓦时，同比增长2.0%。
 
-责任编辑：李桐
+第二产业用电量5584亿千瓦时，同比增长5.3%；其中，工业用电量同比增长5.5%，高技术装备制造业用电量同比增长10.1%。
+
+第三产业用电量1517亿千瓦时，同比增长8.9%；其中，充换电服务业、互联网数据服务用电量增速分别达到61.9%、42.8%。
+
+城乡居民生活用电量992亿千瓦时，同比增长6.0%。
+
+今年前4月，全社会用电量累计33345亿千瓦时，同比增长5.4%。
+
+从分产业用电看，第一产业用电量449亿千瓦时，同比增长5.8%。
+
+第二产业用电量21569亿千瓦时，同比增长4.9%；其中，工业用电量同比增长5.1%，高技术及装备制造业用电量同比增长9.0%。
 
 ## 相关推荐
 
-- 2026-06-30 07:10 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 06:57 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 07:01 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 07:05 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 07:05 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 07:04 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 07:16 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 06:54 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 06:55 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 07:02 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 06:51 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 07:06 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 07:14 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 06:51 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-30 06:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 07:17 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 06:54 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 06:56 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 07:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 07:15 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 07:02 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 06:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 06:56 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 07:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 07:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:51 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/4933378.shtml)
-- 2026-06-30 06:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/07512896.shtml)
-- 2026-06-30 06:53 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/9068215.shtml)
-- 2026-06-30 07:11 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/74080.shtml)
-- 2026-06-30 07:12 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/93052227.shtml)
-- 2026-06-30 07:04 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/44646697035.shtml)
-- 2026-06-30 07:16 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/47488182.shtml)
-- 2026-06-30 06:50 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/07378597.shtml)
-- 2026-06-30 07:01 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/723091301400.shtml)
-- 2026-06-30 07:00 - [天道](http://www.blog.minike.top/Article/details/1612942522.shtml)
-- 2026-06-30 07:13 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/7600723.shtml)
-- 2026-06-30 06:48 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/919472.shtml)
-- 2026-06-30 06:51 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/1889263219.shtml)
-- 2026-06-30 07:02 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/587960490963.shtml)
-- 2026-06-30 07:02 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/83886.shtml)
+- 2026-06-30 07:20 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/531696879284.shtml)
+- 2026-06-30 06:55 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/3075989.shtml)
+- 2026-06-30 07:11 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/18566133340.shtml)
+- 2026-06-30 07:04 - [金牌调解](https://www.blog.minike.top/Article/details/074740719935.shtml)
+- 2026-06-30 07:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/4645317358.shtml)
+- 2026-06-30 07:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/17436.shtml)
+- 2026-06-30 07:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/8893007.shtml)
+- 2026-06-30 06:55 - [急先锋](http://www.share.minike.top/Article/details/956488.shtml)
+- 2026-06-30 07:00 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/3729820682.shtml)
+- 2026-06-30 07:20 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/082086504525.shtml)
+- 2026-06-30 07:17 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/9734093.shtml)
+- 2026-06-30 07:03 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/16940021.shtml)
+- 2026-06-30 06:56 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/2308349.shtml)
+- 2026-06-30 07:22 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/693730.shtml)
+- 2026-06-30 07:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/60747131.shtml)

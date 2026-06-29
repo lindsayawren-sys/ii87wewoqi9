@@ -1,59 +1,59 @@
-# Gossamer Bio证券集体诉讼截止日期今晚到期，Faruqi & Faruqi鼓励受损投资者联系
+# 珍珠潜水信贷公司宣布股息下调逾40%，三年连降折射投资压力
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-纽约知名国家安全诉讼律所Faruqi & Faruqi， LLP正在对Gossamer Bio， Inc．展开调查，并提醒投资者，在该公司证券集体诉讼中寻求担任首席原告的截止日期为2026年6月1日。 该诉讼代表在2025年6月16日至2026年2月20日期间购买或以其他方式收购Gossamer Bio证券的所有个人和实体提起。 诉讼指控称，在整个集体诉讼期内，被告做出了虚假和
+珍珠潜水信贷公司近日宣布，将其月度普通股股息大幅削减40.9%，从此前的每股0.22美元下调至每股0.13美元。新的股息标准将从2026年6月起正式执行，具体派息日程为：6月30日支付，6月16日登记在册的股东可获派息。同时，公司还宣布了7月和8月同样为每股0.13美元的股息安排。值得注意的是，这已经是该公司连续第三年下调股息，表明此次调整并非短期财务决策，而是对公司结构性盈利
 
 ## 正文
 
-纽约知名国家安全诉讼律所Faruqi & Faruqi， LLP正在对Gossamer Bio， Inc．展开调查，并提醒投资者，在该公司证券集体诉讼中寻求担任首席原告的截止日期为2026年6月1日。
+珍珠潜水信贷公司近日宣布，将其月度普通股股息大幅削减40.9%，从此前的每股0.22美元下调至每股0.13美元。
 
-该诉讼代表在2025年6月16日至2026年2月20日期间购买或以其他方式收购Gossamer Bio证券的所有个人和实体提起。
+新的股息标准将从2026年6月起正式执行，具体派息日程为：6月30日支付，6月16日登记在册的股东可获派息。
 
-诉讼指控称，在整个集体诉讼期内，被告做出了虚假和/或误导性陈述，且/或未能披露以下事项：公司3期PROSERA试验的设计存在缺陷，特别是在控制拉丁美洲试验点的安慰剂反应方面存在不足。
+同时，公司还宣布了7月和8月同样为每股0.13美元的股息安排。
 
-2026年2月23日，Gossamer Bio公布了PROSERA试验的顶线结果，该试验评估了seralutinib治疗肺动脉高压的疗效。
+值得注意的是，这已经是该公司连续第三年下调股息，表明此次调整并非短期财务决策，而是对公司结构性盈利压力的回应。
 
-结果显示，试验未能达到第24周改善六分钟步行距离的主要终点，经安慰剂校正后的改善仅为13.3米，p值为0.0320，未能达到0.025的预设统计学阈值。
+股息的下降主要源于其投资组合的持续承压及净资产价值的大幅缩水。
 
-公司将这一失败归因于拉丁美洲试验点患者表现出的“超大安慰剂反应”。
+公司财报显示，截至2026年3月31日，其每股净资产价值已从2025年底的14.42美元下跌至10.48美元，季度净亏损达到2250万美元。
 
-据披露，这些地区的患者属于“经过大量治疗的低风险人群”，在安慰剂对照下表现异常出色，包括一些“超级反应者”在仅使用安慰剂的情况下步行改善超过100米。
+作为一家主要投资于抵押贷款义务股权及劣后级债务的封闭式管理投资公司，其资产端的收益率正面临利差收窄和底层贷款违约风险增加的双重挤压。
 
-试验失败的消息导致Gossamer Bio股价从2月20日的每股2.13美元收盘价暴跌至2月23日的0.42美元，单日跌幅超过80%。
+公司首席执行官Indranil Basu在财报中坦诚，这一决定旨在使股息与近期的净投资收入展望保持一致，并保存资本用于稳定和增长长期资产净值。
 
 ## 相关推荐
 
-- 2026-06-30 06:57 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 06:53 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 07:01 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 07:16 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 07:02 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 07:13 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 07:06 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 07:15 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 07:17 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 07:01 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 07:03 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 07:09 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 07:00 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 07:10 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 07:21 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 07:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 07:06 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 07:06 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 07:01 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 07:11 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 07:10 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 07:06 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 07:03 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 06:56 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 07:03 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 07:04 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:00 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/61140.shtml)
-- 2026-06-30 06:52 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/098386010857.shtml)
-- 2026-06-30 07:05 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/15722942.shtml)
-- 2026-06-30 07:10 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/3896375.shtml)
-- 2026-06-30 07:00 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/627363079691.shtml)
-- 2026-06-30 07:17 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/1709204590.shtml)
-- 2026-06-30 06:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/535817253987.shtml)
-- 2026-06-30 06:51 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/64311517.shtml)
-- 2026-06-30 07:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/72559.shtml)
-- 2026-06-30 06:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/253853784025.shtml)
-- 2026-06-30 06:51 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/27419.shtml)
-- 2026-06-30 07:12 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/359098355350.shtml)
-- 2026-06-30 07:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/96744.shtml)
-- 2026-06-30 06:56 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/3475042704.shtml)
-- 2026-06-30 07:08 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/733358329.shtml)
+- 2026-06-30 06:55 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/59429.shtml)
+- 2026-06-30 06:58 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/855562608927.shtml)
+- 2026-06-30 07:18 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/237198603195.shtml)
+- 2026-06-30 07:03 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/7819340.shtml)
+- 2026-06-30 07:12 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/916005.shtml)
+- 2026-06-30 07:06 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/2096934598.shtml)
+- 2026-06-30 07:16 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/529745209.shtml)
+- 2026-06-30 07:12 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/75807883260.shtml)
+- 2026-06-30 07:16 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/149334499487.shtml)
+- 2026-06-30 07:11 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/81511.shtml)
+- 2026-06-30 07:01 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/293056777775.shtml)
+- 2026-06-30 06:55 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/2780847.shtml)
+- 2026-06-30 07:09 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/297128923.shtml)
+- 2026-06-30 07:04 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/603026869.shtml)
+- 2026-06-30 07:16 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/158913.shtml)

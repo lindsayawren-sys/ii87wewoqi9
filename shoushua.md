@@ -1,57 +1,53 @@
-# 澳门完成多边央行数字货币桥对接 11家本地银行今日“上桥”
+# 现场直击！俄罗斯总统普京开启第25次访华之行
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-记者自澳门金融管理局获悉，澳门金融管理局已与“多边央行数字货币桥（mBridge）”项目成员完成系统对接，构建高效、安全、低成本的跨境资金支付结算渠道。6月2日起，11家本地银行作为首批参与机构，正式开通“上桥”交易。 这11家本地银行具体包括：农业银行澳门分行、中国银行澳门分行、建设银行澳门分行、澳门发展银行、广发银行澳门分行、工商银行（澳门）股份有限公司、澳门国际银行、大华
+发布时间：2026年05月20日 00:49 来源：中国新闻网 5月19日晚，俄罗斯总统普京乘坐专机抵达北京首都机场。应中国国家主席习近平邀请，普京5月19日至20日对中国进行国事访问。这是普京总统第25次到访中国，也是中俄两国元首今年首次线下会晤。(记者 郭超凯 田雨昊 制作 方敏) 责任编辑：【张令旗】
 
 ## 正文
 
-记者自澳门金融管理局获悉，澳门金融管理局已与“多边央行数字货币桥（mBridge）”项目成员完成系统对接，构建高效、安全、低成本的跨境资金支付结算渠道。
+发布时间：2026年05月20日 00:49 来源：中国新闻网 5月19日晚，俄罗斯总统普京乘坐专机抵达北京首都机场。
 
-6月2日起，11家本地银行作为首批参与机构，正式开通“上桥”交易。
+应中国国家主席习近平邀请，普京5月19日至20日对中国进行国事访问。
 
-这11家本地银行具体包括：农业银行澳门分行、中国银行澳门分行、建设银行澳门分行、澳门发展银行、广发银行澳门分行、工商银行（澳门）股份有限公司、澳门国际银行、大华银行、立桥银行、交通银行澳门分行、创兴银行澳门分行。
+这是普京总统第25次到访中国，也是中俄两国元首今年首次线下会晤。
 
-6月1日，澳门金融管理局举行了中国—葡语国家央行数字货币发展与跨境创新应用高端研讨会，以探索中国与葡语国家在央行数字货币跨境应用领域的创新合作路径，提升澳门“中国与葡语国家金融服务平台”的功能。
-
-澳门金融管理局行政管理委员会主席黄善文当日在致欢迎辞时表示，澳门正务实推进“数字澳门元”建设，助推人民币国际化并夯实中葡金融服务平台枢纽功能，持续强化“精准联系人”作用，推动中葡金融服务平台在数字金融跨境合作中发挥更重要的枢纽作用。
-
-中国人民银行副行长陆磊在致开幕辞时表示，在数字化创新不断驱动货币体系演进和支付格局变革的时代，利用法定数字货币带来新一代数字化、智能化支付升级，让资金、贸易、规则的连接更加高效和安全是中国与葡语国家的共同关切。
-
-中国已初步建立数字人民币生态体系，数字人民币具备通用混合型货币能力、可编程智能支付能力及高效监管能力等核心优势，并于今年1月成功实施新一代计量框架，将客户持有的数字现金升级为具备价值储藏功能的数字存款货币（2.0版），这是中国在全球数字化浪潮中的创新方案。
-
-陆磊还表示，现在，中葡跨境数字金融合作迎来新篇章，由中国人民银行与香港金融管理局、澳门金融管理局、阿联酋央行和泰国央行共同建设的多边央行数字货币桥（mBridge）正稳步推进成员扩充和业务拓展，中国人民银行并构建了“数币达”（CBETS）双边跨境结算综合服务平台，支持境外机构“一点接入”、链上链下7×24直通结算。
+(记者 郭超凯 田雨昊 制作 方敏) 责任编辑：【张令旗】
 
 ## 相关推荐
 
-- 2026-06-30 07:05 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 06:57 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 07:06 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 07:16 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 07:13 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-30 06:48 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 07:06 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 06:56 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 07:16 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 06:49 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 07:09 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 06:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-30 07:14 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 07:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 06:57 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 07:02 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 07:23 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 07:17 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 07:23 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 07:01 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 07:17 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 07:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 07:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 07:10 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 07:12 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 07:23 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:03 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/56087.shtml)
-- 2026-06-30 07:07 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/1258048.shtml)
-- 2026-06-30 06:49 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/99724.shtml)
-- 2026-06-30 06:57 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/577357726922.shtml)
-- 2026-06-30 06:57 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/33176448765.shtml)
-- 2026-06-30 06:54 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/90673.shtml)
-- 2026-06-30 06:49 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/3906402304.shtml)
-- 2026-06-30 06:51 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/1546962913.shtml)
-- 2026-06-30 07:00 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/397052155460.shtml)
-- 2026-06-30 07:00 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/3048485.shtml)
-- 2026-06-30 06:59 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/783818209828.shtml)
-- 2026-06-30 07:07 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/740418846.shtml)
-- 2026-06-30 07:12 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/41129375.shtml)
-- 2026-06-30 06:59 - [天道](http://www.blog.minike.top/Article/details/8338112533.shtml)
-- 2026-06-30 07:07 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/839938.shtml)
+- 2026-06-30 06:59 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/235257875.shtml)
+- 2026-06-30 06:55 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/572630484671.shtml)
+- 2026-06-30 07:05 - [扬名立万](http://www.blog.minike.top/Article/details/80055.shtml)
+- 2026-06-30 07:12 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/23031276.shtml)
+- 2026-06-30 07:04 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/0527446.shtml)
+- 2026-06-30 07:09 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/15900.shtml)
+- 2026-06-30 07:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/9482254.shtml)
+- 2026-06-30 07:16 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/475607789422.shtml)
+- 2026-06-30 07:14 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/24527479004.shtml)
+- 2026-06-30 07:20 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/082416998546.shtml)
+- 2026-06-30 07:04 - [哈弗茨头球破门](http://www.share.minike.top/Article/details/91135407095.shtml)
+- 2026-06-30 07:01 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/673229806863.shtml)
+- 2026-06-30 07:05 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/5961566919.shtml)
+- 2026-06-30 07:03 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/310565447.shtml)
+- 2026-06-30 07:21 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/344875548.shtml)

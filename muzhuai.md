@@ -1,55 +1,60 @@
-# Alphabet将通过股权融资筹集800亿美元 用于人工智能支出
+# 谷歌与黑石集团据悉将组建AI云合资公司
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-谷歌母公司Alphabet Inc．正通过股权融资筹集800亿美元资金，其中包括与伯克希尔达成的一项投资交易，以支持其雄心勃勃的人工智能支出计划。 Alphabet周一在声明中称，这项融资安排包括300亿美元承销公开发行，以及400亿美元按市价发行（ATM）。作为此次融资安排的一部分，伯克希尔将通过私募配售方式购买100亿美元股票。 “人工智能正推动Alphabet迎来一个扩张
+专题：获利盘回吐压力显现 中期上行趋势不改 据知情人士透露，Alphabet旗下的谷歌和黑石集团计划利用谷歌的专用芯片，打造一家人工智能云公司，与CoreWeave等公司展开竞争。 消息人士称，谷歌和黑石计划成立一家尚未命名的合资公司，黑石集团将向其注资50亿美元，并拥有控股权。该交易预计将于当地时间周一晚些时候宣布。 此次合作是谷歌迄今为止规模最大的一次尝试，旨在向外部出售并
 
 ## 正文
 
-谷歌母公司Alphabet Inc．正通过股权融资筹集800亿美元资金，其中包括与伯克希尔达成的一项投资交易，以支持其雄心勃勃的人工智能支出计划。
+专题：获利盘回吐压力显现 中期上行趋势不改 据知情人士透露，Alphabet旗下的谷歌和黑石集团计划利用谷歌的专用芯片，打造一家人工智能云公司，与CoreWeave等公司展开竞争。
 
-Alphabet周一在声明中称，这项融资安排包括300亿美元承销公开发行，以及400亿美元按市价发行（ATM）。
+消息人士称，谷歌和黑石计划成立一家尚未命名的合资公司，黑石集团将向其注资50亿美元，并拥有控股权。
 
-作为此次融资安排的一部分，伯克希尔将通过私募配售方式购买100亿美元股票。
+该交易预计将于当地时间周一晚些时候宣布。
 
-“人工智能正推动Alphabet迎来一个扩张性时刻，”该公司在声明中称，“通过扩大投资规模，公司拟扩展其基础性基础设施，以支持未来的重大增长机遇。
+此次合作是谷歌迄今为止规模最大的一次尝试，旨在向外部出售并实现芯片商业化，这将加剧谷歌与人工智能计算市场领导者英伟达之间的竞争。
 
-” Alphabet表示，高盛集团、摩根大通和摩根士丹利将担任承销发行的联席账簿管理人。
+据知情人士透露，这家新公司计划在2027年实现500兆瓦的发电容量上线——这大致相当于美国一个中等规模城市所需的电力——并随着时间的推移大幅提高发电容量。
 
-责任编辑：丁文武
+该合资企业组建之际，训练和运行高级人工智能模型所需的计算能力需求达到前所未有的水平。
+
+目前，大多数大型人工智能公司至少部分依赖于CoreWeave的计算基础设施，而CoreWeave使用的是英伟达的芯片。
+
+为了应对巨大的需求，一批规模较小的所谓“新云”公司也应运而生。
 
 ## 相关推荐
 
-- 2026-06-30 06:48 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 07:00 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 06:58 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 07:02 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 07:17 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 06:49 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 06:50 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 07:01 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 07:15 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 06:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 07:08 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 07:11 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 06:52 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 07:09 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 07:06 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 07:20 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 07:10 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 06:54 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 07:18 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 07:15 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 07:07 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 07:19 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 07:15 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 06:54 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 07:14 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 07:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 07:00 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:49 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/55302732.shtml)
-- 2026-06-30 06:51 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/297896.shtml)
-- 2026-06-30 06:57 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/1276203901.shtml)
-- 2026-06-30 06:52 - [点菜也要教吗](https://www.share.minike.top/Article/details/5661230.shtml)
-- 2026-06-30 07:14 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/43089103541.shtml)
-- 2026-06-30 06:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/30623742.shtml)
-- 2026-06-30 06:59 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/03938.shtml)
-- 2026-06-30 06:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/60645.shtml)
-- 2026-06-30 07:17 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/30585.shtml)
-- 2026-06-30 06:56 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/267823138512.shtml)
-- 2026-06-30 06:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/06683652.shtml)
-- 2026-06-30 07:03 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/731454.shtml)
-- 2026-06-30 07:08 - [三星投资计划](http://www.blog.minike.top/Article/details/260715.shtml)
-- 2026-06-30 06:58 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/05300660.shtml)
-- 2026-06-30 06:48 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/50407510645.shtml)
+- 2026-06-30 07:04 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/290187957.shtml)
+- 2026-06-30 06:55 - [周冬雨多次说演不了话剧文城](https://www.share.minike.top/Article/details/03968.shtml)
+- 2026-06-30 07:05 - [日本五次世界杯淘汰赛全败](http://www.blog.kurohicncr.top/Article/details/83431310.shtml)
+- 2026-06-30 07:19 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/0555387.shtml)
+- 2026-06-30 06:58 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/924204331363.shtml)
+- 2026-06-30 07:04 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/46510.shtml)
+- 2026-06-30 07:12 - [第一炉香](https://www.blog.minike.top/Article/details/596704126.shtml)
+- 2026-06-30 07:01 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/37686824.shtml)
+- 2026-06-30 07:01 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/736648516220.shtml)
+- 2026-06-30 07:18 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/98388766328.shtml)
+- 2026-06-30 06:54 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/3306747.shtml)
+- 2026-06-30 07:16 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/122310608063.shtml)
+- 2026-06-30 07:21 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/253171.shtml)
+- 2026-06-30 06:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/875971.shtml)
+- 2026-06-30 07:05 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/48690556989.shtml)

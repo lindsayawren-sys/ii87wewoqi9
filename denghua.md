@@ -1,57 +1,58 @@
-# 美国七个州因取消海上风电租约起诉特朗普政府及道达尔能源
+# 涉及民企内部腐败、串通投标等 最高检发布典型案例
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-由纽约州为首的美国七个州周二起诉特朗普政府，原因是政府取消了一项位于纽约州海岸的大型海上风电租约，以换取该租约所有者承诺转而投资化石燃料项目。 该诉讼在华盛顿特区联邦法院提起，质疑美国内政部3月23日的一项决定。该决定取消了法国道达尔能源公司（TotalEnergies）一家子公司的租约，向其“退还”7.95亿美元，并要求该公司承诺不在美国开发新的海上风电项目。 道达尔还同意在
+中新网5月19日电 据最高检网站消息，在《中华人民共和国民营经济促进法》即将正式实施一周年之际，最高人民检察院发布“充分发挥检察职能 依法平等保护企业合法权益典型案例”。这批典型案例共6件，涉及民营企业内部腐败、“一货多卖”类合同诈骗、职务侵占、串通投标等企业生产经营活动中的常见法律问题，充分体现了检察机关服务保障经济社会高质量发展的坚定立场和工作成效。依法惩治侵害企业合法权益
 
 ## 正文
 
-由纽约州为首的美国七个州周二起诉特朗普政府，原因是政府取消了一项位于纽约州海岸的大型海上风电租约，以换取该租约所有者承诺转而投资化石燃料项目。
+中新网5月19日电 据最高检网站消息，在《中华人民共和国民营经济促进法》即将正式实施一周年之际，最高人民检察院发布“充分发挥检察职能 依法平等保护企业合法权益典型案例”。
 
-该诉讼在华盛顿特区联邦法院提起，质疑美国内政部3月23日的一项决定。
+这批典型案例共6件，涉及民营企业内部腐败、“一货多卖”类合同诈骗、职务侵占、串通投标等企业生产经营活动中的常见法律问题，充分体现了检察机关服务保障经济社会高质量发展的坚定立场和工作成效。
 
-该决定取消了法国道达尔能源公司（TotalEnergies）一家子公司的租约，向其“退还”7.95亿美元，并要求该公司承诺不在美国开发新的海上风电项目。
+依法惩治侵害企业合法权益犯罪，是检察机关依法平等保护企业合法权益的主要方式。
 
-道达尔还同意在得克萨斯州的一个液化天然气厂以及美国的油气钻探项目上投入近10亿美元。
+例如，在案例一某民营房地产企业内部腐败系列案中，上海检察机关准确认定犯罪事实、及时补充起诉遗漏罪行，同步推进查处关联行受贿犯罪；同时坚持标本兼治，助力企业完善内部治理，筑牢企业内部腐败“防火墙”。
 
-此举代表了特朗普政府为阻止美国海上风电项目开发而采取的广泛行动中的一项新策略。
+再如，在案例二某大宗贸易领域合同诈骗案中，涉案金额高达68亿余元，浙江检察机关严格区分民事欺诈与合同诈骗犯罪界限，依法追诉漏罪漏犯，同步推进全流程追赃挽损，依法平等保护涵盖国企、民企、外企等各类受害企业合法权益。
 
-总统唐纳德·特朗普曾表示，他认为这些风电项目既不美观又成本高昂。
+持续加强对涉企案件的法律监督，是这批典型案例的鲜明特点。
 
-其政府一直在努力提高国内化石燃料产量，并废除了支持清洁能源发展的政策。
+既有依法提起抗诉，纠正错误裁判，回应企业信访诉求的审判监督案件，也有依法行使调查核实权，接续监督维护企业合法权益的立案监督案件。
 
-美国司法部拒绝对该诉讼发表评论。
+例如，在案例五杨某某职务侵占审判监督抗诉案中，北京检察机关对确有错误的判决，依法提起审判监督抗诉，并在案件再审过程中依法调取使用境外证据，落实“一案多查”、深挖职务犯罪线索，通过充分履职推动抗诉案件顺利改判，有效发挥了检察监督效能。
 
 ## 相关推荐
 
-- 2026-06-30 06:57 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 07:11 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 07:16 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 07:12 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 06:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 07:04 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 07:11 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 06:53 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 06:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 06:59 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 07:15 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 06:57 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 07:01 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 07:07 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 07:00 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 07:02 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 07:15 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 06:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-30 07:20 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 07:14 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 07:23 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 07:15 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 06:58 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:09 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/95739098863.shtml)
-- 2026-06-30 06:56 - [锐评T1零封KC](http://www.share.minike.top/Article/details/998188529.shtml)
-- 2026-06-30 07:06 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/4816087.shtml)
-- 2026-06-30 06:55 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/0179138.shtml)
-- 2026-06-30 07:16 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/3043095.shtml)
-- 2026-06-30 07:09 - [美人鱼](https://www.share.kurohicncr.top/Article/details/3800315034.shtml)
-- 2026-06-30 06:56 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/43410478786.shtml)
-- 2026-06-30 06:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/506223.shtml)
-- 2026-06-30 07:04 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/019485034610.shtml)
-- 2026-06-30 07:04 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/71374017374.shtml)
-- 2026-06-30 07:07 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/9971659.shtml)
-- 2026-06-30 07:08 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/74602262330.shtml)
-- 2026-06-30 07:11 - [第一炉香](https://www.share.minike.top/Article/details/967081.shtml)
-- 2026-06-30 06:51 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/0107489.shtml)
-- 2026-06-30 07:12 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/8469998.shtml)
+- 2026-06-30 07:21 - [天道](http://www.share.kurohicncr.top/Article/details/74903877.shtml)
+- 2026-06-30 07:06 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/71440.shtml)
+- 2026-06-30 07:05 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/2730727227.shtml)
+- 2026-06-30 07:08 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/500934.shtml)
+- 2026-06-30 07:13 - [房价什么时候能涨](http://www.share.minike.top/Article/details/2455843900.shtml)
+- 2026-06-30 07:23 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/3185541183.shtml)
+- 2026-06-30 07:12 - [恋与深空 日服](http://www.blog.minike.top/Article/details/117473.shtml)
+- 2026-06-30 07:10 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/43386812488.shtml)
+- 2026-06-30 07:05 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/14383.shtml)
+- 2026-06-30 07:00 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/8373277.shtml)
+- 2026-06-30 07:23 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/27084.shtml)
+- 2026-06-30 07:20 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/1705224323.shtml)
+- 2026-06-30 07:21 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/080494111023.shtml)
+- 2026-06-30 07:07 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/98381023.shtml)
+- 2026-06-30 07:16 - [请回答王牌2019](http://www.share.minike.top/Article/details/5928798.shtml)

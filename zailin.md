@@ -1,57 +1,47 @@
-# 10天内，5名副省长履新
+# 单一观影到多元消费 票根解锁消费新模式
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新网北京6月1日电(记者 李京统)5月22日以来，10天内已有辽宁、浙江、云南、四川、安徽5个省份迎来新任副省长： 白英任辽宁省副省长； 姚高员任浙江省副省长； 袁方任云南省副省长； 马正勇任四川省副省长； 何淳宽任安徽省副省长。 上述五人中，有两人是“70后”干部，其中履新安徽省副省长的何淳宽，生于1977年10月。 有两人此番跨省调整：今次履新云南省副省长的袁方，此前任安
+发布时间：2026年05月19日 10:17 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网北京6月1日电(记者 李京统)5月22日以来，10天内已有辽宁、浙江、云南、四川、安徽5个省份迎来新任副省长： 白英任辽宁省副省长； 姚高员任浙江省副省长； 袁方任云南省副省长； 马正勇任四川省副省长； 何淳宽任安徽省副省长。
-
-上述五人中，有两人是“70后”干部，其中履新安徽省副省长的何淳宽，生于1977年10月。
-
-有两人此番跨省调整：今次履新云南省副省长的袁方，此前任安徽省马鞍山市委书记；今次履新四川省副省长的马正勇，此前任广东省副省长、梅州市委书记。
-
-5月28日，云南省第十四届人民代表大会常务委员会第二十三次会议通过，决定任命袁方为省人民政府副省长。
-
-袁方生于1969年7月，长期在安徽省工作，曾在安徽多个地市任职，2017年出任安徽省人民防空办公室主任，2019年调任马鞍山市市长，2023年1月出任马鞍山市委书记，至此番跨省任云南省副省长。
-
-5月27日，四川省十四届人大常委会第二十七次会议第二次全体会议表决通过，决定任命马正勇为四川省人民政府副省长。
-
-马正勇生于1973年1月，早期从北京大学毕业后留校工作多年，曾任北京大学学生工作部副部长，后调至广东工作，曾任广州市海珠区委书记，2020年调任清远市市长。
-
-2021年7月，马正勇调任梅州市代市长，次月任梅州市市长，同年10月任梅州市委书记，2025年4月任广东省副省长，并继续兼任梅州市委书记，至此番跨省调任四川省副省长。
+发布时间：2026年05月19日 10:17 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 06:51 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 07:17 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 06:58 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 07:13 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 07:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 06:57 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 07:15 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 06:54 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 06:48 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 06:52 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 07:13 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 07:12 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 07:01 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 07:18 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 06:54 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 06:56 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 07:02 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 06:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 07:21 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 07:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 07:19 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 07:03 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 06:54 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 07:07 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 07:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 06:55 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:01 - [苗族银饰](http://www.blog.minike.top/Article/details/57388.shtml)
-- 2026-06-30 06:56 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/13491.shtml)
-- 2026-06-30 06:51 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/36956.shtml)
-- 2026-06-30 07:03 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/4592912798.shtml)
-- 2026-06-30 07:09 - [巴西扳平比分](https://www.blog.minike.top/Article/details/679648709311.shtml)
-- 2026-06-30 06:59 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/366999826.shtml)
-- 2026-06-30 06:53 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/065368896002.shtml)
-- 2026-06-30 06:54 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/064121686387.shtml)
-- 2026-06-30 06:57 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/866704665546.shtml)
-- 2026-06-30 07:01 - [起风了](https://www.share.minike.top/Article/details/269115.shtml)
-- 2026-06-30 07:09 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/72788.shtml)
-- 2026-06-30 06:55 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/450536920972.shtml)
-- 2026-06-30 06:54 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/483597.shtml)
-- 2026-06-30 07:09 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/76388870.shtml)
-- 2026-06-30 07:14 - [女心理师](https://www.share.minike.top/Article/details/97948112.shtml)
+- 2026-06-30 07:19 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/99287642980.shtml)
+- 2026-06-30 07:12 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/7505850823.shtml)
+- 2026-06-30 07:22 - [沙丘](https://www.share.kurohicncr.top/Article/details/887293582.shtml)
+- 2026-06-30 07:11 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/186738840023.shtml)
+- 2026-06-30 07:08 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/2596851846.shtml)
+- 2026-06-30 06:56 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/620761747376.shtml)
+- 2026-06-30 07:02 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/942605770.shtml)
+- 2026-06-30 07:08 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/6345966328.shtml)
+- 2026-06-30 06:58 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/748733198.shtml)
+- 2026-06-30 06:55 - [索马里女大使：想和中国一起搞事业](https://www.blog.minike.top/Article/details/25778402230.shtml)
+- 2026-06-30 07:02 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/81787.shtml)
+- 2026-06-30 07:01 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/2959480140.shtml)
+- 2026-06-30 06:56 - [日本领先巴西](https://www.share.minike.top/Article/details/033729707.shtml)
+- 2026-06-30 07:01 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/3646422918.shtml)
+- 2026-06-30 07:21 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/3901160.shtml)

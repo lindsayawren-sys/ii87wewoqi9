@@ -1,43 +1,60 @@
-# 大同—怀来—天津南特高压交流工程 完成关键施工作业 进入全面架线阶段
+# 浙江推出多元“中国旅游日”活动 上线入境旅游消费券
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月03日 10:05 来源：央视新闻 责任编辑：【王祎】
+中新网宁波5月19日电(林波)5月19日，2026年“5·19中国旅游日”浙江省分会场活动暨第二十四届徐霞客开游节开幕式在《徐霞客游记》开篇地——宁波市宁海县西门城楼广场举行。 活动现场，浙江正式上线“入境旅游消费券”，面向境外游客覆盖公交、景点、酒店等多领域消费场景，单人最高可享受450元(人民币，下同)优惠，一键开启省心又省钱的浙江之旅。 浙江省文化广电和旅游厅党组书记、厅
 
 ## 正文
 
-发布时间：2026年06月03日 10:05 来源：央视新闻 责任编辑：【王祎】
+中新网宁波5月19日电(林波)5月19日，2026年“5·19中国旅游日”浙江省分会场活动暨第二十四届徐霞客开游节开幕式在《徐霞客游记》开篇地——宁波市宁海县西门城楼广场举行。
+
+活动现场，浙江正式上线“入境旅游消费券”，面向境外游客覆盖公交、景点、酒店等多领域消费场景，单人最高可享受450元(人民币，下同)优惠，一键开启省心又省钱的浙江之旅。
+
+浙江省文化广电和旅游厅党组书记、厅长陈广胜在致辞中指出，浙江是一个处处有景、时时可玩的好地方，既有山水灵秀，又有市井暖意，更有文脉绵长，足以承载每一份对诗和远方的向往。
+
+他指出，在情绪价值愈发珍贵的当下，无论是贪恋一口“百县千碗”的烟火滋味，还是奔赴“浙韵千宿”的山野美宿，都是卸下生活忙碌、舒缓身心的理由。
+
+据悉，本届“5·19中国旅游日”主题月期间，浙江全省推出700余项惠民举措，预计让利超3000万元，旨在让游客“无顾虑出发、有收获返程”。
+
+活动现场分为“畅游浙江、嗨游浙江、惠游浙江”三大板块，全方位展现了浙江文旅高质量发展的崭新风貌。
+
+在“畅游浙江”板块，“诗画浙江”漫游长廊创意推介表演新意满满，生动展现12条漫游长廊的独特魅力。
+
+浙江文旅数字宣推官“浙浙”亮相公布“诗画浙江漫游长廊宣推共创计划”。
 
 ## 相关推荐
 
-- 2026-06-30 07:11 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 06:49 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 07:17 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 07:13 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 07:15 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 07:02 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 06:55 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 07:10 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 06:51 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 07:09 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 07:06 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 07:08 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 06:54 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 07:16 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 07:13 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 07:06 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 07:05 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 07:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 07:09 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 07:07 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 07:01 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 07:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 06:58 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 07:13 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 07:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:06 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/733918689.shtml)
-- 2026-06-30 06:54 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/194911629421.shtml)
-- 2026-06-30 06:53 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/8084800732.shtml)
-- 2026-06-30 06:52 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/36699.shtml)
-- 2026-06-30 06:54 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/23190992451.shtml)
-- 2026-06-30 07:08 - [巴西vs日本](http://www.blog.minike.top/Article/details/268529680.shtml)
-- 2026-06-30 06:54 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/732763096.shtml)
-- 2026-06-30 07:16 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/798769.shtml)
-- 2026-06-30 07:06 - [周冬雨多次说演不了话剧文城](http://www.blog.minike.top/Article/details/171662.shtml)
-- 2026-06-30 06:54 - [斛珠夫人](http://www.blog.minike.top/Article/details/870552432.shtml)
-- 2026-06-30 07:04 - [青春环游记第三季](https://www.blog.minike.top/Article/details/805586.shtml)
-- 2026-06-30 07:09 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/272912.shtml)
-- 2026-06-30 06:49 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/935525.shtml)
-- 2026-06-30 07:17 - [周冬雨多次说演不了话剧文城](http://www.share.kurohicncr.top/Article/details/781882938371.shtml)
-- 2026-06-30 07:07 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/6496431.shtml)
+- 2026-06-30 07:05 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/3518586.shtml)
+- 2026-06-30 07:12 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/655704.shtml)
+- 2026-06-30 07:11 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/503907123.shtml)
+- 2026-06-30 07:17 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/353100512825.shtml)
+- 2026-06-30 07:14 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/662397261133.shtml)
+- 2026-06-30 07:13 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/25680346969.shtml)
+- 2026-06-30 07:16 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/75578.shtml)
+- 2026-06-30 07:19 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/6440209190.shtml)
+- 2026-06-30 07:00 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/9238307915.shtml)
+- 2026-06-30 07:13 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/4466735.shtml)
+- 2026-06-30 07:00 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/573214205032.shtml)
+- 2026-06-30 07:01 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/53802243.shtml)
+- 2026-06-30 07:08 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/720543573.shtml)
+- 2026-06-30 07:06 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/3146597651.shtml)
+- 2026-06-30 07:09 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/0715548225.shtml)

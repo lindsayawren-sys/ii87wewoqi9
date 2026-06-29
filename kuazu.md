@@ -1,61 +1,56 @@
-# 华南理工大学国际组织与全球治理本科专业正式招生
+# 40.98万元起，标配第二代刀片电池及闪充技术，腾势N9闪充版上市
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新网广州6月2日电 (记者 许青青)据华南理工大学2日消息，经教育部审批，华南理工大学新增国际组织与全球治理本科专业(专业代码：030206TK)，该专业将于2026年以创新班的形式在广东、北京、河北、安徽、福建、江西、湖南、重庆、新疆等省市招生20人，选考科目要求“历史+政治”(其中北京选科要求政治，新疆要求文史)。 据了解，2026年华南理工大学全国招生总规模7230人，
+5月18日，科技驾控旗舰SUV——腾势N9闪充版上市，推出闪充尊荣型、闪充尊越型、闪充旗舰型三款车型，官方指导价40.98万元—46.98万元。华语乐坛巨星王力宏，成为腾势汽车第50万辆车主，也是腾势N9闪充版首位车主。新车全系标配第二代刀片电池及闪充技术、易三方、云辇-A闭式双腔空悬、天神之眼5.0辅助驾驶系统、全新一代AI智能座舱等科技豪华配置，并带来五大旗舰升级。腾势N9
 
 ## 正文
 
-中新网广州6月2日电 (记者 许青青)据华南理工大学2日消息，经教育部审批，华南理工大学新增国际组织与全球治理本科专业(专业代码：030206TK)，该专业将于2026年以创新班的形式在广东、北京、河北、安徽、福建、江西、湖南、重庆、新疆等省市招生20人，选考科目要求“历史+政治”(其中北京选科要求政治，新疆要求文史)。
+5月18日，科技驾控旗舰SUV——腾势N9闪充版上市，推出闪充尊荣型、闪充尊越型、闪充旗舰型三款车型，官方指导价40.98万元—46.98万元。
 
-据了解，2026年华南理工大学全国招生总规模7230人，比2025年增加150人。
+华语乐坛巨星王力宏，成为腾势汽车第50万辆车主，也是腾势N9闪充版首位车主。
 
-学校进一步优化招生专业结构，普通类调整为40个招生专业(类)，大力增加报考热度高、就业需求量大的专业计划。
+新车全系标配第二代刀片电池及闪充技术、易三方、云辇-A闭式双腔空悬、天神之眼5.0辅助驾驶系统、全新一代AI智能座舱等科技豪华配置，并带来五大旗舰升级。
 
-其中，国际组织与全球治理本科专业是华南理工大学对接国家战略需求、服务全球治理倡议实施打造的特色专业。
+腾势N9闪充版，以科技旗舰，纵享从容，加速新能源全球化布局。
 
-在师资方面，将组建由国家级教学名师等领衔的专业师资团队，同时聘请联合国高级官员、跨国公司资深专家担任实务导师。
+即日下订腾势N9闪充版，可享至高价值11万元限时购车权益！
 
-教学团队与联合国系统国际组织联合开发建设核心课程。
+包含至高7万元选装权益、至高贴息约2万元金融方案、至高2万元置换补贴、1年免费闪充权益等，诚意满满！
 
-课程体系上，该专业锚定全球治理关键议题，设置四大核心课程模块：全球治理与区域国别、国际法律与外交实务、科技伦理与技术治理、全球经济与文化传播，助力学生全面提升全球胜任力。
+发布会上，王力宏分享了自己关于音乐的初心与坚守，盛赞腾势汽车的原创设计和创新技术。
 
-专业重视实践实训，将打造粤港澳大湾区国际组织青年人才训练营、华南理工大学模拟联合国大会等特色国际组织实训品牌；指导学生申请联合国开发计划署、联合国工业发展组织、联合国粮农组织、国际可再生能源署、国际电信联盟等多个理工特色国际组织实习岗位。
+他还表示，祝愿今天在场的每一位朋友，都能守住心中的热爱，在人生的道路上，奔赴“最好的地方”。
 
 ## 相关推荐
 
-- 2026-06-30 06:48 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 07:00 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 07:09 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-30 06:53 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 07:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 07:15 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 07:15 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 07:00 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 06:58 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 06:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 06:56 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 06:55 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 07:13 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 06:50 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 07:06 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 07:00 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 07:01 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 07:16 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 06:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 06:59 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 06:56 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-30 07:14 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 07:09 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-30 06:57 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 06:57 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:56 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/0756990.shtml)
-- 2026-06-30 06:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/83140069.shtml)
-- 2026-06-30 07:10 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/99010.shtml)
-- 2026-06-30 06:58 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/425428335.shtml)
-- 2026-06-30 07:02 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/058126287137.shtml)
-- 2026-06-30 07:16 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/2927478452.shtml)
-- 2026-06-30 06:51 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/3007537512.shtml)
-- 2026-06-30 06:52 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/98935797.shtml)
-- 2026-06-30 07:07 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/287832110364.shtml)
-- 2026-06-30 07:17 - [哈弗茨头球破门](http://www.share.minike.top/Article/details/3991469.shtml)
-- 2026-06-30 07:14 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/811314699453.shtml)
-- 2026-06-30 06:48 - [电影后室值得看吗](http://www.share.minike.top/Article/details/092208822.shtml)
-- 2026-06-30 06:48 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/72068427823.shtml)
-- 2026-06-30 07:09 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/21161210.shtml)
-- 2026-06-30 07:11 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/85839061.shtml)
+- 2026-06-30 07:12 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/70710.shtml)
+- 2026-06-30 07:13 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/405879291.shtml)
+- 2026-06-30 07:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/75780.shtml)
+- 2026-06-30 07:22 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/0650031.shtml)
+- 2026-06-30 07:14 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/39358434.shtml)
+- 2026-06-30 07:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/0881328158.shtml)
+- 2026-06-30 07:00 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.kurohicncr.top/Article/details/89872.shtml)
+- 2026-06-30 07:04 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/6622400.shtml)
+- 2026-06-30 07:03 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/38405889.shtml)
+- 2026-06-30 07:14 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/31563.shtml)
+- 2026-06-30 06:55 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/323061.shtml)
+- 2026-06-30 07:03 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/13723.shtml)
+- 2026-06-30 07:18 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/561360.shtml)
+- 2026-06-30 07:15 - [巴拉圭进球](https://www.share.kurohicncr.top/Article/details/3030333.shtml)
+- 2026-06-30 07:06 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/4265309723.shtml)

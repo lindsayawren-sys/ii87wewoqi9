@@ -1,56 +1,57 @@
-# 中国官方发布高考预警信息：靠“AI押题”获取高分不现实
+# 泰国内阁决定取消60天免签政策
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新社北京6月2日电 (记者 曾玥)2026年高考在即，中国教育部2日发布2026年高考预警信息，公布“迷信高考押题”等案例，提醒广大考生靠人工智能(AI)或所谓的“专家”押题来获取高分是不现实的。 预警信息梳理汇总了高考组织作弊、替考、携带违禁物品、迷信高考押题、轻信提前查分等5个典型案例与谣言，提醒广大考生及家长提高警惕，明辨真伪，诚信参加考试，严守法律底线，谨防上当受骗，
+中新社曼谷5月19日电 (记者 李映民)据泰国媒体19日报道，泰国旅游与体育部部长素拉沙·攀差伦沃拉恭当天透露，泰国内阁会议已作出决议，取消针对90多个国家实施的“60天免签”政策，同时废止此前对部分享有多次签证待遇国家的相关措施。根据内阁决议，泰国将恢复采用原有的签证标准与规定。接下来，相关部门将依据决议内容执行落实。 此外，新的签证审核标准还需由签证审查委员会进一步研究制定
 
 ## 正文
 
-中新社北京6月2日电 (记者 曾玥)2026年高考在即，中国教育部2日发布2026年高考预警信息，公布“迷信高考押题”等案例，提醒广大考生靠人工智能(AI)或所谓的“专家”押题来获取高分是不现实的。
+中新社曼谷5月19日电 (记者 李映民)据泰国媒体19日报道，泰国旅游与体育部部长素拉沙·攀差伦沃拉恭当天透露，泰国内阁会议已作出决议，取消针对90多个国家实施的“60天免签”政策，同时废止此前对部分享有多次签证待遇国家的相关措施。
 
-预警信息梳理汇总了高考组织作弊、替考、携带违禁物品、迷信高考押题、轻信提前查分等5个典型案例与谣言，提醒广大考生及家长提高警惕，明辨真伪，诚信参加考试，严守法律底线，谨防上当受骗，确保考试安全与个人权益。
+根据内阁决议，泰国将恢复采用原有的签证标准与规定。
 
-“迷信高考押题”案例披露，随着高考临近，押题卷市场被借机炒作，“绝密”预测卷满天飞，名师和AI齐上阵，不法分子利用一些考生、家长的投机心理，常冒充“命题组老师”“资深机构”，大肆宣传能提供“绝密真题”“精准押题卷”，炒作“名师押题”“AI押题”等虚假宣传手段，还采用抢先预售、限期优惠、限时销售等营销模式，诱导考生和家长高价购买，影响自身备考安排。
+接下来，相关部门将依据决议内容执行落实。
 
-甚至有的不法分子让考生家长点击链接，以“预付订金”等名义要求付款，付款后被拉黑。
+此外，新的签证审核标准还需由签证审查委员会进一步研究制定，之后将提交政府审议。
 
-教育部提醒，近年来，高考命题持续深化改革，方向和内容都是不断变化和创新的，更加注重考查考生关键能力、学科素养和思维品质，突出反押题、反套路的导向。
+对于新的签证政策，签证政策委员会将对各国逐一评估，综合考虑国家安全、经济发展等多方面因素，判断各国适用的签证类型。
 
-靠AI或所谓的“专家”押题来获取高分是不现实的。
+据悉，所有被取消“60天免签”待遇的国家，将回归原有签证制度。
 
-考生将大量精力投放到“押题卷”，会扰乱自己正常的学习方式与节奏，得不偿失，也容易被不法商家所骗，带来经济和心理上的双重损失。
+此前，泰国副总理兼外交部长西哈萨曾公开解释政策调整初衷。
 
-针对违禁物品，教育部在预警信息中明确，无论何种理由、无论是否使用，携带手机、智能手表(手环)、智能眼镜等进入考场即构成作弊。
+他表示，泰国现有签证体系品类完善，原有的60天旅游免签停留时限偏长，易出现入境人员目的不实、违规滞留等问题，滋生跨国犯罪等安全隐患，因此官方计划缩短免签停留时长、收紧入境监管规范。
 
 ## 相关推荐
 
-- 2026-06-30 07:12 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 07:15 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 06:51 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 07:06 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 06:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 07:08 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 07:16 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 07:04 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 07:08 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 06:54 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 07:06 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 07:13 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 07:20 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 06:57 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 06:58 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 06:54 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 07:04 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 06:58 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 06:56 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 07:22 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 07:09 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:11 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/567740488.shtml)
-- 2026-06-30 06:53 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/5282774767.shtml)
-- 2026-06-30 07:05 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/9296385279.shtml)
-- 2026-06-30 06:48 - [美人鱼](http://www.blog.minike.top/Article/details/78500.shtml)
-- 2026-06-30 07:08 - [中国新一轮出口管制直指日本命脉](http://www.blog.minike.top/Article/details/203951.shtml)
-- 2026-06-30 06:51 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/77427391172.shtml)
-- 2026-06-30 06:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/562524159844.shtml)
-- 2026-06-30 07:00 - [急先锋](http://www.share.kurohicncr.top/Article/details/59454.shtml)
-- 2026-06-30 07:03 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/58200775826.shtml)
-- 2026-06-30 07:01 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/08169922.shtml)
-- 2026-06-30 06:49 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/7094987665.shtml)
-- 2026-06-30 07:03 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/20186.shtml)
-- 2026-06-30 07:04 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/535011466073.shtml)
-- 2026-06-30 06:52 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/838928784820.shtml)
-- 2026-06-30 07:14 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/1152418686.shtml)
+- 2026-06-30 07:20 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/33056797.shtml)
+- 2026-06-30 07:08 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/198814.shtml)
+- 2026-06-30 07:05 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/9427517.shtml)
+- 2026-06-30 07:04 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/897490.shtml)
+- 2026-06-30 07:17 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/589834.shtml)
+- 2026-06-30 06:59 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/29974.shtml)
+- 2026-06-30 07:09 - [苗族银饰](http://www.blog.minike.top/Article/details/5134239441.shtml)
+- 2026-06-30 07:23 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/8688197.shtml)
+- 2026-06-30 06:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/246787926495.shtml)
+- 2026-06-30 07:10 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/1831373.shtml)
+- 2026-06-30 07:05 - [85花告别古偶](https://www.share.minike.top/Article/details/9968524.shtml)
+- 2026-06-30 07:23 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/9655269.shtml)
+- 2026-06-30 06:56 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/899025534471.shtml)
+- 2026-06-30 07:03 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/50477.shtml)
+- 2026-06-30 07:20 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/599922836.shtml)

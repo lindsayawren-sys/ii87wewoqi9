@@ -1,50 +1,58 @@
-# 交银国际：康方生物维持“买入”评级 目标价175港元
+# 中欧基金任飞谈“制造业再通胀”：AI驱动成主力，旧材料迎来新爆发
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-交银国际发布研报称，依沃西头对头PD-1单靶在PFS和OS均达到统计学阳性结果，有望重新定义sq-NSCLC一线治疗的金标准、开启全球百亿美元级别的市场潜力。维持康方生物（09926）“买入”评级和175港元目标价。 交银国际主要观点如下： HARMONi-6 OS取得超预期的阳性结果 依沃西单抗+化疗治疗1L sq-NSCLC（头对头替雷利珠+化疗）III期HARMONi-6
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！“制造业再通胀，或将成为未来市场的主线，这是一轮和上个周期完全不一样的时代。”在近日举行的中欧基金“种时光的人”系列主题沙龙线下活动中，中欧基金权益研究部副总监、基金经理任飞分享了其对全球制造业变局、AI驱动的需求爆发以及未来资产配置方向的深度研判。 任飞指出，过去20年以地产和消费为核心的经济逻辑正在被改
 
 ## 正文
 
-交银国际发布研报称，依沃西头对头PD-1单靶在PFS和OS均达到统计学阳性结果，有望重新定义sq-NSCLC一线治疗的金标准、开启全球百亿美元级别的市场潜力。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-维持康方生物（09926）“买入”评级和175港元目标价。
+“制造业再通胀，或将成为未来市场的主线，这是一轮和上个周期完全不一样的时代。
 
-交银国际主要观点如下： HARMONi-6 OS取得超预期的阳性结果 依沃西单抗+化疗治疗1L sq-NSCLC（头对头替雷利珠+化疗）III期HARMONi-6研究的中期OS分析结果在ASCO大会上公布。
+”在近日举行的中欧基金“种时光的人”系列主题沙龙线下活动中，中欧基金权益研究部副总监、基金经理任飞分享了其对全球制造业变局、AI驱动的需求爆发以及未来资产配置方向的深度研判。
 
-结果显示，OSHR达到0.66（p=0.0017，低于0.0049的预设α，95% CI 0.50-0.87）；中位OS数值为27.9 vs.23.7个月，对照组数值与RATIONALE-307的研究结果接近；治疗组的生存获益随时间推移显著放大，显示出优异的长拖尾效应。
+任飞指出，过去20年以地产和消费为核心的经济逻辑正在被改写，一个由科技革命，尤其是AI带动的“制造业再通胀”时代序幕，已然拉开。
 
-责任编辑：卢昱君
+制造业内外需同步复苏 在此次主题沙龙活动中，“种时光的人”第三季第3期的主人公——野生动物摄影师奚志农来到现场，分享了他40年来用影像保护自然的宝贵经历。
+
+在滇金丝猴于雪线之上腾跃、藏羚羊穿越可可西里晨雾的镜头中，现场观众感受到了长期主义在野生动物保护领域的力量。
+
+随后，中欧基金基金经理任飞登台，从制造业的视角，分享他对未来宏观主线的判断。
+
+任飞首先用一组数据打破了“看中国就是看地产”的传统认知。
 
 ## 相关推荐
 
-- 2026-06-30 06:59 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 07:14 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 06:53 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 07:01 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 07:03 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-30 07:12 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 07:07 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 07:07 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 06:59 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-30 07:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 07:18 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-30 06:57 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 06:57 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 07:09 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 07:06 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 07:22 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 06:55 - [索马里女大使：想和中国一起搞事业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 07:06 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 07:01 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-30 07:20 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 07:14 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 07:12 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:58 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/27685.shtml)
-- 2026-06-30 06:58 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/80932708045.shtml)
-- 2026-06-30 07:16 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/175716939428.shtml)
-- 2026-06-30 07:17 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/06190.shtml)
-- 2026-06-30 06:49 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/6688096.shtml)
-- 2026-06-30 06:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/15082284.shtml)
-- 2026-06-30 06:56 - [第一炉香](https://www.share.kurohicncr.top/Article/details/4086550.shtml)
-- 2026-06-30 06:55 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/62085.shtml)
-- 2026-06-30 07:01 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/06938565.shtml)
-- 2026-06-30 06:56 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/20846895.shtml)
-- 2026-06-30 06:59 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/5726272285.shtml)
-- 2026-06-30 06:55 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/3838021705.shtml)
-- 2026-06-30 07:12 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/1151954596.shtml)
-- 2026-06-30 06:53 - [巴西2比1日本](https://www.blog.minike.top/Article/details/3121100.shtml)
-- 2026-06-30 07:16 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/2598602931.shtml)
+- 2026-06-30 07:06 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/1973167.shtml)
+- 2026-06-30 07:15 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/469109900052.shtml)
+- 2026-06-30 07:20 - [毒液2](https://www.blog.minike.top/Article/details/143741265002.shtml)
+- 2026-06-30 07:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/93651478.shtml)
+- 2026-06-30 07:02 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/480353.shtml)
+- 2026-06-30 07:10 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/151279319.shtml)
+- 2026-06-30 07:06 - [乔家的儿女](http://www.blog.minike.top/Article/details/60412629739.shtml)
+- 2026-06-30 07:02 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/92084922.shtml)
+- 2026-06-30 07:23 - [一见倾心](https://www.share.minike.top/Article/details/98596160610.shtml)
+- 2026-06-30 07:17 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/182374023925.shtml)
+- 2026-06-30 07:07 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/92148963901.shtml)
+- 2026-06-30 07:22 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/05728.shtml)
+- 2026-06-30 07:16 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/091690.shtml)
+- 2026-06-30 07:08 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/0903131.shtml)
+- 2026-06-30 07:08 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/46797055.shtml)

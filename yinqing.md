@@ -1,42 +1,56 @@
-# 内蒙古自治区包头市委副书记周强接受审查调查
+# 真武 M890 AI 芯片发布，阿里“通云哥”加速推进！华宝基金港股互联网ETF再探新低，布局机遇如何？
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新网6月2日电 据内蒙古自治区纪委监委消息：内蒙古自治区包头市委副书记、政法委书记周强涉嫌严重违纪违法，目前正接受内蒙古自治区纪委监委纪律审查和监察调查。
+隔夜美股三大指数集体收跌，明星科技股普跌。5月20日早盘，港股低开，互联网龙头集体回调，截至发稿，腾讯控股跌0.6%，阿里巴巴-W、美团-W跌超1%，小米集团-W跌逾2%，哔哩哔哩-W绩后跌近5%。 哔哩哔哩-W一季报显示，营收为74.7亿元人民币，毛利率连续15个季度环比提升至37.1%，调整后净利润5.9亿元，同比扭亏为盈，其中季度内AI广告收入同比增长170%。 港股AI
 
 ## 正文
 
-中新网6月2日电 据内蒙古自治区纪委监委消息：内蒙古自治区包头市委副书记、政法委书记周强涉嫌严重违纪违法，目前正接受内蒙古自治区纪委监委纪律审查和监察调查。
+隔夜美股三大指数集体收跌，明星科技股普跌。
+
+5月20日早盘，港股低开，互联网龙头集体回调，截至发稿，腾讯控股跌0.6%，阿里巴巴-W、美团-W跌超1%，小米集团-W跌逾2%，哔哩哔哩-W绩后跌近5%。
+
+哔哩哔哩-W一季报显示，营收为74.7亿元人民币，毛利率连续15个季度环比提升至37.1%，调整后净利润5.9亿元，同比扭亏为盈，其中季度内AI广告收入同比增长170%。
+
+港股AI核心工具——港股互联网ETF华宝（513770）场内价格跌超2%，再探本轮回调以来新低。
+
+消息面上，阿里云峰会于5月20日-5月21日在杭州举办，阿里方面预告，将发布通义千问“重量级新朋友”，新模型在全能性、模型能力、深度与广度上全面升级。
+
+此外最新消息，阿里发布基于平头哥新一代AI芯片真武M890的128卡超节点服务器，可支持海量Agent并发推理。
+
+阿里巴巴在AI全栈布局上最对标谷歌，一季报显示，AI业务正式迈入“商业化回报周期”，Token热潮下加速向“AI+云”科技平台转型。
+
+根据阿里巴巴预计，AI模型与应用服务年化经常性收入将在6月突破100亿元，年底将翻三倍突破300亿元。
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 06:56 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 06:58 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 07:10 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 07:08 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 07:07 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 07:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 07:11 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 06:53 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 07:14 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 07:03 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 06:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 07:15 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 07:10 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 07:17 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 06:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 07:03 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 07:03 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 07:19 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-30 06:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:53 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/46738971451.shtml)
-- 2026-06-30 07:13 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/6226925355.shtml)
-- 2026-06-30 06:51 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/40089250.shtml)
-- 2026-06-30 06:55 - [哈弗茨头球破门](http://www.blog.minike.top/Article/details/56946282742.shtml)
-- 2026-06-30 06:49 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/79935.shtml)
-- 2026-06-30 06:49 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/172465674516.shtml)
-- 2026-06-30 07:02 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/10199.shtml)
-- 2026-06-30 06:55 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/620630.shtml)
-- 2026-06-30 06:55 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/7673147.shtml)
-- 2026-06-30 07:07 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/78970.shtml)
-- 2026-06-30 07:15 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/2477021072.shtml)
-- 2026-06-30 07:01 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/31348559584.shtml)
-- 2026-06-30 06:58 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/207050126.shtml)
-- 2026-06-30 07:17 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/44579836221.shtml)
-- 2026-06-30 06:55 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/00100989.shtml)
+- 2026-06-30 07:19 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/41329693291.shtml)
+- 2026-06-30 07:16 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/006234040.shtml)
+- 2026-06-30 07:00 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/63408.shtml)
+- 2026-06-30 06:58 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/136396680155.shtml)
+- 2026-06-30 07:15 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/75575.shtml)
+- 2026-06-30 07:04 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/755893474.shtml)
+- 2026-06-30 06:58 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/954997906055.shtml)
+- 2026-06-30 07:20 - [日本反击率先破门](http://www.blog.minike.top/Article/details/10996.shtml)
+- 2026-06-30 07:01 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/5998476104.shtml)
+- 2026-06-30 06:57 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/5954807227.shtml)
+- 2026-06-30 07:01 - [周生如故](http://www.share.minike.top/Article/details/38479.shtml)
+- 2026-06-30 07:03 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/095169536.shtml)
+- 2026-06-30 07:12 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/905597762.shtml)
+- 2026-06-30 06:57 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/4098554824.shtml)
+- 2026-06-30 06:56 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/839653492.shtml)

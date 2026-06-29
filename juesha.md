@@ -1,60 +1,58 @@
-# 教育部：严禁炒作“高考状元”“升学率” 纠治奢华录取通知书
+# 索尼上调PlayStation Plus订阅价格，新用户月费涨至10.99美元
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新网6月3日电 据教育部网站消息，2026年全国统一高考将于6月7日开考，教育部会同国家教育统一考试工作部际联席会议成员单位，以更大力度宣传引导，全力营造良好氛围。 加强政策宣传解读。聚焦考生家长关切，指导各地制定高考宣传工作方案，创新宣传方式和传播载体，积极运用电视、官网、官微、直播等方式，广泛开展形式多样的信息发布、政策解读、温馨提示、答疑解惑等服务工作，积极营造良好考试
+索尼互动娱乐周二宣布，受持续市场环境影响，将于5月20日起在部分地区上调PlayStation Plus订阅服务价格，主要针对入门级Essential档位的新用户。 新价格明日起生效 根据官方公告，调整后一个月期订阅价格由9.99美元涨至10.99美元，涨幅约10%；三个月期由24.99美元涨至27.99美元，涨幅约12%。欧元区和英镑区同步上调：月费分别涨至9.99欧元和7.
 
 ## 正文
 
-中新网6月3日电 据教育部网站消息，2026年全国统一高考将于6月7日开考，教育部会同国家教育统一考试工作部际联席会议成员单位，以更大力度宣传引导，全力营造良好氛围。
+索尼互动娱乐周二宣布，受持续市场环境影响，将于5月20日起在部分地区上调PlayStation Plus订阅服务价格，主要针对入门级Essential档位的新用户。
 
-加强政策宣传解读。
+新价格明日起生效 根据官方公告，调整后一个月期订阅价格由9.99美元涨至10.99美元，涨幅约10%；三个月期由24.99美元涨至27.99美元，涨幅约12%。
 
-聚焦考生家长关切，指导各地制定高考宣传工作方案，创新宣传方式和传播载体，积极运用电视、官网、官微、直播等方式，广泛开展形式多样的信息发布、政策解读、温馨提示、答疑解惑等服务工作，积极营造良好考试舆论氛围。
+欧元区和英镑区同步上调：月费分别涨至9.99欧元和7.99英镑，季费涨至27.99欧元和21.99英镑。
 
-严肃招生宣传纪律。
+索尼表示，现有订阅用户只要保持连续续订且不更换服务等级，将继续按原价格计费。
 
-指导各地各校严格落实高校招生宣传工作纪律要求，严禁虚假宣传、违规承诺，严禁以任何形式炒作“高考状元”“高分考生”“升学率”。
+若订阅中断后重新开通或变更服务方案，则适用新价格。
 
-推动高校录取通知书回归“一页纸”，坚决纠治奢华录取通知书、新生礼盒等不良风气。
+土耳其和印度地区的现有用户也将受到影响。
 
-治理违规招生行为。
+市场背景与时点考量 此次涨价紧随今年3月PS5主机的价格上调，索尼将原因归咎于持续变化的市场状况。
 
-要求各地认真履行属地监管责任，指导高校持续优化专业(组)设置，进一步加强和改进特殊类型考试招生工作。
+分析指出，全球AI热潮推高存储芯片需求，导致内存和固态硬盘成本上升，给整个游戏行业带来压力。
 
 ## 相关推荐
 
-- 2026-06-30 06:48 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 07:08 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 06:51 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 06:48 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 07:00 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 07:11 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 07:03 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 06:59 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 06:54 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 07:10 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 07:12 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 07:11 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-30 07:00 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 06:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 07:23 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 07:12 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 06:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-30 07:11 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 07:08 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 06:57 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 07:20 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 07:14 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 06:55 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 07:01 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 07:21 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 07:02 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:52 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/36734765.shtml)
-- 2026-06-30 07:16 - [流金岁月](http://www.blog.minike.top/Article/details/1233550.shtml)
-- 2026-06-30 06:54 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/887755032737.shtml)
-- 2026-06-30 07:03 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/2963272.shtml)
-- 2026-06-30 07:02 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/871657853461.shtml)
-- 2026-06-30 07:02 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/6342504849.shtml)
-- 2026-06-30 07:07 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/48410.shtml)
-- 2026-06-30 07:07 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/3310500.shtml)
-- 2026-06-30 07:03 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/039087935076.shtml)
-- 2026-06-30 07:14 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/55553.shtml)
-- 2026-06-30 07:12 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/635084990468.shtml)
-- 2026-06-30 06:57 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/09445067143.shtml)
-- 2026-06-30 07:15 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/079060.shtml)
-- 2026-06-30 07:06 - [时光音乐会](http://www.share.minike.top/Article/details/67056.shtml)
-- 2026-06-30 06:59 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/76925815724.shtml)
+- 2026-06-30 07:01 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/634773244.shtml)
+- 2026-06-30 07:02 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/80870007746.shtml)
+- 2026-06-30 07:11 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/585496.shtml)
+- 2026-06-30 07:11 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/099811.shtml)
+- 2026-06-30 07:00 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/05120085204.shtml)
+- 2026-06-30 07:22 - [青春环游记第三季](http://www.blog.minike.top/Article/details/8900113832.shtml)
+- 2026-06-30 07:06 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/730357.shtml)
+- 2026-06-30 06:59 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/62640849.shtml)
+- 2026-06-30 07:22 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/93277.shtml)
+- 2026-06-30 06:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/11789.shtml)
+- 2026-06-30 07:01 - [哈弗茨头球破门](http://www.blog.minike.top/Article/details/964588681911.shtml)
+- 2026-06-30 07:16 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/91450605.shtml)
+- 2026-06-30 07:21 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/2868865.shtml)
+- 2026-06-30 07:21 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/688572775.shtml)
+- 2026-06-30 07:22 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/07987142.shtml)

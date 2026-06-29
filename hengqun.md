@@ -1,45 +1,51 @@
-# 华宝基金红利风向标：两市回暖，现金流策略表现优秀
+# 广西环江车辆坠河事件失联人员已全部找到 10人遇难
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-责任编辑：常福强
+中新网广西环江5月19日电(记者 黄艳梅)广西环江毛南族自治县人民政府19日发布通报称，截至当日20时，河池环江“5·16”过桥车辆坠河事件现场搜救工作结束，当日在事发河段水域打捞起涉事坠河车辆，新增搜救上岸5人，经现场确认均无生命体征，身份已经公安部门及家属核实确认。至此，河池环江“5·16”过桥车辆坠河事件失联人员已全部搜救上岸，本次事件共导致10人遇难。 5月16日晚，一
 
 ## 正文
 
-责任编辑：常福强
+中新网广西环江5月19日电(记者 黄艳梅)广西环江毛南族自治县人民政府19日发布通报称，截至当日20时，河池环江“5·16”过桥车辆坠河事件现场搜救工作结束，当日在事发河段水域打捞起涉事坠河车辆，新增搜救上岸5人，经现场确认均无生命体征，身份已经公安部门及家属核实确认。
+
+至此，河池环江“5·16”过桥车辆坠河事件失联人员已全部搜救上岸，本次事件共导致10人遇难。
+
+5月16日晚，一辆载有15人的皮卡车在途经广西河池市环江毛南族自治县洛阳镇永权村肯任屯漫水桥时，坠入水中。
+
+后续，环江县将继续做好善后处置和原因调查等工作。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:05 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 07:16 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 07:03 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 06:58 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 07:16 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 07:11 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 07:15 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 07:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 06:54 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 06:57 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 06:50 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-30 07:15 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 07:00 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 06:54 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 07:07 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 07:02 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 07:07 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 07:07 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 06:56 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 07:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 07:01 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 06:57 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 07:07 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 07:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:06 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/145746712850.shtml)
-- 2026-06-30 07:16 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/246397.shtml)
-- 2026-06-30 07:18 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/1758847.shtml)
-- 2026-06-30 07:07 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/454503167144.shtml)
-- 2026-06-30 07:13 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/836052.shtml)
-- 2026-06-30 06:56 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/5173583.shtml)
-- 2026-06-30 06:57 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/85192796.shtml)
-- 2026-06-30 06:48 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/516379.shtml)
-- 2026-06-30 07:17 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/70023.shtml)
-- 2026-06-30 06:59 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/59629696.shtml)
-- 2026-06-30 06:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/035524104767.shtml)
-- 2026-06-30 07:14 - [世界杯](http://www.share.minike.top/Article/details/70060209804.shtml)
-- 2026-06-30 07:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/120813.shtml)
-- 2026-06-30 06:55 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/00024.shtml)
-- 2026-06-30 07:16 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/947696.shtml)
+- 2026-06-30 07:14 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/927913122.shtml)
+- 2026-06-30 07:23 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/6433986704.shtml)
+- 2026-06-30 07:20 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/1006426930.shtml)
+- 2026-06-30 07:11 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/763474185706.shtml)
+- 2026-06-30 06:57 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/657207326033.shtml)
+- 2026-06-30 07:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/8362477637.shtml)
+- 2026-06-30 07:19 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/3692552.shtml)
+- 2026-06-30 07:19 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/435382767555.shtml)
+- 2026-06-30 07:11 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/8614892.shtml)
+- 2026-06-30 06:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/681138.shtml)
+- 2026-06-30 06:57 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/604151.shtml)
+- 2026-06-30 07:06 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/1817484510.shtml)
+- 2026-06-30 07:08 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/6872951692.shtml)
+- 2026-06-30 06:58 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/616811154597.shtml)
+- 2026-06-30 07:03 - [极限挑战第一季](http://www.blog.minike.top/Article/details/03731827.shtml)

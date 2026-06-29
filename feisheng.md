@@ -1,57 +1,57 @@
-# 集采药被药店高价销售背后：为何会有价差？如何破解？
+# 学者：赖清德改口称“没有台独”，纯属自欺欺人
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-澎湃新闻首席记者 李潇潇 近日，央视报道“集采百元一盒药，药店竟卖3960元”引发关注。最新进展显示，内蒙古医保部门已会同市场监管部门组成专项工作组，第一时间赴涉事药店开展联合检查，医保部门对药店主要负责人进行约谈，市场监管部门已行政立案。 这起看似个案的高价售药事件，也再次把集采药品在院外零售终端的执行情况推到舆论前台。那么，集采药在不同销售渠道为什么会存在不同价格？ 曾担任
+中新网5月19日电(燕新台)在美国总统特朗普发出明确针对“台独”的警告后，赖清德于一天内“先硬后软”：他先再度鼓吹所谓“两岸互不隶属”，试图重新定义“台独”，被认为是在“暗怼特朗普”；随后其又在社交媒体发长文，改口称“没有‘台独’问题”。有大陆学者向中新网“燕新台”工作室表示，赖清德前后不一的两番言论，既不敢公开得罪特朗普，又想维护其“台独工作者”的脸面，所以才为其“台独”路线
 
 ## 正文
 
-澎湃新闻首席记者 李潇潇 近日，央视报道“集采百元一盒药，药店竟卖3960元”引发关注。
+中新网5月19日电(燕新台)在美国总统特朗普发出明确针对“台独”的警告后，赖清德于一天内“先硬后软”：他先再度鼓吹所谓“两岸互不隶属”，试图重新定义“台独”，被认为是在“暗怼特朗普”；随后其又在社交媒体发长文，改口称“没有‘台独’问题”。
 
-最新进展显示，内蒙古医保部门已会同市场监管部门组成专项工作组，第一时间赴涉事药店开展联合检查，医保部门对药店主要负责人进行约谈，市场监管部门已行政立案。
+有大陆学者向中新网“燕新台”工作室表示，赖清德前后不一的两番言论，既不敢公开得罪特朗普，又想维护其“台独工作者”的脸面，所以才为其“台独”路线进行狡辩，然而这种做法，根本无法自圆其说，纯属自欺欺人。
 
-这起看似个案的高价售药事件，也再次把集采药品在院外零售终端的执行情况推到舆论前台。
+赖清德两番言论也引起岛内舆论批评。
 
-那么，集采药在不同销售渠道为什么会存在不同价格？
+中国国民党表示，赖清德若不想成为“麻烦制造者”，就不要再“硬拗”了，请回到“九二共识”、反对“台独”的立场上。
 
-曾担任多家百强连锁药店总经理的职业经理人苍春表示，药品执行的是市场价格，理论上只要明码标价，就属于正常经营行为。
+台湾民众党认为，赖清德当局执政无能，持续操作意识形态、大玩文字游戏。
 
-但在此次案例中，核心问题在于时间差。
+中国国民党前主席洪秀柱19日在社交媒体发文称，赖清德意在重新包装“台独”，其言论是赤裸裸的“新两国论”。
 
-苍春分析，一般情况下，集采价格确定后，厂家与渠道之间通常会有相应安排，一些情况下也会有退补政策。
+“一位‘台独工作者’，竟然说没有‘台独’问题？
 
-若药店没有及时与厂家联系，或者没有及时切换到集采价格，就容易造成终端售价与政策要求不一致。
+”台北市长蒋万安18日表示，赖清德早上还在解释什么是“台独”，晚上突然改口说没有“台独”问题，果然如大家所说，民进党的“台独”就像月亮，初一、十五不一样。
 
 ## 相关推荐
 
-- 2026-06-30 06:59 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 06:56 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 07:05 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 07:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 06:49 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 06:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-30 06:59 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 07:10 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 07:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 07:05 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 07:07 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 07:00 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-30 06:58 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 07:15 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 07:16 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 07:14 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 07:17 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 07:12 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 06:55 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 07:14 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-30 06:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 07:07 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:58 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/429055.shtml)
-- 2026-06-30 07:13 - [扬名立万](http://www.share.minike.top/Article/details/88543875.shtml)
-- 2026-06-30 06:59 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/820000179.shtml)
-- 2026-06-30 07:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/754987228.shtml)
-- 2026-06-30 06:52 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/05521117.shtml)
-- 2026-06-30 06:53 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/1525124.shtml)
-- 2026-06-30 06:57 - [急先锋](http://www.share.kurohicncr.top/Article/details/060196.shtml)
-- 2026-06-30 07:11 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/966216712882.shtml)
-- 2026-06-30 07:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/7746634569.shtml)
-- 2026-06-30 07:00 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/7995732613.shtml)
-- 2026-06-30 07:07 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/6982809565.shtml)
-- 2026-06-30 07:06 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/41447383.shtml)
-- 2026-06-30 06:55 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/43348868984.shtml)
-- 2026-06-30 07:03 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/006997711.shtml)
-- 2026-06-30 07:16 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/83566906399.shtml)
+- 2026-06-30 07:17 - [曝灰熊将莫兰特交易至开拓者](http://www.share.kurohicncr.top/Article/details/8731364.shtml)
+- 2026-06-30 06:58 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/698561241194.shtml)
+- 2026-06-30 07:15 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/7963830.shtml)
+- 2026-06-30 07:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/009719255596.shtml)
+- 2026-06-30 07:19 - [日本淘汰](https://www.blog.minike.top/Article/details/75546861636.shtml)
+- 2026-06-30 07:19 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/71461.shtml)
+- 2026-06-30 06:58 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/11288.shtml)
+- 2026-06-30 07:13 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/186281357.shtml)
+- 2026-06-30 07:03 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/628975437.shtml)
+- 2026-06-30 06:56 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/89314932.shtml)
+- 2026-06-30 07:09 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/299404089.shtml)
+- 2026-06-30 07:19 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/4818767312.shtml)
+- 2026-06-30 07:11 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/91386896288.shtml)
+- 2026-06-30 07:15 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/424849604408.shtml)
+- 2026-06-30 07:22 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/44788178798.shtml)

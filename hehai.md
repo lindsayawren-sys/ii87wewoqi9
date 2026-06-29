@@ -1,50 +1,57 @@
-# 韩国5月通胀率超3%创两年多最高，因能源价格飙升
+# 清华大学魏晨阳：养老金融产品设计要稳健，消费者不能仅关注短期收益丨对话五道口
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-韩国数据与统计部周二公布的数据显示，受中东冲突后全球能源价格波动的影响，韩国5月份消费者价格指数（CPI）同比上涨超过3%。 作为衡量通胀的关键指标，韩国5月份CPI同比上涨3.1%，创下26个月以来的最高涨幅。 此次上涨主要受石油产品价格飙升的影响，其中汽油价格上涨23.1%，柴油价格上涨33.3%。责任编辑：于健 SF069
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 红星资本局5月19日消息，2026清华五道口全球金融论坛在成都召开期间，清华大学五道口金融学院中国保险与养老金融研究中心主任、金融MBA教育中心主任魏晨阳接受红星资本局专访，就个人养老金、养老金融、养老保险等问题进行回应。 谈个人养老金缴存冷： 机构要有更多产品 红星资本局：如何看待个人养老金“开户热、缴存冷”
 
 ## 正文
 
-韩国数据与统计部周二公布的数据显示，受中东冲突后全球能源价格波动的影响，韩国5月份消费者价格指数（CPI）同比上涨超过3%。
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 红星资本局5月19日消息，2026清华五道口全球金融论坛在成都召开期间，清华大学五道口金融学院中国保险与养老金融研究中心主任、金融MBA教育中心主任魏晨阳接受红星资本局专访，就个人养老金、养老金融、养老保险等问题进行回应。
 
-作为衡量通胀的关键指标，韩国5月份CPI同比上涨3.1%，创下26个月以来的最高涨幅。
+谈个人养老金缴存冷： 机构要有更多产品 红星资本局：如何看待个人养老金“开户热、缴存冷”的现状？
 
-此次上涨主要受石油产品价格飙升的影响，其中汽油价格上涨23.1%，柴油价格上涨33.3%。
+目前制约缴存的因素有哪些？
 
-责任编辑：于健 SF069
+魏晨阳：个人养老金从几年前开始试点，最早先解决的是制度覆盖，让开户的数量能够先多起来，接着需要在服务效果上去覆盖。
+
+现在是开户很多，放进去的钱比较少，放进去的钱配置也比较简单，总体上达到预期，但是缴存转化不足。
+
+从需求侧来看，个人需要建立个人养老金长周期配置的观念，学会在当前消费与未来养老用钱方面进行平衡，不能用短期理财的一些标准去要求养老金账户的表现。
+
+从供给侧方面，机构需要有更多的产品，以及满足不同年龄段消费者期限产品的选择，此外，还需要提供更多比较透明、容易理解的风险收益解释。
+
+总体上需要让消费者看得懂、选得准、拿得住。
 
 ## 相关推荐
 
-- 2026-06-30 07:12 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 06:52 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 06:59 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 07:06 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 07:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 07:08 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 07:08 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 06:52 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 07:03 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 07:12 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-30 07:04 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 07:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 07:18 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 06:54 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 06:56 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 07:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 07:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 07:19 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 07:06 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 07:00 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 07:01 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 06:54 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 07:10 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:59 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/216943.shtml)
-- 2026-06-30 06:48 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/09240.shtml)
-- 2026-06-30 07:12 - [逃狱兄弟](https://www.blog.minike.top/Article/details/68775775.shtml)
-- 2026-06-30 07:01 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/66782.shtml)
-- 2026-06-30 07:11 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/5136721.shtml)
-- 2026-06-30 06:52 - [一生一世](http://www.blog.kurohicncr.top/Article/details/3021295056.shtml)
-- 2026-06-30 06:48 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/311244762.shtml)
-- 2026-06-30 07:16 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/740382.shtml)
-- 2026-06-30 07:14 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/24961626.shtml)
-- 2026-06-30 07:02 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/9659829551.shtml)
-- 2026-06-30 07:13 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/712001444.shtml)
-- 2026-06-30 06:58 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/58422559.shtml)
-- 2026-06-30 06:54 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/69070310.shtml)
-- 2026-06-30 06:53 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/29619.shtml)
-- 2026-06-30 06:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/10176.shtml)
+- 2026-06-30 07:21 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/5407442897.shtml)
+- 2026-06-30 07:14 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/532102052338.shtml)
+- 2026-06-30 06:59 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/758348303.shtml)
+- 2026-06-30 07:07 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/39381.shtml)
+- 2026-06-30 07:15 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/1728251.shtml)
+- 2026-06-30 07:04 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/8161466042.shtml)
+- 2026-06-30 07:01 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/287547215175.shtml)
+- 2026-06-30 07:21 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/2242527793.shtml)
+- 2026-06-30 07:12 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/587197209.shtml)
+- 2026-06-30 07:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/528572648.shtml)
+- 2026-06-30 07:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/02337954.shtml)
+- 2026-06-30 07:05 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/847117.shtml)
+- 2026-06-30 07:11 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/9707386.shtml)
+- 2026-06-30 07:10 - [森保一致歉：世界第一目标没能实现](https://www.blog.minike.top/Article/details/27881014.shtml)
+- 2026-06-30 07:05 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/922900457.shtml)

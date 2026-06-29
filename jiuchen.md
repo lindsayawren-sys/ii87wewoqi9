@@ -1,58 +1,58 @@
-# 台积电股价创新高，英伟达引爆AI基础设施新浪潮
+# 告别内部培养“独木桥”，易方达转向外部引援，“收编”姜晓丽、裴晓辉、杨思亮……固收权益全线加码
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-台积电股价周一大幅上涨逾5%，刷新历史纪录，总市值突破2.28万亿美元。此次涨势主要由两大因素驱动：英伟达最新AI芯片发布及台积电3nm制程涨价预期。 在台北Computex展会上，英伟达CEO黄仁勋宣布推出专为AI智能体工作负载设计的Vera CPU，目前已全面量产。该处理器在智能体AI、强化学习及数据处理等工作负载方面，任务完成速度比x86 CPU快1.8倍。首批大型用户包
+专题：基金圈人才战升级：从姜晓丽、裴晓辉到杨思亮，易方达“猎头名单”有多长？ 当“平台化”取代“明星化”成为行业共识，头部公司与中小机构的分化，正从规模数据延伸到最核心的人才储备。 2026年以来，公募基金行业的人才流动明显加剧。从固收基金经理姜晓丽、裴晓辉，到权益基金经理杨思亮、郑宁，再到国泰海通证券研究所宏观首席分析师梁中华——易方达近一年来从外部引进了多位投研人员。这家公
 
 ## 正文
 
-台积电股价周一大幅上涨逾5%，刷新历史纪录，总市值突破2.28万亿美元。
+专题：基金圈人才战升级：从姜晓丽、裴晓辉到杨思亮，易方达“猎头名单”有多长？
 
-此次涨势主要由两大因素驱动：英伟达最新AI芯片发布及台积电3nm制程涨价预期。
+当“平台化”取代“明星化”成为行业共识，头部公司与中小机构的分化，正从规模数据延伸到最核心的人才储备。
 
-在台北Computex展会上，英伟达CEO黄仁勋宣布推出专为AI智能体工作负载设计的Vera CPU，目前已全面量产。
+2026年以来，公募基金行业的人才流动明显加剧。
 
-该处理器在智能体AI、强化学习及数据处理等工作负载方面，任务完成速度比x86 CPU快1.8倍。
+从固收基金经理姜晓丽、裴晓辉，到权益基金经理杨思亮、郑宁，再到国泰海通证券研究所宏观首席分析师梁中华——易方达近一年来从外部引进了多位投研人员。
 
-首批大型用户包括OpenAI、Anthropic及SpaceX。
+这家公募巨头，正在打破其长期坚持的内部培养传统，开启一场“进攻性囤货”。
 
-英伟达同时宣布推出RTX Spark PC芯片，正式进军个人电脑处理器市场，与英特尔、AMD展开正面竞争。
+过去较长一段时间里，易方达以内部培养基金经理著称。
 
-黄仁勋表示，英伟达未来每年将在台湾投入约1500亿美元，用于巩固AI供应链。
+张坤、萧楠、陈皓等人均是从公司研究员逐步成长而来，这种机制在一定程度上支撑了公司投研文化的延续性。
 
-他称台湾为“AI革命的中心”，并强调英伟达与台积电将“紧密合作以保障产能和零部件供应”。
+但从2025年开始，这一模式发生变化。
 
 ## 相关推荐
 
-- 2026-06-30 07:05 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 06:50 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 06:53 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 07:01 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-30 07:03 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-30 06:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 07:12 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 07:02 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 07:09 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 07:13 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 07:02 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 06:48 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-30 07:17 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 07:18 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 07:16 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 07:19 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 07:09 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 07:09 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 07:09 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 06:56 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 07:23 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 06:55 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 07:18 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 07:19 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:50 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/185238929681.shtml)
-- 2026-06-30 07:10 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/556736.shtml)
-- 2026-06-30 07:10 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/71843934.shtml)
-- 2026-06-30 07:05 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/14431192663.shtml)
-- 2026-06-30 07:12 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/353942823276.shtml)
-- 2026-06-30 07:04 - [一见倾心](http://www.share.minike.top/Article/details/8977829.shtml)
-- 2026-06-30 06:54 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/9481262.shtml)
-- 2026-06-30 07:04 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/5936932.shtml)
-- 2026-06-30 07:06 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/068187141.shtml)
-- 2026-06-30 06:58 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/89106642973.shtml)
-- 2026-06-30 06:54 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/9825316.shtml)
-- 2026-06-30 07:00 - [美人鱼](https://www.share.kurohicncr.top/Article/details/8923111654.shtml)
-- 2026-06-30 07:07 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/93681.shtml)
-- 2026-06-30 07:11 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/56341466543.shtml)
-- 2026-06-30 06:55 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/56920860706.shtml)
+- 2026-06-30 07:18 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/4335962328.shtml)
+- 2026-06-30 07:20 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/36841.shtml)
+- 2026-06-30 06:55 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/009979840068.shtml)
+- 2026-06-30 07:00 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/701669081.shtml)
+- 2026-06-30 07:03 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/85123.shtml)
+- 2026-06-30 07:11 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/5819951831.shtml)
+- 2026-06-30 07:02 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/8766817456.shtml)
+- 2026-06-30 07:11 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/054645.shtml)
+- 2026-06-30 07:01 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/42002469.shtml)
+- 2026-06-30 07:01 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/65429806.shtml)
+- 2026-06-30 07:23 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/98734094095.shtml)
+- 2026-06-30 07:12 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/88488.shtml)
+- 2026-06-30 06:58 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/86024560109.shtml)
+- 2026-06-30 07:22 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/5464537832.shtml)
+- 2026-06-30 07:04 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/64353875240.shtml)

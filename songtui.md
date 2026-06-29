@@ -1,57 +1,56 @@
-# 日本内阁批准约190亿美元追加预算 以缓解中东局势带来的影响
+# 华安基金：通信电子高景气，创业板50指数上周涨3.92%
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-日本内阁批准194亿美元追加预算，用于资助旨在缓解中东动荡局势对家庭造成通胀影响的措施，这使得财政政策再次成为债券投资者关注的焦点。 日本首相高市早苗领导的内阁批准了一项总额达3.1万亿日元（194亿美元）的方案，其中包括新设立的2.5万亿日元储备基金，用于通过补贴应对大宗商品价格上涨。虽然政府尚未明确该基金具体如何使用，但预计初期将用于控制汽油价格。 内阁还批准了一项为该方案
+行情回顾及主要观点： 上周A股市场整体呈现分化趋势，主要指数表现不一：沪深300跌0.25%，中证500跌1.82%，中证1000跌0.67%，创业板50涨3.92%，科创50涨3.40%。交易面，A股市场日均成交额提升至3.3万亿左右，市场投资热情高涨。市场热点聚焦商业航天、光纤、液冷服务器、玻璃基板、储能、算力租赁、CPO、先进封装等，科技和制造领域活跃。建议关注融资活跃和
 
 ## 正文
 
-日本内阁批准194亿美元追加预算，用于资助旨在缓解中东动荡局势对家庭造成通胀影响的措施，这使得财政政策再次成为债券投资者关注的焦点。
+行情回顾及主要观点： 上周A股市场整体呈现分化趋势，主要指数表现不一：沪深300跌0.25%，中证500跌1.82%，中证1000跌0.67%，创业板50涨3.92%，科创50涨3.40%。
 
-日本首相高市早苗领导的内阁批准了一项总额达3.1万亿日元（194亿美元）的方案，其中包括新设立的2.5万亿日元储备基金，用于通过补贴应对大宗商品价格上涨。
+交易面，A股市场日均成交额提升至3.3万亿左右，市场投资热情高涨。
 
-虽然政府尚未明确该基金具体如何使用，但预计初期将用于控制汽油价格。
+市场热点聚焦商业航天、光纤、液冷服务器、玻璃基板、储能、算力租赁、CPO、先进封装等，科技和制造领域活跃。
 
-内阁还批准了一项为该方案提供资金的计划，该计划将需要新的债务融资。
+建议关注融资活跃和政策支持的成长板块，如人工智能和先进制造，大盘成长风格突出的创业板50指数值得重点关注。
 
-尽管需要额外借款，政府仍将设法维持日历年度债券发行总量不变，该计划显示，上个财政年度预算中授权的一些债务将被取消。
+创业板为主要“三创（创新、创造、创意）四新（新技术、新产业、新业态、新模式）”的成长型创新创业企业提供直接融资平台。
 
-投资者正密切关注高市对国家财政的管控措施。
+权重行业方面，创业板50指数聚焦信息技术+新能源+金融科技+医药四大新质生产力赛道，科技成长属性纯粹。
 
-虽然日本通常会在财政年度的某个阶段编制额外预算，以应对自然灾害造成的意外损失或提供经济刺激，但在国会批准年度预算仅一个月后就需要追加预算，这可能会加剧人们对支出方向的担忧。
+图：创业板50指数四大赛道 创业板50指数：追“光”识“新”更掘“金”。
 
-财政担忧波及债券市场。
+横向对比来看，创业板50指数的光模块含量、新能源光伏含量以及金融科技含量优于创业板指以及主流宽基指数。
 
 ## 相关推荐
 
-- 2026-06-30 07:17 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-30 07:14 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 07:17 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 06:55 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 06:57 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 07:08 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 07:10 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 07:00 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 07:02 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 07:15 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 07:06 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 07:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 07:14 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 06:56 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 07:23 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 07:16 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 07:10 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 07:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 07:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 07:07 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 07:08 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:03 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/51090815447.shtml)
-- 2026-06-30 07:15 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/792694030.shtml)
-- 2026-06-30 07:17 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/6794550.shtml)
-- 2026-06-30 06:48 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/24490917817.shtml)
-- 2026-06-30 06:58 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/78197.shtml)
-- 2026-06-30 06:57 - [毒液2](http://www.share.minike.top/Article/details/116135233.shtml)
-- 2026-06-30 07:15 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/23723.shtml)
-- 2026-06-30 06:58 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/619270149.shtml)
-- 2026-06-30 07:00 - [一生一世](http://www.blog.kurohicncr.top/Article/details/97007009613.shtml)
-- 2026-06-30 06:49 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/08985132335.shtml)
-- 2026-06-30 06:52 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/13123039086.shtml)
-- 2026-06-30 06:52 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/95449392.shtml)
-- 2026-06-30 07:14 - [逃狱兄弟](https://www.blog.minike.top/Article/details/688570457179.shtml)
-- 2026-06-30 06:57 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/8107100046.shtml)
-- 2026-06-30 06:59 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/15424313790.shtml)
+- 2026-06-30 06:54 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/728407.shtml)
+- 2026-06-30 07:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/38018.shtml)
+- 2026-06-30 07:02 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/79732167082.shtml)
+- 2026-06-30 07:18 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/536432.shtml)
+- 2026-06-30 07:01 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/9706802.shtml)
+- 2026-06-30 07:00 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/0501289.shtml)
+- 2026-06-30 07:16 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/199063322.shtml)
+- 2026-06-30 07:04 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/61001570893.shtml)
+- 2026-06-30 07:00 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/240875244030.shtml)
+- 2026-06-30 07:07 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/6288669912.shtml)
+- 2026-06-30 07:13 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/02357807706.shtml)
+- 2026-06-30 07:20 - [巴拉圭先进球了](https://www.blog.minike.top/Article/details/130524.shtml)
+- 2026-06-30 07:23 - [巴西2比1日本](https://www.share.minike.top/Article/details/60370127385.shtml)
+- 2026-06-30 07:04 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/3755337106.shtml)
+- 2026-06-30 07:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/191353.shtml)

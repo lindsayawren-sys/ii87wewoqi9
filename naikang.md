@@ -1,58 +1,58 @@
-# 京沈智造企业深挖机器人多场景应用合作
+# “侨瞧哈尔滨”启动 马来西亚侨商走进五常看“稻”机遇
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新网沈阳6月2日电(姜月恒 姚小辉)2026沈阳机器人大会核心应用场景对接活动之一的京沈智能制造企业合作对接座谈会2日在沈阳市沈河区举行，活动旨在聚焦机器人、人工智能、高端装备制造领域，搭建两地精准对接、务实合作的高端平台，助力两地产业链、创新链、供应链协同联动，为沈阳智能制造产业集群发展注入新动能。 本次座谈会汇聚众多行业优质资源，北京人形机器人创新中心、首科腾飞等来自北京
+中新网哈尔滨5月19日电 (记者 刘锡菊)18日，由哈尔滨市委统战部主办、五常市委统战部承办的“侨瞧哈尔滨·溯源稻香五常”活动启动，以“相聚龙江，共谋发展”为主题，吸引了来自马来西亚的近40名华侨华商参加，从农业、文化等方面深度解读哈尔滨的发展新优势和投资新机遇。 五常市地处北纬45度，位于世界三大黑土带之一，被誉为“中国优质稻米之乡”。五常市现有耕地443.8万亩，年产优质成
 
 ## 正文
 
-中新网沈阳6月2日电(姜月恒 姚小辉)2026沈阳机器人大会核心应用场景对接活动之一的京沈智能制造企业合作对接座谈会2日在沈阳市沈河区举行，活动旨在聚焦机器人、人工智能、高端装备制造领域，搭建两地精准对接、务实合作的高端平台，助力两地产业链、创新链、供应链协同联动，为沈阳智能制造产业集群发展注入新动能。
+中新网哈尔滨5月19日电 (记者 刘锡菊)18日，由哈尔滨市委统战部主办、五常市委统战部承办的“侨瞧哈尔滨·溯源稻香五常”活动启动，以“相聚龙江，共谋发展”为主题，吸引了来自马来西亚的近40名华侨华商参加，从农业、文化等方面深度解读哈尔滨的发展新优势和投资新机遇。
 
-本次座谈会汇聚众多行业优质资源，北京人形机器人创新中心、首科腾飞等来自北京的智能制造头部企业和中煤科工、优必选创新科技等本地龙头企业，以及深圳逐际动力齐聚活动现场，50余家知名企业共同探讨产业合作新路径。
+五常市地处北纬45度，位于世界三大黑土带之一，被誉为“中国优质稻米之乡”。
 
-北京拥有顶尖科创资源、前沿技术成果与专业研发团队，沈阳具备雄厚的制造业基底、完善的产业链配套和丰富的应用场景。
+五常市现有耕地443.8万亩，年产优质成品五常大米约85万吨，品牌价值高达720.12亿元(人民币)，连续11年蝉联地标产品大米类中国第一，在2024国际稻香米品牌大会上位列地理标志品牌榜稻米类第一名。
 
-座谈交流中，北京企业重点推介工业自动化、智能传感器等前沿技术产品，沈阳本地企业围绕人形机器人研发、智能制造升级、数字化转型等领域提出合作构想，双方就强强联合开展技术研发、产业链配套、成果落地转化、资源共享等方面深度洽谈。
+“五常正处在高质量发展、可持续振兴的关键时期，比以往任何时候都更需要凝聚侨心、汇聚侨力、发挥侨智，也比以往任何时候都更有条件、更有平台、更有前景，让各位侨胞来此投资兴业、成就梦想。
 
-北京金福德润科技有限责任公司总经理王晓兰在交流会上表示，企业深耕垃圾分类业务，在智能分拣设备选型上有着刚需，希望业内专家围绕轻量化智能设备开展技术攻关，推出适配的实用机型。
+”五常市招商服务中心主任张严表示，该市作为黑龙江县域经济高质量发展的排头兵，拥有独特的资源禀赋、扎实的产业基础、明显的区位优势和良好的营商环境。
 
-中国食品工业协会品牌战略工作委员会副秘书长广静川发言称，海内外市场涌现新需求，国外因用人成本高昂，市场需要具备全流程操作、自主调配清洗功能的智能咖啡机，目前已有不少合作意向。
+活动中，侨商们参观了五常市博物馆，欣赏了东北大鼓、朝鲜族民俗舞等表演。
 
-广静川表示，餐饮直面消费者，家用智能设备或将成为后续重点拓展方向。
+当日举办的“五常臻品侨连世界”农产品大集，则通过美食体验、非遗展示、互动体验等多元形式，让侨商们看到了五常市的优势、诚意和机遇。
 
-奇点智能机器人(沈阳)科技有限公司总经理谢文君介绍，企业主营高智能水下机器人，目前公司面向全行业寻求定制开发、联合研发合作伙伴，同步推进股权融资事宜。
+马来西亚中华总商会中央理事、吉打中华总商会会长、拿督洪锡倡表示，通过此次活动，他感受到了五常市的独特风情，也对哈尔滨市的资源禀赋、产业优势和政策环境有了更深入的了解。
 
 ## 相关推荐
 
-- 2026-06-30 07:00 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 07:03 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 06:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 07:00 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 07:06 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 07:01 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 07:14 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 06:49 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 06:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 06:52 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 07:16 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 07:14 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 07:16 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 07:01 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 07:05 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 07:14 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 07:06 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 07:19 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 07:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 06:55 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 07:16 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 07:08 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 07:12 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 07:09 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:57 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/4254095851.shtml)
-- 2026-06-30 07:04 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/626548231.shtml)
-- 2026-06-30 07:10 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/28798378346.shtml)
-- 2026-06-30 07:05 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/1995499.shtml)
-- 2026-06-30 07:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/5880940418.shtml)
-- 2026-06-30 06:54 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/65900180012.shtml)
-- 2026-06-30 06:58 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/324357290917.shtml)
-- 2026-06-30 07:13 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/661902229.shtml)
-- 2026-06-30 07:08 - [巴拉圭先进球了](https://www.blog.minike.top/Article/details/212079472.shtml)
-- 2026-06-30 07:11 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/011091.shtml)
-- 2026-06-30 07:11 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/31557.shtml)
-- 2026-06-30 07:04 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/58951.shtml)
-- 2026-06-30 06:49 - [索马里女大使：想和中国一起搞事业](https://www.share.minike.top/Article/details/176862029393.shtml)
-- 2026-06-30 07:01 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/86014.shtml)
-- 2026-06-30 06:58 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/70981542.shtml)
+- 2026-06-30 06:59 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/85739.shtml)
+- 2026-06-30 06:55 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/57042.shtml)
+- 2026-06-30 07:00 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/84743902.shtml)
+- 2026-06-30 07:11 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/745692345450.shtml)
+- 2026-06-30 07:00 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/770451985319.shtml)
+- 2026-06-30 07:22 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.minike.top/Article/details/7471213948.shtml)
+- 2026-06-30 07:02 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/028014821240.shtml)
+- 2026-06-30 07:14 - [恋与深空道歉声明](https://www.share.kurohicncr.top/Article/details/724998.shtml)
+- 2026-06-30 07:00 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/97943044.shtml)
+- 2026-06-30 07:15 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/577345289400.shtml)
+- 2026-06-30 07:22 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/6998303371.shtml)
+- 2026-06-30 07:07 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/77788.shtml)
+- 2026-06-30 07:05 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/999507313395.shtml)
+- 2026-06-30 06:56 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/6760954575.shtml)
+- 2026-06-30 07:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/38882064.shtml)

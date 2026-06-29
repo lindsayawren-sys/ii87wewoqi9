@@ -1,60 +1,57 @@
-# 红利低波ETF华泰柏瑞（512890）近60日吸金31.8亿！光大证券看多6月银行股绝对收益
+# 2026年中国网络文明大会网络文明国际交流互鉴论坛在南宁举行
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-6月2日，三大股指集体收涨，沪指涨0.43%，深成指涨1.63%，创指涨2.66%。受此影响，红利低波ETF华泰柏瑞（512890）涨0.08%，报1.182元，换手率2.65%，成交额8.73亿元，居同类标的ETF首位。 最新定期报告显示，红利低波ETF华泰柏瑞（512890）十大重仓股今日涨多跌少，包括上海银行、南京银行、平安银行、沪农商行、华润江中、中国海油、中国石油、民
+5月19日下午，2026年中国网络文明大会网络文明国际交流互鉴论坛在广西南宁举行。论坛以“大道同行 和合共生”为主题，旨在打造网络文明国际交流互鉴平台，为携手构建网络空间命运共同体贡献力量。中央统战部副部长王瑞军，广西壮族自治区政协副主席、党组副书记徐绍川，中央网信办、国家网信办总工程师吴东出席论坛。论坛上，中外嘉宾通过主题演讲、案例分享等形式，交流网络文明国际交流互鉴的新实践
 
 ## 正文
 
-6月2日，三大股指集体收涨，沪指涨0.43%，深成指涨1.63%，创指涨2.66%。
+5月19日下午，2026年中国网络文明大会网络文明国际交流互鉴论坛在广西南宁举行。
 
-受此影响，红利低波ETF华泰柏瑞（512890）涨0.08%，报1.182元，换手率2.65%，成交额8.73亿元，居同类标的ETF首位。
+论坛以“大道同行 和合共生”为主题，旨在打造网络文明国际交流互鉴平台，为携手构建网络空间命运共同体贡献力量。
 
-最新定期报告显示，红利低波ETF华泰柏瑞（512890）十大重仓股今日涨多跌少，包括上海银行、南京银行、平安银行、沪农商行、华润江中、中国海油、中国石油、民生银行、陕鼓动力、成都银行，持仓占比如下。
+中央统战部副部长王瑞军，广西壮族自治区政协副主席、党组副书记徐绍川，中央网信办、国家网信办总工程师吴东出席论坛。
 
-资金流向上，红利低波ETF华泰柏瑞（512890）长期受资金青睐。
+论坛上，中外嘉宾通过主题演讲、案例分享等形式，交流网络文明国际交流互鉴的新实践。
 
-近5个交易日资金净流入5.4亿元，近20个交易日资金净流入26.5亿元，近60个交易日资金净流入31.8亿元。
+中央重点新闻网站负责人分享“华流”出海的创新实践及跨国传播的方法路径；互联网企业代表介绍搭建线上互动平台、创建全球青年数字社区的生动案例；网络文艺工作者聚焦中华优秀传统文化的创造性转化，探讨如何创作高质量跨文化作品；国内外内容创作者讲述在中国社交平台分享生活、追寻梦想的真实故事。
 
-截止2026年6月1日，该ETF流通规模329.03亿元。
+与会嘉宾一致认为，网络文明是新形势下社会文明的重要内容，是建设网络强国的重要领域。
 
-消息面上，昨日中国人民银行以固定利率、数量招标方式开展了110亿元7天期逆回购操作，操作利率1.40%。
+要坚定文化自信、秉持开放包容、坚持守正创新，推动不同文明在交流互鉴中共同发展，让网络文明成果更好惠及世界各国人民。
 
-因当日有2580亿元逆回购到期，公开市场实现净回笼2470亿元。
+论坛还发布了2026年网络文明国际交流互鉴城市十大典型案例，并启动中国—东盟商贸资讯平台。
 
 ## 相关推荐
 
-- 2026-06-30 07:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 06:51 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 06:54 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 06:58 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 07:00 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 07:11 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 07:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 07:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 07:08 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 07:13 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 07:16 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 07:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 06:48 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 06:54 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 07:15 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 07:01 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 07:10 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 07:17 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 07:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 07:10 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 07:13 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 07:04 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 07:10 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 07:08 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 07:01 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:50 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/2551023.shtml)
-- 2026-06-30 06:54 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/174648.shtml)
-- 2026-06-30 06:55 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/45320507.shtml)
-- 2026-06-30 06:53 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/4314189412.shtml)
-- 2026-06-30 06:52 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/5929181838.shtml)
-- 2026-06-30 06:50 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/713788843.shtml)
-- 2026-06-30 06:48 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/237484158.shtml)
-- 2026-06-30 07:12 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/94540134957.shtml)
-- 2026-06-30 07:14 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/0461798281.shtml)
-- 2026-06-30 07:01 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/367524069965.shtml)
-- 2026-06-30 06:58 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/5147714923.shtml)
-- 2026-06-30 06:55 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/2055367.shtml)
-- 2026-06-30 07:16 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/739205914286.shtml)
-- 2026-06-30 07:13 - [董卿父亲在报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/06378108139.shtml)
-- 2026-06-30 07:14 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/1789903.shtml)
+- 2026-06-30 07:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/2148742542.shtml)
+- 2026-06-30 06:58 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/93514.shtml)
+- 2026-06-30 07:01 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/3480036958.shtml)
+- 2026-06-30 07:05 - [一生一世](https://www.share.minike.top/Article/details/6685838.shtml)
+- 2026-06-30 06:54 - [这一刀 会很帅](https://www.share.minike.top/Article/details/262741943.shtml)
+- 2026-06-30 07:19 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/985928.shtml)
+- 2026-06-30 07:14 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/1936617.shtml)
+- 2026-06-30 07:03 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/683986.shtml)
+- 2026-06-30 07:08 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/86524.shtml)
+- 2026-06-30 07:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/562647752599.shtml)
+- 2026-06-30 07:12 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/918345761.shtml)
+- 2026-06-30 07:16 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/9513630.shtml)
+- 2026-06-30 07:12 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/84647.shtml)
+- 2026-06-30 07:00 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/7119167677.shtml)
+- 2026-06-30 07:15 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/9033141889.shtml)

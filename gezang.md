@@ -1,58 +1,53 @@
-# TOPSTANDARDCORP拟折让20.0%配售共6250万股认购股份 净筹约990万港元
+# DeepSeek回应用户“对话泄露”疑虑：特殊字符引发模型幻觉
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-TOPSTANDARDCORP（08510）发布公告，于2026年6月1日（联交所交易时段后），本公司（作为发行人）与各认购人订立两份独立认购协议，据此，认购人有条件同意认购而本公司有条件同意配发及发行合共6250万股认购股份，认购价为每股认购股份0.16港元。 假设于本公告日期至完成日期止期间，本公司已发行股本并无任何变动，则认购股份相当于（i）本公司于本公告日期现有已发行股
+5月19日，DeepSeek在其小红书官方账号发布关于< think >字符触发模型异常回复的说明： 近期，我们关注到有用户反馈，在与 DeepSeek 模型的对话中输入“< think >”这类特殊字符后，模型偶发返回不可预期的内容，使部分用户产生了“对话泄露”的疑虑。针对这一问题，我们的技术团队经全面排查后发现： 输入“< think >”等字符触发返回异常内容，属于特殊字
 
 ## 正文
 
-TOPSTANDARDCORP（08510）发布公告，于2026年6月1日（联交所交易时段后），本公司（作为发行人）与各认购人订立两份独立认购协议，据此，认购人有条件同意认购而本公司有条件同意配发及发行合共6250万股认购股份，认购价为每股认购股份0.16港元。
+5月19日，DeepSeek在其小红书官方账号发布关于< think >字符触发模型异常回复的说明： 近期，我们关注到有用户反馈，在与 DeepSeek 模型的对话中输入“< think >”这类特殊字符后，模型偶发返回不可预期的内容，使部分用户产生了“对话泄露”的疑虑。
 
-假设于本公告日期至完成日期止期间，本公司已发行股本并无任何变动，则认购股份相当于（i）本公司于本公告日期现有已发行股本约26.2%；及（ii）本公司经配发及发行总认购股份扩大后的已发行股本约20.7%。
+针对这一问题，我们的技术团队经全面排查后发现： 输入“< think >”等字符触发返回异常内容，属于特殊字符引发的模型幻觉，不涉及安全问题或隐私泄露。
 
-每股认购股份0.16港元的认购价较股份于2026年6月1日在联交所所报的收市价每股0.2港元折让20.0%。
+后续我们将通过针对性训练增强模型对特殊字符的识别与处理能力，修复相关的已知问题，优化模型在此类场景中的表现。
 
-假设所有认购股份获悉数认购，认购事项的所得款项总额为1000万港元。
-
-认购事项的所得款项净额（经扣除所有相关开支后）估计约为990万港元，相当于每股认购股份净价约 0.158港元。
-
-本公司拟透过配售事项筹集所得款项总额约1000万港元。
-
-所得款项净额（经扣除相关费用及佣金后）拟用作以下用途： 采购及安装设备600万港元；采购蘑菇孢子100万港元；租金开支 100万港元；营运资金200万港元。
-
-责任编辑：卢昱君
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 07:15 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 07:16 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 06:58 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 07:05 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 07:12 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 06:57 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 07:13 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 06:56 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 06:52 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 06:53 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 07:07 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 06:50 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 06:56 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 06:56 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-30 07:02 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 06:55 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 07:14 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 07:20 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 07:11 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 06:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 07:23 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 07:12 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 07:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 07:19 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 07:11 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 07:20 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 07:15 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:10 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/905635504158.shtml)
-- 2026-06-30 07:10 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/18329255941.shtml)
-- 2026-06-30 07:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/4392709489.shtml)
-- 2026-06-30 06:57 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/573128013272.shtml)
-- 2026-06-30 07:06 - [德国vs巴拉圭](http://www.blog.minike.top/Article/details/51378491728.shtml)
-- 2026-06-30 07:03 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/275473610528.shtml)
-- 2026-06-30 07:06 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/3074485.shtml)
-- 2026-06-30 07:04 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/71992278295.shtml)
-- 2026-06-30 06:53 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/07309.shtml)
-- 2026-06-30 06:51 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/469992057753.shtml)
-- 2026-06-30 07:09 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/7076138599.shtml)
-- 2026-06-30 07:07 - [美股](https://www.share.minike.top/Article/details/428575.shtml)
-- 2026-06-30 06:48 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/0798504480.shtml)
-- 2026-06-30 07:01 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/70048.shtml)
-- 2026-06-30 06:50 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/163502834212.shtml)
+- 2026-06-30 06:56 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/847090358641.shtml)
+- 2026-06-30 07:15 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/1897892.shtml)
+- 2026-06-30 07:10 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/697338610.shtml)
+- 2026-06-30 07:14 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/96718.shtml)
+- 2026-06-30 07:04 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/2236655.shtml)
+- 2026-06-30 07:15 - [刘念回应](https://www.share.kurohicncr.top/Article/details/408643484.shtml)
+- 2026-06-30 07:08 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/18277900397.shtml)
+- 2026-06-30 07:17 - [巴西2-1绝杀日本](http://www.share.kurohicncr.top/Article/details/22233.shtml)
+- 2026-06-30 07:23 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/49852.shtml)
+- 2026-06-30 07:07 - [蔚来车主罚站](http://www.share.minike.top/Article/details/1655708.shtml)
+- 2026-06-30 07:11 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/204344.shtml)
+- 2026-06-30 07:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/39620290.shtml)
+- 2026-06-30 07:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/40063597.shtml)
+- 2026-06-30 07:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/8995024872.shtml)
+- 2026-06-30 07:18 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/6390007.shtml)

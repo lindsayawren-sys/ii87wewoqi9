@@ -1,56 +1,60 @@
-# Halper Sadeh律师事务所调查泰勒莫里森出售价格公允性
+# 美国法官以违反职业道德为由，对奎因·伊曼纽尔律师事务所处以罚款
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-Halper Sadeh LLC律师事务所宣布，正在对泰勒莫里森房屋公司以每股72.50美元现金出售给伯克希尔哈撒韦的交易进行调查，以评估该价格是否对股东公允。根据此前公布的协议，伯克希尔将以每股72.50美元现金收购泰勒莫里森全部普通股，较该公司5月29日收盘价溢价约24%，股权价值约68亿美元，企业总价值约85亿美元。 Halper Sadeh的调查重点关注泰勒莫里森董事会
+美国律所奎因·伊曼纽尔（Quinn Emanuel）周二被勒令出资开展职业道德培训并支付罚款。此前，一名联邦法官指出，该律所的一批律师在竞争对手Guardant Health提起的虚假广告诉讼中，就其为癌症检测公司Natera辩护所使用的证据向法院提供了误导性陈述。 旧金山联邦地区法官爱德华·陈（Edward Chen）表示，奎因·伊曼纽尔律师事务所必须为涉事律师设计一个8小时
 
 ## 正文
 
-Halper Sadeh LLC律师事务所宣布，正在对泰勒莫里森房屋公司以每股72.50美元现金出售给伯克希尔哈撒韦的交易进行调查，以评估该价格是否对股东公允。
+美国律所奎因·伊曼纽尔（Quinn Emanuel）周二被勒令出资开展职业道德培训并支付罚款。
 
-根据此前公布的协议，伯克希尔将以每股72.50美元现金收购泰勒莫里森全部普通股，较该公司5月29日收盘价溢价约24%，股权价值约68亿美元，企业总价值约85亿美元。
+此前，一名联邦法官指出，该律所的一批律师在竞争对手Guardant Health提起的虚假广告诉讼中，就其为癌症检测公司Natera辩护所使用的证据向法院提供了误导性陈述。
 
-Halper Sadeh的调查重点关注泰勒莫里森董事会是否违反联邦证券法和/或信托义务，具体包括：是否未能为股东争取最优价格、是否未能在无利益冲突的情况下进行公允的出售程序，以及是否未向股东披露评估交易所需的所有重大信息。
+旧金山联邦地区法官爱德华·陈（Edward Chen）表示，奎因·伊曼纽尔律师事务所必须为涉事律师设计一个8小时的内部职业道德培训项目 ，并支付法院指定官员今年1月建议的近300万美元罚款。
 
-调查的核心背景之一是潜在的内部利益冲突。
+该事务所的五名律师将各自承担部分罚款，总额达数万美元 。
 
-根据公告，泰勒莫里森董事长兼首席执行官谢丽尔·帕尔默将在交易完成后继续留任，公司现有管理团队也将维持运营。
+陈法官表示，这些律师的行为凸显了人们对诉讼文化和职业道德的“令人不安”的广泛担忧。
 
-这种“管理层留任”安排在并购交易中可能引发董事会是否存在对管理层利益倾斜的质疑。
+“这是一种躲在律师技巧背后、将赢得动议置于恪守职业道德之上的文化，”法官写道。
 
-律所认为，内部人士可能获得了普通股东无法享有的实质性财务利益。
+“这种执业方式会使诉讼程序繁复化、成本激增，并侵蚀公众对律师的信任。
 
-从财务数据看，泰勒莫里森在2025年实现营收81.2亿美元，净利润7.825亿美元。
+” Guardant公司于2021年提起本案诉讼，指控Natera公司对其两家公司的竞争性结直肠癌血液检测产品作出误导性陈述。
 
 ## 相关推荐
 
-- 2026-06-30 06:58 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 06:53 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 06:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 07:01 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 06:57 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 06:54 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 06:51 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 07:07 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 06:57 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 07:08 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 07:07 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-30 07:19 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 07:17 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 07:23 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 07:15 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 07:20 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 07:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 07:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 07:07 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-30 07:19 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 07:00 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 06:58 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 06:58 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 06:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:01 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/73916958.shtml)
-- 2026-06-30 06:54 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/42860970001.shtml)
-- 2026-06-30 07:17 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/011291.shtml)
-- 2026-06-30 06:55 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/6068483.shtml)
-- 2026-06-30 06:49 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/6337604523.shtml)
-- 2026-06-30 06:51 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/874866223.shtml)
-- 2026-06-30 07:15 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/67025428.shtml)
-- 2026-06-30 07:05 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/949102.shtml)
-- 2026-06-30 07:12 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/44385298131.shtml)
-- 2026-06-30 07:12 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/9590452843.shtml)
-- 2026-06-30 06:56 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/05162.shtml)
-- 2026-06-30 06:59 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/0843046.shtml)
-- 2026-06-30 07:14 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/47085863639.shtml)
-- 2026-06-30 06:58 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/92070698.shtml)
-- 2026-06-30 07:15 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/94391.shtml)
+- 2026-06-30 07:18 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/4569386.shtml)
+- 2026-06-30 07:16 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/144820187.shtml)
+- 2026-06-30 07:06 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/2822271621.shtml)
+- 2026-06-30 07:07 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/53553416308.shtml)
+- 2026-06-30 06:58 - [金牌调解](http://www.share.kurohicncr.top/Article/details/802324765.shtml)
+- 2026-06-30 07:06 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/00161679.shtml)
+- 2026-06-30 07:05 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/6550590.shtml)
+- 2026-06-30 07:23 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/81438.shtml)
+- 2026-06-30 07:07 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/13175.shtml)
+- 2026-06-30 06:57 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/88852500999.shtml)
+- 2026-06-30 07:14 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/42685694115.shtml)
+- 2026-06-30 07:23 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/34665.shtml)
+- 2026-06-30 07:11 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/416926052.shtml)
+- 2026-06-30 07:03 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/8130982.shtml)
+- 2026-06-30 07:18 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/50002097435.shtml)

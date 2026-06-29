@@ -1,51 +1,46 @@
-# 首钢朗泽香港公开发售获1421.54倍认购 全球发售净筹约4.86亿港元
+# 美国一空军基地发生撞机 飞行员弹射逃生
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-首钢朗泽（02553）公布配发结果，公司全球发售4000万股H股，香港公开发售占15%，国际发售占85%。每股发售价14.60港元，全球发售净筹约4.86亿港元。每手200股，预期H股将于2026年6月3日（星期三）上午九时正（香港时间）开始在联交所买卖。 其中，香港公开发售获1421.54倍认购，国际发售获0.95倍认购。责任编辑：卢昱君
+发布时间：2026年05月19日 09:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-首钢朗泽（02553）公布配发结果，公司全球发售4000万股H股，香港公开发售占15%，国际发售占85%。
-
-每股发售价14.60港元，全球发售净筹约4.86亿港元。
-
-每手200股，预期H股将于2026年6月3日（星期三）上午九时正（香港时间）开始在联交所买卖。
-
-其中，香港公开发售获1421.54倍认购，国际发售获0.95倍认购。
-
-责任编辑：卢昱君
+发布时间：2026年05月19日 09:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 06:56 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 06:55 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 06:55 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 07:10 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 07:07 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 06:59 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 06:48 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 06:55 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 07:14 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 07:01 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 06:52 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 07:03 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 07:10 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-30 07:08 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 07:01 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 07:12 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 06:55 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 07:13 - [蔚来车主罚站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 07:23 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 07:16 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 07:19 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 07:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-30 07:22 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 07:03 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 07:17 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:10 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/721698.shtml)
-- 2026-06-30 06:50 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/2579610105.shtml)
-- 2026-06-30 07:03 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/0519059.shtml)
-- 2026-06-30 07:05 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/44260021064.shtml)
-- 2026-06-30 07:01 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/9276933443.shtml)
-- 2026-06-30 06:51 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/1058498894.shtml)
-- 2026-06-30 06:54 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/5629180.shtml)
-- 2026-06-30 07:14 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/28172.shtml)
-- 2026-06-30 06:48 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/7335514299.shtml)
-- 2026-06-30 07:00 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/633645430.shtml)
-- 2026-06-30 06:55 - [恋与深空 日服](http://www.share.minike.top/Article/details/72573257.shtml)
-- 2026-06-30 07:13 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/02668275940.shtml)
-- 2026-06-30 06:49 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/9156218617.shtml)
-- 2026-06-30 06:54 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/78370332.shtml)
-- 2026-06-30 07:01 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/956174357.shtml)
+- 2026-06-30 07:09 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/181357603129.shtml)
+- 2026-06-30 06:58 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/706765.shtml)
+- 2026-06-30 07:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/065022530.shtml)
+- 2026-06-30 07:00 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/82756123.shtml)
+- 2026-06-30 07:08 - [巴西在进攻三区完成210脚传球](https://www.blog.kurohicncr.top/Article/details/5241536.shtml)
+- 2026-06-30 07:14 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/58764.shtml)
+- 2026-06-30 07:10 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/38350697879.shtml)
+- 2026-06-30 06:57 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/37220004435.shtml)
+- 2026-06-30 07:18 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/4224789.shtml)
+- 2026-06-30 06:59 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/90430239397.shtml)
+- 2026-06-30 06:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/16229246.shtml)
+- 2026-06-30 07:19 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/36188.shtml)
+- 2026-06-30 07:15 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/404210205166.shtml)
+- 2026-06-30 07:23 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/732866555.shtml)
+- 2026-06-30 07:14 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/338160125.shtml)

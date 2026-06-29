@@ -1,60 +1,51 @@
-# 曾家快：守护古廊桥，传承非遗技艺
+# 日本国债收益率再度上涨 反映债券市场进一步走弱
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新网6月3日电(记者 上官云)“木拱桥营造技艺发展到现在已经比较极致，但我也还是努力有所创新。”初夏的一天，微风轻拂，年过五旬的曾家快站在文兴桥上，兴致勃勃地聊起了当年学艺的往事，以及廊桥营造的知识。 他是木拱桥传统营造技艺国家级代表性传承人，早年间曾跑遍泰顺的古廊桥，亲手测量，保留了大量珍贵资料，还曾参与文兴桥的修复工作，堪称古廊桥的忠实守护者。 这些年来，曾家快潜心钻研桥
+10年期和30年期日本国债收益率延续升势，反映在全球债市大跌导致一些收益率升至历史高位后，债券市场进一步走弱。 10年期收益率和30年期收益率分别上涨5.5个基点，至2.795%和4.155%。责任编辑：何云
 
 ## 正文
 
-中新网6月3日电(记者 上官云)“木拱桥营造技艺发展到现在已经比较极致，但我也还是努力有所创新。
+10年期和30年期日本国债收益率延续升势，反映在全球债市大跌导致一些收益率升至历史高位后，债券市场进一步走弱。
 
-”初夏的一天，微风轻拂，年过五旬的曾家快站在文兴桥上，兴致勃勃地聊起了当年学艺的往事，以及廊桥营造的知识。
+10年期收益率和30年期收益率分别上涨5.5个基点，至2.795%和4.155%。
 
-他是木拱桥传统营造技艺国家级代表性传承人，早年间曾跑遍泰顺的古廊桥，亲手测量，保留了大量珍贵资料，还曾参与文兴桥的修复工作，堪称古廊桥的忠实守护者。
-
-这些年来，曾家快潜心钻研桥梁工艺，也花了很多心思来传承技艺。
-
-近日，由国家文物局组织的廊桥保护成果主题宣传活动举行，在泰顺县，记者见到了曾家快，听他讲述了自己的故事。
-
-与廊桥结缘 曾家快是土生土长的泰顺人，从小在泗溪镇长大。
-
-在家里，他的父亲和爷爷都是木匠，年岁渐长，曾家快后来自然而然地接过长辈衣钵，学起了木匠手艺。
-
-“以前，通常制作家具和嫁妆的称为小木匠，会建房子和廊桥的称为大木匠。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 07:07 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 07:00 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 06:55 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 07:03 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 06:53 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 06:51 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 07:06 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 06:58 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 06:59 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-30 07:02 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 07:05 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 07:03 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 07:07 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 06:58 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 07:18 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 07:22 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 07:17 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 07:17 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 07:01 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 07:18 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 07:08 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 07:09 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 07:10 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 07:12 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 07:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 06:55 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 07:16 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 07:07 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 07:02 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:05 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/2962565052.shtml)
-- 2026-06-30 07:08 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/713284.shtml)
-- 2026-06-30 07:13 - [张凌赫 客串](http://www.share.minike.top/Article/details/025472694.shtml)
-- 2026-06-30 06:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/536735.shtml)
-- 2026-06-30 07:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/618413669.shtml)
-- 2026-06-30 07:12 - [急先锋](http://www.share.kurohicncr.top/Article/details/588262.shtml)
-- 2026-06-30 06:56 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/81988159763.shtml)
-- 2026-06-30 07:02 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/019112828373.shtml)
-- 2026-06-30 07:06 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/500471.shtml)
-- 2026-06-30 06:59 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/2501696853.shtml)
-- 2026-06-30 06:58 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/1924342.shtml)
-- 2026-06-30 07:08 - [毒液2](http://www.share.minike.top/Article/details/8210339.shtml)
-- 2026-06-30 07:16 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/83989802349.shtml)
-- 2026-06-30 07:06 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/4896567.shtml)
-- 2026-06-30 07:08 - [小娘惹](https://www.share.kurohicncr.top/Article/details/15176064729.shtml)
+- 2026-06-30 07:10 - [速度与激情9](https://www.blog.minike.top/Article/details/76132051.shtml)
+- 2026-06-30 07:00 - [我们的少年时代2](https://www.share.minike.top/Article/details/103509.shtml)
+- 2026-06-30 06:54 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/862968.shtml)
+- 2026-06-30 06:55 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/459568.shtml)
+- 2026-06-30 07:07 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/693494.shtml)
+- 2026-06-30 07:05 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/71954.shtml)
+- 2026-06-30 07:01 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/10424468390.shtml)
+- 2026-06-30 07:09 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/49439870222.shtml)
+- 2026-06-30 06:57 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/523926643.shtml)
+- 2026-06-30 06:56 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/171192320.shtml)
+- 2026-06-30 06:58 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/2686183.shtml)
+- 2026-06-30 07:04 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/1773125563.shtml)
+- 2026-06-30 06:59 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/91809893058.shtml)
+- 2026-06-30 07:12 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/0303056146.shtml)
+- 2026-06-30 07:21 - [武磊：日本队有能力跟任何强队抗衡](http://www.blog.minike.top/Article/details/41056.shtml)

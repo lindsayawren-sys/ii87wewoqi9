@@ -1,61 +1,43 @@
-# 踏空科技行情？看别人赚钱比自己亏钱还难受？孔蓉：投资不是比谁赚得快而是谁活得久
+# 伊朗媒体称美同意暂缓石油制裁 美方否认
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月2日，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，围绕全球科技股的分化格局以及下半年投资主线展开深度解析。视频直播>> 面对投资者普遍存在的“踏空焦虑”——看着别人赚钱比自己亏钱还难受，总怕错过这波就没有机会了，孔蓉给出了具体的投资心态建议。 她指出，在全球产业持续演进的大方向
+发布时间：2026年05月19日 10:17 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-6月2日，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，围绕全球科技股的分化格局以及下半年投资主线展开深度解析。
-
-视频直播>> 面对投资者普遍存在的“踏空焦虑”——看着别人赚钱比自己亏钱还难受，总怕错过这波就没有机会了，孔蓉给出了具体的投资心态建议。
-
-她指出，在全球产业持续演进的大方向下，投资者首先需要调整好心态。
-
-即便看到他人短期内获得较高浮盈，也要清醒认识到：这些浮盈最终能否转化为实际收益，取决于每个人的风险控制能力。
-
-“在这个时间点，我特别想提及的是，风险和风控的能力，才是最终能赚钱的核心。
-
-”孔蓉在直播中强调，“比得不是谁赚得快，而是谁活得比较久。
-
-” 针对具体的持仓与择时思维，孔蓉重申了对全球科技板块的长期看好，认为当前正处于“一轮史诗级的黄金机会”。
+发布时间：2026年05月19日 10:17 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 06:58 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 07:10 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 07:01 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 06:56 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 06:49 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 06:53 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 06:59 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 06:49 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 06:48 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 06:49 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 06:51 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 07:11 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 07:05 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 07:17 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 07:02 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 07:10 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 07:08 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 07:23 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 07:09 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 07:13 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 07:13 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 07:12 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 07:11 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 07:04 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 07:09 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 07:16 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:09 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/6431616.shtml)
-- 2026-06-30 07:00 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/1875493.shtml)
-- 2026-06-30 07:05 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/77433.shtml)
-- 2026-06-30 07:00 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/4371598360.shtml)
-- 2026-06-30 07:12 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/63919.shtml)
-- 2026-06-30 06:48 - [沙丘](https://www.blog.kurohicncr.top/Article/details/1725753170.shtml)
-- 2026-06-30 06:57 - [人类...完蛋了...](https://www.share.minike.top/Article/details/201655885.shtml)
-- 2026-06-30 06:52 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/62493678.shtml)
-- 2026-06-30 07:08 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/10835404.shtml)
-- 2026-06-30 06:59 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/81192.shtml)
-- 2026-06-30 07:08 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/9405505602.shtml)
-- 2026-06-30 07:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/01672919.shtml)
-- 2026-06-30 06:52 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/465998223399.shtml)
-- 2026-06-30 06:52 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/7691334742.shtml)
-- 2026-06-30 07:03 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/221100176.shtml)
+- 2026-06-30 07:17 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/632252595735.shtml)
+- 2026-06-30 06:55 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/19189712930.shtml)
+- 2026-06-30 07:12 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/3543753.shtml)
+- 2026-06-30 07:02 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/75915687191.shtml)
+- 2026-06-30 07:09 - [日本进球](https://www.share.kurohicncr.top/Article/details/373795.shtml)
+- 2026-06-30 07:14 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/542481414.shtml)
+- 2026-06-30 07:14 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/703281.shtml)
+- 2026-06-30 07:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/32066999.shtml)
+- 2026-06-30 06:54 - [德国巴拉圭加时](https://www.share.kurohicncr.top/Article/details/694369.shtml)
+- 2026-06-30 07:11 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/059831.shtml)
+- 2026-06-30 06:57 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/7104268999.shtml)
+- 2026-06-30 06:57 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/6177451.shtml)
+- 2026-06-30 07:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/61491756802.shtml)
+- 2026-06-30 07:11 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/04680.shtml)
+- 2026-06-30 07:13 - [德国巴拉圭 折磨](http://www.share.minike.top/Article/details/737246539017.shtml)

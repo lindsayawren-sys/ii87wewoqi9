@@ -1,45 +1,46 @@
-# 广东汕头：老人下海游泳遇险 志愿者合力救援
+# “糖果屋”设计师回应是否实现财务自由
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 10:38 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年05月19日 15:33 来源：中国新闻网 很多人以为，当初红透整个文具市场的IP“糖果屋”的设计师，应该已经赚得盆满钵满，实现财务自由，但在接受中新网的采访时，“糖果屋”IP原创设计师梁准准否认了这点。(记者 郎朗） 责任编辑：【张曦】
 
 ## 正文
 
-发布时间：2026年06月02日 10:38 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年05月19日 15:33 来源：中国新闻网 很多人以为，当初红透整个文具市场的IP“糖果屋”的设计师，应该已经赚得盆满钵满，实现财务自由，但在接受中新网的采访时，“糖果屋”IP原创设计师梁准准否认了这点。
+
+(记者 郎朗） 责任编辑：【张曦】
 
 ## 相关推荐
 
-- 2026-06-30 07:09 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 06:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 07:07 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 07:01 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 07:03 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 07:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 06:58 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 07:03 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 06:54 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-30 07:11 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 06:56 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 07:06 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 07:04 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 07:19 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 07:21 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 07:22 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 07:19 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 07:03 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 07:18 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 06:54 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 07:03 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 07:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 07:11 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 07:13 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 07:10 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:09 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/314123.shtml)
-- 2026-06-30 06:53 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/4837516.shtml)
-- 2026-06-30 07:13 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/6634078.shtml)
-- 2026-06-30 07:04 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/40512647.shtml)
-- 2026-06-30 07:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/572644612870.shtml)
-- 2026-06-30 07:01 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/6922319.shtml)
-- 2026-06-30 07:07 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/9707825782.shtml)
-- 2026-06-30 07:08 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/252568403.shtml)
-- 2026-06-30 06:48 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/976245328577.shtml)
-- 2026-06-30 07:07 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/54326010159.shtml)
-- 2026-06-30 06:50 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/287097.shtml)
-- 2026-06-30 07:10 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/07622960522.shtml)
-- 2026-06-30 06:59 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/42489357995.shtml)
-- 2026-06-30 07:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/39514319243.shtml)
-- 2026-06-30 07:12 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/20392.shtml)
+- 2026-06-30 07:18 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/12707415.shtml)
+- 2026-06-30 07:01 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/1965426.shtml)
+- 2026-06-30 07:11 - [哈弗茨头球破门](http://www.blog.minike.top/Article/details/4086580.shtml)
+- 2026-06-30 07:11 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/5177658.shtml)
+- 2026-06-30 07:05 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/47224.shtml)
+- 2026-06-30 06:57 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/026360.shtml)
+- 2026-06-30 07:07 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/72974453.shtml)
+- 2026-06-30 07:00 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/91590630363.shtml)
+- 2026-06-30 07:09 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/1490098.shtml)
+- 2026-06-30 07:08 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/03477.shtml)
+- 2026-06-30 07:14 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/0313705252.shtml)
+- 2026-06-30 06:57 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/0252338472.shtml)
+- 2026-06-30 07:06 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/762774184891.shtml)
+- 2026-06-30 07:17 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/7697265955.shtml)
+- 2026-06-30 07:06 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/5705990452.shtml)

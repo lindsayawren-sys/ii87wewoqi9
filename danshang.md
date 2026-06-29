@@ -1,52 +1,59 @@
-# 全球最大独立集装箱船东首个甲醇双燃料EPC改装项目在沪完工交付
+# 法治护航民营经济行稳致远
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 13:45 来源：中国新闻网 6月2日，全球最大独立集装箱船东Seaspan10K系列甲醇双燃料改装项目首制船“SEASPAN YANGTZE”(“扬子江”轮)，在上海中远海运重工提前完成全部改造工程，顺利交付运营。该项目是全球最大独立集装箱船东首个甲醇双燃料EPC(设计、采购、建造)总包项目。 环保效益是此次改装项目的核心亮点之一。以甲醇作为
+视频：中国有数｜法治护航民营经济当好生力军来源：三里河 “民营经济促进法实施这一年，我最直观的感受是把‘民营经济是推进中国式现代化的生力军’等写进法律，给我们民营企业家吃下了法治层面的定心丸。”新希望集团董事长刘永好对三里河说。 刘永好的这番话，道出了民营企业家们的心声。 2025年5月20日起实施的民营经济促进法，分量厚重。该法创下多个首次，包括首次将坚持“两个毫不动摇”写入
 
 ## 正文
 
-发布时间：2026年06月02日 13:45 来源：中国新闻网 6月2日，全球最大独立集装箱船东Seaspan10K系列甲醇双燃料改装项目首制船“SEASPAN YANGTZE”(“扬子江”轮)，在上海中远海运重工提前完成全部改造工程，顺利交付运营。
+视频：中国有数｜法治护航民营经济当好生力军来源：三里河 “民营经济促进法实施这一年，我最直观的感受是把‘民营经济是推进中国式现代化的生力军’等写进法律，给我们民营企业家吃下了法治层面的定心丸。
 
-该项目是全球最大独立集装箱船东首个甲醇双燃料EPC(设计、采购、建造)总包项目。
+”新希望集团董事长刘永好对三里河说。
 
-环保效益是此次改装项目的核心亮点之一。
+刘永好的这番话，道出了民营企业家们的心声。
 
-以甲醇作为清洁船用燃料，使“扬子江”轮改装后的EEXI(船舶能效设计指数)指标较Phase0(船舶能效最低标准)要求降低约55%，显著优于基线标准，能效水平和碳减排潜力均达到国际领先水平，为航运业绿色转型提供了可复制的实践样本。
+2025年5月20日起实施的民营经济促进法，分量厚重。
 
-与新造大型双燃料集装箱船5至6年的建造周期相比，上海中远海运重工的改造模式效率优势显著，从合同签订至交付仅用约18个月，其中约15个月为主要设备备货期，这期间船舶可正常运营，在厂改造时间仅用不到3个月，大幅缩短停航时间、降低运营成本，既帮助船东实现效益最大化，也为全球航运低碳转型提供了高效可行的“中国方案”。
+该法创下多个首次，包括首次将坚持“两个毫不动摇”写入法律，首次明确民营经济的法律地位，首次在法律中规定“促进民营经济持续、健康、高质量发展，是国家长期坚持的重大方针政策”。
 
-(缪璐 制作 乐小敏 视频来源 上海中远海运重工有限公司） 责任编辑：【罗攀】
+作为国内首部专门关于民营经济发展的基础性法律，民营经济促进法为保证各种所有制经济依法平等使用生产要素、公平参与市场竞争、同等受到法律保护提供了法治保障。
+
+自法律施行以来，国家发展改革委会同各地区各部门，深入推进配套制度建设，优化民营经济发展环境。
+
+法治的重要作用，在于打破无形发展壁垒，为各类主体公平竞争筑牢制度根基。
 
 ## 相关推荐
 
-- 2026-06-30 06:50 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 07:01 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 06:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 07:10 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 07:03 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 07:16 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 07:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-30 06:51 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 06:54 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 07:00 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 07:04 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 07:02 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 07:22 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 07:11 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 07:05 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-30 07:22 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 06:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 07:07 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 07:19 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 07:00 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 06:54 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 07:15 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 07:21 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:17 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/0435131.shtml)
-- 2026-06-30 06:56 - [网瘾賊大的阿嬷](https://www.blog.minike.top/Article/details/384693039.shtml)
-- 2026-06-30 07:10 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/418831613.shtml)
-- 2026-06-30 07:17 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/6829286879.shtml)
-- 2026-06-30 06:56 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/4433567831.shtml)
-- 2026-06-30 07:10 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/15653257.shtml)
-- 2026-06-30 06:49 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/512508032723.shtml)
-- 2026-06-30 06:55 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/2761939370.shtml)
-- 2026-06-30 07:10 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/1467111453.shtml)
-- 2026-06-30 07:07 - [卡塞米罗头球破门](http://www.blog.kurohicncr.top/Article/details/085134.shtml)
-- 2026-06-30 07:16 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/3031481255.shtml)
-- 2026-06-30 07:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/95434540608.shtml)
-- 2026-06-30 07:16 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/27361656.shtml)
-- 2026-06-30 07:16 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/101351186.shtml)
-- 2026-06-30 07:06 - [送你一朵小红花](https://www.blog.minike.top/Article/details/23773.shtml)
+- 2026-06-30 07:07 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/9009518231.shtml)
+- 2026-06-30 07:05 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/79578009751.shtml)
+- 2026-06-30 07:20 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/454617.shtml)
+- 2026-06-30 07:01 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/5161456583.shtml)
+- 2026-06-30 07:04 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/212556.shtml)
+- 2026-06-30 07:02 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/502966.shtml)
+- 2026-06-30 07:18 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/31579712412.shtml)
+- 2026-06-30 06:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/30991.shtml)
+- 2026-06-30 06:56 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/40191129.shtml)
+- 2026-06-30 06:59 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/964399813.shtml)
+- 2026-06-30 07:08 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/5068234.shtml)
+- 2026-06-30 07:22 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/972561634003.shtml)
+- 2026-06-30 07:01 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/342685434825.shtml)
+- 2026-06-30 07:18 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/03793.shtml)
+- 2026-06-30 07:00 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/553419621889.shtml)

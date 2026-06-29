@@ -1,59 +1,57 @@
-# 西部数据亮相Computex 2026：AI不只运行于计算，更运行于数据
+# 湖南严打新型非法金融活动 聘任百余名公益宣传大使
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-西部数据在2026年国际电脑展上强势亮相，传递了一个核心信息：AI基础设施本质上是一个数据系统，而不仅仅是计算系统。公司通过主题演讲、展台演示和一系列存储创新，向业界展示了如何经济、可靠地扩展持久性AI工作负载。 西部数据首席产品官Ahmed Shihab在6月4日的论坛演讲中指出，AI基础设施不能再主要围绕计算性能来设计，持久性数据增长、分层架构和基础设施经济性正成为AI规模
+中新网长沙5月20日电 (记者 唐小晴)校园贷、套路贷、电信网络诈骗、假借“养老金融”“高息投资”名义非法吸存……各类套路翻新的非法金融活动，既严重侵害民众利益、扰乱金融秩序，更威胁社会稳定，对其开展系统性防范与打击刻不容缓。湖南创新宣传思路，以短视频征集大赛为载体，联动社会各界构建全民防范非法金融活动格局。 5月19日，第六届“守护钱袋子 护好幸福家”防范非法金融活动短视频征
 
 ## 正文
 
-西部数据在2026年国际电脑展上强势亮相，传递了一个核心信息：AI基础设施本质上是一个数据系统，而不仅仅是计算系统。
+中新网长沙5月20日电 (记者 唐小晴)校园贷、套路贷、电信网络诈骗、假借“养老金融”“高息投资”名义非法吸存……各类套路翻新的非法金融活动，既严重侵害民众利益、扰乱金融秩序，更威胁社会稳定，对其开展系统性防范与打击刻不容缓。
 
-公司通过主题演讲、展台演示和一系列存储创新，向业界展示了如何经济、可靠地扩展持久性AI工作负载。
+湖南创新宣传思路，以短视频征集大赛为载体，联动社会各界构建全民防范非法金融活动格局。
 
-西部数据首席产品官Ahmed Shihab在6月4日的论坛演讲中指出，AI基础设施不能再主要围绕计算性能来设计，持久性数据增长、分层架构和基础设施经济性正成为AI规模化发展的决定性约束因素。
+5月19日，第六届“守护钱袋子 护好幸福家”防范非法金融活动短视频征集大赛(湖南赛区)颁奖典礼暨2026网络主播防范非法金融活动公益宣传大使聘任仪式在长沙举行。
 
-为应对这一挑战，西部数据重点展示了其在高容量与企业级存储平台上的多项突破性技术。
+记者从现场获悉，此次活动覆盖湖南14个市州，吸引政府部门、金融机构、高校及网络达人广泛参与，形成“政府主导、部门协同、媒体联动、全民参与”的宣传合力，累计征集短视频作品900余部，以通俗易懂的形式揭露新型非法金融骗局套路。
 
-在容量方面，基于ePMR和HAMR双技术路径的路线图显示，40TB UltraSMR硬盘已进入客户认证阶段，并计划于2026年下半年量产。
+活动现场，130余名来自湖南省市县新媒体协会、金融机构、高校等各界代表获聘“湖南省防范非法金融活动网络公益宣传大使”。
 
-公司预计到2029年将实现100TB以上容量的突破，以满足AI数据湖指数级增长的需求。
+湖南省委金融办副主任彭小玲表示，互联网时代下，非法金融活动隐蔽性、迷惑性、传播力显著增强，不法分子常披着“区块链”“AI交易”“高科技”外衣混淆视听、欺骗民众，既扰乱金融秩序、侵蚀市场根基，更直接威胁群众“钱袋子”安全。
 
-在性能层面，两项行业首创的创新技术尤为引人注目。
+“需持续创新宣传方式，让‘高息诱惑是陷阱、理性投资是正道’的理念深入人心、家喻户晓。
 
-高带宽硬盘技术通过多磁头并行读写，可将带宽提升至传统硬盘的2倍，并有潜力提升至8倍；而双枢轴技术则通过在单个硬盘内增设独立执行器，将顺序IO性能提升2倍。
+” 当日同步举办的防范非法金融活动宣传专题培训上，金融、法律、警务系统专家围绕高新技术投资领域非法金融陷阱识别、防范非法金融活动宣传短视频策划等主题开展分享，为新聘任的公益宣传大使充电赋能，助力提升防范非法金融活动宣传的专业性与实效性。
 
 ## 相关推荐
 
-- 2026-06-30 07:01 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-30 07:11 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 07:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-30 07:06 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-30 06:51 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 07:03 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 07:03 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 07:02 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-30 06:58 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 06:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-30 06:51 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 07:11 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 06:55 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 07:08 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 07:04 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 07:17 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 06:54 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 07:17 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 07:08 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 06:54 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 07:21 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 07:11 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 07:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 07:23 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:14 - [恋与深空道歉声明](https://www.share.kurohicncr.top/Article/details/4771088.shtml)
-- 2026-06-30 06:58 - [毒液2](http://www.blog.minike.top/Article/details/443247.shtml)
-- 2026-06-30 06:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/01628641909.shtml)
-- 2026-06-30 07:07 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/391825191.shtml)
-- 2026-06-30 06:57 - [电影后室值得看吗](https://www.share.minike.top/Article/details/38682.shtml)
-- 2026-06-30 07:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/956375.shtml)
-- 2026-06-30 07:03 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/510186646832.shtml)
-- 2026-06-30 06:49 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/67322.shtml)
-- 2026-06-30 06:49 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/517140281.shtml)
-- 2026-06-30 07:12 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/88485.shtml)
-- 2026-06-30 07:09 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/3078682838.shtml)
-- 2026-06-30 07:10 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/307742.shtml)
-- 2026-06-30 06:58 - [小娘惹](https://www.share.kurohicncr.top/Article/details/023560.shtml)
-- 2026-06-30 07:15 - [起风了](http://www.share.minike.top/Article/details/4891386.shtml)
-- 2026-06-30 06:59 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/452719.shtml)
+- 2026-06-30 07:17 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/647627631539.shtml)
+- 2026-06-30 07:04 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/2284395.shtml)
+- 2026-06-30 06:59 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/3776671360.shtml)
+- 2026-06-30 06:54 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/04012572177.shtml)
+- 2026-06-30 07:05 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/1493350.shtml)
+- 2026-06-30 07:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/887097026.shtml)
+- 2026-06-30 06:58 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/442060865772.shtml)
+- 2026-06-30 07:20 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/37609769.shtml)
+- 2026-06-30 07:08 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/0201697930.shtml)
+- 2026-06-30 07:13 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/823749.shtml)
+- 2026-06-30 07:04 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/1734602067.shtml)
+- 2026-06-30 07:20 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/778543733.shtml)
+- 2026-06-30 07:13 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/698424123791.shtml)
+- 2026-06-30 07:07 - [三星投资计划](http://www.share.minike.top/Article/details/423233.shtml)
+- 2026-06-30 07:10 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/464091821.shtml)

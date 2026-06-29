@@ -1,60 +1,61 @@
-# 硕腾证券欺诈集体诉讼已正式提起，Frank R. Cruz律师事务所鼓励股东查询
+# 合规失守、业绩腰斩、市值缩水近九成，江西银行何以沦为“仙股”？
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-Frank R． Cruz律师事务所宣布，已代表在2025年1月14日至2026年5月6日期间购买或以其他方式收购硕腾公司证券的股东提起证券欺诈集体诉讼。该诉讼指控硕腾及其部分高管违反了联邦证券法，向投资者发布了具有重大误导性的声明。 此次诉讼的原告为Ann Arbor市退休人员医疗福利计划与信托基金，被告包括硕腾公司及部分高管。诉讼指称，在整个集体诉讼期内，被告未能向投资者披
+监管高压下，区域性城商行的合规短板持续暴露。5月15日，国家金融监督管理总局江西监管局的一纸罚单，将江西银行（01916.HK）再次推上舆论风口。因贷款管理不到位、以贷还贷掩盖不良等违法违规行为，江西银行总行被罚款40万元，南昌进贤支行被罚款50万元，合计被罚款90万元，4名相关责任人被给予警告及罚款处罚，罚没金额合计达118万元。同一天，江西银行九江分行也因贷款管理问题被罚2
 
 ## 正文
 
-Frank R． Cruz律师事务所宣布，已代表在2025年1月14日至2026年5月6日期间购买或以其他方式收购硕腾公司证券的股东提起证券欺诈集体诉讼。
+监管高压下，区域性城商行的合规短板持续暴露。
 
-该诉讼指控硕腾及其部分高管违反了联邦证券法，向投资者发布了具有重大误导性的声明。
+5月15日，国家金融监督管理总局江西监管局的一纸罚单，将江西银行（01916.HK）再次推上舆论风口。
 
-此次诉讼的原告为Ann Arbor市退休人员医疗福利计划与信托基金，被告包括硕腾公司及部分高管。
+因贷款管理不到位、以贷还贷掩盖不良等违法违规行为，江西银行总行被罚款40万元，南昌进贤支行被罚款50万元，合计被罚款90万元，4名相关责任人被给予警告及罚款处罚，罚没金额合计达118万元。
 
-诉讼指称，在整个集体诉讼期内，被告未能向投资者披露以下不利信息： 首先，硕腾的犬类疼痛治疗药物Librela的兽医处方增长和采用率正在急剧减弱。
+同一天，江西银行九江分行也因贷款管理问题被罚25万元。
 
-此前，FDA已就该药物可能导致犬类严重神经系统并发症发布了安全警告，致使兽医在开具处方时变得更加谨慎。
+作为江西省属重点法人银行、港股上市城商行，江西银行自2018年6月登陆港交所以来，曾凭借区域资源优势实现快速扩张，巅峰时期总市值一度达366亿港元。
 
-其次，硕腾的旗舰寄生虫防治产品Simparica Trio在一个增速放缓的整体市场中，正在将大量市场份额让给一款价格更低、适应症更广的竞品。
+但短短8年间，该行却陷入“处罚频发、业绩下滑、市值缩水”的三重困境，盈利规模较峰值腰斩，港股股价沦为“仙股”，与同类型城商行的差距持续拉大。
 
-第三，硕腾的皮肤病产品Apoquel和Cytopoint在一个同样增速放缓的市场中，正将大量市场份额输给一款新推出的竞品。
+罚单密集落地，违规顽疾贯穿核心业务2026年以来，银行业监管力度持续加码，《银行业监督管理法》大修落地后，监管关注重心延伸至“资金—股权—治理—经营—外包—数据—消费者”的完整链条，违法成本大幅提升。
 
-诉讼详细列出了硕腾在集体诉讼期内数次财务披露后股价暴跌的情况：2025年8月5日，硕腾发布第二季度财报，显示出伴侣动物业务需求趋势疲软，股价当日下跌近4%。
+但从年初至今，江西银行似乎陷入了一场“罚单连续剧”——贷款管理失位、票据业务违规、柜面操作漏洞，从总行到分行，合规短板全面暴露。
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 07:08 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 06:58 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 07:01 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-30 07:15 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 07:10 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 06:57 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 06:55 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 07:10 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 07:16 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 06:56 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 06:49 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 07:00 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 07:02 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-30 07:00 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 07:13 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 07:23 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 07:06 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 07:21 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 07:08 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 07:13 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 06:54 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 07:16 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 07:16 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 07:03 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 06:58 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 07:17 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 06:59 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 07:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:13 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/866296416435.shtml)
-- 2026-06-30 06:56 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/52045258.shtml)
-- 2026-06-30 07:02 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/74221668530.shtml)
-- 2026-06-30 07:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/953929184526.shtml)
-- 2026-06-30 06:49 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/10142940981.shtml)
-- 2026-06-30 06:54 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/90570710.shtml)
-- 2026-06-30 07:00 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/748444.shtml)
-- 2026-06-30 07:03 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/211673431439.shtml)
-- 2026-06-30 07:02 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/674366115458.shtml)
-- 2026-06-30 06:50 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/3220369.shtml)
-- 2026-06-30 07:10 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/01490266.shtml)
-- 2026-06-30 06:49 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/038877.shtml)
-- 2026-06-30 06:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/210760256.shtml)
-- 2026-06-30 07:16 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/736570557.shtml)
-- 2026-06-30 07:17 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/188529220.shtml)
+- 2026-06-30 07:18 - [我和我的家乡](https://www.share.minike.top/Article/details/58324.shtml)
+- 2026-06-30 07:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/355704.shtml)
+- 2026-06-30 06:59 - [请回答王牌2019](https://www.share.minike.top/Article/details/386480224552.shtml)
+- 2026-06-30 07:13 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/07455444113.shtml)
+- 2026-06-30 07:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/10084.shtml)
+- 2026-06-30 07:21 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/28092485.shtml)
+- 2026-06-30 07:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/8689271.shtml)
+- 2026-06-30 07:00 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/08204769.shtml)
+- 2026-06-30 06:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/436862372.shtml)
+- 2026-06-30 07:17 - [武磊：日本队有能力跟任何强队抗衡](https://www.share.kurohicncr.top/Article/details/371457.shtml)
+- 2026-06-30 07:00 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/6200610.shtml)
+- 2026-06-30 06:58 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/51436.shtml)
+- 2026-06-30 06:56 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/83965840832.shtml)
+- 2026-06-30 07:23 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/35134709.shtml)
+- 2026-06-30 07:13 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/8920685936.shtml)

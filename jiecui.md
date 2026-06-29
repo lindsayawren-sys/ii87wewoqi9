@@ -1,60 +1,57 @@
-# 国联民生证券孔蓉：韩股牛市由存储驱动，恒科背离源于权重股“AI叙事”欠佳，港股结构性机会仍存
+# 水果和蔬菜，你洗对了吗？
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-2026年以来，全球科技股走势分化。针对恒生科技指数为何明显跑输全球同类资产这一问题，6月2日晚，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，进行了系统拆解。视频直播>> 她指出，韩股的核心驱动力在于存储产业的AI超级周期，而恒科表现疲弱的根源在于腾讯、阿里等权重股的AI叙事暂时未能打动市场，但港股的硬件股和新上市的科技龙头已展现出独立行情，未来若权重
+果蔬清洗是日常饮食安全的关键一环。生活中，盐水浸泡、淘米水去污、洗洁精清洗、长时间泡水是不少家庭惯用的果蔬清洁方式，也被大众视作去除农残的有效手段。事实上，这些广为流传的清洁方法大多存在误区，并不具备科学去污效果。很多人习惯用盐水浸泡果蔬，但这种方式的去农残效果微乎其微。“食用盐的主要成分氯化钠本身没有降解、破坏农药分子结构的能力，对于不溶于水的脂溶性农残，以及已经渗入植物细胞
 
 ## 正文
 
-2026年以来，全球科技股走势分化。
+果蔬清洗是日常饮食安全的关键一环。
 
-针对恒生科技指数为何明显跑输全球同类资产这一问题，6月2日晚，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，进行了系统拆解。
+生活中，盐水浸泡、淘米水去污、洗洁精清洗、长时间泡水是不少家庭惯用的果蔬清洁方式，也被大众视作去除农残的有效手段。
 
-视频直播>> 她指出，韩股的核心驱动力在于存储产业的AI超级周期，而恒科表现疲弱的根源在于腾讯、阿里等权重股的AI叙事暂时未能打动市场，但港股的硬件股和新上市的科技龙头已展现出独立行情，未来若权重股迎来“谷歌时刻”，恒科修复空间可观。
+事实上，这些广为流传的清洁方法大多存在误区，并不具备科学去污效果。
 
-针对韩国股市的史诗级上涨，孔蓉认为其内核与全球科技主线高度一致，即AI与硬件的共振。
+很多人习惯用盐水浸泡果蔬，但这种方式的去农残效果微乎其微。
 
-一方面，韩国新一届政府上台后对资本市场给予了政策支持，这与A股近年来政策呵护科技板块的逻辑相似；但更关键的驱动力来自于存储产业。
+“食用盐的主要成分氯化钠本身没有降解、破坏农药分子结构的能力，对于不溶于水的脂溶性农残，以及已经渗入植物细胞内部的内吸性农残，静态盐水浸泡都没有去除效果。
 
-她表示，“三星和SK海力士带动了整个韩国市场的股价表现”，而存储板块的机会能否延续，将直接决定韩股后续走势。
+”中国农业科学院蔬菜花卉研究所副研究员许晓敏介绍。
 
-孔蓉判断，只要AI驱动的存储超级周期没有结束，韩国市场依然会受到全球资金的关注，其中存储领域是吸引力和关注度最高的环节。
+不少人深信淘米水是天然安全的果蔬清洗剂，认为其自带的弱碱性和皂苷成分可以有效去除农残，实则不然。
 
-然而，与韩股、美股科技的火热形成鲜明反差，恒生科技指数5月表现承压。
+“淘米水的去农残效果与清水差异不大，因为受米的品种、淘洗时间等影响，淘米水中的皂苷含量非常少，碱性也不稳定，难以有效去除农残。
 
 ## 相关推荐
 
-- 2026-06-30 07:09 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 07:14 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 07:08 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-30 06:51 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 06:58 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 07:02 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 07:07 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 07:06 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 06:57 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 07:17 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 06:58 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 07:17 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 06:58 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 07:03 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 07:09 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-30 07:05 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 07:14 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-30 06:58 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 06:54 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 06:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 07:18 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 07:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 07:00 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 06:57 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 07:21 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:52 - [女心理师](https://www.share.kurohicncr.top/Article/details/39554765.shtml)
-- 2026-06-30 07:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/86529851.shtml)
-- 2026-06-30 07:01 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/3754409.shtml)
-- 2026-06-30 07:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/42043532.shtml)
-- 2026-06-30 06:58 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/05691839458.shtml)
-- 2026-06-30 06:59 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/42526325114.shtml)
-- 2026-06-30 07:01 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/28123847092.shtml)
-- 2026-06-30 06:49 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/87859108588.shtml)
-- 2026-06-30 06:56 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/68188733.shtml)
-- 2026-06-30 07:16 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/260393.shtml)
-- 2026-06-30 07:15 - [日本进球](http://www.blog.kurohicncr.top/Article/details/1132187.shtml)
-- 2026-06-30 07:06 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/5017488086.shtml)
-- 2026-06-30 07:03 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/32992839.shtml)
-- 2026-06-30 06:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/9882061240.shtml)
-- 2026-06-30 06:48 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/0814835905.shtml)
+- 2026-06-30 07:12 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/2910624920.shtml)
+- 2026-06-30 07:14 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/11405144786.shtml)
+- 2026-06-30 07:00 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/43080919329.shtml)
+- 2026-06-30 06:55 - [周冬雨多次说演不了话剧文城](https://www.share.minike.top/Article/details/124244.shtml)
+- 2026-06-30 07:00 - [我和我的家乡](http://www.share.minike.top/Article/details/317002677319.shtml)
+- 2026-06-30 07:06 - [女心理师](http://www.blog.minike.top/Article/details/3831242212.shtml)
+- 2026-06-30 07:11 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/122600945.shtml)
+- 2026-06-30 07:13 - [金牌调解](http://www.blog.minike.top/Article/details/0096791.shtml)
+- 2026-06-30 06:54 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/14194562512.shtml)
+- 2026-06-30 07:21 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/696686289.shtml)
+- 2026-06-30 07:07 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/78260657.shtml)
+- 2026-06-30 06:55 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/846316.shtml)
+- 2026-06-30 07:00 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/235975633646.shtml)
+- 2026-06-30 07:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/659935902000.shtml)
+- 2026-06-30 07:20 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/937062153.shtml)

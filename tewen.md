@@ -1,47 +1,61 @@
-# 海螺水泥于6月1日耗资1207.937万元回购60万股A股
+# “两片叶子”山海牵手 闽宁两地双轮驱动赋能枸杞产业高质量发展
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-海螺水泥（00914）公布，2026 年 6 月 1 日，公司通过上海证券交易所交易系统以集中竞价交易方式首次回购 A 股股份60万股，回购最高价格人民币 20.33 元/股，回购最低价格人民币 20.00 元/股，已支付的总金额为人民币1207.937万元（不含交易费用）。责任编辑：卢昱君
+中新网银川5月20日电 (记者 李佩珊)5月20日，第二届宁夏枸杞红茶高质量发展大会在银川开幕。福建、宁夏两省区政府代表、枸杞与茶产业专家、企业负责人及海内外客商相聚银川，围绕福建红茶工艺、宁夏枸杞叶资源双轮驱动，交流闽宁茶杞融合经验，推动宁夏枸杞产业延伸产业链、提升附加值，助力特色产业稳步发展。 宁夏是世界枸杞原产地，独特的地理气候造就了优质枸杞资源，枸杞叶兼具食用与养生价值
 
 ## 正文
 
-海螺水泥（00914）公布，2026 年 6 月 1 日，公司通过上海证券交易所交易系统以集中竞价交易方式首次回购 A 股股份60万股，回购最高价格人民币 20.33 元/股，回购最低价格人民币 20.00 元/股，已支付的总金额为人民币1207.937万元（不含交易费用）。
+中新网银川5月20日电 (记者 李佩珊)5月20日，第二届宁夏枸杞红茶高质量发展大会在银川开幕。
 
-责任编辑：卢昱君
+福建、宁夏两省区政府代表、枸杞与茶产业专家、企业负责人及海内外客商相聚银川，围绕福建红茶工艺、宁夏枸杞叶资源双轮驱动，交流闽宁茶杞融合经验，推动宁夏枸杞产业延伸产业链、提升附加值，助力特色产业稳步发展。
+
+宁夏是世界枸杞原产地，独特的地理气候造就了优质枸杞资源，枸杞叶兼具食用与养生价值；福建作为世界红茶发源地，拥有成熟的制茶技术，骏眉红茶工艺广受认可，两地资源互补性强。
+
+借助闽宁协作契机，两地打破地域限制，将福建红茶制作工艺与宁夏枸杞叶相结合，研发出枸杞红茶养生茶饮，成为闽宁产业合作的务实成果。
+
+本届大会围绕产业创新、技术提升展开，重点探讨枸杞叶营养成分、红茶工艺改良、产品市场拓展等内容。
+
+业内专家现场讲解枸杞叶中黄酮、多糖等成分的养生功效，分析骏眉工艺如何优化枸杞红茶口感、保留营养物质，为枸杞红茶产业发展提供技术参考。
+
+值得一提的是，宁夏枸杞红茶是骏眉工艺首次成功应用于非传统茶叶原料的创新突破，也让枸杞红茶成为茶杞跨界融合的创新尝试。
+
+大会现场还设置了产品推介和品鉴区，通过实物展示、现场试饮，让客商直观感受枸杞红茶的口感与特色，助力产品开拓海内外市场。
 
 ## 相关推荐
 
-- 2026-06-30 06:54 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 07:13 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 07:00 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 07:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 06:57 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 07:06 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 07:15 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 06:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 07:07 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 06:49 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 07:03 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 07:02 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 06:49 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 07:08 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 07:07 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 07:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 07:02 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 07:02 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 07:18 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 07:03 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 07:10 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 07:12 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 07:04 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 06:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 07:06 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 07:08 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-30 07:05 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 07:21 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:06 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/805348667258.shtml)
-- 2026-06-30 06:50 - [美人鱼](https://www.share.minike.top/Article/details/0546655510.shtml)
-- 2026-06-30 07:09 - [我们的少年时代2](http://www.blog.minike.top/Article/details/868978466.shtml)
-- 2026-06-30 06:54 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/951383.shtml)
-- 2026-06-30 07:14 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/316348.shtml)
-- 2026-06-30 06:48 - [《贺子珍》](http://www.blog.minike.top/Article/details/7648897267.shtml)
-- 2026-06-30 07:13 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/4477667.shtml)
-- 2026-06-30 06:50 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/0835811.shtml)
-- 2026-06-30 07:02 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/260548452.shtml)
-- 2026-06-30 07:06 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/841157.shtml)
-- 2026-06-30 06:54 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/892294.shtml)
-- 2026-06-30 07:05 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/635930622606.shtml)
-- 2026-06-30 07:14 - [爱很美味](http://www.blog.minike.top/Article/details/491376974600.shtml)
-- 2026-06-30 07:14 - [起风了](https://www.share.kurohicncr.top/Article/details/642155015.shtml)
-- 2026-06-30 07:05 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/203061800.shtml)
+- 2026-06-30 07:23 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/42865.shtml)
+- 2026-06-30 07:02 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/86025.shtml)
+- 2026-06-30 07:18 - [《贺子珍》](http://www.share.minike.top/Article/details/569106307.shtml)
+- 2026-06-30 07:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/11700.shtml)
+- 2026-06-30 07:11 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/936339.shtml)
+- 2026-06-30 07:01 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/00902837.shtml)
+- 2026-06-30 06:59 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/19943279.shtml)
+- 2026-06-30 07:16 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/6782389.shtml)
+- 2026-06-30 07:01 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/52129092487.shtml)
+- 2026-06-30 07:10 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/635467573972.shtml)
+- 2026-06-30 07:07 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/72822.shtml)
+- 2026-06-30 07:10 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/04982.shtml)
+- 2026-06-30 07:08 - [天道](http://www.share.minike.top/Article/details/6534469675.shtml)
+- 2026-06-30 07:15 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/195105795924.shtml)
+- 2026-06-30 07:01 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/10891128.shtml)

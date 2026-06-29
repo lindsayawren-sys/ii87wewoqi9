@@ -1,61 +1,58 @@
-# 又见理财产品提前终止！年内约650只“早退” 揭秘背后四大推手
+# 对话管涛：黄金再货币化趋势未结束，配置价值依然存在
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-6月1日，青岛农商行发布公告称，“创富优享813号理财产品”原预计到期日为2026年11月25日，根据产品说明书相关约定，该产品已达到止盈目标收益率，触发止盈条款，将于2026年6月5日提前终止。 Wind数据显示，今年以来已有约650只理财产品提前“退场”，较去年同期的四百余只明显增长，覆盖国有行、股份行、城商行理财公司及部分中小银行自营产品。从产品类型看，既有日开型现金管理
+文章来源：北京商报 当前，跨境人民币业务保持高增长，全球货币体系格局深刻重塑，人民币国际化正进入质量提升关键阶段。5月18日，在2026清华五道口全球金融论坛期间，中银证券全球首席经济学家管涛在接受北京商报记者采访时，谈及了多个热点话题。 在管涛看来，当前人民币国际化迎来难得战略窗口期，制约进阶的核心瓶颈在于资本项目开放；货币政策将延续适度宽松取向，仍有充足操作空间，结构性工具
 
 ## 正文
 
-6月1日，青岛农商行发布公告称，“创富优享813号理财产品”原预计到期日为2026年11月25日，根据产品说明书相关约定，该产品已达到止盈目标收益率，触发止盈条款，将于2026年6月5日提前终止。
+文章来源：北京商报 当前，跨境人民币业务保持高增长，全球货币体系格局深刻重塑，人民币国际化正进入质量提升关键阶段。
 
-Wind数据显示，今年以来已有约650只理财产品提前“退场”，较去年同期的四百余只明显增长，覆盖国有行、股份行、城商行理财公司及部分中小银行自营产品。
+5月18日，在2026清华五道口全球金融论坛期间，中银证券全球首席经济学家管涛在接受北京商报记者采访时，谈及了多个热点话题。
 
-从产品类型看，既有日开型现金管理类产品，也有最低持有期产品、定期开放类产品、封闭式产品。
+在管涛看来，当前人民币国际化迎来难得战略窗口期，制约进阶的核心瓶颈在于资本项目开放；货币政策将延续适度宽松取向，仍有充足操作空间，结构性工具将优先发力；此外，对于市场高度关注的黄金话题，他认为，黄金在再货币化与全球资产再配置逻辑下长期配置价值凸显，普通投资者可坚持逢低布局，但切记避免追高炒作。
 
-理财产品提前终止的原因主要分为四类：一是达到“止盈条件”提前终止；二是产品存续规模过小，导致管理成本相对较高而提前终止；三是产品所投资的资产部分提前到期；四是管理人根据产品运作情况综合考虑后主动终止。
+人民币国际化迎战略窗口期 管涛表示，近年来跨境人民币业务保持稳健增长，人民币在境内跨境收付规模已超过美元，成为我国第一大跨境收付货币。
 
-其中，“目标止盈”机制旨在帮助投资者锁定收益。
+从全球格局看，人民币全口径国际支付份额已位居全球第三，同时是全球前三大跨境贸易融资货币、第五大外汇交易货币、第七大外汇储备货币，已确立次中心货币地位。
 
-例如，光大理财旗下的“阳光橙鑫盈打新策略优选目标盈2期（封闭式）”理财产品，原定2026年12月8日到期。
+“有关国家将货币武器化，推行不负责任的宏观经济政策，甚至制造地缘冲突，持续动摇信用基础，客观上为人民币拓展国际空间创造了条件。
 
-根据产品说明书，进入止盈观察期后，若连续两个估值日的累计净值年化收益率均不低于止盈目标收益率，即达到目标止盈条件。
+”管涛指出，中国持续为世界经济贸易提供确定性与稳定性，人民币国际影响力稳步提升，当前是人民币国际化的重要战略窗口期。
 
-该产品于2026年5月15日和5月22日满足条件，于5月27日提前终止。
+他强调，把握窗口期必须做好三件事，要把经济搞好，让持有人民币资产能赚钱；同时把市场建设好，让境外投资者理解并接受规则；此外，要稳步推进资本账户开放，提升资本进出便利度。
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 06:54 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 07:03 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 06:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 06:59 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 07:05 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 06:51 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 06:57 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 07:02 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 07:11 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 07:03 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 06:58 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 06:57 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 07:00 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 07:01 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 07:16 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 07:18 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 07:07 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 07:09 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 07:20 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 06:55 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 07:14 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 07:08 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-30 07:04 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 07:15 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 06:57 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 07:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:10 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/47893121916.shtml)
-- 2026-06-30 07:16 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/7571009.shtml)
-- 2026-06-30 07:04 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/46797687.shtml)
-- 2026-06-30 07:13 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/33673919.shtml)
-- 2026-06-30 07:04 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/7701459280.shtml)
-- 2026-06-30 06:58 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/2870718.shtml)
-- 2026-06-30 07:16 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/623170.shtml)
-- 2026-06-30 07:00 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/587443806.shtml)
-- 2026-06-30 07:16 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/208146.shtml)
-- 2026-06-30 06:52 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/0807196.shtml)
-- 2026-06-30 07:00 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/556456210522.shtml)
-- 2026-06-30 07:04 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/0778075545.shtml)
-- 2026-06-30 07:10 - [千与千寻](http://www.share.kurohicncr.top/Article/details/98783495.shtml)
-- 2026-06-30 07:04 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/44122.shtml)
-- 2026-06-30 07:06 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/0527195.shtml)
+- 2026-06-30 07:20 - [内马尔替补](http://www.share.minike.top/Article/details/85538088220.shtml)
+- 2026-06-30 07:21 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/01665.shtml)
+- 2026-06-30 07:14 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/87708063.shtml)
+- 2026-06-30 07:23 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/20147031.shtml)
+- 2026-06-30 07:14 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/2301284.shtml)
+- 2026-06-30 07:15 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/777306991544.shtml)
+- 2026-06-30 07:18 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/0587941.shtml)
+- 2026-06-30 07:20 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/742422397.shtml)
+- 2026-06-30 06:58 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/6432060.shtml)
+- 2026-06-30 07:14 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/04173576227.shtml)
+- 2026-06-30 07:10 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/032459370.shtml)
+- 2026-06-30 07:11 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/111191226205.shtml)
+- 2026-06-30 06:55 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/099745969.shtml)
+- 2026-06-30 07:01 - [时光音乐会](http://www.blog.minike.top/Article/details/7887726294.shtml)
+- 2026-06-30 06:58 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/93563.shtml)

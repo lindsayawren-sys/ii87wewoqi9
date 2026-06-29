@@ -1,56 +1,56 @@
-# 伏季休渔首月 中国海警局南海分局查办涉渔案件60起
+# 2026清华五道口全球金融论坛在成都开幕 共话全球金融治理变革
 
-> 更新时间：2026-06-30 07:18:02 UTC+8
+> 更新时间：2026-06-30 07:24:02 UTC+8
 
 ## 摘要
 
-中新网北京6月2日电(阮煜琳 张德明 匡雷 颜泽彬)记者2日获悉，6月1日，南海伏季休渔刚满一个月。5月，中国海警局南海分局联合地方涉海执法部门，精心组织、周密部署，开展全方位、立体化执法行动，南海海区休渔有序、态势平稳，为海洋渔业资源提供了良好休养生息环境。据统计，5月份中国海警局南海分局共动用海警舰艇2705艘次、航空器31架次，共查办涉渔案件60起，其中行政案件41起、刑
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 记者 张晓晖 2026年5月18日，以“变局下的全球金融治理：新挑战、新机遇、新发展”为主题的清华五道口全球金融论坛在四川成都隆重开幕。 本次论坛由清华大学主办，清华大学五道口金融学院承办，汇聚百余位海内外央行领袖、政要、顶尖学者与行业精英，围绕国际货币体系、AI与数据金融、绿色金融、西部金融中心建设等重大议题
 
 ## 正文
 
-中新网北京6月2日电(阮煜琳 张德明 匡雷 颜泽彬)记者2日获悉，6月1日，南海伏季休渔刚满一个月。
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 记者 张晓晖 2026年5月18日，以“变局下的全球金融治理：新挑战、新机遇、新发展”为主题的清华五道口全球金融论坛在四川成都隆重开幕。
 
-5月，中国海警局南海分局联合地方涉海执法部门，精心组织、周密部署，开展全方位、立体化执法行动，南海海区休渔有序、态势平稳，为海洋渔业资源提供了良好休养生息环境。
+本次论坛由清华大学主办，清华大学五道口金融学院承办，汇聚百余位海内外央行领袖、政要、顶尖学者与行业精英，围绕国际货币体系、AI与数据金融、绿色金融、西部金融中心建设等重大议题展开深度研讨。
 
-据统计，5月份中国海警局南海分局共动用海警舰艇2705艘次、航空器31架次，共查办涉渔案件60起，其中行政案件41起、刑事案件19起，查获涉案船舶62艘，查没涉案渔获物2.8万公斤；移交地方渔政处理渔船12艘。
+开幕式于上午九点正式开始。
 
-与往年相比，今年南海伏季休渔执法呈现以下几个特点：一是海区应休渔船共41461艘，较去年减少5.7%，显示出渔业结构调整的积极成效；二是中国海警局南海分局统筹部署，按照“应出尽出、应飞尽飞”的原则，积极调配执法舰船和航空器，搭建起“海空陆”立体管控网，形成高压巡查态势。
+第十二届全国政协副主席、中国人民银行原行长周小川出席开幕式。
 
-5月7日至8日，南海分局组织多艘舰艇在三亚以南海域集中登检48艘渔船，其中查获6艘未经许可违规作业渔船；三是科技赋能，充分运用科技手段，实现精准打击，探索“无人机+执法”模式，结合“智慧边海防”系统，强化动态联合监管。
+清华大学党委副书记过勇，清华大学五道口金融学院院长焦捷，浦发银行行长谢伟分别发表讲话。
 
-休渔期间，各地海警机构积极主动协同相关涉海部门联合行动，针对北部湾、粤东等重点海域，加大了夜间及隐蔽水域的巡查频次，确保“见警率”和“登检率”双提升。
+清华大学五道口金融学院副院长张晓燕担任开幕式主持人。
 
-在严格的执法态势下，仍存在有的渔船规避监管、暴力抗法等现象，尤其是底拖网禁渔区线附近的违规行为及“三无”船舶非法作业仍有发生。
+过勇在开幕致辞中表示，当前世界变局加速演进，深化全球金融对话合作、凝聚发展共识，是破解全球金融发展难题、激活行业新动能的关键。
 
-仅5月12日一晚，阳江海警就在海陵岛附近海域查获3艘在夜色中偷摸出海“电鱼”的违规渔船，现场查获虾蛄、螃蟹等渔获物一批，等待他们的将是法律的惩处。
+过勇指出，面对复杂的国际环境，中国经济稳中向好、长期向好的基本面不变，始终以自身发展的确定性对冲全球的不确定性。
 
 ## 相关推荐
 
-- 2026-06-30 07:12 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 06:57 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-30 07:03 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 06:49 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 07:10 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 06:49 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 06:50 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 06:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 07:06 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 07:17 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 07:14 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 06:55 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 06:58 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 07:01 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 07:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 07:17 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 07:09 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 07:07 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 07:11 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 07:06 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:12 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/8364732.shtml)
-- 2026-06-30 06:54 - [美股](https://www.share.kurohicncr.top/Article/details/15719637400.shtml)
-- 2026-06-30 07:03 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/701108790.shtml)
-- 2026-06-30 06:52 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/8367266494.shtml)
-- 2026-06-30 07:07 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/964476.shtml)
-- 2026-06-30 07:15 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/826693199838.shtml)
-- 2026-06-30 06:54 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/98230094.shtml)
-- 2026-06-30 07:07 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/10017.shtml)
-- 2026-06-30 06:57 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/309616.shtml)
-- 2026-06-30 06:48 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/90855.shtml)
-- 2026-06-30 06:55 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/0548249.shtml)
-- 2026-06-30 07:14 - [小娘惹](https://www.blog.minike.top/Article/details/1118857758.shtml)
-- 2026-06-30 07:06 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/120912.shtml)
-- 2026-06-30 07:04 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/7895837.shtml)
-- 2026-06-30 07:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/8450412.shtml)
+- 2026-06-30 07:03 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/1022270551.shtml)
+- 2026-06-30 07:21 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/47586706128.shtml)
+- 2026-06-30 07:15 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/85457303.shtml)
+- 2026-06-30 07:20 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/195659.shtml)
+- 2026-06-30 06:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/5653422383.shtml)
+- 2026-06-30 07:02 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/45715732.shtml)
+- 2026-06-30 07:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/8069203466.shtml)
+- 2026-06-30 07:06 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/24697103404.shtml)
+- 2026-06-30 07:07 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/95939090814.shtml)
+- 2026-06-30 06:55 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/380406277712.shtml)
+- 2026-06-30 07:19 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/471649.shtml)
+- 2026-06-30 07:20 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/9899004.shtml)
+- 2026-06-30 07:15 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/90297217.shtml)
+- 2026-06-30 07:14 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/838954313.shtml)
+- 2026-06-30 06:59 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/997302.shtml)
