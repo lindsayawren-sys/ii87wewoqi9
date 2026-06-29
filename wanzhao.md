@@ -1,58 +1,60 @@
-# 谁是黄金回收“主理人”？
+# 韩国股市收盘暴跌近10%，科技股遭遇大规模抛售
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！当“主理人”从潮牌、咖啡圈蔓延至黄金行业，这个身份标签正被年轻人赋予新的含义——销售端“主理人”和回收端“主理人”。 近期，由于金价高位波动，黄金的购买与回收呈现出两端火热的态势。不同于销售端“主理人”对产品工艺设计与品牌故事的侧重，黄金回收端“主理人”则承载着纯度鉴定、价格核算、安全交易等重要职责。 于是
+韩国股市周二暴跌近10%，受隔夜美国科技股下跌影响，外国投资者获利回吐，抛售主要半导体股票和其他权重股。韩元兑美元汇率走弱。 韩国综合股价指数（KOSPI）暴跌910.71点，跌幅达9.99%，收于8203.84点。该指数盘中一度触及9175.45点的高位。 韩国交易所（KRX）在当地时间下午2点33分左右启动熔断机制，此前韩国综合股价指数（KOSPI）较前一交易日收盘价暴跌超
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+韩国股市周二暴跌近10%，受隔夜美国科技股下跌影响，外国投资者获利回吐，抛售主要半导体股票和其他权重股。
 
-当“主理人”从潮牌、咖啡圈蔓延至黄金行业，这个身份标签正被年轻人赋予新的含义——销售端“主理人”和回收端“主理人”。
+韩元兑美元汇率走弱。
 
-近期，由于金价高位波动，黄金的购买与回收呈现出两端火热的态势。
+韩国综合股价指数（KOSPI）暴跌910.71点，跌幅达9.99%，收于8203.84点。
 
-不同于销售端“主理人”对产品工艺设计与品牌故事的侧重，黄金回收端“主理人”则承载着纯度鉴定、价格核算、安全交易等重要职责。
+该指数盘中一度触及9175.45点的高位。
 
-于是，年轻人一边热衷于通过“攒金豆”实现强制储蓄，一边紧盯每日金价波动，关注着黄金回收的每一个窗口期。
+韩国交易所（KRX）在当地时间下午2点33分左右启动熔断机制，此前韩国综合股价指数（KOSPI）较前一交易日收盘价暴跌超过8%。
 
-正如某银行在黄金回收业务宣传中所言：“养金千日，用金一时，让黄金流动起来”。
+这是韩国交易所今年第四次、也是有记录以来第十次暂停所有股票交易20分钟。
 
-记者近一个月走访调研银行回收网点、连锁回收平台、品牌金店及典当行等黄金回收“主理人”后发现，不同平台在回收定价标准、专业服务能力与服务规范上呈现出一定差异。
+美国副总统万斯昨夜表示，与伊朗达成最终协议的谈判已奠定了“非常好的基础”，调解人也报告称谈判取得进展。
 
-如何真正提高黄金的“流动性”，成为黄金回收行业亟待解决的课题。
+尽管外交方面有所进展，但美国股市收盘涨跌互现，科技股为主的纳斯达克综合指数下跌1.3%，原因是市场对大型科技公司的担忧再度升温，SpaceX股价暴跌逾16%。
 
 ## 相关推荐
 
-- 2026-06-29 15:32 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 15:34 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 15:12 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 15:22 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 15:16 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 15:31 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 15:29 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 15:19 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 15:15 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 15:14 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 15:30 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 15:30 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 15:42 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 15:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 15:29 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 15:24 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 15:31 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 15:40 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 15:26 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 15:37 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 15:44 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 15:23 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 15:45 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 15:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 15:25 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 15:46 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/88473983108.shtml)
-- 2026-06-29 15:19 - [抓特务票房破亿](https://www.share.minike.top/Article/details/4808892.shtml)
-- 2026-06-29 15:17 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/495238554.shtml)
-- 2026-06-29 15:14 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/40163864929.shtml)
-- 2026-06-29 15:12 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/924132811551.shtml)
-- 2026-06-29 15:32 - [扬名立万](http://www.share.minike.top/Article/details/556815956.shtml)
-- 2026-06-29 15:34 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/735243084.shtml)
-- 2026-06-29 15:40 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/461770875648.shtml)
-- 2026-06-29 15:27 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/639437978028.shtml)
-- 2026-06-29 15:22 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/00164682.shtml)
-- 2026-06-29 15:29 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/42156737429.shtml)
-- 2026-06-29 15:35 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/54492499131.shtml)
-- 2026-06-29 15:27 - [上海一小区水池内出现一条鳄鱼](http://www.share.kurohicncr.top/Article/details/51674.shtml)
-- 2026-06-29 15:15 - [毒液2](http://www.blog.kurohicncr.top/Article/details/993500056.shtml)
-- 2026-06-29 15:30 - [3D打印不是工业革命，它是……](https://www.share.kurohicncr.top/Article/details/493964.shtml)
+- 2026-06-29 15:28 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/424540.shtml)
+- 2026-06-29 15:23 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/635753425193.shtml)
+- 2026-06-29 15:39 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/67454452.shtml)
+- 2026-06-29 15:39 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/18801994.shtml)
+- 2026-06-29 15:28 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/72747288.shtml)
+- 2026-06-29 15:43 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/789852946.shtml)
+- 2026-06-29 15:33 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/752841847777.shtml)
+- 2026-06-29 15:22 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/5662592.shtml)
+- 2026-06-29 15:23 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/47338314.shtml)
+- 2026-06-29 15:23 - [宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/8503144.shtml)
+- 2026-06-29 15:37 - [中方回应对日本相关出口管制措施](http://www.blog.kurohicncr.top/Article/details/6641312322.shtml)
+- 2026-06-29 15:19 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/171629.shtml)
+- 2026-06-29 15:29 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/6310056682.shtml)
+- 2026-06-29 15:30 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/9336912.shtml)
+- 2026-06-29 15:40 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/597367600210.shtml)

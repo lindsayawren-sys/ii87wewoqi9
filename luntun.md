@@ -1,57 +1,61 @@
-# 中央网信办通报33款App个人信息收集使用问题
+# MLCC涨价潮调查：部分型号价格数倍跳涨，有商户捂货惜售，背后是AI需求引爆还是渠道炒作？
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网4月27日电 据“网信中国”微信公众号消息，根据中央网信办、工业和信息化部、公安部联合发布的《关于开展2026年个人信息保护系列专项行动的公告》，依据《网络安全法》《个人信息保护法》《网络数据安全管理条例》《App违法违规收集使用个人信息行为认定方法》等法律法规和有关规定，中央网信办组织对App(含小程序)收集使用个人信息行为进行检测，现对有关问题予以通报： 一、全能查询
+专题：风险降级，市场惯性前进：主线仍是算力通胀 每经记者|陈鹏丽 王晶 朱成祥 每经编辑|许绍航 一场围绕“电子工业大米”MLCC（多层陶瓷电容器）的超级周期，似乎才刚刚拉开序幕。 2026年5月以来，一种名为MLCC的基础电子元件，彻底摆脱了过去几年不温不火的行情，成为市场追捧的焦点。从二级市场到线下卖场，这股热潮在深圳华强北、上海赛格电子市场里得到了最直观的体现：一些高规格
 
 ## 正文
 
-中新网4月27日电 据“网信中国”微信公众号消息，根据中央网信办、工业和信息化部、公安部联合发布的《关于开展2026年个人信息保护系列专项行动的公告》，依据《网络安全法》《个人信息保护法》《网络数据安全管理条例》《App违法违规收集使用个人信息行为认定方法》等法律法规和有关规定，中央网信办组织对App(含小程序)收集使用个人信息行为进行检测，现对有关问题予以通报： 一、全能查询宝、商伴同恒等15款App无个人信息收集使用规则或在首次运行时未通过弹窗等明显方式提示用户阅读个人信息收集使用规则(详见下表)。
+专题：风险降级，市场惯性前进：主线仍是算力通胀 每经记者|陈鹏丽 王晶 朱成祥 每经编辑|许绍航 一场围绕“电子工业大米”MLCC（多层陶瓷电容器）的超级周期，似乎才刚刚拉开序幕。
 
-二、雅思斩单词、票豆等2款App未逐一列出收集使用个人信息的SDK，未取得用户同意(详见下表)。
+2026年5月以来，一种名为MLCC的基础电子元件，彻底摆脱了过去几年不温不火的行情，成为市场追捧的焦点。
 
-三、贝利自动点击器、万达普惠等4款App违反必要原则，收集与其提供的服务无关的个人信息(详见下表)。
+从二级市场到线下卖场，这股热潮在深圳华强北、上海赛格电子市场里得到了最直观的体现：一些高规格型号的MLCC，价格相比年初已经翻了三至五倍，商户直言MLCC现在“一天一个价”，甚至还有商户向记者“诉苦”称，敲定订单后，“时隔两小时去拿货却涨价五成”。
 
-四、初念、零零汽等12款App未提供有效账号注销途径或为用户注销账号设置不合理条件(详见下表)。
+“很多客户担心后面涨，都在询价‧‧‧‧‧‧（上游）有些人手上有（货），他也告诉你没有。
 
-相关App运营者应当于本通报发布之日起的15个工作日内完成整改，并将整改情况报网信办。
+”一位深圳的电容贸易商向记者描述着市场的微妙心态。
 
-网信办将会同有关部门进行核查，并结合整改情况依法依规开展处置处罚。
+在这场涨价风波中，有人看好后市，宁愿压在手里也不出货；也有从其他行业跨界而来的资金入场囤货，试图分一杯羹。
 
-联系电话：010-55635865，邮箱：appzhili@cac.gov.cn
+这场席卷市场的涨价潮，究竟是AI算力需求井喷点燃的“真火”，还是渠道炒作拱起来的“虚火”？
+
+记者通过走访市场、采访产业链上下游的多位人士，试图还原此轮MLCC行情背后的真相。
 
 ## 相关推荐
 
-- 2026-06-29 15:12 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 15:19 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 15:34 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 15:29 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 15:41 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 15:19 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 15:40 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 15:23 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 15:40 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 15:26 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 15:35 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 15:32 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 15:33 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 15:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 15:31 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 15:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 15:33 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 15:47 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 15:24 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 15:41 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 15:29 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 15:44 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 15:28 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 15:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 15:26 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 15:31 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 15:23 - [恋与深空 731](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 15:27 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:41 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/21203405212.shtml)
-- 2026-06-29 15:30 - [志愿选择倒计时！浙大学生送祝福](http://www.share.kurohicncr.top/Article/details/7993432.shtml)
-- 2026-06-29 15:37 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/89886.shtml)
-- 2026-06-29 15:18 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/7470455.shtml)
-- 2026-06-29 15:28 - [给阿嬷的情书海外口碑](https://www.blog.minike.top/Article/details/6106674334.shtml)
-- 2026-06-29 15:37 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.minike.top/Article/details/65153807007.shtml)
-- 2026-06-29 15:33 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/634770.shtml)
-- 2026-06-29 15:35 - [恋与深空 731](https://www.blog.kurohicncr.top/Article/details/61735.shtml)
-- 2026-06-29 15:29 - [媒体人：警惕日本再次成战争加害国](http://www.share.minike.top/Article/details/930872138058.shtml)
-- 2026-06-29 15:20 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.kurohicncr.top/Article/details/621976.shtml)
-- 2026-06-29 15:15 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/71956.shtml)
-- 2026-06-29 15:21 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/92219610454.shtml)
-- 2026-06-29 15:39 - [把古诗里的动作换成加班](https://www.share.kurohicncr.top/Article/details/173114.shtml)
-- 2026-06-29 15:21 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/39507.shtml)
-- 2026-06-29 15:13 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/93708515721.shtml)
+- 2026-06-29 15:29 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.kurohicncr.top/Article/details/78613599.shtml)
+- 2026-06-29 15:21 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/28060574797.shtml)
+- 2026-06-29 15:47 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/9259775045.shtml)
+- 2026-06-29 15:33 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/526571963.shtml)
+- 2026-06-29 15:29 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/125156574.shtml)
+- 2026-06-29 15:32 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/337378853.shtml)
+- 2026-06-29 15:43 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.kurohicncr.top/Article/details/259552489153.shtml)
+- 2026-06-29 15:40 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/094001.shtml)
+- 2026-06-29 15:25 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/449961.shtml)
+- 2026-06-29 15:30 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/8010084812.shtml)
+- 2026-06-29 15:22 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/00299078.shtml)
+- 2026-06-29 15:24 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/62696602.shtml)
+- 2026-06-29 15:35 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/030915893.shtml)
+- 2026-06-29 15:23 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/089839582468.shtml)
+- 2026-06-29 15:40 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/28368895769.shtml)

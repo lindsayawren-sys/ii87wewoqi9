@@ -1,53 +1,52 @@
-# 日本岩手县已有超3000人因山火接到避难指示
+# 商务部等九部门：支持符合条件的汽车租赁及电池营运主体享受贷款贴息等政策
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网东京4月28日电 据日本共同社28日报道，岩手县大槌町22日发生山火后，当地已有超过3000名居民接到避难指示。 据报道，当地山火28日进入第7天，火势大体已得到控制。截至28日上午，过火面积已达1633公顷。此外，包括住宅在内的8栋建筑在火灾中受损。 岩手县28日发布消息说，当日将出动约1400名消防人员继续进行地面灭火。(完)
+6月23日金融一线消息，商务部等9部门联合印发《关于培育壮大汽车后市场消费若干措施的通知》，其中提到，支持汽车租赁产业融合升级。培育壮大经营主体，推动租赁企业与汽车产业深度融合，通过集采、回购、二手车经销、二手车出口等模式打通产业链。支持符合条件的汽车租赁及电池营运主体享受贷款贴息等政策。提升汽车租赁供给能力。鼓励汽车租赁企业品牌化、连锁化、规模化发展，完善小微型客车租赁服务网
 
 ## 正文
 
-中新网东京4月28日电 据日本共同社28日报道，岩手县大槌町22日发生山火后，当地已有超过3000名居民接到避难指示。
+6月23日金融一线消息，商务部等9部门联合印发《关于培育壮大汽车后市场消费若干措施的通知》，其中提到，支持汽车租赁产业融合升级。
 
-据报道，当地山火28日进入第7天，火势大体已得到控制。
+培育壮大经营主体，推动租赁企业与汽车产业深度融合，通过集采、回购、二手车经销、二手车出口等模式打通产业链。
 
-截至28日上午，过火面积已达1633公顷。
+支持符合条件的汽车租赁及电池营运主体享受贷款贴息等政策。
 
-此外，包括住宅在内的8栋建筑在火灾中受损。
+提升汽车租赁供给能力。
 
-岩手县28日发布消息说，当日将出动约1400名消防人员继续进行地面灭火。
+鼓励汽车租赁企业品牌化、连锁化、规模化发展，完善小微型客车租赁服务网络，支持“异地还车”“以租代购”等多元化服务模式创新，以及汽车租赁保险产品创新，完善保险服务，降低消费者用车成本。
 
-(完)
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 15:39 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 15:40 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 15:30 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 15:21 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 15:14 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 15:24 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 15:41 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 15:39 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 15:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 15:19 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 15:33 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 15:42 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 15:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 15:38 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 15:43 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 15:46 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 15:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 15:35 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 15:46 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 15:44 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:33 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/01269962.shtml)
-- 2026-06-29 15:40 - [国家体育总局政策法规司原副司长获刑](https://www.blog.kurohicncr.top/Article/details/2659989.shtml)
-- 2026-06-29 15:22 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/56363187.shtml)
-- 2026-06-29 15:39 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/6278959.shtml)
-- 2026-06-29 15:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/85814.shtml)
-- 2026-06-29 15:32 - [抓特务票房破亿](http://www.share.minike.top/Article/details/996009743346.shtml)
-- 2026-06-29 15:26 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/10571.shtml)
-- 2026-06-29 15:14 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/870916559037.shtml)
-- 2026-06-29 15:26 - [媒体：网络测评不能只剩“生意”](https://www.blog.kurohicncr.top/Article/details/1905124043.shtml)
-- 2026-06-29 15:17 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/873435.shtml)
-- 2026-06-29 15:28 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/83020199431.shtml)
-- 2026-06-29 15:40 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/203399988258.shtml)
-- 2026-06-29 15:33 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/49094811.shtml)
-- 2026-06-29 15:28 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/8420309.shtml)
-- 2026-06-29 15:19 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/98238.shtml)
+- 2026-06-29 15:26 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.kurohicncr.top/Article/details/9653952857.shtml)
+- 2026-06-29 15:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/78827160.shtml)
+- 2026-06-29 15:29 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/6944428928.shtml)
+- 2026-06-29 15:18 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/675587384351.shtml)
+- 2026-06-29 15:45 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/0766511777.shtml)
+- 2026-06-29 15:21 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/66528479670.shtml)
+- 2026-06-29 15:20 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/28562507.shtml)
+- 2026-06-29 15:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/66074.shtml)
+- 2026-06-29 15:24 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.kurohicncr.top/Article/details/49879275850.shtml)
+- 2026-06-29 15:25 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/267183020031.shtml)
+- 2026-06-29 15:20 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/1031844380.shtml)
+- 2026-06-29 15:42 - [周深双眼皮贴又掉了](http://www.blog.minike.top/Article/details/93812.shtml)
+- 2026-06-29 15:40 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/572345.shtml)
+- 2026-06-29 15:27 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/5015871.shtml)
+- 2026-06-29 15:37 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/55350025205.shtml)

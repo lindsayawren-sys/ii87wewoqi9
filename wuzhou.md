@@ -1,51 +1,59 @@
-# 东盟中青年成广西凭祥入境游主力
+# 博时基金市场异动陪伴6月22日：沪深三大指数上涨，沪指涨超1.7%，深证成指、创业板指均涨超2%
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月26日 12:25 来源：中国新闻网 广西凭祥地处中越边境，境内友谊关口岸是中国通往东盟最为便捷的陆路通道之一。当前，东盟客源市场正日趋年轻化，游客对科技体验、商贸旅游青睐有加。25岁至45岁的中青年游客，成为当地入境游主力军。 据了解，中越游客互访有着明显特征，中国游客赴越南旅游旨在体验民俗风情，越南游客赴中国旅游则更关心中国的文化、经济和商品。(陈
+♨博时基金市场异动陪伴 🔆市场表现： 6月22日，沪深三大指数上涨，沪指涨超1.7%，深证成指、创业板指均涨超2%。 👉解析： ‼今日A股三大指数全线走强，非银金融与有色金属板块涨幅居前，创业板涨超2.5%，主要受地缘风险阶段性降温与资本市场改革政策组合拳的双重提振。美伊首轮高级别会谈在瑞士比尔根山历经约18小时拉锯式磋商后，双方同意转入技术层面继续推进，围绕霍尔木兹海峡通航和
 
 ## 正文
 
-发布时间：2026年04月26日 12:25 来源：中国新闻网 广西凭祥地处中越边境，境内友谊关口岸是中国通往东盟最为便捷的陆路通道之一。
+♨博时基金市场异动陪伴 🔆市场表现： 6月22日，沪深三大指数上涨，沪指涨超1.7%，深证成指、创业板指均涨超2%。
 
-当前，东盟客源市场正日趋年轻化，游客对科技体验、商贸旅游青睐有加。
+👉解析： ‼今日A股三大指数全线走强，非银金融与有色金属板块涨幅居前，创业板涨超2.5%，主要受地缘风险阶段性降温与资本市场改革政策组合拳的双重提振。
 
-25岁至45岁的中青年游客，成为当地入境游主力军。
+美伊首轮高级别会谈在瑞士比尔根山历经约18小时拉锯式磋商后，双方同意转入技术层面继续推进，围绕霍尔木兹海峡通航和黎巴嫩局势等议题形成了一定的沟通机制，这一积极进展推动了全球风险偏好回升，国际油价有所回落，亚太股市普遍走高。
 
-据了解，中越游客互访有着明显特征，中国游客赴越南旅游旨在体验民俗风情，越南游客赴中国旅游则更关心中国的文化、经济和商品。
+国内方面，上周陆家嘴论坛密集释放的一揽子政策利好持续发酵，资本市场改革预期明朗化，成为推动A股上行的核心内生动能。
 
-(陈沿佑 俞靖 杨陈 广西凭祥报道） 责任编辑：【周驰】
+‼2026陆家嘴论坛上，证监会宣布将科创板第五套上市标准扩大至人工智能领域，并支持量子科技、生物制造、具身智能等更多“硬科技”企业在科创板上市。
+
+央行宣布研究设立特定情景非银流动性支持工具，并将授权六家银行在上海自贸区开展离岸人民币外汇交易试点。
+
+外汇局宣布新增推出“一揽子”增量政策，并发放新一批QDII额度。
+
+这些政策举措覆盖了资本市场制度优化、流动性管理工具创新和金融高水平开放等多个维度，有助于提升市场对中长期政策环境的信心。
 
 ## 相关推荐
 
-- 2026-06-29 15:27 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 15:33 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 15:25 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 15:18 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 15:30 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 15:13 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 15:24 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 15:31 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 15:36 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 15:19 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 15:30 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 15:22 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 15:23 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 15:32 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 15:21 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 15:35 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 15:23 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 15:21 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 15:20 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 15:24 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 15:39 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 15:27 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 15:36 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 15:21 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [德国队前往比赛场地遭遇囧途](http://www.share.kurohicncr.top/Article/details/852328343.shtml)
-- 2026-06-29 15:33 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.kurohicncr.top/Article/details/20930814258.shtml)
-- 2026-06-29 15:36 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/813734091.shtml)
-- 2026-06-29 15:20 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/549927772.shtml)
-- 2026-06-29 15:23 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/4078540.shtml)
-- 2026-06-29 15:13 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/70621991.shtml)
-- 2026-06-29 15:18 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/79043555977.shtml)
-- 2026-06-29 15:26 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/670051950900.shtml)
-- 2026-06-29 15:22 - [恋与深空评分暴跌至1.8](http://www.blog.kurohicncr.top/Article/details/99908742690.shtml)
-- 2026-06-29 15:37 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/483855613560.shtml)
-- 2026-06-29 15:30 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/93260699998.shtml)
-- 2026-06-29 15:27 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/224325.shtml)
-- 2026-06-29 15:35 - [发反科学内容为何会有200万粉丝](http://www.blog.kurohicncr.top/Article/details/66963.shtml)
-- 2026-06-29 15:37 - [以前不让妆女二可以艳压女主](http://www.blog.minike.top/Article/details/99954.shtml)
-- 2026-06-29 15:12 - [逃狱兄弟](http://www.share.minike.top/Article/details/92565.shtml)
+- 2026-06-29 15:47 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/156798.shtml)
+- 2026-06-29 15:35 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/54393976.shtml)
+- 2026-06-29 15:26 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/36400816.shtml)
+- 2026-06-29 15:30 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/370801928.shtml)
+- 2026-06-29 15:31 - [5万块的威力](https://www.share.minike.top/Article/details/5464243801.shtml)
+- 2026-06-29 15:39 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/000227816317.shtml)
+- 2026-06-29 15:35 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/13172398.shtml)
+- 2026-06-29 15:25 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/188953.shtml)
+- 2026-06-29 15:21 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/25606777.shtml)
+- 2026-06-29 15:20 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/760495730.shtml)
+- 2026-06-29 15:44 - [森保一：日本队要亲手改写历史](http://www.blog.minike.top/Article/details/148365.shtml)
+- 2026-06-29 15:38 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/59058312.shtml)
+- 2026-06-29 15:40 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/2585497.shtml)
+- 2026-06-29 15:34 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/1988907.shtml)
+- 2026-06-29 15:20 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/90617017084.shtml)

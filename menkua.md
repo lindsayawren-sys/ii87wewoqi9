@@ -1,57 +1,56 @@
-# 迈威生物-B首挂上市 早盘上涨5.28%
+# 开行超2万列、货值破6500亿 重庆中欧班列亮出十年“成绩单”
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-迈威生物-B（02493）首挂上市，公告显示，每股定价27.64港元，共发行4713.02万股股份，每手200股，所得款项净额约11.89亿港元。截至发稿，股价上涨5.28%，现报29.10港元，成交额5842.71万港元。 公开资料显示，迈威生物（02493）是一家具备从药物发现至商业化销售的端到端能力的创新药企，其研发布局集中在当下备受瞩目的ADC（抗体偶联药物）与TCE（
+发布时间：2026年06月22日 07:30 来源：中国新闻网 近日，中欧班列统一品牌10周年主题采访活动走进重庆。据悉，从2011年全国首趟“渝新欧”班列驶出，到统一品牌十年来累计开行超2万列、运输货值超6500亿元，一份份亮眼的“成绩单”勾勒出重庆中欧班列这十年的跨越式发展。 特别是近5年来，作为全国首个跨省域班列品牌的中欧班列(成渝)，累计开行超过2.8万列，开行量居全国
 
 ## 正文
 
-迈威生物-B（02493）首挂上市，公告显示，每股定价27.64港元，共发行4713.02万股股份，每手200股，所得款项净额约11.89亿港元。
+发布时间：2026年06月22日 07:30 来源：中国新闻网 近日，中欧班列统一品牌10周年主题采访活动走进重庆。
 
-截至发稿，股价上涨5.28%，现报29.10港元，成交额5842.71万港元。
+据悉，从2011年全国首趟“渝新欧”班列驶出，到统一品牌十年来累计开行超2万列、运输货值超6500亿元，一份份亮眼的“成绩单”勾勒出重庆中欧班列这十年的跨越式发展。
 
-公开资料显示，迈威生物（02493）是一家具备从药物发现至商业化销售的端到端能力的创新药企，其研发布局集中在当下备受瞩目的ADC（抗体偶联药物）与TCE（T细胞衔接抗体）两大热门肿瘤领域。
+特别是近5年来，作为全国首个跨省域班列品牌的中欧班列(成渝)，累计开行超过2.8万列，开行量居全国前列。
 
-公司的王牌产品9MW2821临床进度全球领先，多项适应症已进入III期临床阶段；与此同时，公司已有4款产品实现商业化，初步验证了从研发到销售的全链条兑现能力。
+十年来，重庆中欧班列开行频次由最初的日均0.8列，增长到如今的日均7.5列。
 
-值得注意的是，上交所及深交所发布公告称，因迈威生物-B在香港联合交易所有限公司上市不适用价格稳定期机制，且相应A股上市满10个交易日，港股通标的证券名单调入迈威生物-B，4月28日起生效。
+重庆中欧班列的稳定运行，助推重庆智能网联新能源汽车、新一代电子信息制造业、先进材料三大万亿级主导产业集群的发展。
 
-据悉，2022年1月，公司A股在上交所科创板上市，并于2024年3月获纳入富时全球股票指数。
+得益于此，重庆中欧班列本地货源占比不断提升。
 
-责任编辑：卢昱君
+(记者 肖江川） 责任编辑：【陈海峰】
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 15:19 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 15:30 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 15:14 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 15:24 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 15:39 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 15:41 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 15:21 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 15:33 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 15:33 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 15:29 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 15:29 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 15:15 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 15:18 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 15:30 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 15:27 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 15:32 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 15:45 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 15:22 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 15:44 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 15:32 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 15:18 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 15:40 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 15:40 - [驻日美军航母沦为“毒窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 15:32 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:13 - [小娘惹](http://www.share.kurohicncr.top/Article/details/66837.shtml)
-- 2026-06-29 15:13 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/58703.shtml)
-- 2026-06-29 15:21 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/093874977.shtml)
-- 2026-06-29 15:17 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/64240854594.shtml)
-- 2026-06-29 15:16 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/11306190.shtml)
-- 2026-06-29 15:41 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/367371.shtml)
-- 2026-06-29 15:37 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/80721206558.shtml)
-- 2026-06-29 15:12 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/2953434.shtml)
-- 2026-06-29 15:27 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/9304116675.shtml)
-- 2026-06-29 15:19 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/4109128.shtml)
-- 2026-06-29 15:20 - [南非老帅布罗斯的梦没能做完](https://www.blog.kurohicncr.top/Article/details/928103.shtml)
-- 2026-06-29 15:31 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/409692785548.shtml)
-- 2026-06-29 15:39 - [妹妹的正确用法！](http://www.blog.kurohicncr.top/Article/details/54955250932.shtml)
-- 2026-06-29 15:35 - [赵露思爸爸拍vlog翻车了](http://www.blog.minike.top/Article/details/0560569.shtml)
-- 2026-06-29 15:29 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/96638601523.shtml)
+- 2026-06-29 15:18 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.minike.top/Article/details/67857613.shtml)
+- 2026-06-29 15:46 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/433913824.shtml)
+- 2026-06-29 15:46 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/086507.shtml)
+- 2026-06-29 15:33 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/5828208514.shtml)
+- 2026-06-29 15:33 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/434500897.shtml)
+- 2026-06-29 15:19 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/04014177545.shtml)
+- 2026-06-29 15:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/127826.shtml)
+- 2026-06-29 15:37 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/13995310.shtml)
+- 2026-06-29 15:40 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/2755121.shtml)
+- 2026-06-29 15:39 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/332676334602.shtml)
+- 2026-06-29 15:25 - [袁隆平院士 不容诋毁！](https://www.share.kurohicncr.top/Article/details/2331736.shtml)
+- 2026-06-29 15:23 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/923743446.shtml)
+- 2026-06-29 15:34 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/010345846518.shtml)
+- 2026-06-29 15:21 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/0423752397.shtml)
+- 2026-06-29 15:19 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/04234.shtml)

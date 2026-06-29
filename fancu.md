@@ -1,47 +1,58 @@
-# 为人民出政绩丨“既要做显功，也要做潜功”
+# 中新网评：滴露被骂，一点都不冤
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月27日 15:01 来源：人民网-中国共产党新闻网 责任编辑：【杜晓姣】
+中新网北京6月23日电(记者 查志远)“我可以不是第一次，但我未来的老婆可不行”“还好我遇到现在这个她，干干净净没被别的男人污染过”…… 这些话不是出自某个匿名论坛的帖子，而是知名消毒品牌滴露投放的衣物消毒液广告台词。 一个卖消毒液的品牌，硬生生把“除菌”变成了“除人”，把女性的情感经历等同于“污渍”和“污染”。 滴露被骂，一点都不冤。这则广告最令人不适的，是其赤裸裸的双重标准
 
 ## 正文
 
-发布时间：2026年04月27日 15:01 来源：人民网-中国共产党新闻网 责任编辑：【杜晓姣】
+中新网北京6月23日电(记者 查志远)“我可以不是第一次，但我未来的老婆可不行”“还好我遇到现在这个她，干干净净没被别的男人污染过”…… 这些话不是出自某个匿名论坛的帖子，而是知名消毒品牌滴露投放的衣物消毒液广告台词。
+
+一个卖消毒液的品牌，硬生生把“除菌”变成了“除人”，把女性的情感经历等同于“污渍”和“污染”。
+
+滴露被骂，一点都不冤。
+
+这则广告最令人不适的，是其赤裸裸的双重标准。
+
+广告中的男性角色可以拥有过往情感经历，可以被默许和包容；女性却必须剥离自我的情感选择权，以“无过往、无同居经历”作为所谓的“洁净标准”。
+
+男性是“有过经历”，女性则是“被污染过”，同一个事实，两套话语体系，一套宽容，一套审判。
+
+这种将女性物化为可供男性评判的物品的逻辑，与滴露“杀菌消毒”的产品功能形成了一种恶趣味的隐喻关联，仿佛女性需要像衣物一样被“净化”，才能符合某种标准。
+
+这不是创意，是恶意。
 
 ## 相关推荐
 
-- 2026-06-29 15:33 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 15:15 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 15:26 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 15:41 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 15:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 15:16 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 15:22 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 15:15 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 15:29 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 15:15 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 15:15 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 15:14 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 15:38 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 15:17 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 15:21 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 15:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 15:35 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 15:39 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 15:23 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 15:25 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 15:20 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 15:21 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 15:24 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 15:31 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 15:43 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 15:35 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 15:38 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:32 - [周锡玮：做堂堂正正的中国人](http://www.blog.minike.top/Article/details/94075138.shtml)
-- 2026-06-29 15:36 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/653495.shtml)
-- 2026-06-29 15:16 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.minike.top/Article/details/237272.shtml)
-- 2026-06-29 15:28 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/962058.shtml)
-- 2026-06-29 15:40 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/8207383137.shtml)
-- 2026-06-29 15:28 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/3221847588.shtml)
-- 2026-06-29 15:23 - [毕业群都在出什么东西](https://www.share.minike.top/Article/details/41994.shtml)
-- 2026-06-29 15:21 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/3349147.shtml)
-- 2026-06-29 15:12 - [啊啊啊](http://www.share.minike.top/Article/details/42687530579.shtml)
-- 2026-06-29 15:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/66222131.shtml)
-- 2026-06-29 15:16 - [比亚迪市值为何蒸发8000亿](https://www.share.kurohicncr.top/Article/details/6338123.shtml)
-- 2026-06-29 15:40 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/957578541313.shtml)
-- 2026-06-29 15:33 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/139956520.shtml)
-- 2026-06-29 15:33 - [ENC瓦中国香港负印度数据图](http://www.share.minike.top/Article/details/15227097091.shtml)
-- 2026-06-29 15:30 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/48676.shtml)
+- 2026-06-29 15:32 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/775047357104.shtml)
+- 2026-06-29 15:40 - [南部战区位南海海域进行例行巡航](https://www.blog.kurohicncr.top/Article/details/0050720170.shtml)
+- 2026-06-29 15:35 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/1557803258.shtml)
+- 2026-06-29 15:28 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/23665550.shtml)
+- 2026-06-29 15:41 - [南非老帅布罗斯的梦没能做完](https://www.share.minike.top/Article/details/21455978.shtml)
+- 2026-06-29 15:43 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/281814360024.shtml)
+- 2026-06-29 15:40 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/7772108.shtml)
+- 2026-06-29 15:25 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/0692533787.shtml)
+- 2026-06-29 15:39 - [T1 vs KC MSI](http://www.blog.minike.top/Article/details/22101.shtml)
+- 2026-06-29 15:47 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/7535477.shtml)
+- 2026-06-29 15:26 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/91329490953.shtml)
+- 2026-06-29 15:19 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/43515416855.shtml)
+- 2026-06-29 15:20 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/11027468.shtml)
+- 2026-06-29 15:48 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/09312.shtml)
+- 2026-06-29 15:44 - [84岁英国教授成中国网红](http://www.share.minike.top/Article/details/259974.shtml)

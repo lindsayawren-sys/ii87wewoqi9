@@ -1,60 +1,58 @@
-# 中国国际法学会2026年学术年会在上海举行
+# 英伟达：将为机器人和物理AI提供安全系统
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网上海4月27日电 (记者 谢雁冰)今年是东京审判开庭80周年。4月24日至26日，中国国际法学会2026年学术年会在上海举行，千余名专家学者参会。 本届年会以“坚守国际法治，完善全球治理”为主题，围绕“以正确的国际法观坚定维护战后国际秩序”主线，聚焦涉外法治、全球治理、国际争端解决、新兴领域法治等重大议题展开研讨。 结合当前国际形势，本届年会设置了5场专题研讨会。“以正确
+英伟达正在将其用于自动驾驶汽车的安全系统扩展至机器人和物理AI领域。 这家芯片制造商周一发布了Halos for Robotics，旨在随着自主机器人规模的扩大而提高安全性。该系统允许公司依赖一个连接了AI计算、系统软件、传感器数据、安全应用和检查的标准化、统一的安全系统。 英伟达机器人和边缘AI副总裁迪普·塔拉表示：“物理AI正在改变工厂、仓库和物流业务的运作方式，机器人团队
 
 ## 正文
 
-中新网上海4月27日电 (记者 谢雁冰)今年是东京审判开庭80周年。
+英伟达正在将其用于自动驾驶汽车的安全系统扩展至机器人和物理AI领域。
 
-4月24日至26日，中国国际法学会2026年学术年会在上海举行，千余名专家学者参会。
+这家芯片制造商周一发布了Halos for Robotics，旨在随着自主机器人规模的扩大而提高安全性。
 
-本届年会以“坚守国际法治，完善全球治理”为主题，围绕“以正确的国际法观坚定维护战后国际秩序”主线，聚焦涉外法治、全球治理、国际争端解决、新兴领域法治等重大议题展开研讨。
+该系统允许公司依赖一个连接了AI计算、系统软件、传感器数据、安全应用和检查的标准化、统一的安全系统。
 
-结合当前国际形势，本届年会设置了5场专题研讨会。
+英伟达机器人和边缘AI副总裁迪普·塔拉表示：“物理AI正在改变工厂、仓库和物流业务的运作方式，机器人团队需要一个统一的安全架构，以便将自主系统扩展到这些环境中。
 
-“以正确的国际法观坚定维护战后国际秩序”暨“纪念东京审判开庭80周年”研讨会、“调解发展新态势——国际调解院工作展望和建议”研讨会、“南海仲裁案非法裁决再批驳”研讨会、“国际气候变化法与全球气候治理”研讨会和“全球治理加速变革期下的外空法发展”研讨会，系统回应新时代国际法重大理论与实践问题。
+” 英伟达表示，人形机器人和物理AI公司Agility是第一家使用Halos for Robotics系统的公司。
 
-会议由中国国际法学会与华东政法大学主办，华东政法大学国际法学院承办。
+Agility将把该系统用于其人形机器人，这些机器人为亚马逊、GXO、舍弗勒（Schaeffler）和丰田汽车加拿大制造公司等客户在工厂、仓库和物流业务中提供服务。
 
-4月25日，中国国际法学会正式公开发表《关于呼吁世界各国遵守国际法、反对非法使用武力的声明》。
+英伟达表示，用于其IGX平台的Halos Core已面向注册开发者提供抢先体验版，支持Linux以及Linux加QNX OS for Safety 8.0的配置。
 
-(完)
+该公司表示，开源的Nvidia Halos Outside-In Safety Blueprint现已在GitHub上提供抢先体验版。
 
 ## 相关推荐
 
-- 2026-06-29 15:27 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 15:33 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 15:22 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 15:24 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 15:27 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 15:38 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 15:39 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 15:24 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 15:28 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 15:30 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 15:13 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 15:29 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 15:30 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 15:41 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 15:32 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 15:29 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 15:38 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 15:30 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 15:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 15:23 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 15:30 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 15:30 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 15:39 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 15:29 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 15:37 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 15:26 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:17 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/564288.shtml)
-- 2026-06-29 15:22 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/742994794.shtml)
-- 2026-06-29 15:15 - [市民骑哈啰单车79分钟被收费30元](http://www.share.minike.top/Article/details/80935196.shtml)
-- 2026-06-29 15:31 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/40043761020.shtml)
-- 2026-06-29 15:13 - [德云色预测世界杯16强](https://www.share.kurohicncr.top/Article/details/6169824.shtml)
-- 2026-06-29 15:14 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/791711720655.shtml)
-- 2026-06-29 15:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/5309790427.shtml)
-- 2026-06-29 15:16 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/965483571.shtml)
-- 2026-06-29 15:24 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/8416513509.shtml)
-- 2026-06-29 15:13 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/25262886246.shtml)
-- 2026-06-29 15:24 - [东部机场集团新增釜山航线](http://www.blog.kurohicncr.top/Article/details/0108729.shtml)
-- 2026-06-29 15:20 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/349740566162.shtml)
-- 2026-06-29 15:40 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/623067.shtml)
-- 2026-06-29 15:41 - [恋与深空 731](http://www.blog.minike.top/Article/details/5405974734.shtml)
-- 2026-06-29 15:18 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/90302.shtml)
+- 2026-06-29 15:43 - [T1零封KC MSI](https://www.share.minike.top/Article/details/15163.shtml)
+- 2026-06-29 15:33 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/80931101.shtml)
+- 2026-06-29 15:37 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/312002422.shtml)
+- 2026-06-29 15:18 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/63201.shtml)
+- 2026-06-29 15:32 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/823528975170.shtml)
+- 2026-06-29 15:42 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/0822667.shtml)
+- 2026-06-29 15:29 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.kurohicncr.top/Article/details/44514.shtml)
+- 2026-06-29 15:40 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/21893253700.shtml)
+- 2026-06-29 15:26 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/6668574418.shtml)
+- 2026-06-29 15:47 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/72840.shtml)
+- 2026-06-29 15:21 - [上班主打一个薪尽自然凉](https://www.blog.kurohicncr.top/Article/details/8666236840.shtml)
+- 2026-06-29 15:29 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/722768995.shtml)
+- 2026-06-29 15:42 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.minike.top/Article/details/396075863.shtml)
+- 2026-06-29 15:27 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/6392317.shtml)
+- 2026-06-29 15:22 - [南部战区位南海海域进行例行巡航](http://www.share.kurohicncr.top/Article/details/661851.shtml)

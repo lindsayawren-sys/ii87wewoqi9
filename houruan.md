@@ -1,48 +1,56 @@
-# 视频|李大霄：乡村消费市场潜力加速释放
+# 创新药再受挫，华宝基金港股通创新药ETF（520880）历史新低！龙头密集回购增持，底部价值信号已现？
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：石秀珍 SF183
+6月22日，AH创新药再受挫，重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）双双创下历史新低。 A股制药板块低开低走，场内唯一表征制药板块的药ETF华宝（562050）盘中跌逾3%，成份股普跌，博瑞医药（维权）20CM跌停。 港股通创新药单边下行，100%创新药研发标的——港股通创新药ETF华宝（520880）盘中亦跌超3%，50
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月22日，AH创新药再受挫，重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）双双创下历史新低。
 
-责任编辑：石秀珍 SF183
+A股制药板块低开低走，场内唯一表征制药板块的药ETF华宝（562050）盘中跌逾3%，成份股普跌，博瑞医药（维权）20CM跌停。
+
+港股通创新药单边下行，100%创新药研发标的——港股通创新药ETF华宝（520880）盘中亦跌超3%，50只成份股尽墨，权重股康方生物挫近8%创近一年新低。
+
+值得关注的是，二季度以来，A股与H股医药板块迎来回购增持浪潮。
+
+4月1日至6月18日，A股和H股数十家医药上市公司发布增持公告，部分药企公告回购次数高达40余次，累计回购金额与股数持续放大；产业资本正以真金白银向市场传递明确信号：当前价位已具备显著投资价值。
+
+创新药龙头企业是本轮回购潮的核心力量：中国生物制药公告未来12个月以不超过20亿港元回购，直言“公司价值被严重低估”；康方生物在公布重磅临床数据后迅速推出2亿港元回购方案，管理层更拟以5000万港元自有资金增持，明确表示“股份现行交易价格未能反映内在价值”。
+
+历史经验表明，当公司自身成为最坚定的多头，当回购公告从“偶发”变为“频发”，板块底部区域的特征便愈发清晰。
+
+逢低吸纳创新药核心资产，关注两大投资利器： 投纯正创新药，认准港股通创新药ETF华宝（520880），100%布局创新药研发类公司，前十大权重股占比超七成，龙头属性突出，底层资产是港股，高弹性、T+0。
 
 ## 相关推荐
 
-- 2026-06-29 15:12 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 15:17 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 15:16 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 15:35 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 15:19 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 15:14 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 15:38 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 15:33 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 15:33 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 15:38 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 15:20 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 15:36 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 15:16 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 15:12 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 15:30 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 15:46 - [驻日美军航母沦为“毒窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 15:23 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 15:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 15:38 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 15:31 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 15:44 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 15:19 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 15:39 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 15:44 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:38 - [沙丘](http://www.share.minike.top/Article/details/0318113828.shtml)
-- 2026-06-29 15:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/9326987137.shtml)
-- 2026-06-29 15:32 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/036870187504.shtml)
-- 2026-06-29 15:16 - [袁隆平院士 不容诋毁！](http://www.blog.kurohicncr.top/Article/details/35608028364.shtml)
-- 2026-06-29 15:19 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/32367496.shtml)
-- 2026-06-29 15:15 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/0915455394.shtml)
-- 2026-06-29 15:23 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/22043995107.shtml)
-- 2026-06-29 15:25 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/4686657.shtml)
-- 2026-06-29 15:31 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/37229461.shtml)
-- 2026-06-29 15:27 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/87065.shtml)
-- 2026-06-29 15:38 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/863811349.shtml)
-- 2026-06-29 15:28 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.minike.top/Article/details/09932368876.shtml)
-- 2026-06-29 15:13 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/7135496.shtml)
-- 2026-06-29 15:22 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/600650.shtml)
-- 2026-06-29 15:37 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/5589278.shtml)
+- 2026-06-29 15:18 - [媒体：网络测评不能只剩“生意”](http://www.blog.minike.top/Article/details/3784975.shtml)
+- 2026-06-29 15:31 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/620239575.shtml)
+- 2026-06-29 15:41 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.share.kurohicncr.top/Article/details/69249.shtml)
+- 2026-06-29 15:21 - [央视曝光涉黄App诈骗陷阱](https://www.blog.minike.top/Article/details/59598947.shtml)
+- 2026-06-29 15:23 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/25854111706.shtml)
+- 2026-06-29 15:23 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/40102510628.shtml)
+- 2026-06-29 15:29 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/680619.shtml)
+- 2026-06-29 15:24 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/48717890459.shtml)
+- 2026-06-29 15:19 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/6677780.shtml)
+- 2026-06-29 15:45 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/849366846.shtml)
+- 2026-06-29 15:29 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.minike.top/Article/details/8099303113.shtml)
+- 2026-06-29 15:47 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/282497487570.shtml)
+- 2026-06-29 15:28 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/527063189.shtml)
+- 2026-06-29 15:18 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/183099603.shtml)
+- 2026-06-29 15:33 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/0582355134.shtml)

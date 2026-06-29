@@ -1,57 +1,58 @@
-# 突发！002779，被证监会立案！
+# 链博会上共赢的新故事持续“上新”
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 因涉嫌信息披露违法违规被立案。 4月27日，中坚科技（002779.SZ）公告称，公司于2026年4月27日收到证监会《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司立案。目前公司各项生产经营活动均正常开展，立案调查期间将积极配合调查工作并履行信息披露义务。 此外，深圳证券交易所就浙江中坚科技股份有限公司信息披露违规事项
+一年一度的“链博时间”再次开启，共赢的新故事持续“上新”。 今天，第四届中国国际供应链促进博览会(简称“链博会”)在北京开幕，主题为“链接世界，共创未来”，全球宾客齐聚于此，共寻发展新机。 中国贸促会会长任鸿斌在开幕式上表示，经过4年的发展和培育，链博会已经成为全球瞩目的国际经贸盛会和全球共享的国际公共产品。今年是中国“十五五”开局之年，第四届链博会围绕推动高质量发展、扩大高水
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 因涉嫌信息披露违法违规被立案。
+一年一度的“链博时间”再次开启，共赢的新故事持续“上新”。
 
-4月27日，中坚科技（002779.SZ）公告称，公司于2026年4月27日收到证监会《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司立案。
+今天，第四届中国国际供应链促进博览会(简称“链博会”)在北京开幕，主题为“链接世界，共创未来”，全球宾客齐聚于此，共寻发展新机。
 
-目前公司各项生产经营活动均正常开展，立案调查期间将积极配合调查工作并履行信息披露义务。
+中国贸促会会长任鸿斌在开幕式上表示，经过4年的发展和培育，链博会已经成为全球瞩目的国际经贸盛会和全球共享的国际公共产品。
 
-此外，深圳证券交易所就浙江中坚科技股份有限公司信息披露违规事项发出监管函（公司部监管函〔2026〕第58号）。
+今年是中国“十五五”开局之年，第四届链博会围绕推动高质量发展、扩大高水平对外开放，更大力度推动产业链供应链国际合作，助力中外企业共享机遇、共同发展。
 
-经查，公司未如实披露相关合作备忘录签署情况，且在互动易平台答复不完整，违反《股票上市规则（2025年修订）》第1.4条及《主板上市公司规范运作指引（2025年修订）》第7.5.1条等规定。
+“我们聚力链接更广阔的世界。
 
-公司董事长兼总经理吴明根、时任董事会秘书戴勇斌为直接责任人，违反《股票上市规则》第1.4条、第4.3.1条。
+”任鸿斌介绍，本届链博会国际影响力进一步扩大，共有676家企业和机构参展，涉及85个国家、地区和国际组织，境外参展商占比上升至36.5%，连同参展商带来的产业链上下游合作伙伴，实际参展商超过1200家。
 
-深交所要求公司及全体董监高吸取教训，严格遵守《证券法》《公司法》及交易所各项规定，切实履行真实、准确、完整、及时、公平的信息披露义务。
+澳大利亚担任主宾国，法国和意大利有关大区担任外国主宾省，并专程派团来华参会、观展洽谈的境外团组超过200个。
 
-公司网站显示，中坚科技股份有限公司创立于1997年，前身为永康市中坚工具制造有限公司，为中坚机电集团有限公司（“中坚机电集团”）控股的深交所主板上市公司。
+科技创新是引领未来发展的重要引擎。
 
 ## 相关推荐
 
-- 2026-06-29 15:41 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 15:36 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 15:19 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 15:28 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 15:33 - [驻日美军航母沦为“毒窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 15:28 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 15:32 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 15:12 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 15:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 15:12 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 15:18 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 15:19 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 15:30 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 15:25 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 15:24 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 15:32 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 15:32 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 15:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 15:42 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 15:43 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 15:33 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 15:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 15:45 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:32 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/310357.shtml)
-- 2026-06-29 15:12 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/91805259560.shtml)
-- 2026-06-29 15:14 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/73459.shtml)
-- 2026-06-29 15:13 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/721023267333.shtml)
-- 2026-06-29 15:24 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/47815553.shtml)
-- 2026-06-29 15:30 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.minike.top/Article/details/39902.shtml)
-- 2026-06-29 15:24 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/801799371.shtml)
-- 2026-06-29 15:28 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/05097712651.shtml)
-- 2026-06-29 15:28 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/755351335370.shtml)
-- 2026-06-29 15:23 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/029590.shtml)
-- 2026-06-29 15:31 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/22143742042.shtml)
-- 2026-06-29 15:35 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/6666692.shtml)
-- 2026-06-29 15:18 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/52510919.shtml)
-- 2026-06-29 15:38 - [发反科学内容为何会有200万粉丝](https://www.share.minike.top/Article/details/0521377.shtml)
-- 2026-06-29 15:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/675499732734.shtml)
+- 2026-06-29 15:41 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/94453857.shtml)
+- 2026-06-29 15:27 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/199327.shtml)
+- 2026-06-29 15:32 - [森保一：日本队要亲手改写历史](https://www.share.minike.top/Article/details/883008246.shtml)
+- 2026-06-29 15:38 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/34519.shtml)
+- 2026-06-29 15:27 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/95822.shtml)
+- 2026-06-29 15:40 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/77121888083.shtml)
+- 2026-06-29 15:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/818295192.shtml)
+- 2026-06-29 15:33 - [金刚川](http://www.blog.kurohicncr.top/Article/details/31687.shtml)
+- 2026-06-29 15:38 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/43128.shtml)
+- 2026-06-29 15:30 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/370220346.shtml)
+- 2026-06-29 15:43 - [一见倾心](http://www.share.kurohicncr.top/Article/details/680267918592.shtml)
+- 2026-06-29 15:45 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/41368123.shtml)
+- 2026-06-29 15:31 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/301082602.shtml)
+- 2026-06-29 15:38 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/0074873.shtml)
+- 2026-06-29 15:34 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/0027784.shtml)

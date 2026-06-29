@@ -1,56 +1,58 @@
-# 一季度我国交通运输多项指标增长明显
+# 金鹰基金杨刚：左手紧盯产业趋势 右手做好“防反”准备
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：交通运输部最新数据显示， 一季度，我国货运量、港口货物吞吐量等主要指标延续较快增长势头。营业性货运量达131.9亿吨，同比增长4.1%。其中，完成公路货运量98.8亿吨，同比增长4.0%；完成水路货运量20.3亿吨，同比增长5.7%。港口集装箱吞吐量达8964万标箱，其中，内、外贸集装箱吞吐量分别同比增长2.3%、11.6%。人员流动量方面，一季度，我国
+上周A股表现极致分化，上证指数全周微涨约+1.46%，报收4090点附近，受大金融、煤炭、地产拖累窄幅震荡；创业板指周涨约+11.02%，科创50全周暴涨约+14.93%，其中6月17日单日涨+4.69%，创阶段新高。领涨方向高度集中于AI硬科技：CPO光模块、存储芯片、半导体设备、AI上游材料（高端电子布/覆铜板/特种树脂）批量大涨，商业航天补涨。资金明显从顺周期权重单向虹吸
 
 ## 正文
 
-央视网消息(新闻联播)：交通运输部最新数据显示， 一季度，我国货运量、港口货物吞吐量等主要指标延续较快增长势头。
+上周A股表现极致分化，上证指数全周微涨约+1.46%，报收4090点附近，受大金融、煤炭、地产拖累窄幅震荡；创业板指周涨约+11.02%，科创50全周暴涨约+14.93%，其中6月17日单日涨+4.69%，创阶段新高。
 
-营业性货运量达131.9亿吨，同比增长4.1%。
+领涨方向高度集中于AI硬科技：CPO光模块、存储芯片、半导体设备、AI上游材料（高端电子布/覆铜板/特种树脂）批量大涨，商业航天补涨。
 
-其中，完成公路货运量98.8亿吨，同比增长4.0%；完成水路货运量20.3亿吨，同比增长5.7%。
+资金明显从顺周期权重单向虹吸至科技成长，全市场日均成交额维持3-3.3万亿天量，“赚指数不赚个股”特征突出。
 
-港口集装箱吞吐量达8964万标箱，其中，内、外贸集装箱吞吐量分别同比增长2.3%、11.6%。
+金鹰基金首席经济学家、权益研究部总经理杨刚表示，当前A股处于“国内政策做多科创+产业趋势驱动结构性向上”与“海外紧缩预期+科技局部交易拥挤+赛事期间情绪扰动”的多重博弈期，建议采用哑铃型配置——一端布局政策与业绩双确定的优质科技成长股作为进攻矛，一端持有基本面稳健型资产如高股息红利股等作为组合减震底仓，小仓位关注事件驱动修复机会。
 
-人员流动量方面，一季度，我国跨区域人员流动量达177.7亿人次，同比增长2.2%。
+杨刚提示，科技成长或仍是中短期核心进攻方向，但忌追高，可等回调或沿产业链下沉布局。
 
-一季度，我国民航运输呈现“客稳货快”的运行态势。
+他表示，陆家嘴论坛政策背书+“十五五”AI+行动+大基金三期落地，科创50和创业板中期趋势完好，需警惕局部交易拥挤度过高、沃什鹰派表态后续发酵、中东局势负向演绎等，可能阶段性压制高估值成长股情绪。
 
-客运方面，旅客运输量达2.0亿人次，其中，国际航线旅客运输量达2081.9万人次，同比增长10.0%。
+操作上不建议追涨，可等缩量回踩或中报预告超预期时考虑分批介入，沿产业链向二线滞涨标的做小幅下沉。
 
-中国至中亚、欧洲等航线旅客量和客座率均显著提高。
+高股息红利等“老登”类资产或可作为底仓防御。
 
 ## 相关推荐
 
-- 2026-06-29 15:26 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 15:19 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 15:25 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 15:20 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 15:32 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 15:16 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 15:13 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 15:35 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 15:41 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 15:23 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 15:28 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 15:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 15:34 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 15:18 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 15:42 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 15:30 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 15:24 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 15:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 15:21 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 15:36 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 15:28 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 15:34 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/86260515.shtml)
-- 2026-06-29 15:16 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/0720022.shtml)
-- 2026-06-29 15:37 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/41906.shtml)
-- 2026-06-29 15:19 - [女生雨天开车发现雨刮条被掰走](https://www.blog.kurohicncr.top/Article/details/67410.shtml)
-- 2026-06-29 15:24 - [84岁英国教授成中国网红](http://www.blog.kurohicncr.top/Article/details/897553176571.shtml)
-- 2026-06-29 15:18 - [链博会上的机器人太全能了](http://www.blog.kurohicncr.top/Article/details/8785288526.shtml)
-- 2026-06-29 15:34 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/314463017.shtml)
-- 2026-06-29 15:39 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/174217844907.shtml)
-- 2026-06-29 15:24 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/213383.shtml)
-- 2026-06-29 15:15 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/45800168270.shtml)
-- 2026-06-29 15:36 - [中餐厅南北饮食差异](https://www.blog.minike.top/Article/details/84149.shtml)
-- 2026-06-29 15:40 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/48359527.shtml)
-- 2026-06-29 15:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/34672.shtml)
-- 2026-06-29 15:41 - [T1 vs KC MSI](https://www.share.kurohicncr.top/Article/details/3956794715.shtml)
-- 2026-06-29 15:39 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/866700847.shtml)
+- 2026-06-29 15:41 - [世界杯十大帅哥必吃榜](https://www.blog.minike.top/Article/details/495185.shtml)
+- 2026-06-29 15:22 - [博主：美航母沦为毒品集散窝点](https://www.share.kurohicncr.top/Article/details/2262183.shtml)
+- 2026-06-29 15:28 - [博主：全球股市进入“AI极端共振”](https://www.blog.kurohicncr.top/Article/details/45974786098.shtml)
+- 2026-06-29 15:26 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/216448434.shtml)
+- 2026-06-29 15:32 - [夏天被这些虫子咬了可能致命](http://www.blog.minike.top/Article/details/44895.shtml)
+- 2026-06-29 15:27 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/6827481836.shtml)
+- 2026-06-29 15:40 - [周生如故](https://www.share.kurohicncr.top/Article/details/455624589200.shtml)
+- 2026-06-29 15:32 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/218396.shtml)
+- 2026-06-29 15:22 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/94526993343.shtml)
+- 2026-06-29 15:38 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/428594432.shtml)
+- 2026-06-29 15:19 - [王祖蓝现场观看美加墨世界杯](http://www.blog.kurohicncr.top/Article/details/09708939.shtml)
+- 2026-06-29 15:46 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/830404.shtml)
+- 2026-06-29 15:36 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/03297153.shtml)
+- 2026-06-29 15:33 - [世界杯十大帅哥必吃榜](https://www.blog.minike.top/Article/details/348500859.shtml)
+- 2026-06-29 15:19 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/59912803.shtml)

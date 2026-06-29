@@ -1,59 +1,57 @@
-# 大行评级|德银上调迅策（03317.HK）目标价至351港元，维持“买入”评级
+# 端午假期北京全市公园迎客超458万人次 龙舟赛事人气旺
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-4月27日，德意志银行发布研报，维持对迅策（3317.HK）的“买入”评级，基于现金流折现（DCF）估值的12个月目标价为351港元，较4月27日收盘价（305港元）隐含约15%的上涨空间；较上次给予的目标价85港元上调312.9%。 德银指出，迅策近期经历显著的估值重估，主要由两大因素驱动：一是优质数据需求激增。随着AI Agent技术快速发展，企业对高精度决策数据的需求显著
+中新网北京6月21日电 (记者 徐婧)北京市园林绿化局21日发布的数据显示，端午假期(6月19日至21日)，北京全市公园共接待游客458.04万人次，较去年同期增长1.97%。假期3天纳客量排名前三的公园为大运河文化旅游景区、天坛公园、颐和园。 端午假期，北京全市公园运行平稳，安全有序。各公园推出龙舟赛事、民俗体验、文体展演、自然科普、市集消费、夜游演艺等150余项特色文化活动
 
 ## 正文
 
-4月27日，德意志银行发布研报，维持对迅策（3317.HK）的“买入”评级，基于现金流折现（DCF）估值的12个月目标价为351港元，较4月27日收盘价（305港元）隐含约15%的上涨空间；较上次给予的目标价85港元上调312.9%。
+中新网北京6月21日电 (记者 徐婧)北京市园林绿化局21日发布的数据显示，端午假期(6月19日至21日)，北京全市公园共接待游客458.04万人次，较去年同期增长1.97%。
 
-德银指出，迅策近期经历显著的估值重估，主要由两大因素驱动：一是优质数据需求激增。
+假期3天纳客量排名前三的公园为大运河文化旅游景区、天坛公园、颐和园。
 
-随着AI Agent技术快速发展，企业对高精度决策数据的需求显著上升。
+端午假期，北京全市公园运行平稳，安全有序。
 
-迅策凭借专业领域数据优势，能够帮助企业生产高价值决策Token，在垂直企业AI发展中占据关键地位。
+各公园推出龙舟赛事、民俗体验、文体展演、自然科普、市集消费、夜游演艺等150余项特色文化活动，让市民沉浸式体验传统端午文化。
 
-二是“Token经济”模式转型。
+龙潭公园举办第五届“时传祥杯”龙舟大赛，大运河文化旅游景区龙舟嘉年华涵盖赛事与民俗表演，金龙巡游与端阳市集同步上演。
 
-迅策正在从传统订阅模式转向基于Token的变现框架，定价从三个维度扩展——数据稀缺性、Token调用频率和模块应用数。
+温榆河公园(朝阳段)、龙潭中湖、白浮泉公园面向市民推出亲子趣味龙舟。
 
-公司预计，到2026年底，基于Token的业务模式占比将从目前的5%提升至20%-30%。
+节日期间，国家植物园(北园)、玉渊潭公园推出“端午植物探秘”活动，专业导师带领游客寻找艾草、菖蒲等端午相关植物；天坛公园、景山公园、北海公园等同步开设文创市集，推出艾草香囊、五彩绳、掐丝珐琅、棕编等手作产品；城市绿心森林公园“南荔北樱文化节”市集融合南北鲜果、端午民俗手作，集章打卡、美食试吃联动引流。
 
-该行认为，此前的上涨已反映其能力和潜力，下一阶段的重新评估将取决于执行情况，特别是其核心能力向更广泛垂直领域的拓展，例如先进制造、机器人和商业航空航天等。
+节前，北京市园林绿化局从安全管理、大客流管控、服务保障、文明游园等方面进行了部署安排。
 
 ## 相关推荐
 
-- 2026-06-29 15:28 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 15:31 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 15:28 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 15:37 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 15:28 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 15:22 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-29 15:14 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 15:19 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 15:21 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 15:37 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 15:16 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 15:25 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 15:24 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 15:36 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 15:47 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 15:25 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 15:34 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 15:32 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 15:36 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 15:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 15:40 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 15:38 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 15:21 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 15:38 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:41 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/1340987764.shtml)
-- 2026-06-29 15:17 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/26238806.shtml)
-- 2026-06-29 15:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/402033.shtml)
-- 2026-06-29 15:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/87227021434.shtml)
-- 2026-06-29 15:15 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/4007060.shtml)
-- 2026-06-29 15:20 - [NBA交易](http://www.blog.minike.top/Article/details/02554375971.shtml)
-- 2026-06-29 15:22 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/67989150.shtml)
-- 2026-06-29 15:27 - [滾石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/8988762.shtml)
-- 2026-06-29 15:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/4315383.shtml)
-- 2026-06-29 15:12 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/4629409.shtml)
-- 2026-06-29 15:19 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/056259119957.shtml)
-- 2026-06-29 15:19 - [东部机场集团新增釜山航线](https://www.blog.kurohicncr.top/Article/details/915170304.shtml)
-- 2026-06-29 15:35 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/611967243035.shtml)
-- 2026-06-29 15:24 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/22209750.shtml)
-- 2026-06-29 15:26 - [世界杯十大帅哥必吃榜](https://www.share.minike.top/Article/details/1206632.shtml)
+- 2026-06-29 15:34 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/8185532892.shtml)
+- 2026-06-29 15:34 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/28758.shtml)
+- 2026-06-29 15:31 - [锐评浪姐7总决赛](http://www.blog.kurohicncr.top/Article/details/40857164.shtml)
+- 2026-06-29 15:33 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/7209408.shtml)
+- 2026-06-29 15:30 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/508731022.shtml)
+- 2026-06-29 15:22 - [扬名立万](https://www.share.minike.top/Article/details/6352511.shtml)
+- 2026-06-29 15:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/3289294.shtml)
+- 2026-06-29 15:42 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/204948.shtml)
+- 2026-06-29 15:33 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/174907.shtml)
+- 2026-06-29 15:44 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/136465211.shtml)
+- 2026-06-29 15:47 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/7785676175.shtml)
+- 2026-06-29 15:28 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/310881324.shtml)
+- 2026-06-29 15:39 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.minike.top/Article/details/49382.shtml)
+- 2026-06-29 15:22 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/642231177.shtml)
+- 2026-06-29 15:44 - [美的空调 卡bug](https://www.share.minike.top/Article/details/0897740.shtml)

@@ -1,55 +1,51 @@
-# 澳大利亚发布新闻媒体议价法草案
+# 美债走低 现货市场在假日结束后恢复交易
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-澳大利亚总理安东尼·阿尔巴尼斯 周二在堪培拉举行的新闻发布会上宣布，旨在建立新闻议价激励机制的立法草案现已公布，供公众咨询。 “根据这项激励措施，运营重要社交媒体或搜索服务的数字平台将被鼓励与符合条件的新闻出版商达成商业协议，以此作为首选模式，并获得丰厚的补偿以减少其负债。” “选择不与新闻出版商进行商业交易的平台需要按其收入的一定比例支付费用，所有收取的费用都将返还给新闻媒体
+美债全线走低，油价上涨加剧通胀担忧；现货市场上周五因假日无交易。 2年期国债收益率上升4个基点至4.22%。 10年期国债收益率上升5个基点至4.50%。 布伦特原油期货上涨超过1%。责任编辑：王永生
 
 ## 正文
 
-澳大利亚总理安东尼·阿尔巴尼斯 周二在堪培拉举行的新闻发布会上宣布，旨在建立新闻议价激励机制的立法草案现已公布，供公众咨询。
+美债全线走低，油价上涨加剧通胀担忧；现货市场上周五因假日无交易。
 
-“根据这项激励措施，运营重要社交媒体或搜索服务的数字平台将被鼓励与符合条件的新闻出版商达成商业协议，以此作为首选模式，并获得丰厚的补偿以减少其负债。
+2年期国债收益率上升4个基点至4.22%。
 
-” “选择不与新闻出版商进行商业交易的平台需要按其收入的一定比例支付费用，所有收取的费用都将返还给新闻媒体行业。
+10年期国债收益率上升5个基点至4.50%。
 
-” “政府还在制定分配机制，将国家新闻调查（NBI）所筹集的任何资金返还给澳大利亚新闻媒体行业，以支持记者的就业和重要工作。
+布伦特原油期货上涨超过1%。
 
-”责任编辑：于健 SF069
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 15:15 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 15:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 15:34 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 15:12 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 15:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 15:35 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 15:26 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 15:20 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 15:27 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 15:39 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 15:29 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 15:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 15:19 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 15:40 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 15:41 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 15:42 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 15:31 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 15:44 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 15:18 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 15:24 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 15:27 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 15:43 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 15:43 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 15:25 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 15:24 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 15:47 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:26 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/1903411.shtml)
-- 2026-06-29 15:21 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/3809743.shtml)
-- 2026-06-29 15:13 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/51785.shtml)
-- 2026-06-29 15:40 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/7133972717.shtml)
-- 2026-06-29 15:32 - [小娘惹](http://www.blog.minike.top/Article/details/0419058999.shtml)
-- 2026-06-29 15:19 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/34150.shtml)
-- 2026-06-29 15:30 - [滾石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/26903.shtml)
-- 2026-06-29 15:18 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/613193278.shtml)
-- 2026-06-29 15:17 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/248929.shtml)
-- 2026-06-29 15:25 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/40370946247.shtml)
-- 2026-06-29 15:32 - [爱很美味](https://www.share.kurohicncr.top/Article/details/32571831691.shtml)
-- 2026-06-29 15:12 - [德国队前往比赛场地遭遇囧途](https://www.share.kurohicncr.top/Article/details/71472659.shtml)
-- 2026-06-29 15:39 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/64223402.shtml)
-- 2026-06-29 15:37 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/653140.shtml)
-- 2026-06-29 15:14 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/1833961231.shtml)
+- 2026-06-29 15:20 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/145645455.shtml)
+- 2026-06-29 15:43 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/76274266038.shtml)
+- 2026-06-29 15:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/732558.shtml)
+- 2026-06-29 15:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/699512481977.shtml)
+- 2026-06-29 15:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/9019561603.shtml)
+- 2026-06-29 15:24 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/09076.shtml)
+- 2026-06-29 15:38 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/140381055591.shtml)
+- 2026-06-29 15:28 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/33684278.shtml)
+- 2026-06-29 15:25 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/12219486.shtml)
+- 2026-06-29 15:39 - [把古诗里的动作换成加班](https://www.share.kurohicncr.top/Article/details/460579.shtml)
+- 2026-06-29 15:33 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/82363.shtml)
+- 2026-06-29 15:26 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/036708.shtml)
+- 2026-06-29 15:47 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/6563618320.shtml)
+- 2026-06-29 15:19 - [天道](http://www.blog.minike.top/Article/details/94648270201.shtml)
+- 2026-06-29 15:19 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/26881.shtml)

@@ -1,47 +1,57 @@
-# 兆易创新将于5月29日派发末期股息每股0.8555198港元
+# 石家庄站“端午”假期发送旅客102.81万人次
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-兆易创新（03986）发布公告，将于2026年5月29日派发截至2025年12月31日止年度的末期股息每股0.8555198港元。责任编辑：卢昱君
+中新网石家庄6月23日电 (邢璐 徐争)为期5天的2026年“端午”假期铁路运输于6月22日圆满收官。从石家庄站获悉，自6月18日至6月22日，石家庄站全站(含石家庄站、石家庄北站、石家庄东站及京广高铁涿州东至邯郸东八站)累计发送旅客102.81万人次，日均开行旅客列车645列。其中，6月22日迎来客流最高峰，单日发送旅客达22.47万人次。据介绍，今年“端午”假期该站运输客流
 
 ## 正文
 
-兆易创新（03986）发布公告，将于2026年5月29日派发截至2025年12月31日止年度的末期股息每股0.8555198港元。
+中新网石家庄6月23日电 (邢璐 徐争)为期5天的2026年“端午”假期铁路运输于6月22日圆满收官。
 
-责任编辑：卢昱君
+从石家庄站获悉，自6月18日至6月22日，石家庄站全站(含石家庄站、石家庄北站、石家庄东站及京广高铁涿州东至邯郸东八站)累计发送旅客102.81万人次，日均开行旅客列车645列。
+
+其中，6月22日迎来客流最高峰，单日发送旅客达22.47万人次。
+
+据介绍，今年“端午”假期该站运输客流主要以通勤、学生、旅游、探亲流为主。
+
+客流方向主要集中在北京、天津、保定、邯郸、邢台、衡水、唐山、秦皇岛、太原、郑州、济南、西安、武汉、青岛、南京、上海等地。
+
+为应对假期大客流，石家庄站加大运力投放，全站共计加开旅客列车41对，其中高铁列车28.5对、普速列车12.5对，进一步丰富旅客出行选择。
+
+在便民服务方面，石家庄站针对客流高峰强化关键岗位人员保障，在进站口、出站口、站台等处增派引导力量，确保旅客安全顺畅出行。
+
+并联合河北医科大学第一医院，每日安排两名医护人员日间驻站值守，在车站周边配备救护车，为突发身体不适旅客提供紧急救助。
 
 ## 相关推荐
 
-- 2026-06-29 15:12 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 15:36 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 15:14 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 15:30 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 15:40 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 15:22 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 15:33 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 15:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 15:26 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 15:29 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 15:24 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 15:34 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 15:37 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 15:21 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 15:20 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 15:22 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 15:22 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 15:34 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 15:37 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 15:33 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 15:33 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 15:19 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 15:37 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 15:47 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/1799509943.shtml)
-- 2026-06-29 15:38 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/82797.shtml)
-- 2026-06-29 15:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/9702050.shtml)
-- 2026-06-29 15:30 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/37753017657.shtml)
-- 2026-06-29 15:39 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/16138721003.shtml)
-- 2026-06-29 15:18 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.kurohicncr.top/Article/details/987053834796.shtml)
-- 2026-06-29 15:25 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/915879870706.shtml)
-- 2026-06-29 15:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/369510322.shtml)
-- 2026-06-29 15:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/13320107.shtml)
-- 2026-06-29 15:17 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/382192266.shtml)
-- 2026-06-29 15:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/502605025147.shtml)
-- 2026-06-29 15:18 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/87926842392.shtml)
-- 2026-06-29 15:25 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/8641908316.shtml)
-- 2026-06-29 15:40 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/94245256.shtml)
-- 2026-06-29 15:35 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/18098.shtml)
+- 2026-06-29 15:36 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/398070981.shtml)
+- 2026-06-29 15:45 - [市民骑哈啰单车79分钟被收费30元](https://www.share.kurohicncr.top/Article/details/8439145660.shtml)
+- 2026-06-29 15:22 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/63850767050.shtml)
+- 2026-06-29 15:41 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/3675711525.shtml)
+- 2026-06-29 15:29 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.minike.top/Article/details/941403299.shtml)
+- 2026-06-29 15:18 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/895351812.shtml)
+- 2026-06-29 15:27 - [世界杯看到肖战了](https://www.blog.kurohicncr.top/Article/details/64339.shtml)
+- 2026-06-29 15:44 - [当我回母校教书](http://www.blog.minike.top/Article/details/63157.shtml)
+- 2026-06-29 15:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/79184543.shtml)
+- 2026-06-29 15:30 - [F1奥地利正赛战报](http://www.share.minike.top/Article/details/05184448150.shtml)
+- 2026-06-29 15:32 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/40645.shtml)
+- 2026-06-29 15:45 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/2626695041.shtml)
+- 2026-06-29 15:47 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/059051683.shtml)
+- 2026-06-29 15:25 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/5157614.shtml)
+- 2026-06-29 15:33 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/9338538208.shtml)

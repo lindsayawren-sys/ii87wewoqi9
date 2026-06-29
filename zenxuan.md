@@ -1,56 +1,60 @@
-# 云南临沧：三把“遗址钥匙”打开西南边疆融合之门
+# 奋进“十五五” 保险让前行更有底气！中国保险行业协会联合新浪财经发起“7.8全国保险公众宣传日”活动专栏
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网临沧4月26日电 (缪超 徐珊珊)从4万年前旧石器时代，到4000年前新石器时代，再到3000年前青铜器时代，云南临沧先民在澜沧江流域留下一道道深刻的生产生活痕迹，成为解开人类历史谜团的钥匙之一，还原出一幅幅西南边疆的历史图腾。 农克硝洞遗址：改写亚洲史前文化 1981年，第二次全国文物普查期间，文物工作者首次踏足临沧农克硝洞，发现了一种在中华大地从未见过的石器类型，彼时
+专题：2026年7.8全国保险公众宣传日——中国保险行业协会×新浪财经 2026年是“十五五”开局之年，第14个“7.8全国保险公众宣传日”如约而至。保险业坚持以习近平新时代中国特色社会主义思想为指导，坚决贯彻党的二十大和二十届历次全会以及中央金融工作会议、中央经济工作会议精神，全面落实《国务院关于加强监管防范风险推动保险业高质量发展的若干意见》部署，坚守金融工作的政治性、人民
 
 ## 正文
 
-中新网临沧4月26日电 (缪超 徐珊珊)从4万年前旧石器时代，到4000年前新石器时代，再到3000年前青铜器时代，云南临沧先民在澜沧江流域留下一道道深刻的生产生活痕迹，成为解开人类历史谜团的钥匙之一，还原出一幅幅西南边疆的历史图腾。
+专题：2026年7.8全国保险公众宣传日——中国保险行业协会×新浪财经 2026年是“十五五”开局之年，第14个“7.8全国保险公众宣传日”如约而至。
 
-农克硝洞遗址：改写亚洲史前文化 1981年，第二次全国文物普查期间，文物工作者首次踏足临沧农克硝洞，发现了一种在中华大地从未见过的石器类型，彼时，无人预料，这里将改写亚洲史前文化的认知版图。
+保险业坚持以习近平新时代中国特色社会主义思想为指导，坚决贯彻党的二十大和二十届历次全会以及中央金融工作会议、中央经济工作会议精神，全面落实《国务院关于加强监管防范风险推动保险业高质量发展的若干意见》部署，坚守金融工作的政治性、人民性，积极培育中国特色保险文化，塑造可信赖、能托付、有温度的保险业良好形象。
 
-经过40余年持续考古调查研究，农克硝洞的秘密终于浮出水面，8米多厚的原生文化层如同时间的书页，层层叠压。
+2026年“7.8全国保险公众宣传日”年度主题为：奋进“十五五” 保险让前行更有底气。
 
-人牙、骨环、穿孔猴牙、石制品……5000余件出土文物，静静讲述着数万年前的故事。
+中国保险行业协会联合新浪财经发起2026年“7.8 全国保险公众宣传日”活动专栏。
 
-2015年，中外联合研究团队公布震撼学界的结论：农克硝洞遗址出土具有切割、砍伐、挖掘、研磨等多种功能的石器组合，是距今4.35万年至2.4万年的旧石器时代遗存，该石器组合正是“和平文化”的标志性器具，但比东南亚大陆各个国家同类石器早至少1万年。
+聚焦风险减量、科技保险、养老保险、农业保险、保险服务新市民需求等重点领域，开展形式多样的保险文化宣传主题活动。
 
-中国科学院昆明动物研究所研究员、古人类与旧石器时代考古学家吉学平介绍，“和平文化”是广泛分布于东南亚大陆的史前文化，农克硝洞的发现，将“和平文化”的源头指向了中国澜沧江流域，显然这里的古人类发明出这套工具后，向南开拓去了更遥远的地方，东西南北文化交流在此悄然拉开序幕，见证了人类命运共同体在旧石器时代开始铸就的历史。
+（一）聚焦风险减量、抗灾救援开展宣传。
 
-忙怀遗址：文明交汇的节点 农克硝洞并非孤立的文化坐标，将目光转向澜沧江中下游的云县忙怀。
+集中宣传保险业融入国家防灾减灾救灾体系，切实发挥灾前预备、灾中救援、灾后赔付重建等整体功能，服务社会治理体系的举措及成效。
 
-1974年，一个普通的田野调查日，文物工作者的脚步停在了澜沧江与顺甸河的交汇处：河水冲刷出的台地上，散落着一些鹅卵石，有些石头不太一样——它们被打制过、被切割过，被赋予了形状。
+（二）聚焦科技保险开展宣传。
 
 ## 相关推荐
 
-- 2026-06-29 15:33 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 15:40 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 15:38 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 15:37 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 15:29 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 15:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 15:39 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 15:35 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 15:41 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 15:27 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 15:29 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 15:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 15:27 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 15:29 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 15:18 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 15:35 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 15:42 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 15:26 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 15:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 15:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 15:39 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 15:44 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 15:32 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 15:41 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:33 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/548614911094.shtml)
-- 2026-06-29 15:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/220145096.shtml)
-- 2026-06-29 15:14 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/9862777391.shtml)
-- 2026-06-29 15:13 - [毕业群都在出什么东西](https://www.share.minike.top/Article/details/5942431.shtml)
-- 2026-06-29 15:40 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/09055474310.shtml)
-- 2026-06-29 15:24 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/77038185.shtml)
-- 2026-06-29 15:29 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/52019227.shtml)
-- 2026-06-29 15:24 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/02074677.shtml)
-- 2026-06-29 15:30 - [志愿选择倒计时！浙大学生送祝福](http://www.share.kurohicncr.top/Article/details/075743344963.shtml)
-- 2026-06-29 15:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/7567402.shtml)
-- 2026-06-29 15:16 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/620255203814.shtml)
-- 2026-06-29 15:33 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/091904994.shtml)
-- 2026-06-29 15:22 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/8622614649.shtml)
-- 2026-06-29 15:35 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/64697.shtml)
-- 2026-06-29 15:37 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/897500176363.shtml)
+- 2026-06-29 15:40 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/67946.shtml)
+- 2026-06-29 15:31 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/65521084.shtml)
+- 2026-06-29 15:41 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/1091885405.shtml)
+- 2026-06-29 15:38 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/815754.shtml)
+- 2026-06-29 15:38 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/8898749.shtml)
+- 2026-06-29 15:36 - [吴磊爱上回收了](https://www.share.kurohicncr.top/Article/details/29924255741.shtml)
+- 2026-06-29 15:26 - [恋与深空 731](https://www.share.minike.top/Article/details/10187307.shtml)
+- 2026-06-29 15:23 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/1610217.shtml)
+- 2026-06-29 15:31 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/5934839480.shtml)
+- 2026-06-29 15:45 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/8024947454.shtml)
+- 2026-06-29 15:24 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/9911988927.shtml)
+- 2026-06-29 15:23 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/7806737059.shtml)
+- 2026-06-29 15:45 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/043358927.shtml)
+- 2026-06-29 15:37 - [T1 KC](http://www.share.minike.top/Article/details/74216547.shtml)
+- 2026-06-29 15:24 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.kurohicncr.top/Article/details/60778255183.shtml)

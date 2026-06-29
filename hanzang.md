@@ -1,56 +1,56 @@
-# 进军即饮咖啡赛道，瑞幸即享咖啡推出门店爆款风味瓶装咖啡
+# 培育“农创客”，助力乡村振兴
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-“瑞一杯”之外，“瑞一瓶”终于来了，4月28日，瑞幸即享咖啡正式推出全新瓶装即饮咖啡，同步官宣王一博为瑞幸即享咖啡全球品牌代言人。首批上市生椰拿铁、经典美式、柚 C美式三款口味，陆续上架全国各地商超及便利店，零售价约6-7元。此次瓶装咖啡上市与一线明星代言双重布局，标志着瑞幸“全品类、多元化、全场景”战略实现关键性跨越，同时将门店现制饮品的品质优势延伸至零售领域。 瑞幸即享咖啡
+【光明时评】培育“农创客”，助力乡村振兴 作者：孙瑞婷(北京联合大学马克思主义学院副教授) 在上海松江小昆山镇，95后女青年陈瑜斌扎根乡土，打造了一座融合文创、美食、研学与田园体验于一体的乡村户外综合体，用青年创意为乡村文旅发展注入新动能；深耕文旅行业17年的周斌，因一次宣传片拍摄与浙江丽水龙泉市住龙镇结缘，其运营的水陆一体研学乐园，带动村集体增收50余万元、群众增收100余万
 
 ## 正文
 
-“瑞一杯”之外，“瑞一瓶”终于来了，4月28日，瑞幸即享咖啡正式推出全新瓶装即饮咖啡，同步官宣王一博为瑞幸即享咖啡全球品牌代言人。
+【光明时评】培育“农创客”，助力乡村振兴 作者：孙瑞婷(北京联合大学马克思主义学院副教授) 在上海松江小昆山镇，95后女青年陈瑜斌扎根乡土，打造了一座融合文创、美食、研学与田园体验于一体的乡村户外综合体，用青年创意为乡村文旅发展注入新动能；深耕文旅行业17年的周斌，因一次宣传片拍摄与浙江丽水龙泉市住龙镇结缘，其运营的水陆一体研学乐园，带动村集体增收50余万元、群众增收100余万元。
 
-首批上市生椰拿铁、经典美式、柚 C美式三款口味，陆续上架全国各地商超及便利店，零售价约6-7元。
+当前，越来越多掌握先进技术、富有创造活力的“农创客”不断涌现。
 
-此次瓶装咖啡上市与一线明星代言双重布局，标志着瑞幸“全品类、多元化、全场景”战略实现关键性跨越，同时将门店现制饮品的品质优势延伸至零售领域。
+他们敏锐抓住发展机遇，敢于改变传统发展模式，为乡村发展装上“新引擎”。
 
-瑞幸即享咖啡首批上市的瓶装即饮咖啡，源自瑞幸门店已被亿万消费者验证的爆款口味，每瓶规格300mL，依托成熟的产品研发体系与无菌冷灌生产工艺，有效保障风味稳定与饮用品质。
+日前，国务院印发《加快农业农村现代化“十五五”规划》，强调“激励各类人才下乡服务和创业就业，因地制宜培育农创客”；2026年中央一号文件也首次将“农创客”一词纳入国家政策视野，明确提出“加强乡村产业带头人和乡村治理人才培育，因地制宜培育农创客”。
 
-在配方上，瑞幸即享咖啡将“健康与专业”贯彻到底，生椰拿铁选用100%冷压榨椰肉汁调配，采用低糖配方，好喝低负担；柚C美式添加真实红西柚汁，清爽柚香与100%阿拉比卡咖啡完美融合，口感层次丰富；经典美式坚守0糖0脂配方，还原纯粹黑咖风味，满足不同消费者的口味偏好与健康需求。
+所谓“农创客”，即在乡村建设、发展中创业创新的青年人才。
 
-为覆盖多元生活场景，践行“随时随地，即享好咖啡”的品牌理念，瑞幸即享咖啡搭建起“线上+线下”销售渠道矩阵，提升全场景消费便捷度。
+无论是运用物联网、大数据、生物育种等技术发展智慧农业，还是打通电商运营、直播带货、社群营销等数字渠道，打破农产品传统销售的地域限制……他们凭借多元领域的知识储备、市场化的思维方式与敢闯敢试的进取精神，为乡村全域发展注入生机活力。
 
-线上端，瑞幸即享咖啡布局天猫、京东、抖音、拼多多等主流电商平台，同步打通瑞幸官方APP、小程序等自有渠道；在线下，三款产品将广泛进驻大型商超及连锁便利店，并同步拓展即时零售平台、量贩零食连锁系统，以及交通出行、校园等消费场景，渗透消费者日常生活圈，真正实现“随时随地来一瓶”的咖啡消费体验。
+青年创新创业人才是盘活乡村资源、发展乡村产业、赋能基层治理的新生力量，是农业农村高质量发展的重要支撑。
 
-值得称道的是，瑞幸即享瓶装咖啡力图以门店现制咖啡的口味标准打造。
+近年来，我国高度重视乡村人才队伍建设，各地各部门聚焦创新人才引育留用全链条，在系统化培育本土人才、完善多元激励机制、强化兜底服务保障等环节精准发力、综合施策，在创新人才队伍培育方面取得了明显成效。
 
 ## 相关推荐
 
-- 2026-06-29 15:25 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 15:16 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 15:36 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 15:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-29 15:16 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 15:42 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 15:32 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 15:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 15:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 15:30 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 15:32 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 15:29 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 15:31 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 15:24 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 15:19 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 15:35 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 15:45 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 15:47 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 15:47 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 15:36 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:25 - [新能源车能当外接空调用吗](https://www.blog.kurohicncr.top/Article/details/63689.shtml)
-- 2026-06-29 15:38 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/26299563386.shtml)
-- 2026-06-29 15:31 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/074451093.shtml)
-- 2026-06-29 15:32 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/02231923935.shtml)
-- 2026-06-29 15:32 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/5567961901.shtml)
-- 2026-06-29 15:19 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/090367.shtml)
-- 2026-06-29 15:41 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/3157657126.shtml)
-- 2026-06-29 15:13 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.kurohicncr.top/Article/details/1325201.shtml)
-- 2026-06-29 15:25 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/48790.shtml)
-- 2026-06-29 15:35 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/10456528007.shtml)
-- 2026-06-29 15:25 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/9492323573.shtml)
-- 2026-06-29 15:19 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/04229192.shtml)
-- 2026-06-29 15:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/57843092323.shtml)
-- 2026-06-29 15:15 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/67862160.shtml)
-- 2026-06-29 15:22 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/7182580989.shtml)
+- 2026-06-29 15:30 - [博主：全球股市进入“AI极端共振”](https://www.share.kurohicncr.top/Article/details/1104306780.shtml)
+- 2026-06-29 15:43 - [南非老帅布罗斯的梦没能做完](https://www.blog.minike.top/Article/details/17415.shtml)
+- 2026-06-29 15:22 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/21554541204.shtml)
+- 2026-06-29 15:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/9944449133.shtml)
+- 2026-06-29 15:45 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/316221.shtml)
+- 2026-06-29 15:46 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/234743.shtml)
+- 2026-06-29 15:35 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/568020158199.shtml)
+- 2026-06-29 15:28 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/553499.shtml)
+- 2026-06-29 15:43 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/414248331933.shtml)
+- 2026-06-29 15:22 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/928092524.shtml)
+- 2026-06-29 15:41 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/80797245590.shtml)
+- 2026-06-29 15:34 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/78714756386.shtml)
+- 2026-06-29 15:19 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/349662.shtml)
+- 2026-06-29 15:27 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.minike.top/Article/details/028952.shtml)
+- 2026-06-29 15:31 - [媒体：网络测评不能只剩“生意”](https://www.blog.kurohicncr.top/Article/details/26324225.shtml)

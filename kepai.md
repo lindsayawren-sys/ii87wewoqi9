@@ -1,54 +1,61 @@
-# DeepSeek注册资本增加500万，梁文锋总持股超84%
+# 第23届中国—东盟博览会主题确定
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-4月28日，天眼查APP消息显示，杭州深度求索人工智能基础技术研究有限公司（简称“DeepSeek”）注册资本由1000万元增加至1500万元，增幅50%。其中梁文锋认缴的注册资本由10万元增加至510万元，持股占比由1%提高至34%，但其作为实际控制人的最终受益股份达到84.3%。宁波程恩企业管理咨询合伙企业（有限合伙）持股比例由99%降至66%。 此前有媒体报道称，Deep
+中新网南宁6月23日电 (黄令妍)据中国—东盟博览会(下称东博会)秘书处23日消息，第23届东博会主题确定为“共享3.0机遇，共创美好生活”。本届东博会定于9月17日至21日在广西南宁举办，将全面展现中国—东盟深化合作的最新成果与未来方向。 该主题体现东博会“促进中国—东盟自贸区建设，共享合作与发展机遇”的根本宗旨，突出东博会作为中国—东盟自贸区建设“助推器”的重要作用，服务中
 
 ## 正文
 
-4月28日，天眼查APP消息显示，杭州深度求索人工智能基础技术研究有限公司（简称“DeepSeek”）注册资本由1000万元增加至1500万元，增幅50%。
+中新网南宁6月23日电 (黄令妍)据中国—东盟博览会(下称东博会)秘书处23日消息，第23届东博会主题确定为“共享3.0机遇，共创美好生活”。
 
-其中梁文锋认缴的注册资本由10万元增加至510万元，持股占比由1%提高至34%，但其作为实际控制人的最终受益股份达到84.3%。
+本届东博会定于9月17日至21日在广西南宁举办，将全面展现中国—东盟深化合作的最新成果与未来方向。
 
-宁波程恩企业管理咨询合伙企业（有限合伙）持股比例由99%降至66%。
+该主题体现东博会“促进中国—东盟自贸区建设，共享合作与发展机遇”的根本宗旨，突出东博会作为中国—东盟自贸区建设“助推器”的重要作用，服务中国—东盟合作行稳致远。
 
-此前有媒体报道称，DeepSeek正在以超100亿美元（约合人民币682亿元）的估值，计划募集不少于3亿美元（约合人民币20亿元）资金。
+当前，中国—东盟自贸区3.0版升级议定书已签署并即将实施，首次将数字经济、绿色经济等新兴领域纳入制度框架，标志着双方合作从关税减免全面迈向规则、规制、标准深度对接。
 
-上周又有消息称，腾讯与阿里巴巴正就投资DeepSeek展开洽谈，并提及DeepSeek的目标估值上调至逾200亿美元（约合人民币1365亿元），融资规模亦可能随之扩大。
+在这一背景下，展会将特设数字经济、绿色低碳等专题展区，举办RCEP(《区域全面经济伙伴关系协定》)与CAFTA(中国—东盟自贸区)协同发展高端对话，发布蓝皮书进行专业解读，邀请企业分享一线实践经验。
 
-目前DeepSeek尚未公开回应此事。
+展会将通过全方位、多层次的展示与交流，推动中国—东盟自贸区3.0版九大领域新商机从政策文本转化为市场实践，助推制度型开放走深走实。
 
-（第一财经记者 刘晓洁）责任编辑：杨赐
+据介绍，本届东博会将围绕“购在中国”“出口中国”“投资中国”三大品牌，开展新品首发首秀和爆款产品展示活动，助推东盟优质消费品进入中国市场；突出AI应用，充分展示应用于生活多场景的AI新商品和黑科技，助力以科技细节打造美好生活，并紧扣东盟各国在经贸、产业等各领域对AI的应用需求，多维度展示AI产品及解决方案，让合作成果从展台走向市场、从示范走向常态，助力把各国人民追求幸福美好生活的愿望图景变为鲜活实景。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:39 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 15:25 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 15:33 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 15:27 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 15:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 15:14 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 15:38 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 15:21 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 15:41 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 15:34 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 15:36 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 15:28 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 15:42 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 15:39 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 15:45 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 15:23 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 15:30 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 15:41 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 15:44 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 15:47 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 15:35 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 15:28 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 15:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 15:21 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 15:23 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:15 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/81855.shtml)
-- 2026-06-29 15:24 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/9178875926.shtml)
-- 2026-06-29 15:15 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/90967.shtml)
-- 2026-06-29 15:21 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/46047825.shtml)
-- 2026-06-29 15:18 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/5165360876.shtml)
-- 2026-06-29 15:37 - [周深双眼皮贴又掉了](https://www.share.kurohicncr.top/Article/details/8974256312.shtml)
-- 2026-06-29 15:35 - [恋与深空 731](http://www.blog.minike.top/Article/details/72468373.shtml)
-- 2026-06-29 15:35 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/120153.shtml)
-- 2026-06-29 15:34 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/234529597276.shtml)
-- 2026-06-29 15:32 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/23081244.shtml)
-- 2026-06-29 15:37 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/266943517.shtml)
-- 2026-06-29 15:32 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/565187.shtml)
-- 2026-06-29 15:26 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.kurohicncr.top/Article/details/5077180.shtml)
-- 2026-06-29 15:19 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/803507.shtml)
-- 2026-06-29 15:33 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/000855650.shtml)
+- 2026-06-29 15:22 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/376350266.shtml)
+- 2026-06-29 15:33 - [急先锋](https://www.blog.kurohicncr.top/Article/details/984822897.shtml)
+- 2026-06-29 15:40 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/36095750126.shtml)
+- 2026-06-29 15:33 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.kurohicncr.top/Article/details/5491625740.shtml)
+- 2026-06-29 15:20 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/327497144.shtml)
+- 2026-06-29 15:41 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/468452.shtml)
+- 2026-06-29 15:30 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/55397246.shtml)
+- 2026-06-29 15:31 - [博主：美航母沦为毒品集散窝点](http://www.blog.kurohicncr.top/Article/details/559511748.shtml)
+- 2026-06-29 15:37 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/0820650499.shtml)
+- 2026-06-29 15:27 - [工作靠AI算不算职场作弊](https://www.share.kurohicncr.top/Article/details/344247889.shtml)
+- 2026-06-29 15:34 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/676606.shtml)
+- 2026-06-29 15:24 - [发反科学内容为何会有200万粉丝](https://www.blog.minike.top/Article/details/7239150.shtml)
+- 2026-06-29 15:28 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/82811554454.shtml)
+- 2026-06-29 15:39 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/16654720.shtml)
+- 2026-06-29 15:28 - [绘画区你赢了](https://www.blog.minike.top/Article/details/85010117835.shtml)

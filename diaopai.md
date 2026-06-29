@@ -1,42 +1,56 @@
-# 华宝基金红利风向标：高股息“倒车接人”？关注低波策略配置价值
+# 电动车需求5月继续提振欧洲车市 中国品牌进一步抢占份额
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-责任编辑：杨赐
+欧洲汽车工业协会（ACEA）周二公布的数据显示，5月欧洲汽车市场增长继续受到电气化汽车需求支撑，抵消了汽油车和柴油车销量大幅下滑的影响，也让中国品牌进一步扩大市场份额。 作为销量替代指标的汽车注册量显示，5月欧盟、英国和欧洲自由贸易联盟的新车注册量增长3.6%，至1，152，523辆。今年前五个月，注册量较2025年同期增长4.5%。 电气化汽车主导了市场增长动能。纯电动车（B
 
 ## 正文
 
-责任编辑：杨赐
+欧洲汽车工业协会（ACEA）周二公布的数据显示，5月欧洲汽车市场增长继续受到电气化汽车需求支撑，抵消了汽油车和柴油车销量大幅下滑的影响，也让中国品牌进一步扩大市场份额。
+
+作为销量替代指标的汽车注册量显示，5月欧盟、英国和欧洲自由贸易联盟的新车注册量增长3.6%，至1，152，523辆。
+
+今年前五个月，注册量较2025年同期增长4.5%。
+
+电气化汽车主导了市场增长动能。
+
+纯电动车（BEV）、插电式混合动力车（PHEV）和混合动力车的注册量分别增长39.1%、13.2%和8.2%，三者合计占5月所有新车注册量的三分之二以上。
+
+该协会在声明中称：“在欧洲主要市场，消费者对多种电气化技术的需求依然强劲，继续令市场受益，而新出台及修订后的税收优惠和激励措施则为这一趋势提供了支撑。
+
+” 相比之下，传统内燃机汽车的需求明显走软，汽油车和柴油车销量均下滑约19%。
+
+在汽车产业的转型过程中，欧洲传统汽车制造商失去部分市场份额。
 
 ## 相关推荐
 
-- 2026-06-29 15:32 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 15:24 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 15:26 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 15:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 15:39 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 15:41 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 15:21 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 15:32 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 15:35 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 15:41 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 15:45 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 15:24 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 15:36 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 15:37 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 15:46 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 15:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 15:39 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 15:23 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 15:24 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 15:46 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:35 - [驻日美军航母沦为“毒窝”](http://www.blog.minike.top/Article/details/482265.shtml)
-- 2026-06-29 15:25 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/08718.shtml)
-- 2026-06-29 15:27 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/2146542.shtml)
-- 2026-06-29 15:24 - [千与千寻](https://www.share.kurohicncr.top/Article/details/918082.shtml)
-- 2026-06-29 15:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/53780430525.shtml)
-- 2026-06-29 15:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/9301446.shtml)
-- 2026-06-29 15:35 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/697010939877.shtml)
-- 2026-06-29 15:29 - [美人鱼](https://www.share.kurohicncr.top/Article/details/228718.shtml)
-- 2026-06-29 15:35 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/463362521.shtml)
-- 2026-06-29 15:17 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/167616794774.shtml)
-- 2026-06-29 15:24 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/01602178656.shtml)
-- 2026-06-29 15:20 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/50319336.shtml)
-- 2026-06-29 15:23 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/39849549221.shtml)
-- 2026-06-29 15:22 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/4275028638.shtml)
-- 2026-06-29 15:27 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/2697206385.shtml)
+- 2026-06-29 15:36 - [金牌调解](https://www.share.minike.top/Article/details/81318.shtml)
+- 2026-06-29 15:20 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/603505.shtml)
+- 2026-06-29 15:41 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.kurohicncr.top/Article/details/307701130.shtml)
+- 2026-06-29 15:22 - [极限挑战第一季](http://www.share.minike.top/Article/details/4075884604.shtml)
+- 2026-06-29 15:46 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/37632933.shtml)
+- 2026-06-29 15:24 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.kurohicncr.top/Article/details/782854.shtml)
+- 2026-06-29 15:20 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/60797316163.shtml)
+- 2026-06-29 15:46 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/975347.shtml)
+- 2026-06-29 15:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/4116559983.shtml)
+- 2026-06-29 15:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/28396.shtml)
+- 2026-06-29 15:31 - [网友飞机上偶遇肖战](https://www.blog.minike.top/Article/details/124935925.shtml)
+- 2026-06-29 15:33 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/72296518.shtml)
+- 2026-06-29 15:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/62633.shtml)
+- 2026-06-29 15:37 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/28081.shtml)
+- 2026-06-29 15:26 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/6299379.shtml)

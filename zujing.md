@@ -1,61 +1,58 @@
-# 生态园竟变豪华“住宅式”墓地，售价200万元！总台记者调查
+# 雪佛龙将为微软得州大型数据中心供应天然气电力
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-“长春南”“上风上水”“新中式水景艺术园林”……这是位于吉林省四平市伊通满族自治县（以下简称伊通县）的长庚生态园，对外公开销售墓地的营销卖点。 该公墓与周围村屯仅一墙之隔。村民们反映，项目征地之初，对外宣称要开发生态旅游项目。然而时隔近8年，园区却只见墓地，当时承诺的其他生态项目却不见踪影。 长庚生态园宣称占地2300亩，总台记者实地走访调查发现，这里不仅涉嫌违规大面积建设超标
+核心要点 该数据中心项目代号为 “基尔比项目”，预计耗电量接近 2.7 吉瓦，约等于 200 万户家庭的用电总量。 大部分电力将由雪佛龙合作方通用电气威尔诺瓦公司提供的大型燃气轮机产出。 雪佛龙预计这座数据中心将于 2028 年正式接入供电。 这家油气巨头于本周一宣布，已与微软签署一份为期 20 年的合作协议，将为微软位于西德克萨斯州的大型数据中心提供天然气发电供电服务。 该数
 
 ## 正文
 
-“长春南”“上风上水”“新中式水景艺术园林”……这是位于吉林省四平市伊通满族自治县（以下简称伊通县）的长庚生态园，对外公开销售墓地的营销卖点。
+核心要点 该数据中心项目代号为 “基尔比项目”，预计耗电量接近 2.7 吉瓦，约等于 200 万户家庭的用电总量。
 
-该公墓与周围村屯仅一墙之隔。
+大部分电力将由雪佛龙合作方通用电气威尔诺瓦公司提供的大型燃气轮机产出。
 
-村民们反映，项目征地之初，对外宣称要开发生态旅游项目。
+雪佛龙预计这座数据中心将于 2028 年正式接入供电。
 
-然而时隔近8年，园区却只见墓地，当时承诺的其他生态项目却不见踪影。
+这家油气巨头于本周一宣布，已与微软签署一份为期 20 年的合作协议，将为微软位于西德克萨斯州的大型数据中心提供天然气发电供电服务。
 
-长庚生态园宣称占地2300亩，总台记者实地走访调查发现，这里不仅涉嫌违规大面积建设超标豪华墓地，还涉嫌占用部分耕地和林地建墓地。
+该数据中心项目代号为基尔比项目，预计总用电负荷接近 2.7 吉瓦，相当于约 200 万户家庭的用电量。
 
-本该是生态园的地块，为何会变成营利性墓地？
+项目大部分电力将由雪佛龙合作企业通用电气威尔诺瓦提供的大型燃气轮机机组发电，卡特彼勒也将配套供应燃气轮机，整套发电基础设施将直接落地建设在数据中心园区内。
 
-35座建而不售的“祠堂墓” 上下两层超30平方米 售价约200万元 长庚生态园距离吉林省长春市不到一小时车程，与其一墙之隔的是四平市伊通县景台镇永久村大成号屯。
+目前，位于里夫斯县的基尔比项目尚未开工建设。
 
-长庚生态园接待人员告诉总台记者，公墓有如意苑、吉祥苑、揽胜苑、泰和苑、锦绣苑5处墓区在售，价格在2万多元到10万元不等，其中，锦绣苑是今年新开的园区。
+雪佛龙计划在今年晚些时候对该项目作出最终投资决策，数据中心预计 2028 年正式通电投入使用。
 
 ## 相关推荐
 
-- 2026-06-29 15:33 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 15:39 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 15:22 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 15:32 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 15:39 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 15:12 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 15:31 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 15:34 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 15:32 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 15:28 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 15:27 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 15:23 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 15:30 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 15:37 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 15:20 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 15:39 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 15:38 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 15:32 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 15:42 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 15:45 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 15:25 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 15:35 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 15:26 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 15:24 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 15:34 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 15:37 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 15:30 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:34 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/019797293629.shtml)
-- 2026-06-29 15:29 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/510646111738.shtml)
-- 2026-06-29 15:14 - [加拿大绝杀南非晋级](http://www.share.minike.top/Article/details/0313582994.shtml)
-- 2026-06-29 15:35 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/8649378.shtml)
-- 2026-06-29 15:37 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/62284321828.shtml)
-- 2026-06-29 15:20 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/4477062.shtml)
-- 2026-06-29 15:34 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/51216522.shtml)
-- 2026-06-29 15:23 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/896536730751.shtml)
-- 2026-06-29 15:20 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/815912474.shtml)
-- 2026-06-29 15:15 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/02991832179.shtml)
-- 2026-06-29 15:12 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/174590520.shtml)
-- 2026-06-29 15:35 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/068216.shtml)
-- 2026-06-29 15:16 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.minike.top/Article/details/0025066.shtml)
-- 2026-06-29 15:25 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/0658229.shtml)
-- 2026-06-29 15:38 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.minike.top/Article/details/098701173.shtml)
+- 2026-06-29 15:31 - [恋与深空发放补偿未得到玩家认可](http://www.share.kurohicncr.top/Article/details/100085.shtml)
+- 2026-06-29 15:47 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/4900993722.shtml)
+- 2026-06-29 15:42 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/607017455383.shtml)
+- 2026-06-29 15:42 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/964772026.shtml)
+- 2026-06-29 15:34 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/242969384521.shtml)
+- 2026-06-29 15:18 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/5984795.shtml)
+- 2026-06-29 15:41 - [周生如故](http://www.blog.kurohicncr.top/Article/details/056543000.shtml)
+- 2026-06-29 15:20 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/776235.shtml)
+- 2026-06-29 15:23 - [王祖蓝现场观看美加墨世界杯](https://www.share.minike.top/Article/details/755195161058.shtml)
+- 2026-06-29 15:26 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/672984.shtml)
+- 2026-06-29 15:46 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/199138344.shtml)
+- 2026-06-29 15:47 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/655127.shtml)
+- 2026-06-29 15:41 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.kurohicncr.top/Article/details/319481.shtml)
+- 2026-06-29 15:33 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/47930598588.shtml)
+- 2026-06-29 15:19 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/451348.shtml)

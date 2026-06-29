@@ -1,56 +1,56 @@
-# 关注“体验经济”丨看风景到入剧情 大运河“体验经济”升温
+# 上海银行向潮汕大佬追债的金额增至130亿，钱没追回、债也还没完
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-新华社南京4月26日电 题：看风景到入剧情 大运河“体验经济”升温 新华社记者邱冰清 暮春时节，运河三湾风景如画，游客沿运河边步道缓缓而行，岸边垂柳与远处的剪影桥在碧波中映出倒影，风一吹，涟漪荡开一幅水墨画。不远处的扬州中国大运河博物馆内传来阵阵惊叹——一群青少年“穿越”回明朝，化身监水使者，手持一本卷宗，在“大明都水监之运河迷踪”展厅里闯关解密。 这是一个开在博物馆里的“密室
+来源：湘财Plus 上海银行深圳分行三次起诉宝能系，一审全部判决后，该行位于上海的普陀支行也开始加入追债队伍。据湘财Plus统计，叠加本次新增诉讼，上海银行已公开披露、进入司法流程的宝能系债务本金合计达129.64亿元。宝能系曾是上海银行单一最大客户，该行2020年曾在公开举报事件后披露数据，贷款余额214亿余元。目前，仅宝能集团的主体下，被执行总金额就超过410亿元，上海银行
 
 ## 正文
 
-新华社南京4月26日电 题：看风景到入剧情 大运河“体验经济”升温 新华社记者邱冰清 暮春时节，运河三湾风景如画，游客沿运河边步道缓缓而行，岸边垂柳与远处的剪影桥在碧波中映出倒影，风一吹，涟漪荡开一幅水墨画。
+来源：湘财Plus 上海银行深圳分行三次起诉宝能系，一审全部判决后，该行位于上海的普陀支行也开始加入追债队伍。
 
-不远处的扬州中国大运河博物馆内传来阵阵惊叹——一群青少年“穿越”回明朝，化身监水使者，手持一本卷宗，在“大明都水监之运河迷踪”展厅里闯关解密。
+据湘财Plus统计，叠加本次新增诉讼，上海银行已公开披露、进入司法流程的宝能系债务本金合计达129.64亿元。
 
-这是一个开在博物馆里的“密室逃脱”，孩子们需要根据墙上视频资料选择大运河正确路线，判断适合出行的船只，根据风向决定船帆朝向，用铅块在卷宗上拓印文字、清理淤泥、操作澳闸让船只通行等，每道关卡都藏着运河历史知识。
+宝能系曾是上海银行单一最大客户，该行2020年曾在公开举报事件后披露数据，贷款余额214亿余元。
 
-“孩子玩了一个多小时，居然能跟我大致讲清古代漕运怎么运作。
+目前，仅宝能集团的主体下，被执行总金额就超过410亿元，上海银行债权清收难度大，追债之路漫长。
 
-”陪儿子“闯关”成功的徐州游客陈初感叹道，通过边玩边学，不知不觉就让孩子记住了很多知识点。
+新增30亿并购贷诉讼 上海银行本地支行入局追讨 据上海银行公告披露的信息，该行普陀支行2019年通过并购贷款向深圳方瑞投资有限公司（以下简称深圳方瑞）放款31.34496亿元，担保方式为深圳方瑞提供上海兴力达商业广场有限公司、上海建配龙房地产有限公司股权质押担保，上海濠泉房地产有限公司、上海兴力达商业广场有限公司、上海建配龙房地产有限公司、深圳建业工程集团股份有限公司、宝能控股（中国）有限公司提供连带责任保证担保。
 
-当剧情成为注意力的锚点，用参与激发情感连接，文化不再是被灌输的知识，而是被亲身经历的记忆。
+鉴于深圳方瑞等未依约履行合同义务，普陀支行宣布贷款提前到期，向上海金融法院提起诉讼，请求判令深圳方瑞立即偿还借款本金、所欠利息、罚息、复利，及为实现债权而产生的全部费用等，质押股权的拍卖、变卖、折价等方式处置所得价款在全部债权范围内优先受偿，其他担保人承担连带清偿责任。
 
-改编自茅盾文学奖作品的电视剧《北上》的热播，让运河文化体验从博物馆的展厅“流淌”到更广阔的运河两岸。
+目前，此案已获上海金融法院受理，庭审时间待定。
 
-荧幕里，运河边的船来船往、青石板上的童年记忆、老茶馆里的家长里短，勾勒出一幅充满烟火气的水乡生活画卷。
+截至起诉日，深圳方瑞尚欠上海银行本金30.07666亿元及利息等。
 
 ## 相关推荐
 
-- 2026-06-29 15:26 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 15:12 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 15:25 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 15:34 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 15:35 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 15:23 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 15:24 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 15:23 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 15:36 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 15:31 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 15:39 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 15:45 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 15:40 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 15:22 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 15:23 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 15:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 15:39 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 15:19 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 15:20 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 15:28 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:15 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/519353.shtml)
-- 2026-06-29 15:32 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/8770393133.shtml)
-- 2026-06-29 15:26 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/4721418.shtml)
-- 2026-06-29 15:36 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/52641214660.shtml)
-- 2026-06-29 15:41 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/43434630032.shtml)
-- 2026-06-29 15:29 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/748425343245.shtml)
-- 2026-06-29 15:34 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/630971.shtml)
-- 2026-06-29 15:19 - [东方风云榜](http://www.share.minike.top/Article/details/58057789.shtml)
-- 2026-06-29 15:30 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/6048761.shtml)
-- 2026-06-29 15:19 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/5370268494.shtml)
-- 2026-06-29 15:18 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/932175411.shtml)
-- 2026-06-29 15:24 - [在委侨团负责人：家乡的帮助很及时](http://www.share.minike.top/Article/details/78152297084.shtml)
-- 2026-06-29 15:16 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/1489312.shtml)
-- 2026-06-29 15:28 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/46795297372.shtml)
-- 2026-06-29 15:29 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/811912675445.shtml)
+- 2026-06-29 15:30 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.minike.top/Article/details/2792040.shtml)
+- 2026-06-29 15:24 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/645327.shtml)
+- 2026-06-29 15:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/113781655038.shtml)
+- 2026-06-29 15:38 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/448334438.shtml)
+- 2026-06-29 15:29 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/05957.shtml)
+- 2026-06-29 15:46 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/17830588.shtml)
+- 2026-06-29 15:35 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/145037490.shtml)
+- 2026-06-29 15:39 - [极限挑战第一季](https://www.share.minike.top/Article/details/080616.shtml)
+- 2026-06-29 15:34 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/523832481611.shtml)
+- 2026-06-29 15:40 - [当地回应林区违规放羊遭豹啃食](http://www.share.minike.top/Article/details/8255593.shtml)
+- 2026-06-29 15:37 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/9625303.shtml)
+- 2026-06-29 15:31 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.kurohicncr.top/Article/details/4212559044.shtml)
+- 2026-06-29 15:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/228000744979.shtml)
+- 2026-06-29 15:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/415508.shtml)
+- 2026-06-29 15:35 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/261205.shtml)

@@ -1,61 +1,58 @@
-# 周末影响市场重要资讯回顾：国常会研究科技创新有关工作，宁王重登主动基金头号重仓股
+# 印度尼西亚工商会主席：互联互通要有包容性，一定要囊括中小微企业
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周末影响市场的重要资讯有：国常会研究科技创新有关工作，听取推动海洋经济高质量发展情况汇报；特朗普取消美方代表赴巴基斯坦行程；白宫记者晚宴传出“枪声”，特朗普被紧急疏散；上交所修订发布《交易规则》，7月6日起实施，主板风险警示股票涨跌幅限制调整为10%；深交所正式发布深化创业板改革首批配套业务规则；宁王重登
+专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。ABAC印尼代表、印度尼西亚工商会主席阿宁迪亚·诺维扬·巴克里表示，互联互通一定要囊括中小微企业。 他指出，印尼是由17000多个岛屿组成的国家，只有实现各个岛屿之间的互联互通，才能共享国家发展和经济增长。他透露，印尼去年的经济
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。
 
-本周末影响市场的重要资讯有：国常会研究科技创新有关工作，听取推动海洋经济高质量发展情况汇报；特朗普取消美方代表赴巴基斯坦行程；白宫记者晚宴传出“枪声”，特朗普被紧急疏散；上交所修订发布《交易规则》，7月6日起实施，主板风险警示股票涨跌幅限制调整为10%；深交所正式发布深化创业板改革首批配套业务规则；宁王重登主动基金头号重仓股；纳指、标普再创新高。
+ABAC印尼代表、印度尼西亚工商会主席阿宁迪亚·诺维扬·巴克里表示，互联互通一定要囊括中小微企业。
 
-宏观及市场要闻 国常会：研究科技创新有关工作 听取推动海洋经济高质量发展情况汇报 李强周五主持召开国务院常务会议，听取推动海洋经济高质量发展情况汇报。
+他指出，印尼是由17000多个岛屿组成的国家，只有实现各个岛屿之间的互联互通，才能共享国家发展和经济增长。
 
-会议指出，要提高经略海洋能力，高效开发利用海洋，推动海洋经济高质量发展，加快建设海洋强国。
+他透露，印尼去年的经济增长率约为5.1%，今年第一季度达到5.6%，这一切都归结于基础设施、人文交流以及机制方面的互联互通。
 
-要强化海洋战略科技力量，加强海洋科技创新，推动海洋领域数字化智能化转型升级。
+针对未来的发展方向，阿宁迪亚认为互联互通需要设立更加雄心壮志的目标。
 
-要做强做优做大海洋产业，巩固提升优势产业地位，大力培育海洋生物医药、新材料等新兴产业，有序开发海洋能源资源。
+他指出，不仅要有互联互通，更需要以环保、可持续的方式来实现。
 
-要积极拓展海洋经济发展空间，加强主要海湾整体规划和海岛保护利用，着力培育新的经济增长点。
+在讨论供应链时，必须从大局出发，推进数字化进程。
 
-要深度参与全球海洋治理，深化海洋领域开放合作，坚决维护国家海洋权益和战略安全。
+此外，阿宁迪亚特别强调了互联互通的包容性。
 
 ## 相关推荐
 
-- 2026-06-29 15:33 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 15:16 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 15:14 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 15:15 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 15:29 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 15:25 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 15:28 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 15:29 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 15:18 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 15:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 15:12 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 15:31 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 15:12 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 15:39 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 15:20 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 15:35 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 15:46 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 15:47 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 15:22 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 15:35 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 15:22 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 15:24 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 15:18 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 15:19 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 15:28 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 15:18 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 15:47 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:31 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/400866630803.shtml)
-- 2026-06-29 15:13 - [毒液2](https://www.blog.kurohicncr.top/Article/details/647238508466.shtml)
-- 2026-06-29 15:29 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/640683336534.shtml)
-- 2026-06-29 15:23 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/919674745.shtml)
-- 2026-06-29 15:31 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/887282659.shtml)
-- 2026-06-29 15:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/0158713117.shtml)
-- 2026-06-29 15:16 - [王楚钦3-0周启豪 晋级32强](http://www.blog.minike.top/Article/details/29443408.shtml)
-- 2026-06-29 15:28 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.kurohicncr.top/Article/details/56631.shtml)
-- 2026-06-29 15:32 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/9684508.shtml)
-- 2026-06-29 15:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/68392.shtml)
-- 2026-06-29 15:13 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/16910827113.shtml)
-- 2026-06-29 15:20 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/90024416511.shtml)
-- 2026-06-29 15:18 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/3307568425.shtml)
-- 2026-06-29 15:28 - [小娘惹](https://www.share.kurohicncr.top/Article/details/234101.shtml)
-- 2026-06-29 15:22 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/2796311.shtml)
+- 2026-06-29 15:26 - [国家体育总局政策法规司原副司长获刑](https://www.blog.minike.top/Article/details/917167.shtml)
+- 2026-06-29 15:25 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/43653562207.shtml)
+- 2026-06-29 15:21 - [逃狱兄弟](http://www.blog.minike.top/Article/details/2843550433.shtml)
+- 2026-06-29 15:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/07887686448.shtml)
+- 2026-06-29 15:27 - [智界V9成为高端圈层共同选择](http://www.share.kurohicncr.top/Article/details/60922.shtml)
+- 2026-06-29 15:39 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/03889.shtml)
+- 2026-06-29 15:31 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/1878718485.shtml)
+- 2026-06-29 15:24 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/343539.shtml)
+- 2026-06-29 15:31 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.kurohicncr.top/Article/details/595750325.shtml)
+- 2026-06-29 15:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/7162917026.shtml)
+- 2026-06-29 15:20 - [一生一世](http://www.blog.kurohicncr.top/Article/details/42152110.shtml)
+- 2026-06-29 15:22 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/0205688931.shtml)
+- 2026-06-29 15:20 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/77058054615.shtml)
+- 2026-06-29 15:27 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/42546.shtml)
+- 2026-06-29 15:45 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/7335204840.shtml)

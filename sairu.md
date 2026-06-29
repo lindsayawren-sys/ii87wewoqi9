@@ -1,57 +1,59 @@
-# 西藏农牧民“执掌”乡村旅游迎“五一”
+# 广州法国外籍人员子女学校新校址落成典礼举行
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网拉萨4月27日电 题：西藏农牧民“执掌”乡村旅游迎“五一” 中新网记者 江飞波 4月下旬，海拔3600多米的高原古城拉萨春意盎然，游客络绎不绝，西藏旅游市场逐渐火热。各地参与旅游经营的农牧民正积极筹备，迎接即将到来的“五一”假期。 在西藏自治区工布江达县错高乡罗池村，新措景区近期周末日均迎来游客约300人次。新措位于林芝巴松措景区以东30公里，沿途雪山林立、飞瀑流云，近年
+中新网广州6月22日电 (记者 郭军)广州法国外籍人员子女学校新校址22日举行落成典礼，广东省、广州市政府代表，各国驻穗领事机构代表及中法教育界同仁共同参加本次典礼。 本次落成典礼是该校取得中国教育主管部门核发办学许可证后举办的重大活动，标志着中法教育合作迈入新发展阶段。 广州法国外籍人员子女学校始创于1997年，如今已成为华南地区唯一一所使用法国教育部统一教学大纲、提供从幼儿
 
 ## 正文
 
-中新网拉萨4月27日电 题：西藏农牧民“执掌”乡村旅游迎“五一” 中新网记者 江飞波 4月下旬，海拔3600多米的高原古城拉萨春意盎然，游客络绎不绝，西藏旅游市场逐渐火热。
+中新网广州6月22日电 (记者 郭军)广州法国外籍人员子女学校新校址22日举行落成典礼，广东省、广州市政府代表，各国驻穗领事机构代表及中法教育界同仁共同参加本次典礼。
 
-各地参与旅游经营的农牧民正积极筹备，迎接即将到来的“五一”假期。
+本次落成典礼是该校取得中国教育主管部门核发办学许可证后举办的重大活动，标志着中法教育合作迈入新发展阶段。
 
-在西藏自治区工布江达县错高乡罗池村，新措景区近期周末日均迎来游客约300人次。
+广州法国外籍人员子女学校始创于1997年，如今已成为华南地区唯一一所使用法国教育部统一教学大纲、提供从幼儿园至法国高中毕业会考的完整连贯课程的学校。
 
-新措位于林芝巴松措景区以东30公里，沿途雪山林立、飞瀑流云，近年来成为不少自驾、徒步及骑行爱好者的“打卡地”。
+建校近三十年来，学校持续服务华南地区法籍及其他国际家庭，并积极推动法中两国教育、文化双向交流。
 
-“我们这边3月开始回暖，按照往年经验，‘五一’假期将迎来今年的首个旅游高峰。
+目前，该校汇聚了来自全球超25个国家和地区的学生，开设法、英、中三语教学课程，着力拓宽学生的国际视野，促进跨文化交流，培育面向未来的国际化人才。
 
-”罗池村委会主任尼玛次仁介绍，依托新措景点，2025年全村实现旅游收入550万元，在留存部分资金用作经营费用后，为全村93户村民分红430万元。
+全新投用的龙洞校区可容纳500名学生，配备符合国际标准的现代化教学设施。
 
-他补充道，为规范经营，村里成立了新措旅游开发有限公司，在原有骑马服务基础上拓展场地越野摩托车项目。
+新校区将助力学校长远发展，进一步增强学校对追求多元文化、多语种教育环境的中外家庭的吸引力。
 
-今年还将景区门口到新措湖的土路铺上了砂石，进一步提升游客体验。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:31 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 15:40 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 15:24 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 15:24 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 15:34 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 15:16 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 15:14 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 15:17 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 15:15 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 15:39 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 15:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 15:28 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 15:33 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 15:19 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 15:38 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 15:28 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 15:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 15:29 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 15:36 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 15:36 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 15:47 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 15:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 15:25 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 15:44 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:30 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/3648257.shtml)
-- 2026-06-29 15:20 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/0281796.shtml)
-- 2026-06-29 15:28 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/125397534.shtml)
-- 2026-06-29 15:20 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/73404518.shtml)
-- 2026-06-29 15:29 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/73255.shtml)
-- 2026-06-29 15:32 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/2685677.shtml)
-- 2026-06-29 15:40 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/383268197.shtml)
-- 2026-06-29 15:19 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/1436752.shtml)
-- 2026-06-29 15:16 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/3474390.shtml)
-- 2026-06-29 15:13 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/9594737155.shtml)
-- 2026-06-29 15:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/459296843665.shtml)
-- 2026-06-29 15:33 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/675833990019.shtml)
-- 2026-06-29 15:19 - [警方回应东鹏饮料董事长不喝东鹏](https://www.blog.kurohicncr.top/Article/details/845832426.shtml)
-- 2026-06-29 15:19 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/8822924.shtml)
-- 2026-06-29 15:24 - [南非老帅布罗斯的梦没能做完](http://www.blog.minike.top/Article/details/119723274604.shtml)
+- 2026-06-29 15:37 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/9139058.shtml)
+- 2026-06-29 15:41 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/44890.shtml)
+- 2026-06-29 15:18 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/542710225.shtml)
+- 2026-06-29 15:19 - [急先锋](http://www.blog.kurohicncr.top/Article/details/713437.shtml)
+- 2026-06-29 15:43 - [崔韩率还以为韩娱来新人了](http://www.blog.kurohicncr.top/Article/details/64720.shtml)
+- 2026-06-29 15:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/25562850920.shtml)
+- 2026-06-29 15:35 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/21960.shtml)
+- 2026-06-29 15:46 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/5868117.shtml)
+- 2026-06-29 15:32 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/28871.shtml)
+- 2026-06-29 15:31 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/444444512.shtml)
+- 2026-06-29 15:37 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/1448327.shtml)
+- 2026-06-29 15:44 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/47572875.shtml)
+- 2026-06-29 15:18 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/207842.shtml)
+- 2026-06-29 15:30 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/644036.shtml)
+- 2026-06-29 15:47 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/860845.shtml)

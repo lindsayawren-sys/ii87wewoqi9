@@ -1,46 +1,50 @@
-# 俄国防部：俄多地遭无人机袭击
+# 霍启刚：需警惕运动员遭遇网暴
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-俄罗斯国防部26日早发布通报说，莫斯科时间25日晚至26日早晨，俄防空系统在别尔哥罗德州、布良斯克州、莫斯科州、罗斯托夫州、梁赞州等地拦截并摧毁了乌克兰固定翼无人机。 (央视新闻客户端 总台记者 程谟)
+发布时间：2026年06月23日 15:32 来源：中国新闻网 香港特别行政区立法会议员霍启刚23日在夏季达沃斯论坛上表示，运动员直接和粉丝、观众对话固然好，但是不管什么工具，往往都是一把双刃剑。我们看到运动员遭遇网暴的情况，必须清楚意识这一点并引起警惕。社交媒体有时会出现吞噬性的影响，要注意这种现象的存在，帮助运动员健康成长。(李京泽 李雪飞） 责任编辑：【李光伟】
 
 ## 正文
 
-俄罗斯国防部26日早发布通报说，莫斯科时间25日晚至26日早晨，俄防空系统在别尔哥罗德州、布良斯克州、莫斯科州、罗斯托夫州、梁赞州等地拦截并摧毁了乌克兰固定翼无人机。
+发布时间：2026年06月23日 15:32 来源：中国新闻网 香港特别行政区立法会议员霍启刚23日在夏季达沃斯论坛上表示，运动员直接和粉丝、观众对话固然好，但是不管什么工具，往往都是一把双刃剑。
 
-(央视新闻客户端 总台记者 程谟)
+我们看到运动员遭遇网暴的情况，必须清楚意识这一点并引起警惕。
+
+社交媒体有时会出现吞噬性的影响，要注意这种现象的存在，帮助运动员健康成长。
+
+(李京泽 李雪飞） 责任编辑：【李光伟】
 
 ## 相关推荐
 
-- 2026-06-29 15:39 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 15:37 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 15:34 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 15:23 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 15:31 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 15:16 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 15:35 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 15:26 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 15:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 15:24 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 15:40 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 15:17 - [7款商保创新药“转道”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 15:28 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 15:26 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 15:32 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 15:40 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 15:39 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 15:37 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 15:18 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 15:44 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 15:42 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 15:27 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 15:31 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 15:29 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/3952160.shtml)
-- 2026-06-29 15:28 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/3475411238.shtml)
-- 2026-06-29 15:38 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/646678856254.shtml)
-- 2026-06-29 15:21 - [BB大王横店拍戏](https://www.blog.kurohicncr.top/Article/details/55804572.shtml)
-- 2026-06-29 15:26 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.minike.top/Article/details/9215335892.shtml)
-- 2026-06-29 15:33 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.kurohicncr.top/Article/details/380115.shtml)
-- 2026-06-29 15:25 - [医院大厅放钢琴是形式主义吗](http://www.share.minike.top/Article/details/433102258.shtml)
-- 2026-06-29 15:28 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/4896289766.shtml)
-- 2026-06-29 15:27 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/7664939118.shtml)
-- 2026-06-29 15:33 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/03219901714.shtml)
-- 2026-06-29 15:36 - [BB大王横店拍戏](https://www.share.kurohicncr.top/Article/details/461214802346.shtml)
-- 2026-06-29 15:23 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/194699192112.shtml)
-- 2026-06-29 15:22 - [行程万里不忘初心](https://www.blog.kurohicncr.top/Article/details/748513551.shtml)
-- 2026-06-29 15:32 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/960285.shtml)
-- 2026-06-29 15:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/4019196.shtml)
+- 2026-06-29 15:46 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/2901242489.shtml)
+- 2026-06-29 15:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/60848476.shtml)
+- 2026-06-29 15:34 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/58488.shtml)
+- 2026-06-29 15:34 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/626757981.shtml)
+- 2026-06-29 15:42 - [明星大侦探第一季](https://www.share.minike.top/Article/details/381541157578.shtml)
+- 2026-06-29 15:20 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/1706413.shtml)
+- 2026-06-29 15:21 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/31182918000.shtml)
+- 2026-06-29 15:18 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/795650.shtml)
+- 2026-06-29 15:27 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/59904617.shtml)
+- 2026-06-29 15:42 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/07815250138.shtml)
+- 2026-06-29 15:27 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/85101590813.shtml)
+- 2026-06-29 15:35 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/106863506233.shtml)
+- 2026-06-29 15:41 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/154664738.shtml)
+- 2026-06-29 15:20 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/508881043871.shtml)
+- 2026-06-29 15:29 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/515470.shtml)

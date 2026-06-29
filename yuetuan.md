@@ -1,47 +1,56 @@
-# 马斯克诉奥特曼案开庭
+# 韩监管机构对个股杠杆ETF过热交易表示担忧，将出台措施保护投资者
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-埃隆·马斯克寻求撤销OpenAI营利性结构的诉讼已进入庭审程序，这可能对微软等合作伙伴以及马斯克在特斯拉的其他企业产生影响。责任编辑：张俊 SF065
+韩国金融监管机构负责人周一表示，新推出的单只股票杠杆交易所交易基金（ETF）产生了许多副作用，该机构正在制定措施来保护投资者。 韩国金融监督院院长李灿镇表示，自5月下旬推出以来，以三星电子和SK海力士为标的资产的单只股票杠杆ETF出现了过热的抢购潮，换手率极高。 他表示：“我非常担心玩家无法获得任何实质性收益，而只有管理和运营实体才能从中获利。” 李灿镇表示，韩国金融监督院正在
 
 ## 正文
 
-埃隆·马斯克寻求撤销OpenAI营利性结构的诉讼已进入庭审程序，这可能对微软等合作伙伴以及马斯克在特斯拉的其他企业产生影响。
+韩国金融监管机构负责人周一表示，新推出的单只股票杠杆交易所交易基金（ETF）产生了许多副作用，该机构正在制定措施来保护投资者。
 
-责任编辑：张俊 SF065
+韩国金融监督院院长李灿镇表示，自5月下旬推出以来，以三星电子和SK海力士为标的资产的单只股票杠杆ETF出现了过热的抢购潮，换手率极高。
+
+他表示：“我非常担心玩家无法获得任何实质性收益，而只有管理和运营实体才能从中获利。
+
+” 李灿镇表示，韩国金融监督院正在评估相关措施，以缓冲可能对投资者造成的不利影响。
+
+受人工智能（AI）驱动的上涨行情影响，三星电子和SK海力士等基础资产的波动性加剧，进而导致单只股票杠杆ETF的波动性也随之放大。
+
+据韩国金融监督院数据显示，5月27日，单只股票杠杆ETF在韩国股市上市首日，总市值约为4.5万亿韩元（约合29.5亿美元）。
+
+但到6月12日，其市值已增加了一倍多，达到9.6万亿韩元。
+
+此外，FSS数据显示，单只股票杠杆ETF的日均换手率高达122.5%，远高于其他杠杆反向ETF的30.2%。
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 15:32 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 15:29 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 15:34 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 15:20 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 15:36 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 15:35 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 15:15 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 15:40 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 15:24 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 15:27 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 15:37 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 15:34 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 15:35 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 15:48 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 15:37 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 15:33 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 15:34 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 15:24 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 15:32 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 15:40 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 15:29 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 15:33 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:31 - [未来5年全国能源体系将呈现这些特征](http://www.share.kurohicncr.top/Article/details/45018505.shtml)
-- 2026-06-29 15:32 - [记者率先试乘西十高铁](http://www.blog.minike.top/Article/details/976082.shtml)
-- 2026-06-29 15:21 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/90441.shtml)
-- 2026-06-29 15:13 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/33717119.shtml)
-- 2026-06-29 15:34 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/693120.shtml)
-- 2026-06-29 15:18 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/577926233.shtml)
-- 2026-06-29 15:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/215391498415.shtml)
-- 2026-06-29 15:22 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/67816447.shtml)
-- 2026-06-29 15:27 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/512559.shtml)
-- 2026-06-29 15:38 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/950630.shtml)
-- 2026-06-29 15:24 - [千与千寻](http://www.share.kurohicncr.top/Article/details/492185.shtml)
-- 2026-06-29 15:41 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/777469.shtml)
-- 2026-06-29 15:15 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/4558425242.shtml)
-- 2026-06-29 15:20 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/699127232.shtml)
-- 2026-06-29 15:24 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/770456671.shtml)
+- 2026-06-29 15:33 - [欧洲多国激辩“装不装空调”](http://www.share.kurohicncr.top/Article/details/59703272.shtml)
+- 2026-06-29 15:31 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.kurohicncr.top/Article/details/5703112752.shtml)
+- 2026-06-29 15:44 - [T1 KC](https://www.blog.minike.top/Article/details/386042.shtml)
+- 2026-06-29 15:35 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/413762943613.shtml)
+- 2026-06-29 15:23 - [驻日美军航母沦为“毒窝”](http://www.share.minike.top/Article/details/9909522285.shtml)
+- 2026-06-29 15:33 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/8176230.shtml)
+- 2026-06-29 15:47 - [第一炉香](https://www.share.kurohicncr.top/Article/details/551779860721.shtml)
+- 2026-06-29 15:45 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/399607994.shtml)
+- 2026-06-29 15:33 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/097102317.shtml)
+- 2026-06-29 15:35 - [小娘惹](http://www.share.minike.top/Article/details/586381185.shtml)
+- 2026-06-29 15:37 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/05236457016.shtml)
+- 2026-06-29 15:41 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.minike.top/Article/details/06469815.shtml)
+- 2026-06-29 15:22 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/349029472.shtml)
+- 2026-06-29 15:20 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/95319035098.shtml)
+- 2026-06-29 15:28 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/826395856.shtml)

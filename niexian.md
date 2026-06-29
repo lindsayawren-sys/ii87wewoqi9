@@ -1,59 +1,44 @@
-# 青春，就应该这样！——写在2026年五四青年节到来之际
+# 【早盘三分钟】6月23日华宝基金ETF早知道
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-作者：关铭闻 历史的册页，又一次定格在“五四”。 “青年者，国家之魂。” “青年兴则国家兴，青年强则国家强。”这个春天，“十五五”规划纲要正式发布，全面建设社会主义现代化国家迎来关键一程。 在这个历史方位，时代对青年人发出这样的叩问： 青年当何为？青年如何为？ 一 欲知大道，必先为史。 ——革命岁月，他们以“觉醒”和“牺牲”铸就青春底色。 “茫茫大陆起风云，举国昏沉岂足云。”1
+责任编辑：常福强
 
 ## 正文
 
-作者：关铭闻 历史的册页，又一次定格在“五四”。
-
-“青年者，国家之魂。
-
-” “青年兴则国家兴，青年强则国家强。
-
-”这个春天，“十五五”规划纲要正式发布，全面建设社会主义现代化国家迎来关键一程。
-
-在这个历史方位，时代对青年人发出这样的叩问： 青年当何为？
-
-青年如何为？
-
-一 欲知大道，必先为史。
-
-——革命岁月，他们以“觉醒”和“牺牲”铸就青春底色。
+责任编辑：常福强
 
 ## 相关推荐
 
-- 2026-06-29 15:15 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 15:30 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 15:25 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 15:19 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 15:34 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 15:13 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 15:19 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 15:32 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 15:21 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 15:28 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 15:25 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 15:12 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 15:36 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 15:33 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 15:28 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 15:18 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 15:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 15:34 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 15:44 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 15:40 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 15:46 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 15:36 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 15:47 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 15:39 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 15:34 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:27 - [国家体育总局政策法规司原副司长获刑](https://www.blog.minike.top/Article/details/520430412.shtml)
-- 2026-06-29 15:41 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/6524202133.shtml)
-- 2026-06-29 15:32 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/502392801892.shtml)
-- 2026-06-29 15:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/160268617005.shtml)
-- 2026-06-29 15:33 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/56373679.shtml)
-- 2026-06-29 15:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/17594649.shtml)
-- 2026-06-29 15:41 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/13376.shtml)
-- 2026-06-29 15:29 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/360656201.shtml)
-- 2026-06-29 15:37 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/13832015.shtml)
-- 2026-06-29 15:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/496482770382.shtml)
-- 2026-06-29 15:40 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/13804376192.shtml)
-- 2026-06-29 15:14 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/76111970.shtml)
-- 2026-06-29 15:38 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/2895399342.shtml)
-- 2026-06-29 15:35 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/828021123263.shtml)
-- 2026-06-29 15:25 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/0021333.shtml)
+- 2026-06-29 15:34 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/6784732475.shtml)
+- 2026-06-29 15:47 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/76791451.shtml)
+- 2026-06-29 15:24 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/9237130814.shtml)
+- 2026-06-29 15:39 - [美媒：空警-3000服役即成全球最强](https://www.share.minike.top/Article/details/76158299.shtml)
+- 2026-06-29 15:39 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/3035264.shtml)
+- 2026-06-29 15:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/17351647978.shtml)
+- 2026-06-29 15:25 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/3455056.shtml)
+- 2026-06-29 15:36 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/06202950631.shtml)
+- 2026-06-29 15:28 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/892236192.shtml)
+- 2026-06-29 15:47 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/91863.shtml)
+- 2026-06-29 15:38 - [抓特务票房破亿](http://www.share.minike.top/Article/details/60706015918.shtml)
+- 2026-06-29 15:38 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/34800032.shtml)
+- 2026-06-29 15:33 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/843522.shtml)
+- 2026-06-29 15:47 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/5809608.shtml)
+- 2026-06-29 15:20 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/5461646.shtml)

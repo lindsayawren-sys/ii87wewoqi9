@@ -1,55 +1,47 @@
-# 日本出光兴产将向越南炼油厂供应石油，以帮助缓解石油短缺
+# 劲拓股份：请在工作日致电公司投资者热线或发送邮件至公司证券部邮箱进行参观交流预约
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-日本第二大石油公司出光兴产一位发言人周二表示，该公司将向越南一家炼油厂供应原油，该炼油厂正面临因伊朗冲突导致的供应中断而造成的燃料短缺问题。 出光兴业并未透露交付量或交付时间。据媒体报道，预计交付量约为400万桶。 出光兴业发言人称，该决定是应越南宜山炼油石化公司（出光持有该公司股份）的要求而做出的。 该公司补充说，这一要求也来自日本政府。责任编辑：于健 SF069
+证券日报网讯 6月22日，劲拓股份（维权）在互动平台回答投资者提问时表示，请在工作日致电公司投资者热线或发送邮件至公司证券部邮箱进行参观交流预约。（文章来源：证券日报）
 
 ## 正文
 
-日本第二大石油公司出光兴产一位发言人周二表示，该公司将向越南一家炼油厂供应原油，该炼油厂正面临因伊朗冲突导致的供应中断而造成的燃料短缺问题。
+证券日报网讯 6月22日，劲拓股份（维权）在互动平台回答投资者提问时表示，请在工作日致电公司投资者热线或发送邮件至公司证券部邮箱进行参观交流预约。
 
-出光兴业并未透露交付量或交付时间。
-
-据媒体报道，预计交付量约为400万桶。
-
-出光兴业发言人称，该决定是应越南宜山炼油石化公司（出光持有该公司股份）的要求而做出的。
-
-该公司补充说，这一要求也来自日本政府。
-
-责任编辑：于健 SF069
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 15:32 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 15:15 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 15:27 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 15:28 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 15:14 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 15:13 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 15:36 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 15:34 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 15:16 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 15:28 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 15:15 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 15:18 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 15:35 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 15:26 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 15:38 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 15:18 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 15:44 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 15:29 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 15:34 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 15:45 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 15:46 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 15:41 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 15:29 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 15:22 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 15:34 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 15:47 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:28 - [韩国国脚无缘上亿韩元奖金](http://www.blog.minike.top/Article/details/745603690597.shtml)
-- 2026-06-29 15:27 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.minike.top/Article/details/26332685.shtml)
-- 2026-06-29 15:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/767870.shtml)
-- 2026-06-29 15:13 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/4592969.shtml)
-- 2026-06-29 15:28 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/2036207061.shtml)
-- 2026-06-29 15:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/0351487.shtml)
-- 2026-06-29 15:24 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/06521978.shtml)
-- 2026-06-29 15:36 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/545541.shtml)
-- 2026-06-29 15:22 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/36959.shtml)
-- 2026-06-29 15:21 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/12269268284.shtml)
-- 2026-06-29 15:17 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/72377.shtml)
-- 2026-06-29 15:33 - [网警提醒4类高考查分陷阱考生速看](http://www.share.kurohicncr.top/Article/details/77251.shtml)
-- 2026-06-29 15:17 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/42751.shtml)
-- 2026-06-29 15:25 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/900298309.shtml)
-- 2026-06-29 15:30 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/30832.shtml)
+- 2026-06-29 15:32 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/2537923.shtml)
+- 2026-06-29 15:23 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/58309041.shtml)
+- 2026-06-29 15:41 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/182471093666.shtml)
+- 2026-06-29 15:27 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/9910403.shtml)
+- 2026-06-29 15:22 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/204092092.shtml)
+- 2026-06-29 15:18 - [BB大王横店拍戏](http://www.blog.kurohicncr.top/Article/details/011551.shtml)
+- 2026-06-29 15:30 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/9129682.shtml)
+- 2026-06-29 15:30 - [千与千寻](http://www.share.minike.top/Article/details/45564.shtml)
+- 2026-06-29 15:19 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/48792244404.shtml)
+- 2026-06-29 15:42 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/8058641.shtml)
+- 2026-06-29 15:26 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/153277.shtml)
+- 2026-06-29 15:21 - [美伊同意停止互袭](https://www.share.kurohicncr.top/Article/details/7313695793.shtml)
+- 2026-06-29 15:18 - [众星恭喜吴建豪](http://www.share.kurohicncr.top/Article/details/94665760462.shtml)
+- 2026-06-29 15:44 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/273130.shtml)
+- 2026-06-29 15:19 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.minike.top/Article/details/01964.shtml)

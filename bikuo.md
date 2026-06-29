@@ -1,61 +1,58 @@
-# 台湾史学者谈两岸交流：青年是互学互鉴关键力量
+# 东兴海关缉私分局关于社会车辆租赁定点服务采购项目的比选采购公告
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新社南京4月27日电 (李百加)第五届台湾史青年学者研讨会24日至27日在南京举行。多位与会人士受访表示，两岸青年学人是推动相关领域发展的关键力量。持续开展学术交流有助研究视野拓展，互学互鉴。 与会学者黄容自2018年赴台求学，在当地完成硕士学业并继续攻读博士学位。她表示，近年来赴台陆生规模持续缩减。学研过程中，有学生遭遇标签化解读，在台湾史等领域的学术表达受限。 来自台湾的
+东兴海关缉私分局拟采购东兴市辖区内的社会车辆定点租赁服务，采用比选采购的方式选择供应单位，现将采购情况公告如下： 一、项目名称及编号 东兴海关缉私分局社会车辆租赁定点服务采购项目(DXJS-NGP-2026-005)。 二、采购内容(一)采购需求。 提供以下租赁车型，并逐一进行报价：大型客车(46座以上)、大型客车(20-45座)、中型客车(9-19座)、商务车(7座)、越野车
 
 ## 正文
 
-中新社南京4月27日电 (李百加)第五届台湾史青年学者研讨会24日至27日在南京举行。
+东兴海关缉私分局拟采购东兴市辖区内的社会车辆定点租赁服务，采用比选采购的方式选择供应单位，现将采购情况公告如下： 一、项目名称及编号 东兴海关缉私分局社会车辆租赁定点服务采购项目(DXJS-NGP-2026-005)。
 
-多位与会人士受访表示，两岸青年学人是推动相关领域发展的关键力量。
+二、采购内容(一)采购需求。
 
-持续开展学术交流有助研究视野拓展，互学互鉴。
+提供以下租赁车型，并逐一进行报价：大型客车(46座以上)、大型客车(20-45座)、中型客车(9-19座)、商务车(7座)、越野车、小轿车及皮卡车等7种车型。
 
-与会学者黄容自2018年赴台求学，在当地完成硕士学业并继续攻读博士学位。
+(二)服务需求。
 
-她表示，近年来赴台陆生规模持续缩减。
+1. 租赁期内，出租方应确保交付我方使用的车辆状态符合国家相关法律法规要求，且车辆状况良好，可以正常上路行驶。
 
-学研过程中，有学生遭遇标签化解读，在台湾史等领域的学术表达受限。
+2. 租赁期内，出租方负责为车辆购买交强险、车身保险、第三者责任险、司乘座位险、附加险等相关保险(保险金额须足以覆盖车辆使用过程中有可能造成的一切损失)，且保险有效期限需包含租赁期限全过程。
 
-来自台湾的上海大学副教授林威杰也提及，如在台隐蔽战线等议题，史料考据和解读上有赖不同学术视角的交叉验证与相互补充。
+如出租方未购买相关保险或保险金额不足，造成的一切损失和法律责任由出租方承担。
 
-“仅凭单一叙事框架，很难还原历史的复杂面貌。
+3. 租赁期内，由出租方负责车辆按期保养、正常磨损和机械故障的维修及年审等相关工作和费用。
 
 ## 相关推荐
 
-- 2026-06-29 15:38 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 15:38 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 15:28 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 15:35 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 15:32 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 15:38 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 15:28 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 15:25 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 15:40 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 15:16 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 15:23 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 15:19 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 15:39 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 15:39 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 15:39 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 15:34 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 15:47 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 15:36 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 15:21 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 15:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 15:43 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 15:35 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 15:40 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 15:19 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 15:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 15:30 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 15:27 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:15 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/529766.shtml)
-- 2026-06-29 15:25 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/1016357024.shtml)
-- 2026-06-29 15:29 - [Agent带来token消耗爆炸](https://www.share.minike.top/Article/details/05604.shtml)
-- 2026-06-29 15:30 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.minike.top/Article/details/6141920751.shtml)
-- 2026-06-29 15:39 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/179824287681.shtml)
-- 2026-06-29 15:26 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/430794844.shtml)
-- 2026-06-29 15:39 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/4370483.shtml)
-- 2026-06-29 15:16 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/3463123.shtml)
-- 2026-06-29 15:25 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/1670035063.shtml)
-- 2026-06-29 15:28 - [久坐小心“死臀综合征”](https://www.blog.kurohicncr.top/Article/details/381335964.shtml)
-- 2026-06-29 15:36 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/47533.shtml)
-- 2026-06-29 15:24 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/24072766557.shtml)
-- 2026-06-29 15:26 - [网友飞机上偶遇肖战](http://www.blog.kurohicncr.top/Article/details/70892.shtml)
-- 2026-06-29 15:23 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/48608.shtml)
-- 2026-06-29 15:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/67541.shtml)
+- 2026-06-29 15:46 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/984327857789.shtml)
+- 2026-06-29 15:19 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/95802870.shtml)
+- 2026-06-29 15:40 - [记者率先试乘西十高铁](https://www.share.minike.top/Article/details/6606608.shtml)
+- 2026-06-29 15:18 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/966587.shtml)
+- 2026-06-29 15:22 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/69793367.shtml)
+- 2026-06-29 15:25 - [李在明称韩国足协任命了无能之人](http://www.share.kurohicncr.top/Article/details/85865966950.shtml)
+- 2026-06-29 15:41 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/552469989.shtml)
+- 2026-06-29 15:36 - [恋与深空 731](https://www.share.minike.top/Article/details/22357.shtml)
+- 2026-06-29 15:41 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/88796.shtml)
+- 2026-06-29 15:36 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/62896.shtml)
+- 2026-06-29 15:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/2774167.shtml)
+- 2026-06-29 15:47 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/148791880.shtml)
+- 2026-06-29 15:20 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/416125500.shtml)
+- 2026-06-29 15:24 - [中方回应对日本相关出口管制措施](http://www.share.kurohicncr.top/Article/details/01044.shtml)
+- 2026-06-29 15:39 - [南非老帅布罗斯的梦没能做完](https://www.share.minike.top/Article/details/660351832.shtml)

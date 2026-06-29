@@ -1,55 +1,59 @@
-# 江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护
+# 网警依法查处编造传播涉农网络谣言案 全力护航“三夏”生产
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月28日 07:03 来源：中国新闻网 从2021年6月开始，各民主党派中央、无党派人士受中共中央委托，开展为期五年的长江生态环境保护民主监督。从冰川之巅到东海之滨，民主监督如涓涓细流，正不断汇入长江保护的磅礴力量，书写出江河与共新篇章。 九三学社中央主席武维华表示，自接受中共中央委托开展长江生态环境保护民主监督工作以来，九三学社中央始终将其视为重大的政
+当前，正值“三夏”生产关键时期，各地抢抓农时、争分夺秒开展夏收，全力保障夏粮颗粒归仓。个别不法网民为博取关注、吸粉引流，通过网络平台肆意编造、摆拍、发布涉农虚假信息，误导公众认知，制造社会焦虑，扰乱农业生产秩序，挑战法律底线。近日，河南公安机关网安部门迅速行动，依法查处一批涉农网络谣言案件，坚决维护网络环境清朗和农业生产大局稳定。 经查，网民祁某、刘某、周某、吴某、张某、侯某、
 
 ## 正文
 
-发布时间：2026年04月28日 07:03 来源：中国新闻网 从2021年6月开始，各民主党派中央、无党派人士受中共中央委托，开展为期五年的长江生态环境保护民主监督。
+当前，正值“三夏”生产关键时期，各地抢抓农时、争分夺秒开展夏收，全力保障夏粮颗粒归仓。
 
-从冰川之巅到东海之滨，民主监督如涓涓细流，正不断汇入长江保护的磅礴力量，书写出江河与共新篇章。
+个别不法网民为博取关注、吸粉引流，通过网络平台肆意编造、摆拍、发布涉农虚假信息，误导公众认知，制造社会焦虑，扰乱农业生产秩序，挑战法律底线。
 
-九三学社中央主席武维华表示，自接受中共中央委托开展长江生态环境保护民主监督工作以来，九三学社中央始终将其视为重大的政治责任和光荣使命。
+近日，河南公安机关网安部门迅速行动，依法查处一批涉农网络谣言案件，坚决维护网络环境清朗和农业生产大局稳定。
 
-工作中，九三学社带着问题深入调研，在调研中深挖症结、共商对策，尽可能“既找病灶又开药方”。
+经查，网民祁某、刘某、周某、吴某、张某、侯某、刘某、王某、马某等多人发布涉安阳、商丘、周口、济源等地“毁粮卖青”“谁在麦田下投毒”“麦田流血水”等多条涉农网络谣言信息，引发大范围传播，误导公众认知，造成不良社会影响。
 
-从专业视角深入分析问题，努力提出科学可行的解决问题的方案。
+目前，属地公安机关已对上述人员依法作出行政处罚。
 
-通过本轮专项监督，九三学社亲身见证了中国生态文明建设取得的历史性成就，进一步激励其按照中共中央统一部署，立足人民群众对美好生活的向往，出实招、聚共识、谋发展，凝聚起助力美丽中国建设的九三力量。
+网警提醒：网络空间不是法外之地！
 
-责任编辑：【张令旗】
+“三夏”生产关乎国家粮食安全和千家万户生计，请广大网民自觉遵守法律法规，不造谣、不信谣、不传谣。
+
+公安网安部门将持续保持严打高压态势，对造谣传谣行为依法打处，全力为“三夏”生产保驾护航。
 
 ## 相关推荐
 
-- 2026-06-29 15:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 15:21 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 15:16 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 15:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 15:40 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 15:22 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 15:13 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 15:25 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 15:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 15:40 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 15:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 15:30 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 15:35 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 15:35 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 15:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 15:35 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 15:19 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 15:39 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 15:36 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 15:28 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 15:35 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 15:38 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 15:33 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 15:25 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:20 - [李在明称韩国足协任命了无能之人](https://www.share.minike.top/Article/details/03430643.shtml)
-- 2026-06-29 15:26 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/76027874165.shtml)
-- 2026-06-29 15:23 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/290734.shtml)
-- 2026-06-29 15:23 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/50789119875.shtml)
-- 2026-06-29 15:18 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/4681266078.shtml)
-- 2026-06-29 15:39 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/59781743.shtml)
-- 2026-06-29 15:39 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/695298165.shtml)
-- 2026-06-29 15:40 - [中国战机大片上新](http://www.blog.minike.top/Article/details/0526701.shtml)
-- 2026-06-29 15:26 - [T1 vs KC MSI](http://www.blog.kurohicncr.top/Article/details/82749631.shtml)
-- 2026-06-29 15:39 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/039626.shtml)
-- 2026-06-29 15:12 - [NBA交易](https://www.share.minike.top/Article/details/14328.shtml)
-- 2026-06-29 15:27 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/6983602418.shtml)
-- 2026-06-29 15:30 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/841173582.shtml)
-- 2026-06-29 15:30 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/795010233.shtml)
-- 2026-06-29 15:24 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/96969.shtml)
+- 2026-06-29 15:22 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/9583779.shtml)
+- 2026-06-29 15:32 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.minike.top/Article/details/66323.shtml)
+- 2026-06-29 15:31 - [民进党为什么拼命抹黑统战](http://www.share.minike.top/Article/details/421214955.shtml)
+- 2026-06-29 15:42 - [智界V9成为高端圈层共同选择](http://www.share.kurohicncr.top/Article/details/22234842.shtml)
+- 2026-06-29 15:31 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/492557881.shtml)
+- 2026-06-29 15:27 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/462509077.shtml)
+- 2026-06-29 15:39 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/972774865980.shtml)
+- 2026-06-29 15:22 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/742098881.shtml)
+- 2026-06-29 15:23 - [王楚钦3-0周启豪 晋级32强](https://www.blog.kurohicncr.top/Article/details/9466444856.shtml)
+- 2026-06-29 15:39 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.minike.top/Article/details/62227778028.shtml)
+- 2026-06-29 15:35 - [绘画区你赢了](http://www.share.minike.top/Article/details/18260042863.shtml)
+- 2026-06-29 15:42 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/050897825479.shtml)
+- 2026-06-29 15:21 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/749000205.shtml)
+- 2026-06-29 15:46 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/427151771.shtml)
+- 2026-06-29 15:25 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/967302056047.shtml)

@@ -1,56 +1,59 @@
-# 24年来营收和利润首降：一天净赚2.3亿的茅台真的不香了？
+# 四度上榜！徽商期货再获中期协党建与文化建设优秀案例
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：翠鸟资本 文|翠鸟资本 4月16日深夜，贵州茅台（600519.SH）2025年年报悄然挂网。 数字很简短：营收1688.38亿元，同比下降1.21%；净利润823.2亿元，同比下降4.53%。 这是茅台2001年上市以来的首次年度营收、净利双降。24年的不败神话，在这一刻上终结。 4月17日开盘，茅
+四度上榜！徽商期货再获中期协党建与文化建设优秀案例 近日，中国期货业协会2026年度党建与文化建设优秀案例评选结果正式揭晓。徽商期货申报的《“徽韵”织就文化锦，“五要”领航期货路——徽商期货以特色文化赋能金融高质量发展实践》成功入选优秀案例榜单。至此，公司自2022年起已四次斩获该项殊荣，充分彰显公司党建工作与企业文化建设成果获得行业高度认可。 文化软实力是企业穿越行业周期、破
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+四度上榜！
 
-来源：翠鸟资本 文|翠鸟资本 4月16日深夜，贵州茅台（600519.SH）2025年年报悄然挂网。
+徽商期货再获中期协党建与文化建设优秀案例 近日，中国期货业协会2026年度党建与文化建设优秀案例评选结果正式揭晓。
 
-数字很简短：营收1688.38亿元，同比下降1.21%；净利润823.2亿元，同比下降4.53%。
+徽商期货申报的《“徽韵”织就文化锦，“五要”领航期货路——徽商期货以特色文化赋能金融高质量发展实践》成功入选优秀案例榜单。
 
-这是茅台2001年上市以来的首次年度营收、净利双降。
+至此，公司自2022年起已四次斩获该项殊荣，充分彰显公司党建工作与企业文化建设成果获得行业高度认可。
 
-24年的不败神话，在这一刻上终结。
+文化软实力是企业穿越行业周期、破解发展难题、实现行稳致远的重要保障。
 
-4月17日开盘，茅台股价低开超4%，盘中跌破1400元。
+作为安徽省重点期货经营机构，徽商期货深耕行业三十载，打造“党建定向、制度筑基、实践赋能、品牌铸韵”文化发展体系，构建“金融文化+徽商文化+廉洁文化”三位一体培育模式。
 
-更具象征意义的一幕发生在上午10点47分——光芯片公司源杰科技股价涨至1445元，超越茅台，成为A股新任“股王”。
+对内，依托特色文化激活人才内生动力，持续完善人才培育机制，依靠专业人才破解各类发展难题；对外，以文化赋能主业提质升级，坚守金融服务本源，凭借优质品牌口碑赢得超30万客户信赖。
 
-一天净赚2.3亿的茅台，真的不香了？
+目前，企业文化已全面融入合规风控、产业服务、人才培育、乡村振兴等各项工作，实现对内凝心聚力、对外赋能发展的双向价值。
 
 ## 相关推荐
 
-- 2026-06-29 15:27 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 15:36 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 15:23 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 15:25 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 15:39 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 15:29 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 15:39 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 15:25 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 15:18 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 15:25 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 15:25 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 15:40 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 15:26 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 15:44 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 15:42 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 15:35 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 15:31 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 15:32 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 15:32 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 15:34 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 15:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 15:28 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 15:22 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:18 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/44321930080.shtml)
-- 2026-06-29 15:19 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/713250.shtml)
-- 2026-06-29 15:21 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/7930646.shtml)
-- 2026-06-29 15:26 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/5092295.shtml)
-- 2026-06-29 15:27 - [博主：全球股市进入“AI极端共振”](https://www.blog.kurohicncr.top/Article/details/0356701.shtml)
-- 2026-06-29 15:29 - [工作靠AI算不算职场作弊](http://www.share.minike.top/Article/details/08513185060.shtml)
-- 2026-06-29 15:36 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/130062749573.shtml)
-- 2026-06-29 15:34 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/7818073.shtml)
-- 2026-06-29 15:12 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/04177219424.shtml)
-- 2026-06-29 15:27 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/187778033.shtml)
-- 2026-06-29 15:38 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/191277.shtml)
-- 2026-06-29 15:23 - [普京介绍前线战事](http://www.share.kurohicncr.top/Article/details/687318009.shtml)
-- 2026-06-29 15:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/537027.shtml)
-- 2026-06-29 15:17 - [送你一朵小红花](https://www.blog.minike.top/Article/details/90172.shtml)
-- 2026-06-29 15:34 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/316412251624.shtml)
+- 2026-06-29 15:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/40718502.shtml)
+- 2026-06-29 15:26 - [金牌调解](https://www.share.minike.top/Article/details/03304.shtml)
+- 2026-06-29 15:20 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/4927859.shtml)
+- 2026-06-29 15:25 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/71901.shtml)
+- 2026-06-29 15:23 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/29541864728.shtml)
+- 2026-06-29 15:40 - [抓特务票房破亿](https://www.blog.kurohicncr.top/Article/details/280244305734.shtml)
+- 2026-06-29 15:32 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/07671528792.shtml)
+- 2026-06-29 15:26 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/6817693.shtml)
+- 2026-06-29 15:20 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/10003879576.shtml)
+- 2026-06-29 15:28 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/033382.shtml)
+- 2026-06-29 15:30 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/5540985326.shtml)
+- 2026-06-29 15:43 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/67408867.shtml)
+- 2026-06-29 15:32 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/275057751517.shtml)
+- 2026-06-29 15:47 - [起风了](http://www.share.minike.top/Article/details/12410030435.shtml)
+- 2026-06-29 15:23 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/17654192220.shtml)

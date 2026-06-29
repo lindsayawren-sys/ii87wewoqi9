@@ -1,59 +1,60 @@
-# 全国首批米粉“批次检验（检疫）”改革试点落地江西抚州
+# 巨灾保险扩容之现实考题：灾害频发、覆盖率不足，何以解困？
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网抚州4月27日电 (吴鹏泉 邹扬)南昌海关27日消息，一批重约20吨的米粉近日经南昌海关所属抚州海关检验检疫合格后，顺利发往中国香港。海关部门称，这是全国首批采用“批次检验(检疫)”创新模式监管出口的米粉。 据了解，出口农食产品“批次检验(检疫)”改革是海关优化营商环境、促进外贸保稳提质的一项重要举措。该模式通过设立“批次查检单元”，将原本以“出口批”为单位的检验检疫方式
+来源：中保新知 近期，青海海西州直辖区发生6.3级地震，为保障人民群众生命财产安全，中国地震局启动三级应急响应，各大险企也纷纷第一时间展开快速理赔、救灾救助工作。 事实上，近两年来，我国大陆地区地震活动水平整体有所增强，今年5月份，我国大陆地区发生4.0级以上地震18次。2025年，我国共发生三级以上地震752次，该年最大地震是西藏日喀则市定日县发生的6.8级地震。并且，在全球
 
 ## 正文
 
-中新网抚州4月27日电 (吴鹏泉 邹扬)南昌海关27日消息，一批重约20吨的米粉近日经南昌海关所属抚州海关检验检疫合格后，顺利发往中国香港。
+来源：中保新知 近期，青海海西州直辖区发生6.3级地震，为保障人民群众生命财产安全，中国地震局启动三级应急响应，各大险企也纷纷第一时间展开快速理赔、救灾救助工作。
 
-海关部门称，这是全国首批采用“批次检验(检疫)”创新模式监管出口的米粉。
+事实上，近两年来，我国大陆地区地震活动水平整体有所增强，今年5月份，我国大陆地区发生4.0级以上地震18次。
 
-据了解，出口农食产品“批次检验(检疫)”改革是海关优化营商环境、促进外贸保稳提质的一项重要举措。
+2025年，我国共发生三级以上地震752次，该年最大地震是西藏日喀则市定日县发生的6.8级地震。
 
-该模式通过设立“批次查检单元”，将原本以“出口批”为单位的检验检疫方式，转化为对“生产批”进行监管。
+并且，在全球极端气候加剧、地质活动周期变化等诸多因素影响下，我国不止地震活动增多，台风、暴雨、洪涝等自然灾害也频繁发生。
 
-“以前我们的米粉出口批次多，有时遇到‘出口批’被系统抽中查检，会对货物装箱发运计划和物流时效造成一定影响。
+在此背景下，作为抵御灾害风险的重要手段，巨灾保险在我国的发展情况也日益受到关注。
 
-现在只要‘生产批’监管过关，后续出货可以随报随走，非常方便。
+中保新知注意到，最近甘肃省综合巨灾保险试点工作正式落地，折射出我国巨灾保险试点步伐加快的趋势。
 
-”江西抚州一家食品公司外贸负责人吴智说。
+不过，在专业人士看来，我国巨灾保险的覆盖率仍然明显不足，保障缺口较大。
 
-抚州海关称，下一步，抚州海关将持续扩大“批次检验”模式的应用范围，推动更多地方特色农食产品搭乘改革“快车”。
+那么，在极端天气多发、人民生命财产亟须“守护”的现实痛点下，我国巨灾保障体系该如何进一步完善，保险业又该怎样深度参与其中，发挥好“两器”功能，值得深入思考。
 
 ## 相关推荐
 
-- 2026-06-29 15:20 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 15:41 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 15:37 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 15:42 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-29 15:24 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 15:17 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 15:24 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 15:18 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 15:21 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 15:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 15:13 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 15:40 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 15:20 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 15:43 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 15:29 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 15:33 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 15:47 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 15:45 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 15:43 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 15:44 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 15:20 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 15:19 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 15:25 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 15:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 15:21 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 15:18 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 15:38 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/435666625497.shtml)
-- 2026-06-29 15:13 - [美人鱼](http://www.share.minike.top/Article/details/857067.shtml)
-- 2026-06-29 15:14 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/07574.shtml)
-- 2026-06-29 15:22 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/85925834.shtml)
-- 2026-06-29 15:24 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.kurohicncr.top/Article/details/585970.shtml)
-- 2026-06-29 15:28 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/6997387521.shtml)
-- 2026-06-29 15:13 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/33591148.shtml)
-- 2026-06-29 15:32 - [复盘曾沛慈浪姐夺冠之路](http://www.share.minike.top/Article/details/08967785225.shtml)
-- 2026-06-29 15:36 - [小娘惹](https://www.blog.minike.top/Article/details/2179503.shtml)
-- 2026-06-29 15:15 - [中餐厅南北饮食差异](https://www.blog.minike.top/Article/details/12623.shtml)
-- 2026-06-29 15:29 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/733520.shtml)
-- 2026-06-29 15:18 - [BB大王横店拍戏](http://www.share.minike.top/Article/details/704798263691.shtml)
-- 2026-06-29 15:34 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/598517926635.shtml)
-- 2026-06-29 15:23 - [龟梨和也田中美奈实结婚](https://www.share.minike.top/Article/details/34923670.shtml)
-- 2026-06-29 15:16 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/292980.shtml)
+- 2026-06-29 15:34 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/942498995.shtml)
+- 2026-06-29 15:40 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/1340032214.shtml)
+- 2026-06-29 15:36 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.minike.top/Article/details/2927935284.shtml)
+- 2026-06-29 15:43 - [众星恭喜吴建豪](http://www.share.minike.top/Article/details/75789844.shtml)
+- 2026-06-29 15:23 - [当我回母校教书](https://www.blog.minike.top/Article/details/4531929026.shtml)
+- 2026-06-29 15:18 - [世界杯十大帅哥必吃榜](http://www.blog.minike.top/Article/details/69379.shtml)
+- 2026-06-29 15:37 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.kurohicncr.top/Article/details/04367648665.shtml)
+- 2026-06-29 15:43 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/14448.shtml)
+- 2026-06-29 15:37 - [博主：美航母沦为毒品集散窝点](http://www.blog.kurohicncr.top/Article/details/1077831.shtml)
+- 2026-06-29 15:23 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/20075886.shtml)
+- 2026-06-29 15:24 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.kurohicncr.top/Article/details/750624.shtml)
+- 2026-06-29 15:38 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/016925.shtml)
+- 2026-06-29 15:28 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/38547571394.shtml)
+- 2026-06-29 15:34 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/8970712597.shtml)
+- 2026-06-29 15:40 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/508891401.shtml)

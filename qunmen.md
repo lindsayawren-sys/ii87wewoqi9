@@ -1,58 +1,58 @@
-# 江苏银行换帅：葛仁余因年龄原因辞任，“70后”行长袁军接棒
+# 海内外价差走阔有望打开我国稀土产业上行空间！稀土ETF华泰柏瑞（516780）聚焦“算力金属”价值重估机遇
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者边万莉 4 月 27 日，江苏银行（600919.SH）连发两则公告披露人事变动：葛仁余因年龄原因辞任董事长，同时董事会选举该行行长袁军为新任董事长，任职资格尚待监管核准。 公告显示，“近日江苏银行收到葛仁余先生的辞职报告。根据组织安排，葛仁余先生因年龄原因申请辞去本行董事长、执行董事、董事会战略与 ESG 委员会主任委员职务。” 据记者了解，在加入江苏银行
+伴随《矿产资源法实施条例》正式落地，稀土等36 种36 钟矿产品类正式划入国家级战略性矿产名录，行业管控力度持续加码。与此同时，AI算力扩张正从算力芯片、光模块向电子元器件环节传导，MLCC等被动元件需求结构发生显著变化，对作为“算力金属”的稀土材料的需求正逐步显现。 供给端的边际变化也在进一步夯实这一逻辑。海外稀土供给收紧后，原料短缺正从预期走向现实。消息面上，国内齿科氧化锆
 
 ## 正文
 
-21世纪经济报道记者边万莉 4 月 27 日，江苏银行（600919.SH）连发两则公告披露人事变动：葛仁余因年龄原因辞任董事长，同时董事会选举该行行长袁军为新任董事长，任职资格尚待监管核准。
+伴随《矿产资源法实施条例》正式落地，稀土等36 种36 钟矿产品类正式划入国家级战略性矿产名录，行业管控力度持续加码。
 
-公告显示，“近日江苏银行收到葛仁余先生的辞职报告。
+与此同时，AI算力扩张正从算力芯片、光模块向电子元器件环节传导，MLCC等被动元件需求结构发生显著变化，对作为“算力金属”的稀土材料的需求正逐步显现。
 
-根据组织安排，葛仁余先生因年龄原因申请辞去本行董事长、执行董事、董事会战略与 ESG 委员会主任委员职务。
+供给端的边际变化也在进一步夯实这一逻辑。
 
-” 据记者了解，在加入江苏银行前，葛仁余有着丰富的信息科技业务工作经验，曾任中国建设银行南京分行科技处处长助理、副处长，中国建设银行江苏省分行营业部运行中心经理、信息技术管理部总经理，南京银行信息技术部总经理。
+海外稀土供给收紧后，原料短缺正从预期走向现实。
 
-2013年8月，葛仁余加入江苏银行任信息科技部总经理，2017年任首席信息官，2018年升任副行长，2023年担任董事长。
+消息面上，国内齿科氧化锆企业已确认收到日本东曹关于氧化锆粉体暂停供应的通知。
 
-江苏银行在公告中评价，在葛仁余带领下，该行经营发展规模、效益、质量再上新台阶，综合实力、品牌价值、市场表现实现新跨越，在保持自身高质量发展的同时，持续以稳健优异的经营成果和价值创造积极回馈广大客户、股东和社会各界。
+氧化钇稳定纳米氧化锆作为添加氧化钇的高性能陶瓷材料，由于海外稀土供给受限，内外价差已显著走阔。
 
-此次接棒的袁军是一名“70后”金融老将，拥有丰富的银行管理经验。
+国内添加稀土的高端材料有望凭借性价比优势获得更大全球市场份额，稀土产业链上中下游均有望因此受益。
 
-公开简历显示，袁军出生于 1971 年，大学学历，工程硕士，正高级经济师。
+行业最新出口数据，也直观印证了全球稀土供给格局的收紧态势。
 
 ## 相关推荐
 
-- 2026-06-29 15:13 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 15:32 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 15:30 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 15:22 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 15:31 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 15:13 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 15:39 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 15:18 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 15:28 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 15:26 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 15:16 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 15:24 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 15:35 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 15:33 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 15:45 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 15:35 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 15:29 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 15:20 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 15:44 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 15:42 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 15:21 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 15:38 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 15:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 15:31 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/838147540.shtml)
-- 2026-06-29 15:18 - [毕业群都在出什么东西](https://www.share.minike.top/Article/details/1069639.shtml)
-- 2026-06-29 15:20 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/001095132363.shtml)
-- 2026-06-29 15:40 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/27402.shtml)
-- 2026-06-29 15:29 - [四川宜宾地震致13人受轻微伤](http://www.blog.minike.top/Article/details/710916428.shtml)
-- 2026-06-29 15:26 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/374075971.shtml)
-- 2026-06-29 15:21 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/5787848610.shtml)
-- 2026-06-29 15:27 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/0342115967.shtml)
-- 2026-06-29 15:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/254430.shtml)
-- 2026-06-29 15:30 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/326949140.shtml)
-- 2026-06-29 15:23 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/774190.shtml)
-- 2026-06-29 15:28 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/3039511420.shtml)
-- 2026-06-29 15:35 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/00361.shtml)
-- 2026-06-29 15:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/93718277382.shtml)
-- 2026-06-29 15:21 - [逆天祖国人](https://www.share.minike.top/Article/details/121177318862.shtml)
+- 2026-06-29 15:27 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/93264927.shtml)
+- 2026-06-29 15:20 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/17125455734.shtml)
+- 2026-06-29 15:24 - [世界杯超牛补水广告出现了](http://www.share.kurohicncr.top/Article/details/51400013.shtml)
+- 2026-06-29 15:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/77412956.shtml)
+- 2026-06-29 15:38 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/02803048720.shtml)
+- 2026-06-29 15:39 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/21128.shtml)
+- 2026-06-29 15:21 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/719167.shtml)
+- 2026-06-29 15:25 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/72616.shtml)
+- 2026-06-29 15:20 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/613149.shtml)
+- 2026-06-29 15:23 - [苹果ultra2阔折叠已开模测试](http://www.blog.minike.top/Article/details/70699599.shtml)
+- 2026-06-29 15:39 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.kurohicncr.top/Article/details/642081972.shtml)
+- 2026-06-29 15:18 - [央视起底直播诈骗连环套](http://www.blog.kurohicncr.top/Article/details/847697.shtml)
+- 2026-06-29 15:47 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/48570810.shtml)
+- 2026-06-29 15:24 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/97509529367.shtml)
+- 2026-06-29 15:39 - [梅朗雄主张法国退出北约](https://www.blog.kurohicncr.top/Article/details/117118534.shtml)

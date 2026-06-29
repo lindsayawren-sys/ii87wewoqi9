@@ -1,60 +1,60 @@
-# 华泰期货：市场担忧5月全球可能发生厄尔尼诺现象，支撑橡胶价格
+# 英国政坛若能加快权力交接 将有助于遏制英镑跌势
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 陈莉 市场要闻与数据 期货方面，昨日收盘RU主力合约17225元/吨，较前一日变动+165元/吨；NR主力合约14280元/吨，较前一日变动+140元/吨；BR主力合约15500元/吨，较前一日变动-200元/吨。 现货方面，云南产全乳胶上海市场价格17100元/吨，较前一日变动+200元/吨。青岛保税区泰混16350元/吨，较前一日变动+170元/吨。
+英国政坛未来可能出现多种走向，虽然最终结果可能都是Andy Burnham出任首相，但这一权力交接过程的速度对英镑交易员至关重要。简而言之，这一过程越短、越简单，英镑的跌幅就越能得到控制。 基尔·斯塔默的盟友预计，他最早可能在周一就公布离任时间表。这个时间表可能相对较短，将对英镑构成支撑。 不过，即便这一点已成定局，Burnham能否在无人竞争的情况下当选仍远未可知。前卫生大臣
 
 ## 正文
 
-来源：华泰期货 作者： 陈莉 市场要闻与数据 期货方面，昨日收盘RU主力合约17225元/吨，较前一日变动+165元/吨；NR主力合约14280元/吨，较前一日变动+140元/吨；BR主力合约15500元/吨，较前一日变动-200元/吨。
+英国政坛未来可能出现多种走向，虽然最终结果可能都是Andy Burnham出任首相，但这一权力交接过程的速度对英镑交易员至关重要。
 
-现货方面，云南产全乳胶上海市场价格17100元/吨，较前一日变动+200元/吨。
+简而言之，这一过程越短、越简单，英镑的跌幅就越能得到控制。
 
-青岛保税区泰混16350元/吨，较前一日变动+170元/吨。
+基尔·斯塔默的盟友预计，他最早可能在周一就公布离任时间表。
 
-青岛保税区泰国20号标胶2170美元/吨，较前一日变动+45美元/吨。
+这个时间表可能相对较短，将对英镑构成支撑。
 
-青岛保税区印尼20号标胶2095美元/吨，较前一日变动+20美元/吨。
+不过，即便这一点已成定局，Burnham能否在无人竞争的情况下当选仍远未可知。
 
-中石油齐鲁石化BR9000出厂价格15800元/吨，较前一日变动-300元/吨。
+前卫生大臣Wes Streeting仍可能发起挑战，这将延长交易员们面临的不确定性。
 
-浙江传化BR9000市场价15750元/吨，较前一日变动-50元/吨。
+然而，如果他能与Burnham阵营达成协议，或许能为相对平稳的权力交接铺平道路。
 
-市场资讯 2026年3月中国天然橡胶（含技术分类、胶乳、烟胶片、初级形状、混合胶、复合胶）进口量61.62万吨，环比增加33.52%，同比增加3.72%，2026年1-3月累计进口数量172.27万吨，累计同比增加2.19%。
+从市场角度来看，这是最好的结果，但也只能止住英镑的跌势，而无法激起反弹。
 
 ## 相关推荐
 
-- 2026-06-29 15:19 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 15:17 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 15:33 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 15:29 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 15:22 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 15:12 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 15:18 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 15:39 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 15:39 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 15:27 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 15:18 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 15:12 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 15:16 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 15:26 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 15:18 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 15:33 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 15:28 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 15:44 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 15:47 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 15:42 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 15:44 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 15:23 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 15:47 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 15:32 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 15:18 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 15:23 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 15:37 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 15:30 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:41 - [金牌调解](https://www.share.minike.top/Article/details/77019206.shtml)
-- 2026-06-29 15:32 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/50456267.shtml)
-- 2026-06-29 15:39 - [送你一朵小红花](https://www.share.minike.top/Article/details/886637423671.shtml)
-- 2026-06-29 15:41 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/406189.shtml)
-- 2026-06-29 15:34 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/0633708658.shtml)
-- 2026-06-29 15:40 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/059495382.shtml)
-- 2026-06-29 15:32 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/197786487867.shtml)
-- 2026-06-29 15:32 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/82762639.shtml)
-- 2026-06-29 15:30 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/0665548693.shtml)
-- 2026-06-29 15:39 - [苹果ultra2阔折叠已开模测试](http://www.share.minike.top/Article/details/22145839787.shtml)
-- 2026-06-29 15:14 - [BB大王横店拍戏](http://www.share.kurohicncr.top/Article/details/47864090.shtml)
-- 2026-06-29 15:16 - [四川宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/51814429720.shtml)
-- 2026-06-29 15:34 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/500857379201.shtml)
-- 2026-06-29 15:36 - [恋与深空 731](https://www.share.minike.top/Article/details/146808.shtml)
-- 2026-06-29 15:21 - [5万块的威力](http://www.blog.minike.top/Article/details/92859.shtml)
+- 2026-06-29 15:24 - [84岁英国教授成中国网红](https://www.share.minike.top/Article/details/73364.shtml)
+- 2026-06-29 15:45 - [四川宜宾地震致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/0972587.shtml)
+- 2026-06-29 15:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/03605.shtml)
+- 2026-06-29 15:41 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/021906977.shtml)
+- 2026-06-29 15:40 - [我和我的家乡](http://www.blog.minike.top/Article/details/598267.shtml)
+- 2026-06-29 15:36 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/9108493692.shtml)
+- 2026-06-29 15:40 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/93373519.shtml)
+- 2026-06-29 15:44 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/828001.shtml)
+- 2026-06-29 15:40 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/771516965699.shtml)
+- 2026-06-29 15:31 - [锐评浪姐7总决赛](https://www.blog.minike.top/Article/details/5277962.shtml)
+- 2026-06-29 15:30 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/61511500.shtml)
+- 2026-06-29 15:32 - [3D打印不是工业革命，它是……](http://www.blog.minike.top/Article/details/77676881.shtml)
+- 2026-06-29 15:31 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/469814795901.shtml)
+- 2026-06-29 15:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/3686484.shtml)
+- 2026-06-29 15:22 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/9680768.shtml)

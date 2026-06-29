@@ -1,59 +1,59 @@
-# 中美科学家联手验证新型抗衰老药物，实现哺乳动物寿命延长三分之一
+# 国家药监局重磅发布，“新高”！创新药强劲反弹，520880盘中涨近4%，场内唯一药ETF冲击三连阳
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网北京4月28日电 中美科学家近日在衰老干预领域取得重大突破。 日前，一项发表于国际权威医学期刊《药物设计、开发与治疗》(Drug Design, Development and Therapy)的研究显示，由美国赛诺根公司、清华大学及国药赛诺根联合开展的新型口服衰老干预药物SRN-901临床前试验取得重要进展：在自然衰老的正常哺乳动物模型中，该药物使实验对象中位剩余寿命延
+6月23日，AH创新药联手反攻！重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）绝地反击，盘中双双冲高3%。就在昨日，两只ETF创下历史新低。 A股制药板块低开高走，场内唯一表征制药板块的药ETF华宝（562050）盘中一度涨近3%，成份股普涨，三生国健飙升逾12%，海思科涨超8%。值得关注的是，近期资金密集逢跌增仓药ETF华宝（5
 
 ## 正文
 
-中新网北京4月28日电 中美科学家近日在衰老干预领域取得重大突破。
+6月23日，AH创新药联手反攻！
 
-日前，一项发表于国际权威医学期刊《药物设计、开发与治疗》(Drug Design, Development and Therapy)的研究显示，由美国赛诺根公司、清华大学及国药赛诺根联合开展的新型口服衰老干预药物SRN-901临床前试验取得重要进展：在自然衰老的正常哺乳动物模型中，该药物使实验对象中位剩余寿命延长33%，肿瘤发生率降低30%，并显著抑制了外貌衰老相关指标。
+重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）绝地反击，盘中双双冲高3%。
 
-为了精准地模拟人类的自然衰老过程，科学家们没有像以往的研究一样为追求“短平快”而使用基因编辑或放化疗手段制造的早衰小鼠，而是耗时数年对自然衰老的正常小鼠进行了全生命周期的综合测量。
+就在昨日，两只ETF创下历史新低。
 
-研究结果显示，与服用安慰剂的对照组相比，接受SRN-901干预的小鼠，其中位剩余寿命实现了33%的显著增长，超越了此前的纪录保持者雷帕霉素。
+A股制药板块低开高走，场内唯一表征制药板块的药ETF华宝（562050）盘中一度涨近3%，成份股普涨，三生国健飙升逾12%，海思科涨超8%。
 
-研究人员还对NMN、NR等市面上热门抗衰老分子进行了对照测试，结果显示这两者并不能有效延长寿命。
+值得关注的是，近期资金密集逢跌增仓药ETF华宝（562050）。
 
-与此同时，服用SRN-901的小鼠外貌也明显更加年轻：皮肤更为紧致有弹性、毛发也明显更加浓密黑亮。
+港股通创新药弹性十足，100%创新药研发标的——港股通创新药ETF华宝（520880）盘中冲击4%，现涨2.36%。
 
-经过综合测试和病理学研究后发现，接受SRN-901干预的小鼠相较安慰剂组衰老速度被减慢70 %，肿瘤发生率降低30%，死亡风险大幅降低46%。
+山东新华制药股份一度狂飙逾25%，英矽智能、银诺医药-B涨超10%，信达生物、百济神州、石药集团、康方生物等权重龙头集体飘红。
 
-据悉，基于多通路协同干预策略的SRN-901的前期研发由赛诺根联合哈佛大学、梅奥医学中心等世界顶尖科研机构共同完成。
+消息面上，6月22日，国家药监局发布2025年《中国新药注册临床试验进展年度报告》，报告显示，我国临床试验总量首次突破5000项，创历史新高。
 
 ## 相关推荐
 
-- 2026-06-29 15:24 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 15:13 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 15:34 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 15:17 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 15:30 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 15:39 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 15:38 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 15:14 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 15:26 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 15:17 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 15:31 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 15:27 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 15:27 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 15:25 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 15:25 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 15:18 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 15:24 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 15:34 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 15:34 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 15:35 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 15:39 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 15:36 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 15:32 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 15:42 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 15:21 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 15:45 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:31 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/043398.shtml)
-- 2026-06-29 15:38 - [105年初心滚烫](https://www.share.minike.top/Article/details/97626392899.shtml)
-- 2026-06-29 15:32 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/2813612.shtml)
-- 2026-06-29 15:16 - [中国邮政上海分公司总经理李柏平被查](http://www.share.minike.top/Article/details/9206106838.shtml)
-- 2026-06-29 15:38 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/91412097.shtml)
-- 2026-06-29 15:31 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/78751.shtml)
-- 2026-06-29 15:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/135110740289.shtml)
-- 2026-06-29 15:41 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/412884995.shtml)
-- 2026-06-29 15:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/635481219.shtml)
-- 2026-06-29 15:14 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/654864542618.shtml)
-- 2026-06-29 15:19 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/88242840.shtml)
-- 2026-06-29 15:21 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/07335069758.shtml)
-- 2026-06-29 15:31 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/7294052.shtml)
-- 2026-06-29 15:25 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/66726616431.shtml)
-- 2026-06-29 15:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/96196289953.shtml)
+- 2026-06-29 15:40 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/146498295475.shtml)
+- 2026-06-29 15:34 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/735643200.shtml)
+- 2026-06-29 15:37 - [周深双眼皮贴又掉了](https://www.share.minike.top/Article/details/64095.shtml)
+- 2026-06-29 15:35 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/9665609.shtml)
+- 2026-06-29 15:45 - [美媒：空警-3000服役即成全球最强](https://www.share.kurohicncr.top/Article/details/77648453.shtml)
+- 2026-06-29 15:24 - [Agent带来token消耗爆炸](https://www.blog.kurohicncr.top/Article/details/829636807.shtml)
+- 2026-06-29 15:39 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/97009.shtml)
+- 2026-06-29 15:25 - [明星大侦探第一季](http://www.share.minike.top/Article/details/51097782.shtml)
+- 2026-06-29 15:32 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/52116.shtml)
+- 2026-06-29 15:29 - [哈兰德之歌火到国外](https://www.blog.minike.top/Article/details/85327493447.shtml)
+- 2026-06-29 15:21 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/6640803907.shtml)
+- 2026-06-29 15:23 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/8437758.shtml)
+- 2026-06-29 15:41 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/9664881290.shtml)
+- 2026-06-29 15:20 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/78559980.shtml)
+- 2026-06-29 15:27 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/876363.shtml)

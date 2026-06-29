@@ -1,54 +1,58 @@
-# “大连海运01”轮正式投入运营
+# 英国脱欧公投10年后，英欧关系何去何从？
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网大连4月26日电 (记者 杨毅)大连海运有限公司的“大连海运01”轮26日正式投入运营，标志着该公司正式开启市场化运营。 今年3月17日，大连市政府与有关方面签订了合作框架协议，由恒力集团、省市国企、新加坡企业组建大连海运有限公司，将重点聚焦航运船队建设、港口投资建设与运营等核心业务，通过新建船舶、租赁船舶等多种方式，快速提升船队运力规模，着力打造多船型、内外贸一体化经营
+“脱欧悔意”折射心态变化，“重返欧盟”讨论持续升温 英国脱欧公投10年后，英欧关系何去何从？(深度观察) 2016年6月23日，英国就“是否脱离欧盟”举行全民公投，次日公投结果出炉，“脱欧派”以51.9%对48.1%的微弱优势胜出，英国政府决定脱离欧盟。在脱欧公投10年后的今天，英国社会围绕脱欧得失的讨论持续升温。从街头抗议到政党论战，从民调数据到政策辩论，一场围绕“重返欧盟”
 
 ## 正文
 
-中新网大连4月26日电 (记者 杨毅)大连海运有限公司的“大连海运01”轮26日正式投入运营，标志着该公司正式开启市场化运营。
+“脱欧悔意”折射心态变化，“重返欧盟”讨论持续升温 英国脱欧公投10年后，英欧关系何去何从？
 
-今年3月17日，大连市政府与有关方面签订了合作框架协议，由恒力集团、省市国企、新加坡企业组建大连海运有限公司，将重点聚焦航运船队建设、港口投资建设与运营等核心业务，通过新建船舶、租赁船舶等多种方式，快速提升船队运力规模，着力打造多船型、内外贸一体化经营的专业化船队，构建覆盖全球的航线网络，为东北及蒙东地区提供高效便捷的港口航运服务。
+(深度观察) 2016年6月23日，英国就“是否脱离欧盟”举行全民公投，次日公投结果出炉，“脱欧派”以51.9%对48.1%的微弱优势胜出，英国政府决定脱离欧盟。
 
-此次投运的“大连海运01”轮，满足国际海运绿色低碳需求，具备绿色环保、能耗低等特点，各项性能效率指标均处于国际较高水平，可大幅降低客户运营成本，适配煤炭、矿石、粮食等大宗产品运输，充分满足东北腹地重点产业的物流运输需求。
+在脱欧公投10年后的今天，英国社会围绕脱欧得失的讨论持续升温。
 
-恒力集团董事长陈建华在致辞中表示，从签约落地到首船投运，短短40天，这是政企同心、双向奔赴的最好证明。
+从街头抗议到政党论战，从民调数据到政策辩论，一场围绕“重返欧盟”的大讨论甚是热闹，英欧关系再次站在新的十字路口。
 
-面向未来，大连海运将充分发挥全产业链优势，推动航运与港口联动、制造与运营融合。
+民意反转——脱欧反思渐成主流话语 10年间，英国民众对脱欧的态度发生显著变化，指代“脱欧悔意”的新词“Bregret”近年来在英国舆论场广泛传播，成为折射社会心态变化的标志性词语。
 
-据了解，大连曾拥有多元化航运船队，但受多种因素影响，运力规模逐年下降，大连海运的投运，将有效补充本地航运运力，完善区域航运网络，助力大连再创海运辉煌。
+今年5月，由“英国欧洲运动联盟”发起的“重返欧盟”请愿在英国议会请愿网站签名突破10万，依照议事规则触发议会专项辩论。
 
-(完)
+多家民调机构数据显示，民众对脱欧的态度已较10年前出现反转。
+
+英国民调机构YouGov今年6月发布的调查显示，55%的受访民众支持重新申请加入欧盟，35%的受访民众持反对态度；超过两成当年投票支持脱欧的选民认为当年的选择存在失误。
 
 ## 相关推荐
 
-- 2026-06-29 15:37 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 15:39 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 15:23 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 15:39 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 15:36 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-29 15:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 15:41 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 15:36 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 15:18 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 15:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 15:34 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 15:25 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 15:18 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 15:30 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 15:43 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 15:42 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 15:44 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 15:38 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 15:35 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 15:31 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 15:32 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 15:37 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:40 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/6900812876.shtml)
-- 2026-06-29 15:27 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/75415390821.shtml)
-- 2026-06-29 15:31 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/1816445091.shtml)
-- 2026-06-29 15:14 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/8472186.shtml)
-- 2026-06-29 15:27 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/859215.shtml)
-- 2026-06-29 15:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/81334.shtml)
-- 2026-06-29 15:13 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/656796.shtml)
-- 2026-06-29 15:30 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/23715.shtml)
-- 2026-06-29 15:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/006189927.shtml)
-- 2026-06-29 15:32 - [博主：全球股市进入“AI极端共振”](http://www.blog.minike.top/Article/details/68888181038.shtml)
-- 2026-06-29 15:18 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/2783520006.shtml)
-- 2026-06-29 15:31 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/5047282.shtml)
-- 2026-06-29 15:25 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/746890.shtml)
-- 2026-06-29 15:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/7405957883.shtml)
-- 2026-06-29 15:27 - [沉睡花园](http://www.share.minike.top/Article/details/42685985.shtml)
+- 2026-06-29 15:43 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/5933013794.shtml)
+- 2026-06-29 15:25 - [一见倾心](http://www.blog.minike.top/Article/details/951137.shtml)
+- 2026-06-29 15:40 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/5166836452.shtml)
+- 2026-06-29 15:29 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/2560044121.shtml)
+- 2026-06-29 15:43 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.kurohicncr.top/Article/details/5008549.shtml)
+- 2026-06-29 15:36 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/74240802804.shtml)
+- 2026-06-29 15:41 - [中国战机大片上新](https://www.blog.minike.top/Article/details/297529400336.shtml)
+- 2026-06-29 15:43 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/77392274301.shtml)
+- 2026-06-29 15:20 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/726707749.shtml)
+- 2026-06-29 15:42 - [一生一世](http://www.blog.minike.top/Article/details/429956393.shtml)
+- 2026-06-29 15:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/0506513203.shtml)
+- 2026-06-29 15:37 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/81889.shtml)
+- 2026-06-29 15:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/888269086.shtml)
+- 2026-06-29 15:44 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/052238934917.shtml)
+- 2026-06-29 15:36 - [周深双眼皮贴又掉了](https://www.blog.kurohicncr.top/Article/details/550425308425.shtml)

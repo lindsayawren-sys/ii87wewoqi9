@@ -1,59 +1,49 @@
-# 一季度浙江算力中心用电规模和增速创新高
+# 广西柳江发生今年第1号洪水 水位仍在上涨
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新社杭州4月27日电 (鲍梦妮 张悦)据中国国家电网浙江省电力有限公司27日消息，一季度浙江全省算力中心用电量达15.29亿千瓦时，同比(下同)增长26.43%，规模与增速均刷新历史纪录。 一季度，从用电结构来看，浙江大型与超大型算力项目成为增长“主力军”。大型算力中心用电量达7.24亿千瓦时，增长42.06%，对浙江算力用电增量的贡献率超六成；超大型算力中心用电量激增186
+发布时间：2026年06月21日 16:16 来源：中国新闻网 受上游来水及降雨影响，广西柳江柳州水文站6月21日8时05分水位涨至82.50米(警戒水位82.50米)，此次洪水编号为“柳江2026年第1号洪水”。目前，柳江水位仍在持续上涨，沿河低洼地带已被洪水淹没。据柳州市防汛抗旱指挥部发布最新柳江河汛情公告，预计6月22日8时左右，柳江柳州水文站将出现84.5米(超警戒水位
 
 ## 正文
 
-中新社杭州4月27日电 (鲍梦妮 张悦)据中国国家电网浙江省电力有限公司27日消息，一季度浙江全省算力中心用电量达15.29亿千瓦时，同比(下同)增长26.43%，规模与增速均刷新历史纪录。
+发布时间：2026年06月21日 16:16 来源：中国新闻网 受上游来水及降雨影响，广西柳江柳州水文站6月21日8时05分水位涨至82.50米(警戒水位82.50米)，此次洪水编号为“柳江2026年第1号洪水”。
 
-一季度，从用电结构来看，浙江大型与超大型算力项目成为增长“主力军”。
+目前，柳江水位仍在持续上涨，沿河低洼地带已被洪水淹没。
 
-大型算力中心用电量达7.24亿千瓦时，增长42.06%，对浙江算力用电增量的贡献率超六成；超大型算力中心用电量激增1863.15%，贡献率达20.20%；中小型算力中心平稳运行，增长5.85%。
+据柳州市防汛抗旱指挥部发布最新柳江河汛情公告，预计6月22日8时左右，柳江柳州水文站将出现84.5米(超警戒水位2米左右)的洪水。
 
-今年3月，浙江全省算力中心最大用电负荷达111.06万千瓦，平均负荷100.83万千瓦，同比均实现30%以上增长；日最小与最大负荷平均比值达92.72%，峰谷差极小。
-
-节假日算力中心日均负荷率达98.06%，略高于工作日，算力需求不受假期影响，全天候稳定运转。
-
-近年来浙江算力基础设施建设提速扩容。
-
-截至2025年底，该省已建成投用的总算力规模超156EFLOPS，算力构成高度向智算聚焦，其中智能算力达151EFLOPS，占比96.58%。
-
-预计到2026年底，该省算力规模有望实现翻番。
+(林馨 曹伟军 制作 王佳琪） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 15:30 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 15:34 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 15:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 15:34 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 15:37 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 15:39 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 15:31 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 15:22 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 15:12 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 15:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 15:23 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 15:30 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 15:15 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 15:19 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 15:44 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 15:37 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 15:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 15:46 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 15:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 15:35 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 15:40 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 15:37 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 15:40 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 15:36 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/43977977.shtml)
-- 2026-06-29 15:40 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/0755672.shtml)
-- 2026-06-29 15:14 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/889147.shtml)
-- 2026-06-29 15:18 - [爸爸当家](http://www.share.minike.top/Article/details/81533804781.shtml)
-- 2026-06-29 15:27 - [韩国国脚无缘上亿韩元奖金](http://www.share.kurohicncr.top/Article/details/3710860562.shtml)
-- 2026-06-29 15:40 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/6860569.shtml)
-- 2026-06-29 15:25 - [欧委会总部只给高层开空调](http://www.blog.kurohicncr.top/Article/details/1873744491.shtml)
-- 2026-06-29 15:39 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/2526276.shtml)
-- 2026-06-29 15:20 - [天道](http://www.blog.kurohicncr.top/Article/details/0336272849.shtml)
-- 2026-06-29 15:26 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/674242937.shtml)
-- 2026-06-29 15:26 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/0140701420.shtml)
-- 2026-06-29 15:18 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.kurohicncr.top/Article/details/68256772541.shtml)
-- 2026-06-29 15:23 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/2858706.shtml)
-- 2026-06-29 15:15 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/34923058.shtml)
-- 2026-06-29 15:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/851561546.shtml)
+- 2026-06-29 15:28 - [森保一：日本队要亲手改写历史](https://www.blog.minike.top/Article/details/59729178573.shtml)
+- 2026-06-29 15:45 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/698377059.shtml)
+- 2026-06-29 15:18 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/10452877641.shtml)
+- 2026-06-29 15:34 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/1189692.shtml)
+- 2026-06-29 15:32 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/1505023.shtml)
+- 2026-06-29 15:27 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/970222.shtml)
+- 2026-06-29 15:42 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.kurohicncr.top/Article/details/679781.shtml)
+- 2026-06-29 15:25 - [驻日美军航母沦为“毒窝”](http://www.blog.kurohicncr.top/Article/details/348957649.shtml)
+- 2026-06-29 15:23 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/19155170.shtml)
+- 2026-06-29 15:36 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.minike.top/Article/details/89778519.shtml)
+- 2026-06-29 15:21 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/15507950108.shtml)
+- 2026-06-29 15:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/22404066406.shtml)
+- 2026-06-29 15:30 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/10481.shtml)
+- 2026-06-29 15:35 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/8616931.shtml)
+- 2026-06-29 15:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/7985092.shtml)

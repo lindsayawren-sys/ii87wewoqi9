@@ -1,56 +1,44 @@
-# 谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议
+# 日本日经指数首次突破72,000点 续创新高
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-据知情人士透露，谷歌已与美国国防部达成协议，允许军方在机密项目中使用谷歌人工智能模型。知情人士称，该协议授权国防部将谷歌 AI 技术用于 “任何合法的政府用途”，这一条款此前在其他科技企业与军方的 AI 合作谈判中一直颇具争议。周一，多名谷歌员工联名致信首席执行官桑达尔・皮查伊，强烈要求公司拒绝该项合作。就在协议落地之际，超过 600 名谷歌员工于当日向 CEO 皮查伊递交联名
+专题：成长主导但谨慎追高 配置上关注三条线索 日经225指数上涨1.17%， 报72，086.41点， 该指数首次突破72，000点续创历史新高。责任编辑：王永生
 
 ## 正文
 
-据知情人士透露，谷歌已与美国国防部达成协议，允许军方在机密项目中使用谷歌人工智能模型。
-
-知情人士称，该协议授权国防部将谷歌 AI 技术用于 “任何合法的政府用途”，这一条款此前在其他科技企业与军方的 AI 合作谈判中一直颇具争议。
-
-周一，多名谷歌员工联名致信首席执行官桑达尔・皮查伊，强烈要求公司拒绝该项合作。
-
-就在协议落地之际，超过 600 名谷歌员工于当日向 CEO 皮查伊递交联名信，要求否决这份合作。
-
-员工主张，拒绝承接涉密军事业务，是防止谷歌人工智能技术被滥用的唯一途径。
+专题：成长主导但谨慎追高 配置上关注三条线索 日经225指数上涨1.17%， 报72，086.41点， 该指数首次突破72，000点续创历史新高。
 
 责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 15:18 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 15:28 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 15:24 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 15:33 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 15:31 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 15:27 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 15:38 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 15:33 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 15:22 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 15:18 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 15:38 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 15:25 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 15:39 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 15:37 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 15:28 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 15:42 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 15:42 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 15:40 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 15:25 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 15:19 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 15:45 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 15:34 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 15:25 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 15:26 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [明星大侦探第四季](http://www.share.minike.top/Article/details/2027405227.shtml)
-- 2026-06-29 15:31 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/50930.shtml)
-- 2026-06-29 15:28 - [崔韩率还以为韩娱来新人了](https://www.blog.minike.top/Article/details/752586.shtml)
-- 2026-06-29 15:13 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/53318652017.shtml)
-- 2026-06-29 15:23 - [河南考699分女生已接到清华大学电话](https://www.share.minike.top/Article/details/70401718.shtml)
-- 2026-06-29 15:29 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/22879013796.shtml)
-- 2026-06-29 15:28 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.minike.top/Article/details/920097713306.shtml)
-- 2026-06-29 15:27 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/8087258174.shtml)
-- 2026-06-29 15:28 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/38536.shtml)
-- 2026-06-29 15:22 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/770029676574.shtml)
-- 2026-06-29 15:30 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/840422.shtml)
-- 2026-06-29 15:38 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/42964502.shtml)
-- 2026-06-29 15:17 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/7393187.shtml)
-- 2026-06-29 15:35 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/088126650.shtml)
-- 2026-06-29 15:26 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/0947129.shtml)
+- 2026-06-29 15:26 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/803797397.shtml)
+- 2026-06-29 15:26 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/99913339094.shtml)
+- 2026-06-29 15:45 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/82939303.shtml)
+- 2026-06-29 15:23 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.kurohicncr.top/Article/details/08853981.shtml)
+- 2026-06-29 15:19 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/604469.shtml)
+- 2026-06-29 15:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/2356878532.shtml)
+- 2026-06-29 15:41 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/0825484.shtml)
+- 2026-06-29 15:43 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/50685070340.shtml)
+- 2026-06-29 15:46 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/724998610258.shtml)
+- 2026-06-29 15:24 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/050438.shtml)
+- 2026-06-29 15:28 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/412175733266.shtml)
+- 2026-06-29 15:18 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/46417297552.shtml)
+- 2026-06-29 15:41 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/317606341.shtml)
+- 2026-06-29 15:37 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/107372124894.shtml)
+- 2026-06-29 15:34 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/62337608.shtml)

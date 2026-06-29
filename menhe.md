@@ -1,59 +1,58 @@
-# 末局逆转！成都AG夺得2026PEL春季赛总决赛冠军
+# 霍尔木兹海峡航运缓慢恢复，"日均125艘"的常态何时回归？
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网北京4月27日电(记者 王昊)4月26日，2026PEL和平精英职业联赛春季赛总决赛在长沙正式落下帷幕。16支战队历经3天、共计18局对抗，成都AG最后一局实现大逆转，以150分的总积分捧起了PEL第17座赛季冠军奖杯。在夺得春季赛常规赛MVP后，成都AG·花花(陈玉萌)又荣膺本届总决赛FMVP。 24日，在总决赛正赛首日中，成都AG战队迅速进入状态，首局比赛便以18个淘
+汇通财经APP讯——周二（6月22日）亚市早盘，美原油期货维持震荡格局，当前交投于74美元/桶附近。 随着美国宣布暂时解除对伊朗石油的制裁和美伊谈判缓解中东地缘政治压力，国际原油期货价格22日从最高78美元/桶上方显著回落并由涨转跌，跌幅超过3%。 航运数据显示，周一多艘原油和液化天然气（LNG）油轮驶过霍尔木兹海峡，表明该海峡的航运活动正逐渐恢复。此前伊朗上周末再度宣布封锁该
 
 ## 正文
 
-中新网北京4月27日电(记者 王昊)4月26日，2026PEL和平精英职业联赛春季赛总决赛在长沙正式落下帷幕。
+汇通财经APP讯——周二（6月22日）亚市早盘，美原油期货维持震荡格局，当前交投于74美元/桶附近。
 
-16支战队历经3天、共计18局对抗，成都AG最后一局实现大逆转，以150分的总积分捧起了PEL第17座赛季冠军奖杯。
+随着美国宣布暂时解除对伊朗石油的制裁和美伊谈判缓解中东地缘政治压力，国际原油期货价格22日从最高78美元/桶上方显著回落并由涨转跌，跌幅超过3%。
 
-在夺得春季赛常规赛MVP后，成都AG·花花(陈玉萌)又荣膺本届总决赛FMVP。
+航运数据显示，周一多艘原油和液化天然气（LNG）油轮驶过霍尔木兹海峡，表明该海峡的航运活动正逐渐恢复。
 
-24日，在总决赛正赛首日中，成都AG战队迅速进入状态，首局比赛便以18个淘汰的出色成绩拿下胜利。
+此前伊朗上周末再度宣布封锁该水道，一度导致船只通行量下降。
 
-随后第四、五局，苏州KSG战队火力全开取得连胜，以81分领跑首日积分榜。
+随着美伊60天和平谈判的推进，这条全球能源运输大动脉正缓慢重回正轨。
 
-当日还进行了常规赛荣誉颁奖典礼，成都AG·花花一人斩获常规赛MVP、淘汰王、进步最快选手、最佳自由位四项大奖，成为首位四奖同揽的选手。
+油轮通行逐步恢复：LNG与原油轮重返海峡 据Kpler船舶追踪数据分析，周一有四艘由卡塔尔控制的LNG运输船驶入波斯湾并穿越海峡；同时，两艘超级油轮也驶入波斯湾，其中一艘报告目的地为伊拉克巴士拉港。
 
-进入总决赛第二比赛日，赛场竞争强度大幅升级，积分榜排名频繁变动。
+MarineTraffic平台数据显示，周一有两艘较小的原油油轮驶出霍尔木兹海峡，进入阿曼湾。
 
-成都AG次日状态虽有所起伏，但仍稳健收获30分；无锡KONE状态火热，总积分一跃升至第一；广州TT单日斩获61分，反超至前两名；北京WBG拿下25分的当日单场最高积分，凭借单日斩获的61分成功逆袭至榜单前列。
+船舶经纪公司克拉克森（Clarksons）周一在报告中表示：“尽管每日过境量仍低于伊朗局势紧张前日均125艘的水平，但趋势是积极的。
 
 ## 相关推荐
 
-- 2026-06-29 15:35 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 15:34 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 15:31 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 15:24 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 15:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 15:23 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 15:35 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 15:35 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 15:20 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 15:17 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 15:31 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 15:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 15:15 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 15:30 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 15:21 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 15:43 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 15:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 15:36 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 15:41 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 15:40 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 15:25 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 15:25 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 15:32 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 15:27 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 15:18 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:19 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/72238923281.shtml)
-- 2026-06-29 15:14 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/164728954.shtml)
-- 2026-06-29 15:28 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/111880938347.shtml)
-- 2026-06-29 15:21 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/522591.shtml)
-- 2026-06-29 15:29 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/5577634998.shtml)
-- 2026-06-29 15:17 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.minike.top/Article/details/030439.shtml)
-- 2026-06-29 15:20 - [金刚川](http://www.share.kurohicncr.top/Article/details/370776905.shtml)
-- 2026-06-29 15:27 - [20年前的周杰伦](https://www.blog.minike.top/Article/details/656210495818.shtml)
-- 2026-06-29 15:12 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/355019961749.shtml)
-- 2026-06-29 15:23 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/72362.shtml)
-- 2026-06-29 15:34 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.kurohicncr.top/Article/details/158759610036.shtml)
-- 2026-06-29 15:28 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/75722294.shtml)
-- 2026-06-29 15:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/46357831613.shtml)
-- 2026-06-29 15:36 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.minike.top/Article/details/594168.shtml)
-- 2026-06-29 15:33 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/594292.shtml)
+- 2026-06-29 15:45 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/73319.shtml)
+- 2026-06-29 15:33 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/45356064.shtml)
+- 2026-06-29 15:44 - [锐评浪姐7总决赛](https://www.blog.minike.top/Article/details/359737945713.shtml)
+- 2026-06-29 15:47 - [智界V9成为高端圈层共同选择](https://www.share.minike.top/Article/details/27919.shtml)
+- 2026-06-29 15:36 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/2184480.shtml)
+- 2026-06-29 15:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/08133417.shtml)
+- 2026-06-29 15:27 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/87475335276.shtml)
+- 2026-06-29 15:35 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/963256.shtml)
+- 2026-06-29 15:31 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.kurohicncr.top/Article/details/46873051.shtml)
+- 2026-06-29 15:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/41318.shtml)
+- 2026-06-29 15:43 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/19437082055.shtml)
+- 2026-06-29 15:25 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/384001.shtml)
+- 2026-06-29 15:21 - [欧盟为什么越来越倾向贸易保护](http://www.share.minike.top/Article/details/547422.shtml)
+- 2026-06-29 15:21 - [滾石唱片要求万豪酒店道歉](http://www.share.minike.top/Article/details/6720075.shtml)
+- 2026-06-29 15:41 - [上海一小区水池内出现一条鳄鱼](https://www.share.kurohicncr.top/Article/details/011928449888.shtml)

@@ -1,51 +1,46 @@
-# 为人民出政绩丨“既要做显功，也要做潜功”
+# 中关村：2026年7月8日召开2026年第二次临时股东会
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-政绩观问题是一个关乎立党为公、执政为民的根本性问题。习近平总书记指出：“要牢固树立正确政绩观，既要做让老百姓看得见、摸得着、得实惠的实事，也要做为后人作铺垫、打基础、利长远的好事，既要做显功，也要做潜功”。 文案、制作：黄瑾 资料来源：人民日报、央视新闻等
+证券日报网讯 6月22日，中关村发布公告称，公司将于2026年7月8日召开2026年第二次临时股东会。（文章来源：证券日报）
 
 ## 正文
 
-政绩观问题是一个关乎立党为公、执政为民的根本性问题。
+证券日报网讯 6月22日，中关村发布公告称，公司将于2026年7月8日召开2026年第二次临时股东会。
 
-习近平总书记指出：“要牢固树立正确政绩观，既要做让老百姓看得见、摸得着、得实惠的实事，也要做为后人作铺垫、打基础、利长远的好事，既要做显功，也要做潜功”。
-
-文案、制作：黄瑾 资料来源：人民日报、央视新闻等
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 15:30 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 15:24 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 15:18 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 15:40 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 15:32 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 15:34 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 15:40 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 15:22 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 15:38 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 15:34 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 15:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 15:39 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 15:32 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 15:31 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 15:33 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 15:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 15:30 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 15:41 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 15:47 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 15:44 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 15:24 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 15:19 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 15:44 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 15:21 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 15:25 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 15:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 15:41 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:23 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/877382466449.shtml)
-- 2026-06-29 15:33 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/69416.shtml)
-- 2026-06-29 15:15 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/673954762582.shtml)
-- 2026-06-29 15:29 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/695626809.shtml)
-- 2026-06-29 15:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/53565483129.shtml)
-- 2026-06-29 15:20 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/279746.shtml)
-- 2026-06-29 15:35 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/48539039145.shtml)
-- 2026-06-29 15:19 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/656407.shtml)
-- 2026-06-29 15:29 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/24873.shtml)
-- 2026-06-29 15:18 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.kurohicncr.top/Article/details/827993.shtml)
-- 2026-06-29 15:36 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/673814515.shtml)
-- 2026-06-29 15:23 - [周深双眼皮贴又掉了](https://www.blog.minike.top/Article/details/17655.shtml)
-- 2026-06-29 15:33 - [请回答王牌2019](https://www.blog.minike.top/Article/details/74890.shtml)
-- 2026-06-29 15:29 - [速度与激情9](https://www.share.minike.top/Article/details/2485417.shtml)
-- 2026-06-29 15:36 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/33087772.shtml)
+- 2026-06-29 15:20 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/232304173210.shtml)
+- 2026-06-29 15:27 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/35453562467.shtml)
+- 2026-06-29 15:40 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/9293325502.shtml)
+- 2026-06-29 15:40 - [锐评浪姐7总决赛](https://www.share.kurohicncr.top/Article/details/40321.shtml)
+- 2026-06-29 15:44 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/1142257.shtml)
+- 2026-06-29 15:23 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/440200088.shtml)
+- 2026-06-29 15:33 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.kurohicncr.top/Article/details/4886407.shtml)
+- 2026-06-29 15:31 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/1331415463.shtml)
+- 2026-06-29 15:44 - [3D打印不是工业革命，它是……](http://www.blog.minike.top/Article/details/949763278.shtml)
+- 2026-06-29 15:35 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/53465275.shtml)
+- 2026-06-29 15:47 - [BB大王横店拍戏](https://www.share.minike.top/Article/details/23564157208.shtml)
+- 2026-06-29 15:18 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/121608.shtml)
+- 2026-06-29 15:46 - [恋与深空发放补偿未得到玩家认可](http://www.share.kurohicncr.top/Article/details/61097.shtml)
+- 2026-06-29 15:20 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/064816064.shtml)
+- 2026-06-29 15:19 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/43079824904.shtml)

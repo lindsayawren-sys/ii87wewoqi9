@@ -1,56 +1,47 @@
-# 7只A股明日复牌！5只复牌后将被“*ST”
+# 探营夏季达沃斯会场：滨城静待全球宾客共话“规模化创新”
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-多只A股即将复牌。 Wind统计数据显示，截至发稿，明日（4月27日）将有7只A股复牌，分别是皇庭国际（000056）、西安旅游（000610）、财信发展（000838）、锋龙股份（002931）、ST景谷（600265）、莫高股份（维权）（600543）、ST新华锦（维权）（600735）。 其中，皇庭国际、西安旅游、财信发展、ST景谷、莫高股份复牌后均将被“*ST”。 皇庭
+发布时间：2026年06月22日 21:26 来源：中国新闻网 世界经济论坛第十七届新领军者年会(夏季达沃斯论坛)将于6月23日至25日在辽宁大连举行，主会场大连国际会议中心已全面对与会嘉宾开放，静待全球宾客到访。本届论坛以 “规模化创新” 为核心议题，汇聚 90 多个国家和地区 1700 余名各界嘉宾，围绕中国经济发展路径、技术落地转化效益等核心议题，聚焦人工智能、新能源、生
 
 ## 正文
 
-多只A股即将复牌。
+发布时间：2026年06月22日 21:26 来源：中国新闻网 世界经济论坛第十七届新领军者年会(夏季达沃斯论坛)将于6月23日至25日在辽宁大连举行，主会场大连国际会议中心已全面对与会嘉宾开放，静待全球宾客到访。
 
-Wind统计数据显示，截至发稿，明日（4月27日）将有7只A股复牌，分别是皇庭国际（000056）、西安旅游（000610）、财信发展（000838）、锋龙股份（002931）、ST景谷（600265）、莫高股份（维权）（600543）、ST新华锦（维权）（600735）。
+本届论坛以 “规模化创新” 为核心议题，汇聚 90 多个国家和地区 1700 余名各界嘉宾，围绕中国经济发展路径、技术落地转化效益等核心议题，聚焦人工智能、新能源、生物医药前沿领域深度研讨，向世界展现中国高质量发展实绩，传递持续扩大开放、深化国际合作的坚定立场。
 
-其中，皇庭国际、西安旅游、财信发展、ST景谷、莫高股份复牌后均将被“*ST”。
-
-皇庭国际此前公告称，公司股票自2026年4月27日起被实行“退市风险警示”和“其他风险警示”处理，股票简称由“皇庭国际”变更为“*ST皇庭”、由“皇庭B”变更为“*ST皇庭B”，证券代码仍为“000056、200056”。
-
-据悉，公司于2026年4月24日披露《2025年年度报告》，最近一个会计年度经审计的期末净资产为负值，且最近一个会计年度的财务会计报告被出具无法表示意见。
-
-根据相关规定，公司股票交易将被深圳证券交易所实施退市风险警示。
-
-同时，公司2023年度、2024年度、2025年度扣除非经常性损益前后净利润孰低者均为负值，且尤尼泰振青会计师事务所（特殊普通合伙）对公司2025年度出具了带持续经营重大不确定性段落的无法表示意见的审计报告。
-
-根据相关规定，公司股票将被深圳证券交易所实施其他风险警示。
+(杨毅 韩浩天 李雪飞） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 15:14 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 15:21 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 15:31 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 15:17 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 15:22 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 15:15 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 15:13 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 15:41 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 15:28 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 15:23 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 15:47 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 15:37 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 15:26 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 15:45 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 15:26 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 15:44 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 15:37 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 15:19 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 15:24 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 15:26 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 15:24 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:35 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/476164.shtml)
-- 2026-06-29 15:16 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.kurohicncr.top/Article/details/8311276.shtml)
-- 2026-06-29 15:21 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/87525823.shtml)
-- 2026-06-29 15:34 - [医院大厅放钢琴是形式主义吗](http://www.blog.minike.top/Article/details/014369221231.shtml)
-- 2026-06-29 15:22 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/50411437.shtml)
-- 2026-06-29 15:37 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/053407.shtml)
-- 2026-06-29 15:20 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/8272701353.shtml)
-- 2026-06-29 15:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/342226.shtml)
-- 2026-06-29 15:39 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/48108487.shtml)
-- 2026-06-29 15:34 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/966004670.shtml)
-- 2026-06-29 15:19 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/93969384.shtml)
-- 2026-06-29 15:19 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/2514387.shtml)
-- 2026-06-29 15:18 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/7158056.shtml)
-- 2026-06-29 15:14 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/06861651433.shtml)
-- 2026-06-29 15:14 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/52826045049.shtml)
+- 2026-06-29 15:37 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/590227725.shtml)
+- 2026-06-29 15:24 - [天道](https://www.share.minike.top/Article/details/13097.shtml)
+- 2026-06-29 15:21 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/11773312786.shtml)
+- 2026-06-29 15:38 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/83371255007.shtml)
+- 2026-06-29 15:41 - [起风了](https://www.blog.minike.top/Article/details/69742643505.shtml)
+- 2026-06-29 15:24 - [四川宜宾地震致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/9811112621.shtml)
+- 2026-06-29 15:26 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/2142008882.shtml)
+- 2026-06-29 15:46 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/6622651.shtml)
+- 2026-06-29 15:35 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/98006803.shtml)
+- 2026-06-29 15:25 - [德国VS巴拉圭前瞻](http://www.share.minike.top/Article/details/6779958.shtml)
+- 2026-06-29 15:46 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/999995.shtml)
+- 2026-06-29 15:41 - [欧洲人驾车200公里抢购中国空调](http://www.blog.kurohicncr.top/Article/details/25726.shtml)
+- 2026-06-29 15:33 - [德国VS巴拉圭前瞻](https://www.share.minike.top/Article/details/11954.shtml)
+- 2026-06-29 15:47 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/564903001625.shtml)
+- 2026-06-29 15:29 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/438593.shtml)

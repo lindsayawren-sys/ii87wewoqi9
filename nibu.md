@@ -1,60 +1,58 @@
-# 华领资产90亿元大案余波：理财亏716万元，托管券商被判赔偿10%
+# 美国国务卿鲁比奥将访问阿联酋、科威特、巴林
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-原标题：理财亏716万元，托管券商被判赔偿10% 华领资产90亿元大案余波依旧。 近日，中国裁判文书网公布判决书显示，在华领资产集资诈骗罪案件中，金融街证券作为私募基金托管人，未对底层资产真实权属进行审慎核查，仅作形式审查，存在明显过错。最终判决其对投资者陈某716万元投资损失中的实际损失712万元承担10%的赔偿责任。 金融街证券由恒泰证券更名而来，而该案正是发生在“恒泰证券
+中新社华盛顿6月22日电 (记者 沙晗汀)美国国务院当地时间22日发表声明说，国务卿鲁比奥将于本月23日至25日出访阿联酋、科威特和巴林。 美国国务院发言人托马斯·皮戈特在声明中说，鲁比奥此行将讨论多个地区优先事项，包括与伊朗达成的谅解备忘录、确保霍尔木兹海峡全面自由安全通行所需努力以及该地区和平与稳定的重要性。在巴林，鲁比奥将与海湾阿拉伯国家合作委员会相关人员举行会晤，讨论该
 
 ## 正文
 
-原标题：理财亏716万元，托管券商被判赔偿10% 华领资产90亿元大案余波依旧。
+中新社华盛顿6月22日电 (记者 沙晗汀)美国国务院当地时间22日发表声明说，国务卿鲁比奥将于本月23日至25日出访阿联酋、科威特和巴林。
 
-近日，中国裁判文书网公布判决书显示，在华领资产集资诈骗罪案件中，金融街证券作为私募基金托管人，未对底层资产真实权属进行审慎核查，仅作形式审查，存在明显过错。
+美国国务院发言人托马斯·皮戈特在声明中说，鲁比奥此行将讨论多个地区优先事项，包括与伊朗达成的谅解备忘录、确保霍尔木兹海峡全面自由安全通行所需努力以及该地区和平与稳定的重要性。
 
-最终判决其对投资者陈某716万元投资损失中的实际损失712万元承担10%的赔偿责任。
+在巴林，鲁比奥将与海湾阿拉伯国家合作委员会相关人员举行会晤，讨论该地区共同优先事项。
 
-金融街证券由恒泰证券更名而来，而该案正是发生在“恒泰证券”时期。
+海湾阿拉伯国家合作委员会是海湾地区主要的政治经济组织，共有沙特阿拉伯、阿联酋、科威特、卡塔尔、阿曼、巴林6个正式成员国。
 
-2025年，完成更名升级后，金融街证券经营业绩实现大幅增长，公司2025年实现归母净利润达3.25亿元，同比大幅攀升84.33%。
+近日，美伊双方签署《美利坚合众国与伊朗伊斯兰共和国之间的伊斯兰堡谅解备忘录》。
 
-然而在业务扩张、业绩走高的背后，金融街证券潜藏的合规风险正持续暴露。
+该文件列出了重新开放霍尔木兹海峡及放宽对伊部分金融限制的内容，并阐明了在未来技术性会谈中解决伊朗核问题的预期目标。
 
-716万元投资血本无归 根据判决书，投资者陈某与上海某资产管理有限公司、金融街证券共同签署《16号基金合同》《17号基金合同》，参与相关私募基金投资。
+据路透社报道，中东多国对于美国结束与伊朗战争普遍表示支持，但对于双方谅解备忘录中的具体条款“感到不安”。
 
-资金投入方面，陈某于2018年9月出资100万元认购16号基金，同年11月追加616万元认购17号基金。
+刚刚结束与伊朗方面会谈的美国副总统万斯22日在瑞士表示，会谈为双方“达成最终和平协议奠定良好基础”。
 
 ## 相关推荐
 
-- 2026-06-29 15:26 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 15:36 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 15:38 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 15:21 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 15:14 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 15:41 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 15:13 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 15:22 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 15:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 15:31 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 15:20 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 15:38 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 15:35 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 15:39 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 15:39 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 15:44 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 15:21 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 15:19 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 15:39 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 15:29 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 15:22 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 15:46 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 15:23 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 15:29 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 15:44 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 15:23 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:32 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/3904085447.shtml)
-- 2026-06-29 15:39 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/037196777.shtml)
-- 2026-06-29 15:26 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/6439869.shtml)
-- 2026-06-29 15:26 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/74829491038.shtml)
-- 2026-06-29 15:40 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/7668994105.shtml)
-- 2026-06-29 15:21 - [医院大厅放钢琴是形式主义吗](https://www.blog.kurohicncr.top/Article/details/239124088.shtml)
-- 2026-06-29 15:19 - [媒体人：警惕日本再次成战争加害国](http://www.share.minike.top/Article/details/11924024328.shtml)
-- 2026-06-29 15:23 - [张一山回应与杨紫友情](http://www.share.kurohicncr.top/Article/details/6043613088.shtml)
-- 2026-06-29 15:34 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/112144808822.shtml)
-- 2026-06-29 15:25 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.minike.top/Article/details/329308.shtml)
-- 2026-06-29 15:13 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/308978569.shtml)
-- 2026-06-29 15:24 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/48210.shtml)
-- 2026-06-29 15:23 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/9526179490.shtml)
-- 2026-06-29 15:24 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/418452.shtml)
-- 2026-06-29 15:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/691643.shtml)
+- 2026-06-29 15:21 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/0483439.shtml)
+- 2026-06-29 15:33 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/9909654314.shtml)
+- 2026-06-29 15:42 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/849149831.shtml)
+- 2026-06-29 15:46 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/823702088.shtml)
+- 2026-06-29 15:31 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/29213201.shtml)
+- 2026-06-29 15:26 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/0992504.shtml)
+- 2026-06-29 15:30 - [东方风云榜](https://www.blog.minike.top/Article/details/32257542361.shtml)
+- 2026-06-29 15:32 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/11149047340.shtml)
+- 2026-06-29 15:29 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/66328740.shtml)
+- 2026-06-29 15:20 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/4643545.shtml)
+- 2026-06-29 15:18 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/63291.shtml)
+- 2026-06-29 15:42 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/103855602987.shtml)
+- 2026-06-29 15:19 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/408781016.shtml)
+- 2026-06-29 15:43 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/13859120802.shtml)
+- 2026-06-29 15:44 - [李在明称韩国足协任命了无能之人](https://www.share.minike.top/Article/details/596110477.shtml)

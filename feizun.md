@@ -1,60 +1,55 @@
-# 我国能源供给保障有力 能源安全韧性持续增强
+# 野村控股CEO薪酬上调至1000万美元 公司净利润创历史新高
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-央视新闻客户端消息(新闻联播)：国家能源局公布的最新数据显示，今年以来，我国能源生产稳步增长，能源绿色低碳转型纵深推进，能源安全韧性不断增强。 最新数据显示，截至3月底，全国累计发电装机容量39.6亿千瓦，同比增长15.5%。近40亿千瓦的体量稳居世界首位，装机量占全球总装机量近三成。 除了装机总量保持增长，能源供应结构也在发生积极变化。一季度，规模以上工业水电、核电、风电、太
+野村控股将首席执行官奥田健太郎上一财年的薪酬上调36%，这家日本公司年利润此前创历史新高。 根据周一公告，截至3月31日这一财年，奥田薪酬增至16亿日元（约合1000万美元）。批发业务部门负责人Christopher Willcox作为公司薪酬最高的高管，其薪酬增长13%至1700万美元。 在奥田的领导下，日本这家最大的券商连续第二年净利润创下纪录，主要得益于日本金融市场的反弹
 
 ## 正文
 
-央视新闻客户端消息(新闻联播)：国家能源局公布的最新数据显示，今年以来，我国能源生产稳步增长，能源绿色低碳转型纵深推进，能源安全韧性不断增强。
+野村控股将首席执行官奥田健太郎上一财年的薪酬上调36%，这家日本公司年利润此前创历史新高。
 
-最新数据显示，截至3月底，全国累计发电装机容量39.6亿千瓦，同比增长15.5%。
+根据周一公告，截至3月31日这一财年，奥田薪酬增至16亿日元（约合1000万美元）。
 
-近40亿千瓦的体量稳居世界首位，装机量占全球总装机量近三成。
+批发业务部门负责人Christopher Willcox作为公司薪酬最高的高管，其薪酬增长13%至1700万美元。
 
-除了装机总量保持增长，能源供应结构也在发生积极变化。
+在奥田的领导下，日本这家最大的券商连续第二年净利润创下纪录，主要得益于日本金融市场的反弹和交易量激增。
 
-一季度，规模以上工业水电、核电、风电、太阳能发电等清洁能源发电量0.7万亿千瓦时，同比增长2.8%，占规模以上工业发电量的33.2%。
+随着奥田推动在周期低迷时期也将保持稳定增长，野村上调其中期利润目标。
 
-截至3月底，我国风电、太阳能装机量达到19亿千瓦。
-
-与此同时，能源消费结构也在持续优化。
-
-国家统计局数据显示，初步测算，一季度能源消费总量同比增长3.9%，增速比上年全年加快0.4个百分点；非化石能源占能源消费总量比重持续提高，比上年同期提高0.4个百分点；清洁电力生产和能源绿色消费实现同步增长，带动电气化水平稳步提升。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 15:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 15:37 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 15:25 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 15:38 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 15:30 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 15:16 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 15:30 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 15:12 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 15:15 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 15:37 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 15:21 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 15:12 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 15:30 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 15:21 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 15:43 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 15:20 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 15:44 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 15:29 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 15:18 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 15:36 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 15:39 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 15:44 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 15:46 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 15:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 15:39 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 15:24 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 15:36 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:39 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/09803765437.shtml)
-- 2026-06-29 15:25 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/80810256.shtml)
-- 2026-06-29 15:18 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/19959543445.shtml)
-- 2026-06-29 15:19 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/90231455.shtml)
-- 2026-06-29 15:40 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/198000488.shtml)
-- 2026-06-29 15:34 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.minike.top/Article/details/9004837257.shtml)
-- 2026-06-29 15:39 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/858040062.shtml)
-- 2026-06-29 15:23 - [湖北钟祥市委书记张勇拟任新职](http://www.share.minike.top/Article/details/792627205788.shtml)
-- 2026-06-29 15:31 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.minike.top/Article/details/9688088.shtml)
-- 2026-06-29 15:25 - [极限挑战第一季](http://www.share.minike.top/Article/details/516243029338.shtml)
-- 2026-06-29 15:26 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/764235.shtml)
-- 2026-06-29 15:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/586860.shtml)
-- 2026-06-29 15:14 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/8811756.shtml)
-- 2026-06-29 15:34 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/32639070.shtml)
-- 2026-06-29 15:29 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/916567.shtml)
+- 2026-06-29 15:42 - [天道](http://www.blog.minike.top/Article/details/0812490465.shtml)
+- 2026-06-29 15:33 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/90907168137.shtml)
+- 2026-06-29 15:31 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/63638115.shtml)
+- 2026-06-29 15:47 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.minike.top/Article/details/982856969497.shtml)
+- 2026-06-29 15:22 - [媒体：中国田径压力与期待并存](http://www.share.kurohicncr.top/Article/details/66916.shtml)
+- 2026-06-29 15:19 - [叶一茜森碟一起回北京了](https://www.share.kurohicncr.top/Article/details/64264165.shtml)
+- 2026-06-29 15:42 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/146267475.shtml)
+- 2026-06-29 15:45 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/63767701.shtml)
+- 2026-06-29 15:30 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/97539.shtml)
+- 2026-06-29 15:20 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.kurohicncr.top/Article/details/189617130605.shtml)
+- 2026-06-29 15:36 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/500154.shtml)
+- 2026-06-29 15:33 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/20976685.shtml)
+- 2026-06-29 15:29 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/50044.shtml)
+- 2026-06-29 15:24 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/22929279105.shtml)
+- 2026-06-29 15:27 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/741766513290.shtml)

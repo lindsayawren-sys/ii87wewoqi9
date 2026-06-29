@@ -1,58 +1,58 @@
-# 博时基金唐屹兵：穿越震荡，探寻硬科技投资新机遇
+# 光大期货0623黄金点评：中东局势缓和，但对金价边际提振动能递减
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-博时基金指数与量化投资部基金经理 唐屹兵 1．近期市场震荡幅度较大，当前海内外宏观经济的整体图景是怎样的？ 唐屹兵：中东冲突是引起当前市场波动的核心因素，霍尔木兹海峡通行受阻推高油价，使得市场对美联储降息节奏的预测出现较大波动。美国经济在AI产业驱动下保持韧性，但高债务叠加通胀抬升未来存在一定压力。国内经济整体处于稳中向好的态势，地产对经济的拖累基本消化，出口保持景气。在全球地
+6月22日，COMEX黄金低开高走，尾盘小幅回落，报收4209.7美元/盎司，涨幅0.88%。国内SHFE金夜盘维持宽幅震荡，报收914.88元/克，跌幅0.18%。 地缘政治方面，卡塔尔与巴基斯坦联合声明称，美伊首轮在瑞士举行高级别会谈。各方已商定60天内达成最终协议的路线图，建立技术谈判机制及沟通热线，并专设“冲突降级小组”协调黎巴嫩停火。这也意味着中东地缘依然朝着缓和方向
 
 ## 正文
 
-博时基金指数与量化投资部基金经理 唐屹兵 1．近期市场震荡幅度较大，当前海内外宏观经济的整体图景是怎样的？
+6月22日，COMEX黄金低开高走，尾盘小幅回落，报收4209.7美元/盎司，涨幅0.88%。
 
-唐屹兵：中东冲突是引起当前市场波动的核心因素，霍尔木兹海峡通行受阻推高油价，使得市场对美联储降息节奏的预测出现较大波动。
+国内SHFE金夜盘维持宽幅震荡，报收914.88元/克，跌幅0.18%。
 
-美国经济在AI产业驱动下保持韧性，但高债务叠加通胀抬升未来存在一定压力。
+地缘政治方面，卡塔尔与巴基斯坦联合声明称，美伊首轮在瑞士举行高级别会谈。
 
-国内经济整体处于稳中向好的态势，地产对经济的拖累基本消化，出口保持景气。
+各方已商定60天内达成最终协议的路线图，建立技术谈判机制及沟通热线，并专设“冲突降级小组”协调黎巴嫩停火。
 
-在全球地缘冲突加剧的背景下，中国具备相对完整产业链的优势逐渐凸显，能源安全与国内稳定使中国产业处于更好的竞争环境。
+这也意味着中东地缘依然朝着缓和方向演进，下一步关注霍尔木兹海峡通航问题。
 
-2．海外因素如何对国内科创板市场产生影响？
+不过，当前贵金属陷入“鹰派FOMC”的冲击中，美联储2024年以来宽松周期的政策基调正发生根本转变，市场开始对年内计价加息一次，并预期最早可能在9月份。
 
-唐屹兵：主要通过三条渠道传导。
+黄金作为无息资产在利率上行预期中持续承压，但当前金价已充分计价了大部分的鹰派预期，边际上的利空动能也在衰减。
 
-首先是资金流动，美债利率上行或会阶段性压制外资对高估值成长股的配置，虽然科创板外资持股比例不高，但情绪传导明显。
+综合来看，黄金维系底部震荡行情，以时间换空间，降低上方预期。
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 15:30 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 15:26 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 15:12 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 15:19 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 15:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-29 15:15 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 15:39 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 15:40 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 15:17 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 15:30 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 15:16 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 15:27 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 15:38 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 15:42 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 15:43 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 15:26 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 15:37 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 15:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 15:32 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 15:20 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 15:18 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 15:19 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 15:41 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:36 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/5670511094.shtml)
-- 2026-06-29 15:36 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/796538942.shtml)
-- 2026-06-29 15:26 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/957213178.shtml)
-- 2026-06-29 15:12 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/2786425884.shtml)
-- 2026-06-29 15:15 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.minike.top/Article/details/30645.shtml)
-- 2026-06-29 15:24 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/8440464.shtml)
-- 2026-06-29 15:38 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/846987.shtml)
-- 2026-06-29 15:13 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/897955316.shtml)
-- 2026-06-29 15:22 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/726648.shtml)
-- 2026-06-29 15:32 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/3429557.shtml)
-- 2026-06-29 15:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/251831475.shtml)
-- 2026-06-29 15:21 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/10942061.shtml)
-- 2026-06-29 15:18 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/495339857.shtml)
-- 2026-06-29 15:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/43863390.shtml)
-- 2026-06-29 15:25 - [新能源车能当外接空调用吗](https://www.share.kurohicncr.top/Article/details/62054292.shtml)
+- 2026-06-29 15:31 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/60320509529.shtml)
+- 2026-06-29 15:24 - [美伊同意停止互袭](https://www.share.kurohicncr.top/Article/details/19962798758.shtml)
+- 2026-06-29 15:20 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/57447641728.shtml)
+- 2026-06-29 15:30 - [赵露思爸爸拍vlog翻车了](http://www.blog.minike.top/Article/details/02289082919.shtml)
+- 2026-06-29 15:22 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/16828655.shtml)
+- 2026-06-29 15:35 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/45836129.shtml)
+- 2026-06-29 15:39 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.kurohicncr.top/Article/details/113429285146.shtml)
+- 2026-06-29 15:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/04594.shtml)
+- 2026-06-29 15:23 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/0204296007.shtml)
+- 2026-06-29 15:23 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/4432438.shtml)
+- 2026-06-29 15:33 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/899634837.shtml)
+- 2026-06-29 15:39 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/815942234525.shtml)
+- 2026-06-29 15:41 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/82239.shtml)
+- 2026-06-29 15:36 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/67110784353.shtml)
+- 2026-06-29 15:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/730136403785.shtml)

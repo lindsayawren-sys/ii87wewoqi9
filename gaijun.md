@@ -1,59 +1,57 @@
-# 多部门协同发力 上海出台14项举措助力民营经济高质量发展
+# 长江有色：22日铜价下跌 矿紧锭松，淡季畏高施压
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网上海4月28日电(范宇斌)上海市委统战部、中国人民银行上海总部、上海市工商联(总商会)27日召开金融支持民营企业高质量发展暨“政会银企”机制推进会。上海市委常委、统战部部长陈通出席会议并讲话。 会上，九部门发布《2026年上海金融助力民营经济高质量发展工作指引》，围绕积极运用新设结构性货币政策工具、强化财政金融协同力度、丰富民营企业增信渠道等方面推出14项具体举措。会上还
+长江有色金属网 6月22日铜期货市场动态：今日沪期铜主力月2608合约高开下挫，午后区间窄幅震荡；开盘价报104660元/吨，最高105370元/吨，最低104300元/吨，昨结105060元/吨，今日收盘价报105000元/吨，跌60元，跌幅0.06%，沪铜主力2608合约全天成交量43535手减少28548手。持仓量147012手减少34149手。亚盘时段，伦铜偏强震荡，北
 
 ## 正文
 
-中新网上海4月28日电(范宇斌)上海市委统战部、中国人民银行上海总部、上海市工商联(总商会)27日召开金融支持民营企业高质量发展暨“政会银企”机制推进会。
+长江有色金属网 6月22日铜期货市场动态：今日沪期铜主力月2608合约高开下挫，午后区间窄幅震荡；开盘价报104660元/吨，最高105370元/吨，最低104300元/吨，昨结105060元/吨，今日收盘价报105000元/吨，跌60元，跌幅0.06%，沪铜主力2608合约全天成交量43535手减少28548手。
 
-上海市委常委、统战部部长陈通出席会议并讲话。
+持仓量147012手减少34149手。
 
-会上，九部门发布《2026年上海金融助力民营经济高质量发展工作指引》，围绕积极运用新设结构性货币政策工具、强化财政金融协同力度、丰富民营企业增信渠道等方面推出14项具体举措。
+亚盘时段，伦铜偏强震荡，北京时间15：12最新报价13704.5美元/吨，涨117.5 美元/吨，涨幅0.86%。
 
-会上还成立了上海市工商联民营经济金融服务实体阵地，将在G60科创走廊、张江科学城等重点园区及相关金融机构布设18个服务站点，引入AI数字员工，为民营企业免费提供政策查询、融资对接、产品匹配等一站式服务。
+长江铜业网铜价格统计：今日国内现货铜价格下跌，长江现货1#铜价报104590元/吨，跌680元，升水100-升水140，持平；长江综合1#铜价报104550元/吨，跌705元，升水30-升水130，跌25元；广东现货1#铜价报104560元/吨，跌750元，贴水10-升水190，跌70元；上海地区1#铜价报104500元/吨，跌680元，贴水10-升水70，持平。
 
-会议指出，上海着力破解民营企业融资难题，不断深化“政会银企”合作机制建设，以优质金融服务赋能民营经济高质量发展。
+长江铜市分析： 宏观层面：美联储转鹰，美元破百 6月17日，美联储新任主席沃什首场议息会议落地。
 
-如何持续深化“政会银企”合作机制？
+FOMC声明精简至130字，点阵图却释放强烈鹰派信号——9人支持年内加息，8人主张按兵不动，仅1人看降息。
 
-本次会议对进一步提升民营经济金融服务精准度提出要求：要更加精准地打破信息壁垒，畅通银企信息交流渠道，加大“商会批次贷”工作力度，引导民营企业规范治理、加强信息披露，提升民营企业融资的可得性；要更加精准地贴近企业需求，用好中小微企业贴息、民间投资担保、“随申融”应用等惠企政策与服务阵地，健全覆盖企业全生命周期的金融服务体系，以科技赋能提升民营企业获得感；要更加精准地用好科技金融政策，强化科技创新金融支持，共同打造“科技、产业、金融”协同发展的良好局面，更好地推动上海民营企业科技创新和高质量发展。
+受此提振，美元指数突破100关口，目前在100.8附近震荡偏强，对铜价形成压制。
 
-(完)
+地缘方面，伊朗再次关闭霍尔木兹海峡，WTI一度冲高至78美元，但供应担忧尚未转化为实质缺口，油价自高位回落，避险溢价逐步消退。
 
 ## 相关推荐
 
-- 2026-06-29 15:37 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 15:16 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 15:38 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 15:13 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 15:36 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 15:13 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 15:25 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 15:34 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 15:14 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 15:38 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 15:42 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 15:32 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 15:31 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 15:47 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 15:21 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 15:39 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 15:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 15:29 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 15:41 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 15:44 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 15:37 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 15:24 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 15:25 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 15:42 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:41 - [行程万里不忘初心](https://www.share.minike.top/Article/details/204595813.shtml)
-- 2026-06-29 15:31 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/710279.shtml)
-- 2026-06-29 15:22 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/1011854337.shtml)
-- 2026-06-29 15:12 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/68151021.shtml)
-- 2026-06-29 15:27 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/39995336845.shtml)
-- 2026-06-29 15:41 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/53638611.shtml)
-- 2026-06-29 15:12 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.kurohicncr.top/Article/details/242039078225.shtml)
-- 2026-06-29 15:17 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/006538.shtml)
-- 2026-06-29 15:31 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/62239920861.shtml)
-- 2026-06-29 15:36 - [评论员：日菲勾连各有盘算](http://www.blog.kurohicncr.top/Article/details/92705.shtml)
-- 2026-06-29 15:31 - [沉睡花园](http://www.blog.minike.top/Article/details/2272161558.shtml)
-- 2026-06-29 15:16 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/69403816164.shtml)
-- 2026-06-29 15:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/3387808412.shtml)
-- 2026-06-29 15:18 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/651651581786.shtml)
-- 2026-06-29 15:35 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/767707.shtml)
+- 2026-06-29 15:30 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/7792817322.shtml)
+- 2026-06-29 15:24 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/44477103.shtml)
+- 2026-06-29 15:20 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/105406878371.shtml)
+- 2026-06-29 15:42 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.minike.top/Article/details/722565166700.shtml)
+- 2026-06-29 15:38 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/70474.shtml)
+- 2026-06-29 15:33 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/503555254034.shtml)
+- 2026-06-29 15:25 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/55399413.shtml)
+- 2026-06-29 15:28 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/29184404460.shtml)
+- 2026-06-29 15:32 - [工作靠AI算不算职场作弊](http://www.share.minike.top/Article/details/4079317645.shtml)
+- 2026-06-29 15:33 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/65993348.shtml)
+- 2026-06-29 15:19 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/52635.shtml)
+- 2026-06-29 15:43 - [我和我的家乡](http://www.share.minike.top/Article/details/66615040707.shtml)
+- 2026-06-29 15:36 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/69540.shtml)
+- 2026-06-29 15:43 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/0700744820.shtml)
+- 2026-06-29 15:26 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/80773.shtml)

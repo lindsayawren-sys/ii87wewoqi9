@@ -1,61 +1,58 @@
-# 《中外合作办学优质资源共享与生态共建合作宣言》在西安发布
+# 发掘端午调养身心民俗 中国科技馆举办心理健康主题科普活动
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网西安4月26日电 (记者 阿琳娜)《中外合作办学优质资源共享与生态共建合作宣言》(以下简称：《宣言》)24日在西安发布。《宣言》由西北工业大学伦敦玛丽女王大学工程学院首倡，全国26家中外合作办学机构共同签署，在中外合作办学联席会第十二次会议上发布，推动全国中外合作办学共同探索“开放、协同、共建、共享”的高质量发展路径。 中外合作办学联席会第十二次会议由教育部国际合作与交流
+中新网北京6月22日电 (记者 孙自法)中国科技馆6月22日向媒体通报，在刚刚过去的2026年端午假期，通过深入发掘端午民俗调养身心的文化智慧，“端阳心语·健康同行”心理健康主题科普活动在该馆顺利举办。 活动紧扣“共建共享、全民健康”的健康中国战略主题，整合脑认知科学、航天心理学及人工智能(AI)情绪识别等前沿技术和科研成果，精心打造兼具趣味性、专业性与实用性于一体的心理科普平
 
 ## 正文
 
-中新网西安4月26日电 (记者 阿琳娜)《中外合作办学优质资源共享与生态共建合作宣言》(以下简称：《宣言》)24日在西安发布。
+中新网北京6月22日电 (记者 孙自法)中国科技馆6月22日向媒体通报，在刚刚过去的2026年端午假期，通过深入发掘端午民俗调养身心的文化智慧，“端阳心语·健康同行”心理健康主题科普活动在该馆顺利举办。
 
-《宣言》由西北工业大学伦敦玛丽女王大学工程学院首倡，全国26家中外合作办学机构共同签署，在中外合作办学联席会第十二次会议上发布，推动全国中外合作办学共同探索“开放、协同、共建、共享”的高质量发展路径。
+活动紧扣“共建共享、全民健康”的健康中国战略主题，整合脑认知科学、航天心理学及人工智能(AI)情绪识别等前沿技术和科研成果，精心打造兼具趣味性、专业性与实用性于一体的心理科普平台。
 
-中外合作办学联席会第十二次会议由教育部国际合作与交流司、陕西省教育厅指导，中外合作办学联席会主办，西北工业大学伦敦玛丽女王大学工程学院、莫航学院和西安交通大学管理学院联合承办，以“开放·融合·引领：面向‘十五五’的中外合作办学高质量发展”为主题，共同探讨新时代中外合作办学发展新路径。
+来自中国科学院心理研究所的刘晓倩博士以《神奇的AI读心术》为题，科普解读日常情绪与交流背后的认知机制，并借助互动游戏与可视化设备，带领青少年直观感受自身情绪背后的脑科学基础。
 
-本次会议有174所大学、158个中外合作办学机构的500余成员参加。
+北京理工大学心理健康教育与咨询中心主任王晶晶以《从星辰大海到内心宇宙——航天员太空生活的心理健康启示》为题，分享航天员在极端环境下面临的心理挑战及调适方法，并通过模拟游戏，为青少年化解日常焦虑、疏导心理压力提供科学思路。
 
-《宣言》围绕“同心聚识、同向聚力、同行聚势”三大核心理念，提出三项关键行动倡议。
+主题科普活动上，心理咨询师谷志伟结合中医药文化和传统香笼制作，解读背后嗅觉机制。
 
-同心聚识，落实立德树人根本任务：坚持社会主义办学方向，探索跨文化场景下的思政教育路径，厚植家国情怀并拓展全球视野。
+林思恩博士带来充满科技感的脑电设备和脑控机器人，介绍AI时代学习力提升与亲子沟通新方法。
 
-同向聚力，推动优质资源开放共享：打破校际与地域壁垒，推动师资、课程、平台等资源互联互通，开展跨学科联合研究与协同创新。
+同时，活动设置多个特色“实践工坊”：“大脑‘折’学”工坊通过互动游戏展示大脑与肢体协调控制的关系；“视错觉”工坊通过视错觉画的制作，揭秘视觉偏差背后隐藏的心理认知规律。
 
-同行聚势，构建协同治理新范式：破解合作办学边界壁垒，完善多元共治机制，推动质量标准互认与办学风险联防联控。
+本次端午心理健康主题科普活动，由中国科技馆主办，中国科学院心理研究所、北京理工大学心理健康教育与咨询中心、中国心理学会协办，通过集合学会、高校和科研院所的优质科普资源，为公众提供科学、可行的心理调节技巧和家庭教育新思路。
 
 ## 相关推荐
 
-- 2026-06-29 15:35 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 15:26 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 15:34 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 15:19 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 15:21 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 15:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 15:29 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 15:14 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 15:26 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 15:15 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 15:14 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 15:26 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 15:15 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 15:34 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 15:13 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 15:36 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 15:24 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 15:26 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 15:39 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 15:19 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 15:22 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 15:25 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 15:37 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 15:42 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 15:41 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 15:42 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 15:34 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:31 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/4540924959.shtml)
-- 2026-06-29 15:34 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/44744654584.shtml)
-- 2026-06-29 15:41 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/952032415868.shtml)
-- 2026-06-29 15:21 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/769536616.shtml)
-- 2026-06-29 15:26 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.kurohicncr.top/Article/details/646998.shtml)
-- 2026-06-29 15:30 - [锐评浪姐7总决赛](https://www.blog.kurohicncr.top/Article/details/30093109861.shtml)
-- 2026-06-29 15:41 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/97298446.shtml)
-- 2026-06-29 15:32 - [给阿嬷的情书海外口碑](https://www.blog.kurohicncr.top/Article/details/93381024475.shtml)
-- 2026-06-29 15:19 - [5万块的威力](http://www.blog.minike.top/Article/details/325925322.shtml)
-- 2026-06-29 15:30 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/1136199.shtml)
-- 2026-06-29 15:13 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/0984495.shtml)
-- 2026-06-29 15:29 - [民进党为什么拼命抹黑统战](https://www.share.kurohicncr.top/Article/details/762886284.shtml)
-- 2026-06-29 15:16 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/7587275.shtml)
-- 2026-06-29 15:28 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/346498104.shtml)
-- 2026-06-29 15:16 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/42153084888.shtml)
+- 2026-06-29 15:38 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/36141625.shtml)
+- 2026-06-29 15:18 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/95637944.shtml)
+- 2026-06-29 15:41 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/352513.shtml)
+- 2026-06-29 15:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/3446049476.shtml)
+- 2026-06-29 15:47 - [AG 宫斗](https://www.share.minike.top/Article/details/473454161948.shtml)
+- 2026-06-29 15:31 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/6376567.shtml)
+- 2026-06-29 15:24 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/192403873073.shtml)
+- 2026-06-29 15:42 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/619114966.shtml)
+- 2026-06-29 15:34 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/84169819847.shtml)
+- 2026-06-29 15:20 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/436773139.shtml)
+- 2026-06-29 15:31 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/849234091883.shtml)
+- 2026-06-29 15:36 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/82397318.shtml)
+- 2026-06-29 15:43 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/9870755172.shtml)
+- 2026-06-29 15:38 - [5万块的威力](https://www.share.minike.top/Article/details/6280472867.shtml)
+- 2026-06-29 15:22 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/45299.shtml)

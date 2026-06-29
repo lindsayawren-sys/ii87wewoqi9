@@ -1,59 +1,59 @@
-# 西藏学者研讨会谈《格萨尔》：史诗印证民族“三交”
+# 中国对可再生能源消费设“最低底线” 逾期未完成将被约谈、通报
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网拉萨4月28日电(记者 赵朗 贡桑拉姆)学习贯彻《中华人民共和国民族团结进步促进法》推动中华民族共有精神家园建设实践创新研讨会27日在拉萨举行。 活动由西藏自治区社科院(社科联)主办，西藏自治区铸牢中华民族共同体意识研究中心承办，分为开幕式、经验分享论坛、分组论坛、闭幕式等环节，邀请了地方宣传部、高校等单位的专家、学者、官员围绕主题共同探讨分享。 《格萨尔》史诗于2009
+中新社北京6月22日电 (记者 王梦瑶)中国国家发改委、国家能源局等部门22日公布《可再生能源消费最低比重目标和可再生能源电力消纳责任权重制度实施办法》(下称办法)，将碳达峰碳中和目标的宏观要求拆解为可量化、可考核的刚性约束。该办法将自2026年8月1日起施行。可再生能源消费最低比重是指国家规定能源用户消费的可再生能源在其总能源消费中应达到的最低比重。可再生能源电力消纳责任权重
 
 ## 正文
 
-中新网拉萨4月28日电(记者 赵朗 贡桑拉姆)学习贯彻《中华人民共和国民族团结进步促进法》推动中华民族共有精神家园建设实践创新研讨会27日在拉萨举行。
+中新社北京6月22日电 (记者 王梦瑶)中国国家发改委、国家能源局等部门22日公布《可再生能源消费最低比重目标和可再生能源电力消纳责任权重制度实施办法》(下称办法)，将碳达峰碳中和目标的宏观要求拆解为可量化、可考核的刚性约束。
 
-活动由西藏自治区社科院(社科联)主办，西藏自治区铸牢中华民族共同体意识研究中心承办，分为开幕式、经验分享论坛、分组论坛、闭幕式等环节，邀请了地方宣传部、高校等单位的专家、学者、官员围绕主题共同探讨分享。
+该办法将自2026年8月1日起施行。
 
-《格萨尔》史诗于2009年被列入人类非物质文化遗产代表作名录，此次成为多位学者、研究人员的关注话题。
+可再生能源消费最低比重是指国家规定能源用户消费的可再生能源在其总能源消费中应达到的最低比重。
 
-西藏自治区党委办公厅功勋办党支部副书记赵鹏飞以研究人员身份受邀参加此次研讨会。
+可再生能源电力消纳责任权重是指国家规定各省级行政区域消纳的可再生能源电量占本区域全社会用电量应达到的比重目标。
 
-他从史诗蕴含的各民族共同文化记忆、各民族深度价值关联，对于促进边疆民族地区和谐稳定的重要意义等方面作《叙事中的中华民族共同体意识建构与当代实践》的报告。
+国家能源局有关负责人22日介绍，为推动各方更好落实可再生能源电力消费最低比重目标，办法明确对重点用能行业开展消费最低比重目标的监测考核。
 
-他介绍，格萨尔王同父异母的哥哥嘉察协噶具有汉族血统，格萨尔精神与关公精神“忠、义、仁、勇、礼、智、信”相契合。
+目前，已经对电解铝、钢铁、水泥、多晶硅和国家枢纽节点新建数据中心等提出了绿色电力消费比例要求。
 
-北京木刻本《十方圣主格斯尔可汗传》完成于1716年，其扉页插图绘一骑马武士，以蒙文标注格斯尔可汗，极似关公形象。
+未来重点用能行业将主要聚焦工业、建筑和交通等消费侧重点领域。
 
-在他看来，这些记载印证了各民族间交往交流交融。
+在可再生能源电力消纳责任权重部分，办法对现行制度从实行分区分档、加强中长期引领和强化刚性要求三个方面作出了优化。
 
 ## 相关推荐
 
-- 2026-06-29 15:18 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 15:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 15:21 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 15:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 15:24 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 15:27 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 15:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 15:13 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 15:40 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 15:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 15:35 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 15:27 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 15:18 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 15:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 15:45 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 15:20 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 15:39 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 15:26 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 15:33 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 15:43 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 15:36 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 15:41 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 15:39 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 15:29 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 15:35 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 15:37 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:32 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/10676053023.shtml)
-- 2026-06-29 15:41 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/56123112.shtml)
-- 2026-06-29 15:39 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/08659579755.shtml)
-- 2026-06-29 15:39 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/8415788041.shtml)
-- 2026-06-29 15:31 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/486598405192.shtml)
-- 2026-06-29 15:38 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/0087789.shtml)
-- 2026-06-29 15:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/935266176.shtml)
-- 2026-06-29 15:23 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/696214075277.shtml)
-- 2026-06-29 15:39 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/24898163.shtml)
-- 2026-06-29 15:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/63948.shtml)
-- 2026-06-29 15:38 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/74048509.shtml)
-- 2026-06-29 15:25 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/428705051.shtml)
-- 2026-06-29 15:14 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/4677336.shtml)
-- 2026-06-29 15:27 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.kurohicncr.top/Article/details/17412469972.shtml)
-- 2026-06-29 15:30 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/24352.shtml)
+- 2026-06-29 15:47 - [网友飞机上偶遇肖战](http://www.blog.kurohicncr.top/Article/details/777670997156.shtml)
+- 2026-06-29 15:20 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/2315492916.shtml)
+- 2026-06-29 15:45 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/6198073999.shtml)
+- 2026-06-29 15:37 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/20745346.shtml)
+- 2026-06-29 15:30 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/9320622.shtml)
+- 2026-06-29 15:32 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/3270067.shtml)
+- 2026-06-29 15:18 - [博主：美航母沦为毒品集散窝点](http://www.blog.kurohicncr.top/Article/details/23727.shtml)
+- 2026-06-29 15:34 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/89977681.shtml)
+- 2026-06-29 15:36 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/1274023607.shtml)
+- 2026-06-29 15:29 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/16197.shtml)
+- 2026-06-29 15:22 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/46354.shtml)
+- 2026-06-29 15:38 - [新能源车能当外接空调用吗](https://www.blog.kurohicncr.top/Article/details/912398371.shtml)
+- 2026-06-29 15:42 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/549851.shtml)
+- 2026-06-29 15:43 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/388482084125.shtml)
+- 2026-06-29 15:47 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/950358092706.shtml)

@@ -1,54 +1,58 @@
-# 北京银行发布多则关联交易事项公告
+# 端午节小长假皇岗、福田口岸迎送港澳旅客46万人次
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-4月27日金融一线消息，北京银行发布多则关联交易事项公告。 同意授予华夏银行股份有限公司同业机构综合授信额度人民币500亿元，额度有效期 3 年，并同意提请股东会审议；同意授予兴业银行股份有限公司同业机构综合授信额度人民币500亿元，额度有效期 3 年，并同意提请股东会审议；同意授予中国长江三峡集团有限公司及下属企业集团限额人民币 300 亿元，额度有效期 2 年，并同意提请股
+中新社深圳6月21日电 (索有为 黄俊生)深圳出入境边防检查总站21日发布的统计数据显示，自6月19日至21日17时，经皇岗、福田口岸出入境旅客逾70万人次(福田口岸出入境旅客逾54万人次)。其中，经皇岗、福田口岸出入境港澳旅客46万人次。据统计，端午节小长假期间，经皇岗、福田口岸出入境的外国人1.1万余人次，其中免签入境2040人次。 受香港、深圳、广州等地举办巡游竞渡、古礼
 
 ## 正文
 
-4月27日金融一线消息，北京银行发布多则关联交易事项公告。
+中新社深圳6月21日电 (索有为 黄俊生)深圳出入境边防检查总站21日发布的统计数据显示，自6月19日至21日17时，经皇岗、福田口岸出入境旅客逾70万人次(福田口岸出入境旅客逾54万人次)。
 
-同意授予华夏银行股份有限公司同业机构综合授信额度人民币500亿元，额度有效期 3 年，并同意提请股东会审议；同意授予兴业银行股份有限公司同业机构综合授信额度人民币500亿元，额度有效期 3 年，并同意提请股东会审议；同意授予中国长江三峡集团有限公司及下属企业集团限额人民币 300 亿元，额度有效期 2 年，并同意提请股东会审议；同意授予中国石油化工股份有限公司综合授信人民币300亿元，额度有效期 3 年，并同意提请股东会审议。
+其中，经皇岗、福田口岸出入境港澳旅客46万人次。
 
-同意授予北银金融租赁有限公司及下属企业集团限额人民币260亿元，额度有效期 1 年，经董事会审批通过后，自内部审批意见表生效之日起生效。
+据统计，端午节小长假期间，经皇岗、福田口岸出入境的外国人1.1万余人次，其中免签入境2040人次。
 
-同意城银清算服务有限责任公司与本行发生存款业务，在任意时点最高余额不超过人民币 61 亿元，有效期2 年，自董事会审批通过之日起生效；同意长江绿色能源投资（上海）有限公司与本行发生存款业务，在任意时点最高余额不超过人民币50 亿元，有效期2年，自董事会审批通过之日起生效；同意长江绿色发展投资基金合伙企业（有限合伙）与本行发生存款业务，在任意时点最高余额不超过人民币50亿元，有效期 2 年，自董事会审批通过之日起生效；同意北京市地铁运营有限公司与本行发生存款业务，在任意时点最高余额不超过人民币 35 亿元，有效期 2 年，自董事会审批通过之日起生效。
+受香港、深圳、广州等地举办巡游竞渡、古礼仪式、文创市集、非遗展演、民俗体验、美食品鉴活动，叠加毕业出行等多重需求释放影响，连日来，大批内地居民将香港作为出境首选地，高中毕业生群体“小包团”现象较为明显。
 
-责任编辑：王馨茹
+同时，不少港澳居民返乡沐龙舟水、休闲娱乐消费、品味岭南韵味、悦享山海风情；令地处深港核心区的皇岗、福田口岸接续迎来出入境“两头忙”。
+
+21日适逢周日，也是端午节小长假最后一天。
+
+皇岗边检站预测，出入境双向客流高峰将于当天18时至22时出现。
+
+作为唯一24小时通关的皇岗口岸，在深夜和凌晨时段的出入境客流将更为集中且持续时间长。
 
 ## 相关推荐
 
-- 2026-06-29 15:33 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 15:41 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 15:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 15:30 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 15:38 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 15:39 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 15:32 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 15:17 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 15:37 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 15:31 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 15:29 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 15:20 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 15:27 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 15:39 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 15:34 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 15:29 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 15:39 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 15:29 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 15:28 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-29 15:46 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 15:42 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 15:24 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 15:47 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 15:20 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 15:35 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 15:40 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:16 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/15420112.shtml)
-- 2026-06-29 15:38 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.kurohicncr.top/Article/details/951849695814.shtml)
-- 2026-06-29 15:33 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/73131.shtml)
-- 2026-06-29 15:40 - [驻日美军航母沦为“毒窝”](http://www.blog.minike.top/Article/details/97129.shtml)
-- 2026-06-29 15:18 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/81514560.shtml)
-- 2026-06-29 15:30 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/659529.shtml)
-- 2026-06-29 15:37 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.minike.top/Article/details/956016.shtml)
-- 2026-06-29 15:18 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/96047800421.shtml)
-- 2026-06-29 15:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/218015.shtml)
-- 2026-06-29 15:40 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/737269.shtml)
-- 2026-06-29 15:34 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/758252335.shtml)
-- 2026-06-29 15:35 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/0101127550.shtml)
-- 2026-06-29 15:23 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/3319300.shtml)
-- 2026-06-29 15:40 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/0491122.shtml)
-- 2026-06-29 15:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/63893.shtml)
+- 2026-06-29 15:43 - [灿如繁星定档](https://www.share.minike.top/Article/details/050120221165.shtml)
+- 2026-06-29 15:21 - [7款商保创新药“转道”](https://www.share.kurohicncr.top/Article/details/34918.shtml)
+- 2026-06-29 15:21 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.minike.top/Article/details/24066.shtml)
+- 2026-06-29 15:42 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/036512620.shtml)
+- 2026-06-29 15:32 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/64585555907.shtml)
+- 2026-06-29 15:23 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/894261.shtml)
+- 2026-06-29 15:47 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/824313333.shtml)
+- 2026-06-29 15:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/9973527837.shtml)
+- 2026-06-29 15:30 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/628694343454.shtml)
+- 2026-06-29 15:30 - [苹果ultra2阔折叠已开模测试](https://www.blog.kurohicncr.top/Article/details/32886731684.shtml)
+- 2026-06-29 15:21 - [锐评浪姐7总决赛](https://www.share.kurohicncr.top/Article/details/73513537.shtml)
+- 2026-06-29 15:22 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/31020.shtml)
+- 2026-06-29 15:40 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/66144655869.shtml)
+- 2026-06-29 15:39 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/33549467.shtml)
+- 2026-06-29 15:23 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/70192.shtml)

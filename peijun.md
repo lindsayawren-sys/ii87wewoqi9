@@ -1,58 +1,44 @@
-# 房地产科技整合加速：Real Brokerage以8.8亿美元收购RE/MAX
+# 多国出台举措 强化未成年人网络保护
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-房地产经纪行业的整合浪潮再掀巨浪。The Real Brokerage Inc．周一宣布，已与RE/MAX Holdings达成最终收购协议，将以约8.8亿美元的企业价值收购这家全球知名的房地产特许经营商，合并后的新公司将命名为Real REMAX Group。 交易结构与股权安排 根据协议条款，每份RE/MAX Holdings股票可按每股13.80美元作价，股东可选择获得5
+发布时间：2026年06月21日 14:55 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-房地产经纪行业的整合浪潮再掀巨浪。
-
-The Real Brokerage Inc．周一宣布，已与RE/MAX Holdings达成最终收购协议，将以约8.8亿美元的企业价值收购这家全球知名的房地产特许经营商，合并后的新公司将命名为Real REMAX Group。
-
-交易结构与股权安排 根据协议条款，每份RE/MAX Holdings股票可按每股13.80美元作价，股东可选择获得5.152股新公司股票或等额现金，但总现金支付额将限制在6000万至8000万美元之间。
-
-Real股东则将按1比1比例换股。
-
-交易完成后，Real股东预计将持有合并后公司约59%的股份，RE/MAX股东持有约41%。
-
-战略互补：AI技术加全球网络 此次收购将Real的AI驱动型经纪平台与RE/MAX在全球120多个国家、拥有超过14.5万名经纪人的庞大特许经营网络相结合。
-
-合并后的实体将为近8500家加盟商和超过18万名房地产专业人士提供服务。
-
-Real首席执行官将出任新公司的董事长兼首席执行官。
+发布时间：2026年06月21日 14:55 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 15:13 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 15:27 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 15:32 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 15:20 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 15:36 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 15:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 15:38 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 15:34 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 15:41 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 15:24 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 15:41 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 15:45 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 15:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 15:35 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 15:40 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 15:19 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 15:21 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 15:39 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 15:31 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 15:28 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 15:30 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 15:21 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 15:45 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:40 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/991519864.shtml)
-- 2026-06-29 15:20 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/55292666.shtml)
-- 2026-06-29 15:38 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.blog.kurohicncr.top/Article/details/527852425011.shtml)
-- 2026-06-29 15:41 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/051033.shtml)
-- 2026-06-29 15:18 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/382731.shtml)
-- 2026-06-29 15:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/24595266448.shtml)
-- 2026-06-29 15:39 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/805670464.shtml)
-- 2026-06-29 15:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/820012.shtml)
-- 2026-06-29 15:17 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/609405137565.shtml)
-- 2026-06-29 15:17 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/75550024688.shtml)
-- 2026-06-29 15:40 - [国家体育总局政策法规司原副司长获刑](https://www.share.kurohicncr.top/Article/details/06794.shtml)
-- 2026-06-29 15:13 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/963100.shtml)
-- 2026-06-29 15:31 - [美国近12万名科技员工被解雇](http://www.share.minike.top/Article/details/298478390.shtml)
-- 2026-06-29 15:38 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/692589.shtml)
-- 2026-06-29 15:40 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/3580847.shtml)
+- 2026-06-29 15:33 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/08851411512.shtml)
+- 2026-06-29 15:45 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/93528690997.shtml)
+- 2026-06-29 15:25 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/870466.shtml)
+- 2026-06-29 15:46 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/12274.shtml)
+- 2026-06-29 15:45 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/0786398.shtml)
+- 2026-06-29 15:31 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/30229684354.shtml)
+- 2026-06-29 15:21 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/006175087.shtml)
+- 2026-06-29 15:46 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.kurohicncr.top/Article/details/6239256017.shtml)
+- 2026-06-29 15:42 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.minike.top/Article/details/527454.shtml)
+- 2026-06-29 15:36 - [比亚迪市值为何蒸发8000亿](http://www.blog.kurohicncr.top/Article/details/484526469956.shtml)
+- 2026-06-29 15:30 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/47361315617.shtml)
+- 2026-06-29 15:20 - [教育部发布高考志愿填报预警](http://www.blog.minike.top/Article/details/43239966.shtml)
+- 2026-06-29 15:34 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/8652805889.shtml)
+- 2026-06-29 15:26 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/495573874464.shtml)
+- 2026-06-29 15:41 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/515710.shtml)

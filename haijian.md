@@ -1,47 +1,57 @@
-# 人力资源社会保障部：今年一季度全国城镇新增就业299万人
+# 孟加拉国总理将访华 中方：期待同孟新政府一道加强战略沟通
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月28日 15:53 来源：央视新闻客户端 责任编辑：【杨彦宇】
+中新网北京6月22日电 (记者 张蔚然 曾玥)中国外交部发言人22日宣布：应国务院总理李强邀请，孟加拉人民共和国总理塔里克·拉赫曼将于6月24日至26日对中国进行正式访问。 在当日举行的外交部例行记者会上，有记者提问，能否介绍此访有关安排？中方如何评价当前中孟关系？对此访有何期待？ 外交部发言人郭嘉昆表示，此访是孟加拉国总理塔里克就任后首次访华。访问期间，习近平主席、李强总理和
 
 ## 正文
 
-发布时间：2026年04月28日 15:53 来源：央视新闻客户端 责任编辑：【杨彦宇】
+中新网北京6月22日电 (记者 张蔚然 曾玥)中国外交部发言人22日宣布：应国务院总理李强邀请，孟加拉人民共和国总理塔里克·拉赫曼将于6月24日至26日对中国进行正式访问。
+
+在当日举行的外交部例行记者会上，有记者提问，能否介绍此访有关安排？
+
+中方如何评价当前中孟关系？
+
+对此访有何期待？
+
+外交部发言人郭嘉昆表示，此访是孟加拉国总理塔里克就任后首次访华。
+
+访问期间，习近平主席、李强总理和赵乐际委员长将分别同塔里克总理会见、会谈，就双边关系及共同关心的国际和地区问题深入交换意见，为两国关系发展指明方向。
+
+塔里克总理还将出席在中国大连举行的第十七届夏季达沃斯论坛。
+
+郭嘉昆说，中国和孟加拉国是传统友好邻邦和全面战略合作伙伴。
 
 ## 相关推荐
 
-- 2026-06-29 15:18 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 15:35 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 15:28 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 15:22 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 15:26 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 15:37 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 15:40 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 15:15 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 15:35 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 15:15 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 15:20 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 15:21 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 15:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 15:33 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 15:35 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 15:20 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 15:27 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 15:28 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 15:28 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 15:47 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 15:24 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 15:20 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 15:46 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 15:43 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 15:18 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 15:33 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:32 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/02469064.shtml)
-- 2026-06-29 15:23 - [斛珠夫人](http://www.share.minike.top/Article/details/35605038.shtml)
-- 2026-06-29 15:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/89718307.shtml)
-- 2026-06-29 15:18 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/8636148531.shtml)
-- 2026-06-29 15:16 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/85205.shtml)
-- 2026-06-29 15:37 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/77444574174.shtml)
-- 2026-06-29 15:34 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/027594.shtml)
-- 2026-06-29 15:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/2312691.shtml)
-- 2026-06-29 15:16 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/5485472.shtml)
-- 2026-06-29 15:38 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/449644.shtml)
-- 2026-06-29 15:39 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/82361790.shtml)
-- 2026-06-29 15:17 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.minike.top/Article/details/8699521.shtml)
-- 2026-06-29 15:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/9624055985.shtml)
-- 2026-06-29 15:32 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/47421596.shtml)
-- 2026-06-29 15:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/259747115916.shtml)
+- 2026-06-29 15:41 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/224564.shtml)
+- 2026-06-29 15:42 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/77178695.shtml)
+- 2026-06-29 15:24 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/90345.shtml)
+- 2026-06-29 15:31 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/5006130.shtml)
+- 2026-06-29 15:26 - [韩国国脚无缘上亿韩元奖金](http://www.blog.minike.top/Article/details/89610393593.shtml)
+- 2026-06-29 15:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/1384059.shtml)
+- 2026-06-29 15:27 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/145872.shtml)
+- 2026-06-29 15:25 - [急先锋](http://www.share.kurohicncr.top/Article/details/31135714181.shtml)
+- 2026-06-29 15:34 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/3719160.shtml)
+- 2026-06-29 15:46 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/77656076320.shtml)
+- 2026-06-29 15:20 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/406464057979.shtml)
+- 2026-06-29 15:24 - [血糖高的人能吃西瓜吗](http://www.blog.minike.top/Article/details/5304324.shtml)
+- 2026-06-29 15:45 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/3609566336.shtml)
+- 2026-06-29 15:46 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/50196.shtml)
+- 2026-06-29 15:31 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/442213183481.shtml)

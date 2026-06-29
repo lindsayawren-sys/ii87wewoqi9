@@ -1,56 +1,57 @@
-# 扩容国际文旅“朋友圈” 2026重庆国际旅行商大会启幕
+# 高考成绩发布在即！填报志愿前先看这份指南
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网重庆4月27日电 (记者 钟旖)2026重庆国际旅行商大会开幕式26日晚在重庆市彭水苗族土家族自治县举行。 本次大会沿用“部市合作、政企联动”协同邀客模式，吸引近40个国家和地区的驻华使节、文旅部门政要、头部旅行商、主流媒体、网络达人、重点航司及景区代表等约300名中外嘉宾齐聚山城，共商文旅合作、共拓市场空间、共绘合作蓝图。 大会期间，重庆市文化和旅游发展委员会分别与泰国
+6月23日起 多地陆续公布高考分数 志愿填报也将随即展开 升级后的教育部“阳光志愿”信息服务系统 有哪些功能？ 用AI报高考志愿靠谱吗？ 这份志愿填报“一站式”指南请收好！ 手把手教你填志愿！ 用好这个官方工具 “阳光志愿”是由教育部“阳光高考”平台打造的高考志愿填报信息服务系统，依托招生、学籍、就业、毕业生跟踪调查等海量官方权威数据，为考生和家长提供免费、优质的志愿填报公共服
 
 ## 正文
 
-中新网重庆4月27日电 (记者 钟旖)2026重庆国际旅行商大会开幕式26日晚在重庆市彭水苗族土家族自治县举行。
+6月23日起 多地陆续公布高考分数 志愿填报也将随即展开 升级后的教育部“阳光志愿”信息服务系统 有哪些功能？
 
-本次大会沿用“部市合作、政企联动”协同邀客模式，吸引近40个国家和地区的驻华使节、文旅部门政要、头部旅行商、主流媒体、网络达人、重点航司及景区代表等约300名中外嘉宾齐聚山城，共商文旅合作、共拓市场空间、共绘合作蓝图。
+用AI报高考志愿靠谱吗？
 
-大会期间，重庆市文化和旅游发展委员会分别与泰国国家旅游局、斯里兰卡旅游促进局签署旅游合作意向书和旅游合作谅解备忘录，巩固合作机制、深化协同联动，推动跨境旅游实现互利共赢发展。
+这份志愿填报“一站式”指南请收好！
 
-同步揭晓并表彰重庆市“2025年入境游接待量十强旅行社”和“2025年入境游接待十佳导游”。
+手把手教你填志愿！
 
-据介绍，重庆国际旅行商大会自2018年发起，历经多年深耕培育，大会已发展成为促进出入境旅游双向互通、赋能文旅产业协同提质的全球文旅交流合作平台，累计落地跨境旅游合作项目上百个，“以会促改”加速入境旅游全链条便利化改革，拉动重庆入境游客接待量稳步攀升。
+用好这个官方工具 “阳光志愿”是由教育部“阳光高考”平台打造的高考志愿填报信息服务系统，依托招生、学籍、就业、毕业生跟踪调查等海量官方权威数据，为考生和家长提供免费、优质的志愿填报公共服务。
 
-官方数据显示，2025年重庆入境游客接待量突破200万大关，同比增长68.2%。
+新版系统的这些实用功能，了解一下⬇️ 个性化智能筛选，助力科学填报志愿。
 
-2026年一季度，全市入境游客接待量同比增长60.3%；其中，经江北国际机场口岸入境的外籍旅客超13.7万人次，同比增长106%，创历史新高。
+系统提供31个省(区、市)本专科普通批次志愿筛选服务。
 
-2026重庆国际旅行商大会将持续至4月30日。
+全天候AI助手，考生提问随时解答。
 
 ## 相关推荐
 
-- 2026-06-29 15:34 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 15:41 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 15:13 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 15:29 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 15:22 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 15:20 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 15:40 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 15:40 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 15:13 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 15:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 15:45 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 15:31 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 15:39 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 15:34 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 15:47 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 15:44 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 15:35 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 15:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 15:23 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 15:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 15:33 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:19 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/304093054577.shtml)
-- 2026-06-29 15:27 - [直击宜宾地震：监控剧烈摇晃](http://www.share.minike.top/Article/details/147249401218.shtml)
-- 2026-06-29 15:14 - [东部机场集团新增釜山航线](https://www.share.kurohicncr.top/Article/details/2709666703.shtml)
-- 2026-06-29 15:14 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/211625.shtml)
-- 2026-06-29 15:17 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/3112411513.shtml)
-- 2026-06-29 15:21 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/4326551.shtml)
-- 2026-06-29 15:28 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/383514272053.shtml)
-- 2026-06-29 15:18 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/70887.shtml)
-- 2026-06-29 15:32 - [以前不让妆女二可以艳压女主](http://www.blog.minike.top/Article/details/4021436.shtml)
-- 2026-06-29 15:28 - [光与夜之恋](http://www.share.kurohicncr.top/Article/details/665736495988.shtml)
-- 2026-06-29 15:24 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/0613714219.shtml)
-- 2026-06-29 15:24 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/92939986453.shtml)
-- 2026-06-29 15:37 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/07995785196.shtml)
-- 2026-06-29 15:27 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/10658.shtml)
-- 2026-06-29 15:29 - [民进党为什么拼命抹黑统战](https://www.share.kurohicncr.top/Article/details/873122.shtml)
+- 2026-06-29 15:42 - [世界杯上那些封神的门将](https://www.blog.kurohicncr.top/Article/details/474555.shtml)
+- 2026-06-29 15:27 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/578806.shtml)
+- 2026-06-29 15:18 - [首尔商铺禁止洪明甫入内](http://www.share.minike.top/Article/details/315972802414.shtml)
+- 2026-06-29 15:24 - [中国创新药股价要反攻了吗](http://www.share.minike.top/Article/details/612586756813.shtml)
+- 2026-06-29 15:26 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/30846.shtml)
+- 2026-06-29 15:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/2771211405.shtml)
+- 2026-06-29 15:38 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/710388393.shtml)
+- 2026-06-29 15:33 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/68512210815.shtml)
+- 2026-06-29 15:44 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/901917639.shtml)
+- 2026-06-29 15:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/39944202214.shtml)
+- 2026-06-29 15:19 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/429276127.shtml)
+- 2026-06-29 15:38 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/0557469648.shtml)
+- 2026-06-29 15:22 - [崔韩率还以为韩娱来新人了](https://www.share.kurohicncr.top/Article/details/68016944.shtml)
+- 2026-06-29 15:35 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/47132.shtml)
+- 2026-06-29 15:41 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/4851020.shtml)

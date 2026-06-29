@@ -1,57 +1,60 @@
-# 红利低波ETF华泰柏瑞（512890）近60日吸金超18亿！基金经理：高股息资产成稀缺现金流工具
+# 中信建投期货：6月22日工业品早报
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-4月28日，市场早盘震荡调整，创业板指、深成指盘中跌超1%。在此背景下，红利低波ETF华泰柏瑞（512890）早盘微跌0.25%，报1.186元，换手率1.04%，成交额3.19亿元，居同类标的ETF首位。 资金流向上，红利低波ETF华泰柏瑞（512890）长期受资金青睐，近5个交易日资金净流入2亿元，近10个交易日资金净流出3.9亿元，近60个交易日资金净流入18.5亿元。截
+铜：宏观氛围偏弱，铜价调整为主 上周五晚伦铜回调至13581美金附近，CL价差约650美金/吨，溢价水平约4.8%。 宏观中性偏空。美伊和谈受阻，正式签署时间推迟，霍尔木兹海峡矛盾反复，地缘不确定性叠加9月加息预期升温，施压铜价回调至1.36万美金附近。 基本面中性。上周全球铜库存降至113万吨，其中境内铜库存减少4.8万吨至19万吨，LME铜去化约1万吨至35万吨，COMEX
 
 ## 正文
 
-4月28日，市场早盘震荡调整，创业板指、深成指盘中跌超1%。
+铜：宏观氛围偏弱，铜价调整为主 上周五晚伦铜回调至13581美金附近，CL价差约650美金/吨，溢价水平约4.8%。
 
-在此背景下，红利低波ETF华泰柏瑞（512890）早盘微跌0.25%，报1.186元，换手率1.04%，成交额3.19亿元，居同类标的ETF首位。
+宏观中性偏空。
 
-资金流向上，红利低波ETF华泰柏瑞（512890）长期受资金青睐，近5个交易日资金净流入2亿元，近10个交易日资金净流出3.9亿元，近60个交易日资金净流入18.5亿元。
+美伊和谈受阻，正式签署时间推迟，霍尔木兹海峡矛盾反复，地缘不确定性叠加9月加息预期升温，施压铜价回调至1.36万美金附近。
 
-截止2026年4月27日，红利低波ETF华泰柏瑞（512890）流通规模306.26亿元。
+基本面中性。
 
-银河证券首席策略分析师杨超指出，国内经济基本盘修复、通胀回升趋势、流动性预期向好，共同支撑A股韧性。
+上周全球铜库存降至113万吨，其中境内铜库存减少4.8万吨至19万吨，LME铜去化约1万吨至35万吨，COMEX铜维持累库至约59万吨。
 
-短期看，4月底中央政治局会议即将召开，有望更多强调既定政策的落地见效与政策储备，多措并举提振内需。
+巴拿马环境部公布瑞士SGS审计，显示Cobre Panama铜矿合规率约88%，若复产许可落地，预计生产恢复节奏较快。
 
-同时，4月下旬正值年报与一季报密集披露期，将成为验证盈利修复的关键窗口。
+总体来看，海外地缘不确定性叠加加息担忧升温，国内经济数据维持弱复苏，叠加供应端存在边际改善预期，需求端深入淡季新增订单有限，整体来看宏观氛围偏空加之紧张的基本面趋于季节性缓和，短期铜价或面临一定调整压力。
 
-配置方面，杨超建议关注三个方向：一是科技创新、自主可控与产业景气的确定性趋势，重点关注具备业绩景气度支撑的核心环节；二是受益于PPI同比转正与价格中枢上移的资源板块；三是地缘冲突反复博弈中的能源及替代性需求主题、防御性板块。
+今日沪铜主力运行参考10.4万-10.55万元/吨。
 
 ## 相关推荐
 
-- 2026-06-29 15:19 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 15:36 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 15:16 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 15:13 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 15:17 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 15:19 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 15:22 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 15:15 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 15:35 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 15:20 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 15:30 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 15:31 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 15:18 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 15:46 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 15:40 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 15:43 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 15:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 15:47 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 15:19 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 15:20 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 15:24 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 15:21 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 15:24 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 15:34 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 15:38 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:16 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/685491.shtml)
-- 2026-06-29 15:28 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/762061842717.shtml)
-- 2026-06-29 15:23 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/71582.shtml)
-- 2026-06-29 15:30 - [大范围炎热天气将至](https://www.blog.minike.top/Article/details/50785704.shtml)
-- 2026-06-29 15:37 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/926203128173.shtml)
-- 2026-06-29 15:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/1701509.shtml)
-- 2026-06-29 15:13 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/6913311.shtml)
-- 2026-06-29 15:21 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/342947.shtml)
-- 2026-06-29 15:16 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/45499261.shtml)
-- 2026-06-29 15:39 - [20年前的周杰伦](https://www.blog.minike.top/Article/details/3464980.shtml)
-- 2026-06-29 15:29 - [欧盟为什么越来越倾向贸易保护](http://www.blog.minike.top/Article/details/51544455.shtml)
-- 2026-06-29 15:31 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/252611.shtml)
-- 2026-06-29 15:31 - [驻日美军航母沦为“毒窝”](https://www.share.minike.top/Article/details/327829579.shtml)
-- 2026-06-29 15:24 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/2941552460.shtml)
-- 2026-06-29 15:19 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/93628862132.shtml)
+- 2026-06-29 15:33 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/45575179908.shtml)
+- 2026-06-29 15:34 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/539746.shtml)
+- 2026-06-29 15:25 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/45476.shtml)
+- 2026-06-29 15:46 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/824055.shtml)
+- 2026-06-29 15:20 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/5860011516.shtml)
+- 2026-06-29 15:24 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/6073476.shtml)
+- 2026-06-29 15:39 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/8013200.shtml)
+- 2026-06-29 15:32 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/37564.shtml)
+- 2026-06-29 15:43 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/2445999326.shtml)
+- 2026-06-29 15:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/5973103.shtml)
+- 2026-06-29 15:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/9231130256.shtml)
+- 2026-06-29 15:42 - [光与夜之恋](http://www.share.kurohicncr.top/Article/details/103503.shtml)
+- 2026-06-29 15:21 - [工作靠AI算不算职场作弊](http://www.blog.minike.top/Article/details/00258371.shtml)
+- 2026-06-29 15:44 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/2554760872.shtml)
+- 2026-06-29 15:19 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/8687456.shtml)

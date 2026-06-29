@@ -1,61 +1,54 @@
-# “书香侨联·侨悦读”2026济南市侨联系统读书日活动举行
+# 腾讯据悉考虑退出对Marvelous等游戏工作室的投资
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-4月23日，在第29个世界读书日到来之际，济南市侨联、市园林和林业绿化局、市广电联合主办“书香泉城・侨悦读”2026济南市侨联系统读书日活动。 全体人员沿千佛山路径健步前往山东大学济南校友会长者学堂，开启了“健步走+参观研学+读书分享”模式。大家一边畅谈读书心得、交流侨界动态，一边感受泉城生态之美与文化底蕴，让书香与自然相融、阅读与交流相伴。之后，参观了长者学堂，了解了特色文化
+据知情人士透露，腾讯控股正在洽谈退出对日本几家游戏工作室的投资，其中包括在东京上市的Marvelous Inc．，这是腾讯重新评估其全球投资组合行动的一部分。 知情人士说，这家中国游戏发行巨头正在评估其在许多家工作室的少数股权，在某些情况下准备将股份出售回给原管理团队，即使这意味着造成亏损。 一位知情人士说，腾讯退出投资的标准之一是，该公司会考虑其与投资组合公司预期的协同效应是
 
 ## 正文
 
-4月23日，在第29个世界读书日到来之际，济南市侨联、市园林和林业绿化局、市广电联合主办“书香泉城・侨悦读”2026济南市侨联系统读书日活动。
+据知情人士透露，腾讯控股正在洽谈退出对日本几家游戏工作室的投资，其中包括在东京上市的Marvelous Inc．，这是腾讯重新评估其全球投资组合行动的一部分。
 
-全体人员沿千佛山路径健步前往山东大学济南校友会长者学堂，开启了“健步走+参观研学+读书分享”模式。
+知情人士说，这家中国游戏发行巨头正在评估其在许多家工作室的少数股权，在某些情况下准备将股份出售回给原管理团队，即使这意味着造成亏损。
 
-大家一边畅谈读书心得、交流侨界动态，一边感受泉城生态之美与文化底蕴，让书香与自然相融、阅读与交流相伴。
+一位知情人士说，腾讯退出投资的标准之一是，该公司会考虑其与投资组合公司预期的协同效应是否已经消失。
 
-之后，参观了长者学堂，了解了特色文化服务项目，并集体合影留念，定格书香侨韵美好瞬间。
+因讨论未公开事务，知情人士要求匿名。
 
-在读书分享会环节，周三读书会创始人李炳锋结合自身阅读与创作经历，分享读书感悟，引导大家在阅读中汲取智慧、涵养品格；市园林和林业科学研究院带来《“植”愈生活》读书分享，将自然科普与阅读体验结合，传递绿色生活理念；市侨联党组书记、主席米文芃分享了泰戈尔和梭罗的诗作，用明意且坦荡的诗句，讲述了生命的力量，勉励大家都能成为绽放美好的生命之光；济南广播电台将“我在泉边读书”栏目与活动结合，主持人浩宇、阅读分享人李木子让在场嘉宾沉浸式感受朗读魅力，以声传情、以书会友。
+腾讯在声明中表示，电子游戏是腾讯的核心业务，公司将继续全力与我们的投资企业合作，并长期保持在日本游戏市场的强大存在。
 
-活动现场还举行了赠书仪式，与会嘉宾和图书作者向市侨联机关党总支、驻济高校侨联和侨媛会、侨青会、创新创业联盟赠送书籍，鼓励大家多读书、读好书、善读书，把阅读融入日常、化作经常，以阅读拓思维、凝思想、聚力量。
-
-市人大民侨外工作室、市政协港澳台侨和外事委员会、市园林和林业绿化局、市园林和林业科研院有关负责同志参加活动。
-
-活动吸引市侨联、市园林和林业绿化局、市广电、济南国际传播中心及各区县侨联、高校侨联有关负责同志，侨界人才、基层侨联组织、侨创联盟、侨青会、侨媛会等成员代表参加。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 15:25 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 15:39 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 15:22 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 15:39 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 15:16 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 15:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 15:17 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 15:14 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 15:35 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 15:20 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 15:26 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 15:16 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 15:12 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 15:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 15:15 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 15:47 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 15:39 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 15:19 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 15:38 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 15:21 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 15:41 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 15:44 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 15:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 15:46 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 15:34 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 15:19 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 15:27 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:33 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/14634.shtml)
-- 2026-06-29 15:16 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/97108.shtml)
-- 2026-06-29 15:17 - [美国近12万名科技员工被解雇](http://www.share.minike.top/Article/details/1613926301.shtml)
-- 2026-06-29 15:41 - [一生一世](http://www.blog.minike.top/Article/details/82089.shtml)
-- 2026-06-29 15:35 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.kurohicncr.top/Article/details/818948.shtml)
-- 2026-06-29 15:27 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/517846.shtml)
-- 2026-06-29 15:12 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/03785923.shtml)
-- 2026-06-29 15:39 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/256477.shtml)
-- 2026-06-29 15:22 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/89767.shtml)
-- 2026-06-29 15:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/550761877.shtml)
-- 2026-06-29 15:26 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/226942714.shtml)
-- 2026-06-29 15:34 - [普京介绍前线战事](https://www.blog.minike.top/Article/details/1049660.shtml)
-- 2026-06-29 15:35 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/51845441.shtml)
-- 2026-06-29 15:29 - [金刚川](https://www.share.kurohicncr.top/Article/details/66241377584.shtml)
-- 2026-06-29 15:40 - [媒体：高考后消费应量力而行适度有度](https://www.blog.minike.top/Article/details/12608.shtml)
+- 2026-06-29 15:34 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/9918879.shtml)
+- 2026-06-29 15:24 - [锐评浪姐7总决赛](http://www.share.kurohicncr.top/Article/details/71739.shtml)
+- 2026-06-29 15:20 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/366734519688.shtml)
+- 2026-06-29 15:37 - [沉睡花园](https://www.share.minike.top/Article/details/60551396.shtml)
+- 2026-06-29 15:37 - [绘画区你赢了](http://www.share.minike.top/Article/details/4194493198.shtml)
+- 2026-06-29 15:29 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/492313912478.shtml)
+- 2026-06-29 15:35 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/15818.shtml)
+- 2026-06-29 15:32 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/7443440.shtml)
+- 2026-06-29 15:30 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/19437875.shtml)
+- 2026-06-29 15:30 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/13211382.shtml)
+- 2026-06-29 15:34 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/527049730328.shtml)
+- 2026-06-29 15:18 - [世界杯十大帅哥必吃榜](http://www.blog.kurohicncr.top/Article/details/578684529.shtml)
+- 2026-06-29 15:45 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/6371808.shtml)
+- 2026-06-29 15:44 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/9858255984.shtml)
+- 2026-06-29 15:23 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/755857240.shtml)

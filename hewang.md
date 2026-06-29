@@ -1,52 +1,56 @@
-# 星动纪元获2亿美元新融资，顺丰集团领投
+# 李强会见几内亚总理乌里·巴
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-新浪科技讯 4月27日上午消息，继今年3月完成10亿元战略轮融资后，星动纪元再度完成超2亿美元新一轮融资。本轮融资由顺丰集团领投；红杉中国、IDG资本、中金资本、京铭资本、朝希资本、鲁信创投、聚合资本、隆启投资等知名财务机构联合注资；科捷智能、东风产投、工银资本、联通旗下基金等多家头部产业方共同参与；老股东清控天诚、鸿瑞达亦持续加码增持；市场投资意向远超原定募资目标。 据悉，目
+中新社大连6月23日电 (记者 李京泽)6月23日上午，中国国务院总理李强在大连会见来华出席夏季达沃斯论坛的几内亚总理乌里·巴。 李强表示，几内亚是同新中国建交的第一个撒哈拉以南非洲国家，两国虽然相隔万里，但是友好情谊源远流长。过去数十年，无论是在捍卫国家主权和独立的斗争中，还是在推动经济社会发展的道路上，中几始终风雨同舟、守望相助，取得一系列合作成果。当前，在习近平主席同敦布
 
 ## 正文
 
-新浪科技讯 4月27日上午消息，继今年3月完成10亿元战略轮融资后，星动纪元再度完成超2亿美元新一轮融资。
+中新社大连6月23日电 (记者 李京泽)6月23日上午，中国国务院总理李强在大连会见来华出席夏季达沃斯论坛的几内亚总理乌里·巴。
 
-本轮融资由顺丰集团领投；红杉中国、IDG资本、中金资本、京铭资本、朝希资本、鲁信创投、聚合资本、隆启投资等知名财务机构联合注资；科捷智能、东风产投、工银资本、联通旗下基金等多家头部产业方共同参与；老股东清控天诚、鸿瑞达亦持续加码增持；市场投资意向远超原定募资目标。
+李强表示，几内亚是同新中国建交的第一个撒哈拉以南非洲国家，两国虽然相隔万里，但是友好情谊源远流长。
 
-据悉，目前星动纪元已完成首个完成具身智能行业PMF——携手中国邮政、顺丰集团等落地10余个物流中心，在部分高温、潮湿等恶劣环境下，机器人性能接近人类水平，部分实现24小时不间断作业的常态化运营；并在2026Q2开启千台级机器人批量交付，增速高达300%。
+过去数十年，无论是在捍卫国家主权和独立的斗争中，还是在推动经济社会发展的道路上，中几始终风雨同舟、守望相助，取得一系列合作成果。
 
-（文猛）责任编辑：杨赐
+当前，在习近平主席同敦布亚总统的战略引领下，中几关系持续深化发展。
+
+今年两国迎来建立全面战略合作伙伴关系10周年，中方愿同几方以此为契机，进一步弘扬传统友谊，在涉及彼此核心利益问题上坚定相互支持，推动各领域合作走深走实，更好惠及两国人民。
+
+李强指出，中方愿同几方加强中国“十五五”规划和几内亚“西芒杜2040”战略规划对接，用好用足中方零关税、非洲农产品输华“绿色通道”升级等政策便利，提升贸易、农业、矿业等合作水平，确保西芒杜等重点项目稳定运营，发掘金融、产业园区、电力等领域合作潜力，实现更高水平的互利共赢。
+
+希望几方为中国企业赴几投资提供稳定政策保障和良好营商环境。
+
+双方还要深入落实中非合作论坛北京峰会“十大伙伴行动”，加强教育、减贫、医疗、人力资源开发等方面交流合作，提升民众对两国友好合作的获得感。
 
 ## 相关推荐
 
-- 2026-06-29 15:40 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 15:36 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 15:20 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 15:15 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 15:30 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 15:38 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 15:39 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 15:13 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 15:12 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 15:33 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 15:23 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 15:30 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 15:19 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 15:31 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 15:45 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 15:30 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 15:33 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 15:29 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 15:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 15:38 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 15:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 15:41 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 15:46 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 15:42 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:36 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/71645.shtml)
-- 2026-06-29 15:36 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/495800.shtml)
-- 2026-06-29 15:14 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/553210.shtml)
-- 2026-06-29 15:20 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/733659724.shtml)
-- 2026-06-29 15:34 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/232826661.shtml)
-- 2026-06-29 15:20 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.kurohicncr.top/Article/details/3922170949.shtml)
-- 2026-06-29 15:28 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/43858751.shtml)
-- 2026-06-29 15:21 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/5686600498.shtml)
-- 2026-06-29 15:14 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/8942116.shtml)
-- 2026-06-29 15:26 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/316201750583.shtml)
-- 2026-06-29 15:35 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/809971785.shtml)
-- 2026-06-29 15:14 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/13483928483.shtml)
-- 2026-06-29 15:37 - [新一代影后杨紫](https://www.blog.minike.top/Article/details/7526535337.shtml)
-- 2026-06-29 15:38 - [极限挑战第一季](http://www.share.minike.top/Article/details/9249149072.shtml)
-- 2026-06-29 15:31 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.kurohicncr.top/Article/details/7049844165.shtml)
+- 2026-06-29 15:30 - [复盘曾沛慈浪姐夺冠之路](http://www.share.kurohicncr.top/Article/details/57991208855.shtml)
+- 2026-06-29 15:25 - [爱很美味](https://www.blog.minike.top/Article/details/1678991957.shtml)
+- 2026-06-29 15:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/61263982.shtml)
+- 2026-06-29 15:36 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/43597.shtml)
+- 2026-06-29 15:32 - [吴昕要助理买的药6年前已停产](http://www.blog.kurohicncr.top/Article/details/7139721522.shtml)
+- 2026-06-29 15:21 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/7327159.shtml)
+- 2026-06-29 15:25 - [南非老帅布罗斯的梦没能做完](http://www.blog.minike.top/Article/details/738019.shtml)
+- 2026-06-29 15:32 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/05385973342.shtml)
+- 2026-06-29 15:33 - [沙丘](https://www.blog.minike.top/Article/details/925785.shtml)
+- 2026-06-29 15:40 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/943799944.shtml)
+- 2026-06-29 15:21 - [每代父母都困在自己的时代里](http://www.share.kurohicncr.top/Article/details/0939937.shtml)
+- 2026-06-29 15:40 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/4805824.shtml)
+- 2026-06-29 15:18 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/68914.shtml)
+- 2026-06-29 15:34 - [周杰伦演唱会真的好多人啊](http://www.blog.minike.top/Article/details/6908837.shtml)
+- 2026-06-29 15:22 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/840211986135.shtml)

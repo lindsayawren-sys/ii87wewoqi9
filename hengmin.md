@@ -1,56 +1,60 @@
-# 20支队伍角逐国科大第三届弘扬“两弹一星”精神话剧大赛决赛
+# 假期影响市场重要资讯回顾：七部门规范“内卷式”竞争，高盛大砍黄金目标价，美伊代表团抵达瑞士谈判会场
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网北京4月26日电 (记者 孙自法)中国科学院大学(国科大)第三届弘扬“两弹一星”精神话剧大赛决赛4月25日晚在雁栖湖校区举办，共有来自20个培养单位及院系的20支队伍参赛。 决赛现场还特别展演AI短片《跨越时空的薪火》，通过跨时空对话形式，让“两弹一星”元勋与当代国科大青年相遇，生动传承科技报国的薪火。 本次决赛邀请北京人民艺术剧院、中国国家话剧院、中央戏剧学院、中国科学
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！端午节假期影响市场的重要资讯有：上交所暂不实施完善股票期权组合策略业务；工行、农行、中行、建行、交行集体宣布落地离岸人民币外汇试点交易；美伊谈判代表均已抵达瑞士；伊朗外交部称美国未能约束以色列，违反谅解备忘录；伊朗军方宣布关闭霍尔木兹海峡；寒武纪否认向互联网
 
 ## 正文
 
-中新网北京4月26日电 (记者 孙自法)中国科学院大学(国科大)第三届弘扬“两弹一星”精神话剧大赛决赛4月25日晚在雁栖湖校区举办，共有来自20个培养单位及院系的20支队伍参赛。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-决赛现场还特别展演AI短片《跨越时空的薪火》，通过跨时空对话形式，让“两弹一星”元勋与当代国科大青年相遇，生动传承科技报国的薪火。
+端午节假期影响市场的重要资讯有：上交所暂不实施完善股票期权组合策略业务；工行、农行、中行、建行、交行集体宣布落地离岸人民币外汇试点交易；美伊谈判代表均已抵达瑞士；伊朗外交部称美国未能约束以色列，违反谅解备忘录；伊朗军方宣布关闭霍尔木兹海峡；寒武纪否认向互联网厂商大量供货；美联储年内降息无望，高盛大砍黄金目标价。
 
-本次决赛邀请北京人民艺术剧院、中国国家话剧院、中央戏剧学院、中国科学院科学家精神宣讲团等单位专家担任评委。
+宏观及市场要闻 上交所拟推股票期权组合策略业务？
 
-通过激烈角逐，大赛一二三等奖及最佳剧本、最佳导演等单项奖评选揭晓。
+暂不实施 近日有消息称，上交所拟完善股票期权组合策略业务，推出单边平仓功能。
 
-其中，中国科学院西安光学精密机械研究所《光与希望》、国科大玉泉书院《昆仑山上的一棵草》获一等奖；国科大集成电路学院《无声的坚守》、马克思主义学院《我与我同行》、国际学院《半页图纸》获二等奖；中国科学院空天信息创新研究院《追梦863》、大连化学物理研究所《重水十年》、上海微系统与信息技术研究所《自助者天助》获三等奖。
+对此，记者获悉，2019年上交所和深交所同步推出股票期权组合策略业务，并在通知中明确单边平仓功能暂不实施。
 
-《光与希望》获最佳剧本奖；《昆仑山上的一棵草》摘得最佳舞台美术奖、最佳导演奖，剧中陈能宽院士饰演者王翊帆获最佳男演员奖；《我与我同行》青年王承书和中年王承书饰演者拥忠初、解筱冰获最佳女演员奖。
+目前，上交所正在进行该功能的技术开发工作，发布了技术接口供市场进行技术开发使用，业务上该功能仍暂不实施。
 
-此外，优秀组织奖也同步揭晓并颁奖。
+工行、农行、中行、建行、交行集体宣布 落地离岸人民币外汇试点交易 为推动外汇市场双向开放，促进在岸和离岸市场融合，日前，中国人民银行行长潘功胜在2026陆家嘴论坛上宣布，授权工行、农行、中行、建行、交行、中信银行等6家银行，在上海自贸区开展离岸人民币外汇交易试点。
 
-决赛现场，国科大校长周琪，“两弹一星”元勋陈芳允院士、“两弹一星”攻关科学家张存浩院士、国科大外语系教授李佩等人的亲属代表，以及中国科学院、怀柔区、培养单位、国科大师生代表等参加活动。
+截至目前， 工行、农行、中行、建行、交行均已宣布落地离岸人民币外汇试点交易。
 
 ## 相关推荐
 
-- 2026-06-29 15:28 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 15:17 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 15:39 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 15:39 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 15:17 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 15:37 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 15:17 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 15:19 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 15:23 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 15:41 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 15:18 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 15:46 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 15:39 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 15:47 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 15:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 15:18 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 15:46 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 15:24 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 15:29 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 15:24 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 15:29 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 15:38 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 15:33 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 15:40 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/82087953.shtml)
-- 2026-06-29 15:41 - [AG冠军五人组轮换](https://www.blog.minike.top/Article/details/669457.shtml)
-- 2026-06-29 15:32 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/431605078205.shtml)
-- 2026-06-29 15:19 - [在委侨团负责人：家乡的帮助很及时](https://www.share.minike.top/Article/details/97499389.shtml)
-- 2026-06-29 15:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/73622432.shtml)
-- 2026-06-29 15:22 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/689015.shtml)
-- 2026-06-29 15:25 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/939515805387.shtml)
-- 2026-06-29 15:17 - [周深双眼皮贴又掉了](https://www.share.minike.top/Article/details/362136504289.shtml)
-- 2026-06-29 15:17 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/773435757.shtml)
-- 2026-06-29 15:19 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/28997365205.shtml)
-- 2026-06-29 15:41 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/094336.shtml)
-- 2026-06-29 15:32 - [爸爸当家](https://www.blog.minike.top/Article/details/805346.shtml)
-- 2026-06-29 15:15 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/710535493.shtml)
-- 2026-06-29 15:22 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/509640.shtml)
-- 2026-06-29 15:12 - [84岁英国教授成中国网红](http://www.share.kurohicncr.top/Article/details/316381591.shtml)
+- 2026-06-29 15:30 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/0284413.shtml)
+- 2026-06-29 15:20 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.minike.top/Article/details/06799.shtml)
+- 2026-06-29 15:39 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/70275995.shtml)
+- 2026-06-29 15:36 - [世界杯看到肖战了](http://www.blog.kurohicncr.top/Article/details/21962520.shtml)
+- 2026-06-29 15:41 - [世界杯上那些封神的门将](https://www.blog.kurohicncr.top/Article/details/30900.shtml)
+- 2026-06-29 15:25 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/70293.shtml)
+- 2026-06-29 15:42 - [金刚川](http://www.share.kurohicncr.top/Article/details/881534191510.shtml)
+- 2026-06-29 15:43 - [一生一世](http://www.blog.kurohicncr.top/Article/details/805779.shtml)
+- 2026-06-29 15:32 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/433376.shtml)
+- 2026-06-29 15:39 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/5024027.shtml)
+- 2026-06-29 15:42 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/85120730.shtml)
+- 2026-06-29 15:39 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.kurohicncr.top/Article/details/191761.shtml)
+- 2026-06-29 15:34 - [急先锋](https://www.share.minike.top/Article/details/6278260983.shtml)
+- 2026-06-29 15:39 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/560130653321.shtml)
+- 2026-06-29 15:21 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/95734.shtml)

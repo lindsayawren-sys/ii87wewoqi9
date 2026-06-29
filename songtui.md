@@ -1,59 +1,60 @@
-# 操盘必读：影响股市利好或利空消息_2026年4月27日_财经新闻
+# 晋江与敦煌双城联动 开启2026年国际文创设计大赛
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 影响股市利好与利空消息 宏观新闻 1、中共中央办公厅、国务院办公厅发布关于加强新就业群体服务管理的意见，其中提出，加强互联网平台算法治理。其中还提出，督促互联网平台企业、快递企业等根据工作任务、劳动强度等合理确定新就业群体劳动报酬，及时足额支付。 2、国务院总理李强4月24日主持召开国务院常务会议，研究科技创新有关工作，听取推动
+中新网福建晋江6月23日电 (记者 孙虹)以“丝路双生 山海造物”为主题，晋江&敦煌2026年国际文创设计大赛23日在福建晋江正式启动，见证陆上与海上丝绸之路文脉融合、山海优势互补的双向奔赴。 据了解，本次大赛共设三大赛道，面向全球设计师、高校师生及创意机构开放报名。其中，晋江文化主赛道聚焦城市精神与人文景观，鼓励挖掘晋江世遗点及多元文化底蕴；丝路双生特色赛道推动“海丝”与“陆
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 影响股市利好与利空消息 宏观新闻 1、中共中央办公厅、国务院办公厅发布关于加强新就业群体服务管理的意见，其中提出，加强互联网平台算法治理。
+中新网福建晋江6月23日电 (记者 孙虹)以“丝路双生 山海造物”为主题，晋江&敦煌2026年国际文创设计大赛23日在福建晋江正式启动，见证陆上与海上丝绸之路文脉融合、山海优势互补的双向奔赴。
 
-其中还提出，督促互联网平台企业、快递企业等根据工作任务、劳动强度等合理确定新就业群体劳动报酬，及时足额支付。
+据了解，本次大赛共设三大赛道，面向全球设计师、高校师生及创意机构开放报名。
 
-2、国务院总理李强4月24日主持召开国务院常务会议，研究科技创新有关工作，听取推动海洋经济高质量发展情况汇报，审议通过《行政法规制定程序条例（修订草案）》。
+其中，晋江文化主赛道聚焦城市精神与人文景观，鼓励挖掘晋江世遗点及多元文化底蕴；丝路双生特色赛道推动“海丝”与“陆丝”文化基因深度融合；产业融合特色赛道结合晋江伞具、食品两大优势产业，推动设计成果从图纸走向实物。
 
-会议指出，要紧盯全球科技前沿动向，围绕国家战略需求与产业发展需要，加强原创性引领性科技攻关，提升基础研究水平，打造具有全球影响力的创新高地。
+大赛评审兼顾文化表达、创意巧思及商业价值与产业适配能力。
 
-会议指出，要提高经略海洋能力，高效开发利用海洋，推动海洋经济高质量发展，加快建设海洋强国。
+为吸引全球优秀设计师参与创作，大赛总奖金池超30万元，单项最高奖金3万元，旨在挖掘兼具文化深度与市场潜力的优质作品。
 
-3、4月22日，美国众议院外交事务委员会通过了《硬件技术控制多边协同法案》等多项出口管制法案。
+作品征集时间为2026年6月至9月，7月还将开展大赛配套“设计共创营”，助力深度创作。
 
-商务部新闻发言人表示，中方将密切关注相关立法进程，认真评估对中方利益的影响，并将坚决采取必要措施，坚定维护中国企业合法正当权益。
+“自2024年7月缔结友好城市以来，晋江与敦煌两地多次开展丝路文化对话、城市文脉交流，结下了深厚的合作情谊。
 
-4、商务部24日发布公告称，决定将赫斯塔尔公司等7家欧盟实体列入出口管制管控名单，并采取禁止出口经营者向上述7家实体出口两用物项，禁止境外组织和个人将原产于中华人民共和国的两用物项转移或提供给上述7家实体；正在开展的相关活动应当立即停止等措施。
+”晋江市委书记王明元指出，此次跨越山海、携手举办国际文创设计大赛，开启了两地产业协同、资源共享、双向赋能的全新阶段。
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 15:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 15:25 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 15:24 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 15:17 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 15:13 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 15:41 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 15:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 15:14 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 15:12 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 15:39 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 15:21 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 15:23 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 15:35 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 15:47 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 15:34 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 15:35 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 15:35 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 15:42 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 15:20 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-29 15:26 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 15:30 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 15:18 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 15:24 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 15:20 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 15:22 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 15:22 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:15 - [叶一茜森碟一起回北京了](http://www.share.minike.top/Article/details/280838951.shtml)
-- 2026-06-29 15:16 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/27217740.shtml)
-- 2026-06-29 15:34 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/619485.shtml)
-- 2026-06-29 15:28 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/89691.shtml)
-- 2026-06-29 15:24 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/4505438.shtml)
-- 2026-06-29 15:26 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/0423881358.shtml)
-- 2026-06-29 15:14 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/364164.shtml)
-- 2026-06-29 15:25 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/78113.shtml)
-- 2026-06-29 15:13 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/293734.shtml)
-- 2026-06-29 15:36 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/23013551859.shtml)
-- 2026-06-29 15:41 - [千与千寻](https://www.share.kurohicncr.top/Article/details/051065.shtml)
-- 2026-06-29 15:38 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/452495190.shtml)
-- 2026-06-29 15:25 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/3604344.shtml)
-- 2026-06-29 15:37 - [恋与深空 731](http://www.blog.minike.top/Article/details/428165.shtml)
-- 2026-06-29 15:14 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/183959375.shtml)
+- 2026-06-29 15:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/70603556.shtml)
+- 2026-06-29 15:32 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/395876020.shtml)
+- 2026-06-29 15:30 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/483354.shtml)
+- 2026-06-29 15:38 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/24470.shtml)
+- 2026-06-29 15:29 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/8234391575.shtml)
+- 2026-06-29 15:33 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/932257473505.shtml)
+- 2026-06-29 15:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/496345.shtml)
+- 2026-06-29 15:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/049992902987.shtml)
+- 2026-06-29 15:30 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/639188981.shtml)
+- 2026-06-29 15:44 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/9465351.shtml)
+- 2026-06-29 15:35 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/187967.shtml)
+- 2026-06-29 15:26 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/718710321148.shtml)
+- 2026-06-29 15:31 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/5991276240.shtml)
+- 2026-06-29 15:23 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.kurohicncr.top/Article/details/2825789523.shtml)
+- 2026-06-29 15:40 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/045747059.shtml)

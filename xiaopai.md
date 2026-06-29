@@ -1,58 +1,54 @@
-# 散户大举进场！ETF个人持有比例飙升，多只产品超九成
+# 俄罗斯纪念卫国战争爆发85周年 普京向无名烈士墓献花
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-近期上市的ETF，个人投资者成为绝对认购主力。 以上周（4月20日—24日）上市的ETF和本周（4月27日—30日）拟上市的ETF为例，大部分产品的个人持有比例在80%以上甚至在90%以上。 时间拉长看，这种情况在今年和去年同样存在。他们偏好医药等热门主题产品，呈现出“户数多、户均金额小”特征。截至2025年末，个人投资者在ETF中平均持有占比尚未超过机构投资者，但比例已超过4
+中新网6月22日电 综合俄媒报道，俄罗斯总统普京于22日俄罗斯“纪念与哀悼日”参加莫斯科无名烈士墓献花仪式。 报道称，按照传统，克里姆林宫墙边的亚历山大花园举行了无名烈士墓献花仪式。仪仗队的士兵们伴随着哀乐在长明火前摆上红玫瑰和康乃馨花环。 据报道，6月22日是卫国战争爆发的日子，也是俄罗斯的“纪念和哀悼日”。今年的6月22日是卫国战争爆发85周年纪念日。每年的这一天，俄罗斯国
 
 ## 正文
 
-近期上市的ETF，个人投资者成为绝对认购主力。
+中新网6月22日电 综合俄媒报道，俄罗斯总统普京于22日俄罗斯“纪念与哀悼日”参加莫斯科无名烈士墓献花仪式。
 
-以上周（4月20日—24日）上市的ETF和本周（4月27日—30日）拟上市的ETF为例，大部分产品的个人持有比例在80%以上甚至在90%以上。
+报道称，按照传统，克里姆林宫墙边的亚历山大花园举行了无名烈士墓献花仪式。
 
-时间拉长看，这种情况在今年和去年同样存在。
+仪仗队的士兵们伴随着哀乐在长明火前摆上红玫瑰和康乃馨花环。
 
-他们偏好医药等热门主题产品，呈现出“户数多、户均金额小”特征。
+据报道，6月22日是卫国战争爆发的日子，也是俄罗斯的“纪念和哀悼日”。
 
-截至2025年末，个人投资者在ETF中平均持有占比尚未超过机构投资者，但比例已超过42%。
+今年的6月22日是卫国战争爆发85周年纪念日。
 
-在参与更广泛的ETF联接基金方面，个人持有比例则超过了85%，2024年至今逐步提升。
-
-受访人士对券商中国记者称，个人投资者持续转向ETF，意味着他们逐步认可指数化工具产品，且呈现出了组合配置和风险分散意识。
-
-但从广泛参与到成为中长期耐心资本，他们还需要长期持续的良性引导。
+每年的这一天，俄罗斯国内外多地举行相关活动。
 
 ## 相关推荐
 
-- 2026-06-29 15:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 15:22 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 15:13 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 15:17 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 15:25 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 15:16 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 15:28 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 15:22 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 15:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 15:27 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 15:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 15:26 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 15:37 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 15:40 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 15:40 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 15:24 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 15:27 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 15:38 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 15:36 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 15:28 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 15:40 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 15:30 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 15:43 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 15:19 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:26 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/48488.shtml)
-- 2026-06-29 15:20 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/029894.shtml)
-- 2026-06-29 15:35 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/42965.shtml)
-- 2026-06-29 15:38 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/74187.shtml)
-- 2026-06-29 15:31 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/3740499439.shtml)
-- 2026-06-29 15:22 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/507799540.shtml)
-- 2026-06-29 15:41 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/57875000346.shtml)
-- 2026-06-29 15:15 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/039582.shtml)
-- 2026-06-29 15:13 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/01355.shtml)
-- 2026-06-29 15:40 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/2303584.shtml)
-- 2026-06-29 15:30 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/49637041.shtml)
-- 2026-06-29 15:22 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/144741554961.shtml)
-- 2026-06-29 15:41 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/09666530047.shtml)
-- 2026-06-29 15:20 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/64274807571.shtml)
-- 2026-06-29 15:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/35448705894.shtml)
+- 2026-06-29 15:24 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/764805671.shtml)
+- 2026-06-29 15:19 - [高市早苗口齿不清被质疑醉酒](http://www.share.minike.top/Article/details/52880.shtml)
+- 2026-06-29 15:38 - [比亚迪市值为何蒸发8000亿](https://www.share.minike.top/Article/details/14915.shtml)
+- 2026-06-29 15:41 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/49728801861.shtml)
+- 2026-06-29 15:45 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.minike.top/Article/details/263989682.shtml)
+- 2026-06-29 15:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/644477866.shtml)
+- 2026-06-29 15:34 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/055117088.shtml)
+- 2026-06-29 15:40 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/258443148.shtml)
+- 2026-06-29 15:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/395593157.shtml)
+- 2026-06-29 15:44 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/206884208.shtml)
+- 2026-06-29 15:29 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/3316970.shtml)
+- 2026-06-29 15:22 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.minike.top/Article/details/38423568828.shtml)
+- 2026-06-29 15:25 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/48982539.shtml)
+- 2026-06-29 15:25 - [普京介绍前线战事](https://www.blog.minike.top/Article/details/46733.shtml)
+- 2026-06-29 15:45 - [极限挑战第一季](http://www.share.minike.top/Article/details/6493778411.shtml)

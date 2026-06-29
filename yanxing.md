@@ -1,56 +1,44 @@
-# 上海银行行长：今年净息差可能还会小幅收窄，幅度应该好于市场平均水平
+# 【早盘三分钟】6月22日华宝基金ETF早知道
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-4月27日，上海银行行长兼首席财务官、首席合规官施红敏在该行2025年度暨2026年一季度业绩说明会上展望2026年业绩时表示，营业收入总体上会保持相对增长态势，总资产将保持相对稳健的增长，其中在重点区域、重点客群和重点产品方面的业务增长会相对更快些。 对于市场高度关注的净利润，他指出短期内会存在一定扰动，但从长期来看，向好的态势不会发生变化。 2025年上海银行实现营业收入5
+责任编辑：常福强
 
 ## 正文
 
-4月27日，上海银行行长兼首席财务官、首席合规官施红敏在该行2025年度暨2026年一季度业绩说明会上展望2026年业绩时表示，营业收入总体上会保持相对增长态势，总资产将保持相对稳健的增长，其中在重点区域、重点客群和重点产品方面的业务增长会相对更快些。
-
-对于市场高度关注的净利润，他指出短期内会存在一定扰动，但从长期来看，向好的态势不会发生变化。
-
-2025年上海银行实现营业收入547.61亿元，同比增长3.35%；实现归属于母公司股东的净利润241.93亿元，同比增长2.69%。
-
-今年一季度实现营业收入141.75亿元，同比增长4.25%，实现归属于母公司股东的净利润63.34亿元，同比增长0.66%。
-
-截至2025年末，上海银行不良贷款率1.18%，与上年末持平。
-
-在展望资产质量时，施红敏表示，在后续的管理过程中，受到外部宏观环境的变化、监管政策的调整以及房地产等特定市场因素的影响，会有一些波动，这些风险仍然存在。
-
-该行将一户一策，进一步细化管控措施，最大程度地降低影响。
-
-总的来看，资产质量长期稳定的趋势应该是不会改变的。
+责任编辑：常福强
 
 ## 相关推荐
 
-- 2026-06-29 15:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 15:39 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 15:25 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 15:27 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 15:18 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 15:17 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 15:15 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 15:24 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 15:33 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 15:12 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 15:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 15:39 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 15:45 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 15:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 15:36 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 15:27 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 15:37 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 15:43 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 15:25 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 15:36 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 15:40 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 15:32 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/429319816992.shtml)
-- 2026-06-29 15:20 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/935847869504.shtml)
-- 2026-06-29 15:13 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/972754384.shtml)
-- 2026-06-29 15:32 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/9559360.shtml)
-- 2026-06-29 15:33 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/200425080.shtml)
-- 2026-06-29 15:32 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/52736.shtml)
-- 2026-06-29 15:33 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/8036796.shtml)
-- 2026-06-29 15:12 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/9338593294.shtml)
-- 2026-06-29 15:17 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/6552455.shtml)
-- 2026-06-29 15:14 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/8290672.shtml)
-- 2026-06-29 15:20 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/77733.shtml)
-- 2026-06-29 15:28 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/2319468761.shtml)
-- 2026-06-29 15:37 - [赵露思爸爸拍vlog翻车了](http://www.share.minike.top/Article/details/80002509198.shtml)
-- 2026-06-29 15:36 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/61834347.shtml)
-- 2026-06-29 15:31 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/446126.shtml)
+- 2026-06-29 15:45 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/2551505515.shtml)
+- 2026-06-29 15:18 - [起风了](https://www.share.kurohicncr.top/Article/details/42206504.shtml)
+- 2026-06-29 15:19 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/7557189.shtml)
+- 2026-06-29 15:40 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/8562785.shtml)
+- 2026-06-29 15:33 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/69885265822.shtml)
+- 2026-06-29 15:43 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/45236.shtml)
+- 2026-06-29 15:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/19786032934.shtml)
+- 2026-06-29 15:36 - [行程万里不忘初心](https://www.share.minike.top/Article/details/28539253.shtml)
+- 2026-06-29 15:34 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/7796611.shtml)
+- 2026-06-29 15:20 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/824098.shtml)
+- 2026-06-29 15:45 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/514325.shtml)
+- 2026-06-29 15:38 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/452125551748.shtml)
+- 2026-06-29 15:41 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/177845651726.shtml)
+- 2026-06-29 15:22 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/92051845583.shtml)
+- 2026-06-29 15:38 - [爱很美味](https://www.share.kurohicncr.top/Article/details/030733.shtml)

@@ -1,57 +1,56 @@
-# 第139届广交会第二期今天闭展 24.5万名境外采购商到会
+# 日经指数下跌0.1% 受科技股拖累 软银集团下跌5.2%
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-4月27日下午，第139届广交会第二期线下展结束。本期展会聚焦“品质家居”主题，展览面积51.5万平方米，2.5万个展位，包括家庭用品、礼品及装饰品、建材及家具3大板块，共展出展品222万件，新设时尚饰品、竹木餐具、竹木家居用品、集成房屋及庭院设施4个专区。第二期共有参展企业超1万家，其中拥有高新技术、专精特新、单项冠军等称号的优质企业超3100家，较上届增长约7.5%，众多参
+专题：风险降级，市场惯性前进：主线仍是算力通胀 在近期大幅上涨以及隔夜美国科技股下跌之后，日本股市走低。科技股领跌。软银集团下跌5.2%，富士通下跌1.9%。在美国为伊朗以美元出售石油扫清障碍之后，投资者正关注原油价格和中东局势发展。日经指数下跌0.1%，报72308.89点。责任编辑：王永生
 
 ## 正文
 
-4月27日下午，第139届广交会第二期线下展结束。
+专题：风险降级，市场惯性前进：主线仍是算力通胀 在近期大幅上涨以及隔夜美国科技股下跌之后，日本股市走低。
 
-本期展会聚焦“品质家居”主题，展览面积51.5万平方米，2.5万个展位，包括家庭用品、礼品及装饰品、建材及家具3大板块，共展出展品222万件，新设时尚饰品、竹木餐具、竹木家居用品、集成房屋及庭院设施4个专区。
+科技股领跌。
 
-第二期共有参展企业超1万家，其中拥有高新技术、专精特新、单项冠军等称号的优质企业超3100家，较上届增长约7.5%，众多参展企业携新品集中展示新材料、新工艺、新设计，通过提升品牌内涵和产品附加值，积极开拓海外市场。
+软银集团下跌5.2%，富士通下跌1.9%。
 
-第139届广交会第二期共举办165场新品首发活动，重点围绕绿色建材、创意家居及餐厨好物等主题，全方位展示中国制造的向新、向绿、向智特色。
+在美国为伊朗以美元出售石油扫清障碍之后，投资者正关注原油价格和中东局势发展。
 
-截至4月27日17时，共有来自219个国家和地区的24.5万名境外采购商到会，比上届同期(下同)增长2.2%。
+日经指数下跌0.1%，报72308.89点。
 
-140家境外工商机构组团参会。
-
-468个采购团中，美国塔吉特、墨西哥利物浦、英国乐购、德国麦德龙、日本唐吉诃德等344家头部企业组团参会，增长4.9%。
-
-(总台记者 陈旭婷 黄东旭)
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 15:36 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 15:16 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 15:33 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 15:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 15:14 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 15:24 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 15:14 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 15:30 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 15:32 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 15:27 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 15:29 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 15:24 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 15:45 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 15:41 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 15:29 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 15:34 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 15:28 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 15:25 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 15:41 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 15:30 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 15:29 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 15:22 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 15:45 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 15:23 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 15:37 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:35 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/509083.shtml)
-- 2026-06-29 15:26 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/189332.shtml)
-- 2026-06-29 15:19 - [20年前的周杰伦](https://www.blog.minike.top/Article/details/276299607857.shtml)
-- 2026-06-29 15:35 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/992570131801.shtml)
-- 2026-06-29 15:34 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/566667202.shtml)
-- 2026-06-29 15:20 - [李在明称韩国足协任命了无能之人](http://www.share.kurohicncr.top/Article/details/7158999747.shtml)
-- 2026-06-29 15:13 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/889793901334.shtml)
-- 2026-06-29 15:22 - [志愿选择倒计时！浙大学生送祝福](http://www.share.kurohicncr.top/Article/details/12198636067.shtml)
-- 2026-06-29 15:25 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/438321.shtml)
-- 2026-06-29 15:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/54748021.shtml)
-- 2026-06-29 15:39 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/719891.shtml)
-- 2026-06-29 15:15 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/725773774503.shtml)
-- 2026-06-29 15:24 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/63870.shtml)
-- 2026-06-29 15:37 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/81885.shtml)
-- 2026-06-29 15:38 - [中国战机大片上新](http://www.share.minike.top/Article/details/391967757.shtml)
+- 2026-06-29 15:29 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/853450823.shtml)
+- 2026-06-29 15:45 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/69567441992.shtml)
+- 2026-06-29 15:47 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/974143179590.shtml)
+- 2026-06-29 15:35 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.minike.top/Article/details/21014.shtml)
+- 2026-06-29 15:40 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/19984.shtml)
+- 2026-06-29 15:33 - [首尔商铺禁止洪明甫入内](https://www.share.kurohicncr.top/Article/details/555085.shtml)
+- 2026-06-29 15:29 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.kurohicncr.top/Article/details/4932644.shtml)
+- 2026-06-29 15:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/00802.shtml)
+- 2026-06-29 15:18 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/8815017801.shtml)
+- 2026-06-29 15:26 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/59099.shtml)
+- 2026-06-29 15:30 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/39465236.shtml)
+- 2026-06-29 15:37 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/00583.shtml)
+- 2026-06-29 15:25 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/64465.shtml)
+- 2026-06-29 15:25 - [极限挑战第一季](https://www.blog.minike.top/Article/details/392301.shtml)
+- 2026-06-29 15:45 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/546267161.shtml)

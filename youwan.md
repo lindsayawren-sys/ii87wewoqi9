@@ -1,58 +1,61 @@
-# 一口“鲜甜”放倒多人 医生：芥末、白酒杀不死寄生虫
+# 券商、有色、科技齐飞！A股能否延续强势？
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网广州4月27日电 (记者 蔡敏婕)广东河源一家8口聚餐食用淡水鱼生后，多人相继出现反复发烧、腹痛、恶心厌食等症状。在医生的追问下，终于揭开了谜底，罪魁祸首就是那顿看似“原生态”的淡水鱼生。 “很多患者问，鱼生用醋、芥末、高度白酒腌过，是不是就安全了？”广州医科大学附属第二医院感染病科主任医师罗润齐表示：“芥末、醋、白酒在短时间内根本无法杀死肝吸虫囊蚴，唯一有效的方法，就是
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 6月22日，端午节后首个交易日，A股上午低迷、下午拉升，整体呈现指数强于个股格局，沪深京三市日成交额逼近4万亿元。板块虽普涨，但赚钱效应一般，收涨个股不足3000只，资金明显抱团科技、证券、有色等龙头股。 受访人士告诉记者，今日A股更像是风险偏好回升后的放量反弹，尚不能简单理解为全面牛市确
 
 ## 正文
 
-中新网广州4月27日电 (记者 蔡敏婕)广东河源一家8口聚餐食用淡水鱼生后，多人相继出现反复发烧、腹痛、恶心厌食等症状。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在医生的追问下，终于揭开了谜底，罪魁祸首就是那顿看似“原生态”的淡水鱼生。
+来源：国际金融报 6月22日，端午节后首个交易日，A股上午低迷、下午拉升，整体呈现指数强于个股格局，沪深京三市日成交额逼近4万亿元。
 
-“很多患者问，鱼生用醋、芥末、高度白酒腌过，是不是就安全了？
+板块虽普涨，但赚钱效应一般，收涨个股不足3000只，资金明显抱团科技、证券、有色等龙头股。
 
-”广州医科大学附属第二医院感染病科主任医师罗润齐表示：“芥末、醋、白酒在短时间内根本无法杀死肝吸虫囊蚴，唯一有效的方法，就是彻底煮熟。
+受访人士告诉记者，今日A股更像是风险偏好回升后的放量反弹，尚不能简单理解为全面牛市确认。
 
-” 近一个月来，女童小黄持续反复高烧、腹痛、身形日渐消瘦，辗转就医迟迟查不出病因；其母亲长期恶心乏力、食欲衰退，小黄的舅舅反复腹痛久治无果。
+若金融搭台、科技和资源继续轮动，指数仍有上行动力；若仅靠券商单日拉升，后市仍可能重回结构分化。
 
-多方就诊无果后，家属前往广医二院就诊。
+建议保留科技核心仓位，券商不宜追得太急。
 
-医生追问饮食史得知众人曾同食鱼生。
+量能增至3.76万亿元 指数上午低迷、午后拉升。
 
-随即安排筛查，最终查出肝吸虫卵，8人里6人血嗜酸性粒细胞明显升高，这正是寄生虫感染的典型信号，而且粪便中也直接检出了肝吸虫卵。
+沪指收涨1.78%报4163.1点，创业板指收涨2.52%报4359.39点，深证成指收涨2.13%。
 
 ## 相关推荐
 
-- 2026-06-29 15:36 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 15:16 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 15:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 15:20 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 15:34 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 15:14 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 15:31 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 15:26 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 15:15 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 15:15 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 15:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 15:35 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 15:34 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 15:31 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 15:24 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 15:41 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 15:34 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 15:30 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 15:41 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 15:33 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 15:43 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 15:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 15:40 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 15:45 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 15:31 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 15:26 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 15:43 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:41 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/20128012.shtml)
-- 2026-06-29 15:34 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.share.minike.top/Article/details/9053656558.shtml)
-- 2026-06-29 15:22 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/777048.shtml)
-- 2026-06-29 15:39 - [周深双眼皮贴又掉了](https://www.share.minike.top/Article/details/33532038.shtml)
-- 2026-06-29 15:32 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/23579128492.shtml)
-- 2026-06-29 15:23 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/0215953753.shtml)
-- 2026-06-29 15:21 - [乔家的儿女](https://www.share.minike.top/Article/details/84568610.shtml)
-- 2026-06-29 15:23 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/43572316.shtml)
-- 2026-06-29 15:39 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/823971075699.shtml)
-- 2026-06-29 15:19 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/06990126315.shtml)
-- 2026-06-29 15:12 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/808745971766.shtml)
-- 2026-06-29 15:29 - [灿如繁星定档](http://www.blog.minike.top/Article/details/49223906906.shtml)
-- 2026-06-29 15:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/1659045.shtml)
-- 2026-06-29 15:31 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/389912.shtml)
-- 2026-06-29 15:21 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/573580623.shtml)
+- 2026-06-29 15:40 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/86989.shtml)
+- 2026-06-29 15:33 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/44526642.shtml)
+- 2026-06-29 15:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/5231300101.shtml)
+- 2026-06-29 15:22 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/54063.shtml)
+- 2026-06-29 15:30 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/0403196.shtml)
+- 2026-06-29 15:45 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.kurohicncr.top/Article/details/09729266.shtml)
+- 2026-06-29 15:34 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.kurohicncr.top/Article/details/678011288301.shtml)
+- 2026-06-29 15:19 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.minike.top/Article/details/4694446.shtml)
+- 2026-06-29 15:40 - [沉睡花园](http://www.share.minike.top/Article/details/2267642.shtml)
+- 2026-06-29 15:45 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/552095.shtml)
+- 2026-06-29 15:22 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/614840.shtml)
+- 2026-06-29 15:34 - [吴磊爱上回收了](https://www.share.kurohicncr.top/Article/details/805771.shtml)
+- 2026-06-29 15:33 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/41517464.shtml)
+- 2026-06-29 15:25 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/234962931.shtml)
+- 2026-06-29 15:22 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/670162.shtml)

@@ -1,60 +1,53 @@
-# 清水河口岸一季度进出口货值同比增长131.6%
+# 特朗普称伊朗将同意接受武器核查，伊朗否认
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网云南临沧4月27日电 (杨晓婕)孟定海关统计数据显示，2026年一季度，中缅边境清水河口岸(含芒卡通道)进出口货值达21.1亿元，同比增长131.6%，实现亮眼开局。其中，进口9.7亿元，增长179.6%；出口11.4亿元，增长101.9%，呈现出强劲增长态势。 清水河口岸位于云南省临沧市耿马傣族佤族自治县，是中国通往缅甸、连接南亚东南亚的重要陆路通道。 从贸易方式看，一
+中新网6月23日电 据土耳其阿纳多卢通讯社报道，美国总统特朗普当地时间22日表示，伊朗将同意接受大规模武器核查，以确保其在未来长期保持“核诚信”。 特朗普在其社交媒体平台上发帖称：“每个人都完全清楚，伊朗将同意接受大规模武器核查，以确保未来很长一段时间内的‘核诚信’。” 就在几个小时前，美国副总统万斯表示，在瑞士与伊朗举行的会谈为最终协议奠定了“非常好的基础”，并声称德黑兰已同
 
 ## 正文
 
-中新网云南临沧4月27日电 (杨晓婕)孟定海关统计数据显示，2026年一季度，中缅边境清水河口岸(含芒卡通道)进出口货值达21.1亿元，同比增长131.6%，实现亮眼开局。
+中新网6月23日电 据土耳其阿纳多卢通讯社报道，美国总统特朗普当地时间22日表示，伊朗将同意接受大规模武器核查，以确保其在未来长期保持“核诚信”。
 
-其中，进口9.7亿元，增长179.6%；出口11.4亿元，增长101.9%，呈现出强劲增长态势。
+特朗普在其社交媒体平台上发帖称：“每个人都完全清楚，伊朗将同意接受大规模武器核查，以确保未来很长一段时间内的‘核诚信’。
 
-清水河口岸位于云南省临沧市耿马傣族佤族自治县，是中国通往缅甸、连接南亚东南亚的重要陆路通道。
+” 就在几个小时前，美国副总统万斯表示，在瑞士与伊朗举行的会谈为最终协议奠定了“非常好的基础”，并声称德黑兰已同意允许国际原子能机构 (IAEA) 的核查人员重返该国。
 
-从贸易方式看，一季度该口岸以一般贸易、边境小额贸易方式分别进出口货物8.1亿元、9.6亿元，同比分别增长70.1%、180%，边民互市增长343.5%。
-
-来料加工、进料对口、市场采购分别出口货物2754万元、1899万元和2722万元，均为净增长。
-
-跨境电商(9710)出口1533万元，同比增长340.5%。
-
-外贸主体活力显著增强。
-
-一季度，口岸有进出口实绩企业达671家，同比增长85.4%，其中进出口规模超百万元的企业有227家。
+然而，伊朗半官方的法尔斯通讯社援引消息人士的话否认了万斯的说法，称在最近于瑞士举行的会谈中，并未讨论国际原子能机构核查人员重返伊朗的问题。
 
 ## 相关推荐
 
-- 2026-06-29 15:15 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 15:24 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 15:18 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 15:15 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 15:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 15:41 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 15:14 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 15:29 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 15:24 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 15:33 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 15:22 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 15:38 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 15:31 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 15:35 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 15:19 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 15:33 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 15:35 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 15:32 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 15:26 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 15:26 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 15:45 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 15:23 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 15:21 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 15:19 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 15:34 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 15:25 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 15:34 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 15:36 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 15:24 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:26 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/97761.shtml)
-- 2026-06-29 15:23 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/335924237.shtml)
-- 2026-06-29 15:34 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/760668582.shtml)
-- 2026-06-29 15:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/52718368.shtml)
-- 2026-06-29 15:24 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/23553263.shtml)
-- 2026-06-29 15:36 - [斛珠夫人](http://www.blog.minike.top/Article/details/29721.shtml)
-- 2026-06-29 15:27 - [医院大厅放钢琴是形式主义吗](http://www.blog.minike.top/Article/details/27182.shtml)
-- 2026-06-29 15:21 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/31779728.shtml)
-- 2026-06-29 15:12 - [央视起底直播诈骗连环套](https://www.share.kurohicncr.top/Article/details/283496252829.shtml)
-- 2026-06-29 15:27 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/26226.shtml)
-- 2026-06-29 15:25 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/502461515.shtml)
-- 2026-06-29 15:24 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/2479529991.shtml)
-- 2026-06-29 15:40 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/658603753219.shtml)
-- 2026-06-29 15:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/275990981538.shtml)
-- 2026-06-29 15:27 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/53352648995.shtml)
+- 2026-06-29 15:32 - [端午节加班工资应该怎么算](http://www.share.minike.top/Article/details/6090611.shtml)
+- 2026-06-29 15:27 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/61636093.shtml)
+- 2026-06-29 15:46 - [美国近12万名科技员工被解雇](https://www.blog.kurohicncr.top/Article/details/38849850103.shtml)
+- 2026-06-29 15:28 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/696890687379.shtml)
+- 2026-06-29 15:44 - [如何“亲菌子”又“远小人儿”](https://www.blog.minike.top/Article/details/99366102623.shtml)
+- 2026-06-29 15:42 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/6338363282.shtml)
+- 2026-06-29 15:20 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.minike.top/Article/details/14392878078.shtml)
+- 2026-06-29 15:43 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/78410551.shtml)
+- 2026-06-29 15:26 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/1064673.shtml)
+- 2026-06-29 15:37 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/69195.shtml)
+- 2026-06-29 15:22 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/545552353.shtml)
+- 2026-06-29 15:18 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/6608734.shtml)
+- 2026-06-29 15:36 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/970599029.shtml)
+- 2026-06-29 15:27 - [灿如繁星定档](http://www.blog.kurohicncr.top/Article/details/4059335.shtml)
+- 2026-06-29 15:35 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/1120272.shtml)

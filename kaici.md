@@ -1,54 +1,60 @@
-# 2026年新疆阿勒泰地区夏秋季旅游启动
+# 民盟、民进、九三学社江苏江阴市委会联合调研农文旅融合发展
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-中新网新疆阿勒泰4月27日电 (袁鹏冲)2026年“5·19中国旅游日”阿勒泰地区分会场活动暨阿勒泰地区2026年“我的阿勒泰·清凉一夏”夏秋季旅游启动仪式，26日在新疆阿勒泰市举行，现场展示阿勒泰优质夏秋季文旅资源、特色产品与惠民举措。 活动现场发布阿勒泰地区夏秋季文体旅系列活动、精品旅游线路及文体旅惠民措施，为游客奉上丰富多样的出行选择，还推出景区网络达人扶持政策，通过免票
+探融合发展之道 献乡村振兴之策——民盟、民进、九三学社江阴市委会联合调研农文旅融合发展 为深入贯彻落实乡村振兴战略，充分发挥民主党派人才荟萃、智力密集的优势，切实凝聚合力建言献策、服务地方发展，近日，民盟江阴市委会联合民进江阴市委会、九三学社江阴市委会组成联合调研组，赴顾山镇开展农文旅融合发展专题调研。民盟江阴市委会相关负责人参加调研，顾山镇相关负责同志陪同调研。 第一站：满庭
 
 ## 正文
 
-中新网新疆阿勒泰4月27日电 (袁鹏冲)2026年“5·19中国旅游日”阿勒泰地区分会场活动暨阿勒泰地区2026年“我的阿勒泰·清凉一夏”夏秋季旅游启动仪式，26日在新疆阿勒泰市举行，现场展示阿勒泰优质夏秋季文旅资源、特色产品与惠民举措。
+探融合发展之道 献乡村振兴之策——民盟、民进、九三学社江阴市委会联合调研农文旅融合发展 为深入贯彻落实乡村振兴战略，充分发挥民主党派人才荟萃、智力密集的优势，切实凝聚合力建言献策、服务地方发展，近日，民盟江阴市委会联合民进江阴市委会、九三学社江阴市委会组成联合调研组，赴顾山镇开展农文旅融合发展专题调研。
 
-活动现场发布阿勒泰地区夏秋季文体旅系列活动、精品旅游线路及文体旅惠民措施，为游客奉上丰富多样的出行选择，还推出景区网络达人扶持政策，通过免票入园、专属服务等礼遇，鼓励全网达人聚焦阿勒泰山水人文，讲好阿勒泰故事。
+民盟江阴市委会相关负责人参加调研，顾山镇相关负责同志陪同调研。
 
-仪式上，阿勒泰地区旅游协会代表发布旅游行业提升旅游服务质量倡议书，切实保障游客合法权益。
+第一站：满庭芳郊野花园——探访“美丽经济”的生动样本 在满庭芳郊野花园，调研组实地察看了依托自然肌理打造的开放式景观，详细了解土地流转模式、运营状况及带动周边农户就业情况。
 
-本次活动同步设置五大特色展销体验街区与三大互动特色活动，构建“可看、可玩、可购、可感”的文旅消费场景。
+调研组对顾山镇因地制宜盘活生态资源、激活"美丽经济"的探索给予充分肯定。
 
-其中，非遗展示体验一条街呈现民族刺绣、毛皮雪板制作等传统技艺，搭配民谣演唱、民俗舞蹈，让游客近距离感受非遗魅力。
+第二站：红豆村水蜜桃产业链阵地——见证“甜蜜产业”的全链升级 在红豆村水蜜桃产业链阵地，调研组依次考察了分拣包装、冷链物流及深加工环节，听取了关于"金顾山"水蜜桃全产业链发展的介绍，并围绕农产品品牌建设、电商渠道拓展、联农带农机制等话题与镇村负责人深入交流。
 
-阿勒泰地区文化体育广播电视和旅游局党组成员、副局长王新慧表示，将以此次活动为契机，持续完善文旅服务配套、规范旅游市场秩序、丰富文旅消费业态，全力打造夏季避暑旅游目的地，用心用情为广大游客提供安心、舒心、放心的旅游体验。
+调研组认为，以水蜜桃为核心推动种植、加工、销售、品牌全链条升级的模式，为特色农业提质增效提供了有益经验。
 
-(完)
+第三站：千年红豆树下——感受“相思文化”的时代回响 在千年古红豆树下，调研组详细听取了"红豆相思文化"的挖掘传承情况，实地考察红豆结婚登记点等文旅融合新场景。
+
+针对顾山镇依托千年古树IP创新结合传统文化与婚姻服务、打造"红豆甜蜜"农文旅品牌的实践，调研组对其赋予传统文化时代生命力、以文兴农的路径给予高度评价。
 
 ## 相关推荐
 
-- 2026-06-29 15:40 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 15:30 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 15:33 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 15:19 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 15:41 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 15:27 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 15:20 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 15:40 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 15:26 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 15:22 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 15:27 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 15:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 15:33 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 15:43 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 15:47 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 15:25 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 15:46 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 15:42 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 15:21 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 15:21 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 15:38 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 15:19 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 15:44 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 15:20 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/59834222.shtml)
-- 2026-06-29 15:13 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/247598650.shtml)
-- 2026-06-29 15:36 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/45558891862.shtml)
-- 2026-06-29 15:17 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/449440.shtml)
-- 2026-06-29 15:18 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/95081.shtml)
-- 2026-06-29 15:22 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/849975654260.shtml)
-- 2026-06-29 15:32 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/186160580.shtml)
-- 2026-06-29 15:31 - [央视曝光涉黄App诈骗陷阱](http://www.blog.minike.top/Article/details/272224.shtml)
-- 2026-06-29 15:14 - [世界杯上那些封神的门将](http://www.share.minike.top/Article/details/0745137.shtml)
-- 2026-06-29 15:35 - [锐评浪姐7总决赛](http://www.blog.kurohicncr.top/Article/details/691351739.shtml)
-- 2026-06-29 15:36 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/09343928170.shtml)
-- 2026-06-29 15:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/518283169163.shtml)
-- 2026-06-29 15:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/16309.shtml)
-- 2026-06-29 15:27 - [《贺子珍》](https://www.blog.minike.top/Article/details/05623693162.shtml)
-- 2026-06-29 15:41 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/3351236.shtml)
+- 2026-06-29 15:43 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/8100962.shtml)
+- 2026-06-29 15:41 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/2890943700.shtml)
+- 2026-06-29 15:21 - [NBA交易](https://www.share.kurohicncr.top/Article/details/02802699.shtml)
+- 2026-06-29 15:36 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/84342644990.shtml)
+- 2026-06-29 15:45 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/250454231.shtml)
+- 2026-06-29 15:28 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/9500800.shtml)
+- 2026-06-29 15:46 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/23698555.shtml)
+- 2026-06-29 15:33 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/98982033.shtml)
+- 2026-06-29 15:37 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/7107601051.shtml)
+- 2026-06-29 15:43 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.minike.top/Article/details/012278399.shtml)
+- 2026-06-29 15:37 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/757921529470.shtml)
+- 2026-06-29 15:33 - [BB大王横店拍戏](https://www.share.minike.top/Article/details/539192009764.shtml)
+- 2026-06-29 15:45 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/262750502054.shtml)
+- 2026-06-29 15:25 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/23525330832.shtml)
+- 2026-06-29 15:38 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/14302620.shtml)

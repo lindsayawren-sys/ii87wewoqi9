@@ -1,57 +1,57 @@
-# 邂逅书香 “阅读 +”点亮各地文旅新体验
+# 大陆机车圈粉台湾媒体人
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-在本周的“全民阅读活动周”期间，“阅读+”模式在多地落地开花。阅读牵手观光、体验、消费，让读者在互动中感知文化温度，让文旅更添书香味。 “阅读+”让文旅更“有味” 在北京，中华书局读者开放日主打“经典导读+数字分级”。多位学者带领读者走进《诗经》《史记》等中华经典，从文本细读中感悟传统文化；同时上线的“国学经典分级阅读馆(大众版)”，则破解了不同年龄段读者的选书之难。 这个“中
+中新社重庆6月22日电 (记者 钟旖)“很过瘾、大开眼界。”22日，在重庆高新区“慢捣公元”文创园内，台湾人民报记者刘世鑫跨上一台大排量重型机车，随着油门发动，浑厚饱满的强劲音浪随之响起。面对机车亲民的定价、过硬的性能与潮流的外观，他表示“直观感受到大陆制造业规模化、智能化带来的竞争优势”。 当天，双城新动能·2026两岸媒体川渝行活动在重庆正式启动。近40名两岸媒体人首站参访
 
 ## 正文
 
-在本周的“全民阅读活动周”期间，“阅读+”模式在多地落地开花。
+中新社重庆6月22日电 (记者 钟旖)“很过瘾、大开眼界。
 
-阅读牵手观光、体验、消费，让读者在互动中感知文化温度，让文旅更添书香味。
+”22日，在重庆高新区“慢捣公元”文创园内，台湾人民报记者刘世鑫跨上一台大排量重型机车，随着油门发动，浑厚饱满的强劲音浪随之响起。
 
-“阅读+”让文旅更“有味” 在北京，中华书局读者开放日主打“经典导读+数字分级”。
+面对机车亲民的定价、过硬的性能与潮流的外观，他表示“直观感受到大陆制造业规模化、智能化带来的竞争优势”。
 
-多位学者带领读者走进《诗经》《史记》等中华经典，从文本细读中感悟传统文化；同时上线的“国学经典分级阅读馆(大众版)”，则破解了不同年龄段读者的选书之难。
+当天，双城新动能·2026两岸媒体川渝行活动在重庆正式启动。
 
-这个“中华智慧阅读空间”则借助AI技术，让阅读像一场穿越时空的奇妙旅行，使读者得以与历史“对话”。
+近40名两岸媒体人首站参访全球化摩托车研发、生产、销售企业——重庆鑫源摩托车股份有限公司，其完整的产业链布局让人眼前一亮。
 
-中华书局古联公司总编辑 朱翠萍：在传统古籍的基础上，我们积累了上百亿次的古籍数字化的数据，打造了这样一个沉浸式体验空间。
+此前公开报道显示，重庆拥有规模以上摩托车整车企业51家、规模以上零部件企业410余家，具备完备的配套体系。
 
-北京中轴线上的标志性建筑——雁翅楼内，中国书店则呈现另一种“阅读+”可能。
+2025年重庆摩托车产量达785.7万辆，居大陆城市首位。
 
-这里藏有清代线装典籍、民国时期出版物等旧书两万余册，并定期举办建筑摄影、古籍修复等特色活动，让读者在观景之余享受多元文化体验。
+台湾被称为“机车之岛”，机车是部分民众日常出行刚需，庞大车友群体对摩托车产品拥有天然认知基础。
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 15:13 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 15:15 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 15:16 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 15:15 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 15:36 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 15:25 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 15:23 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 15:32 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-29 15:26 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 15:21 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 15:28 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 15:28 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 15:39 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 15:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 15:40 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 15:21 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 15:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 15:41 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 15:18 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 15:39 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 15:28 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/1619363.shtml)
-- 2026-06-29 15:18 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/540675365375.shtml)
-- 2026-06-29 15:19 - [以前不让妆女二可以艳压女主](http://www.blog.minike.top/Article/details/906220.shtml)
-- 2026-06-29 15:31 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/87774979960.shtml)
-- 2026-06-29 15:13 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/361569.shtml)
-- 2026-06-29 15:21 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/703366.shtml)
-- 2026-06-29 15:40 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/10471949.shtml)
-- 2026-06-29 15:38 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/57915.shtml)
-- 2026-06-29 15:15 - [普京介绍前线战事](http://www.share.kurohicncr.top/Article/details/710999348827.shtml)
-- 2026-06-29 15:30 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/10869845512.shtml)
-- 2026-06-29 15:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/322982647567.shtml)
-- 2026-06-29 15:34 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.minike.top/Article/details/46647483.shtml)
-- 2026-06-29 15:32 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/531860028843.shtml)
-- 2026-06-29 15:17 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/086449744.shtml)
-- 2026-06-29 15:34 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/109096064.shtml)
+- 2026-06-29 15:28 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/949982.shtml)
+- 2026-06-29 15:33 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/37554935.shtml)
+- 2026-06-29 15:47 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/851205.shtml)
+- 2026-06-29 15:24 - [吴建豪老婆](http://www.blog.kurohicncr.top/Article/details/34011307586.shtml)
+- 2026-06-29 15:30 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/146315946767.shtml)
+- 2026-06-29 15:32 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.kurohicncr.top/Article/details/871614427916.shtml)
+- 2026-06-29 15:33 - [千与千寻](https://www.blog.minike.top/Article/details/13804.shtml)
+- 2026-06-29 15:39 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/225815586.shtml)
+- 2026-06-29 15:35 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.minike.top/Article/details/54217338.shtml)
+- 2026-06-29 15:46 - [《贺子珍》](https://www.share.minike.top/Article/details/9534953032.shtml)
+- 2026-06-29 15:48 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/85328.shtml)
+- 2026-06-29 15:31 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/54761480.shtml)
+- 2026-06-29 15:44 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.kurohicncr.top/Article/details/429604209.shtml)
+- 2026-06-29 15:28 - [崔韩率还以为韩娱来新人了](https://www.blog.kurohicncr.top/Article/details/40514727.shtml)
+- 2026-06-29 15:43 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/71536941574.shtml)

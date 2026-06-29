@@ -1,55 +1,44 @@
-# 摩根大通称投资者可利用股市疲软机会增加配置
+# 港股中资券商股午后持续冲高，中信证券涨超9%
 
-> 更新时间：2026-06-29 15:42:02 UTC+8
+> 更新时间：2026-06-29 15:48:02 UTC+8
 
 ## 摘要
 
-摩根大通策略师表示，投资者可利用股市走弱之时增加股票配置，尽管地缘政治风险消息频出，但军事、政治和经济方面的制约因素意味着局势不太可能长期升级。 Mislav Matejka等策略师表示，即便经历了V形反弹，他们仍对全球股市持建设性看法，理由包括企业盈利动能依然具有韧性，以及流动性和利率环境可能出现改善。 与去年由少数几家超大型公司推动的狭窄上涨行情不同，今年的市场领头羊股票可
+港股中资券商股午后持续冲高，中信证券涨超9%，广发证券、中金公司涨超7%，中信建投证券、东方证券涨超5%责任编辑：杨赐
 
 ## 正文
 
-摩根大通策略师表示，投资者可利用股市走弱之时增加股票配置，尽管地缘政治风险消息频出，但军事、政治和经济方面的制约因素意味着局势不太可能长期升级。
-
-Mislav Matejka等策略师表示，即便经历了V形反弹，他们仍对全球股市持建设性看法，理由包括企业盈利动能依然具有韧性，以及流动性和利率环境可能出现改善。
-
-与去年由少数几家超大型公司推动的狭窄上涨行情不同，今年的市场领头羊股票可能会更加多元。
-
-近期大幅下跌后尽管策略师对“人工智能风险股”持谨慎态度，但认为这些股票短期内可能出现战术性反弹，不过最终会在12-18个月利用反弹机会卖出。
-
-从区域层面来看，他们预计随着美元指数和收益率走低以及市场参与度扩大，国际股市将恢复优异表现。
-
-仍高配新兴市场而非发达市场，并且对矿业板块保持乐观。
-
-责任编辑：刘明亮
+港股中资券商股午后持续冲高，中信证券涨超9%，广发证券、中金公司涨超7%，中信建投证券、东方证券涨超5%责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-29 15:23 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 15:21 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 15:29 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 15:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 15:32 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 15:13 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 15:32 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 15:36 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 15:39 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 15:41 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 15:33 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 15:39 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 15:34 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 15:36 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 15:42 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 15:41 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 15:44 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 15:42 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 15:31 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 15:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 15:34 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 15:44 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 15:29 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:39 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/42255837128.shtml)
-- 2026-06-29 15:12 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/23731852163.shtml)
-- 2026-06-29 15:18 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/4029293.shtml)
-- 2026-06-29 15:39 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/465296785548.shtml)
-- 2026-06-29 15:28 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/3066464.shtml)
-- 2026-06-29 15:17 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/926246009.shtml)
-- 2026-06-29 15:23 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/55368.shtml)
-- 2026-06-29 15:30 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/492007097.shtml)
-- 2026-06-29 15:23 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/105941302.shtml)
-- 2026-06-29 15:21 - [金刚川](http://www.share.kurohicncr.top/Article/details/885117822641.shtml)
-- 2026-06-29 15:33 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/606072.shtml)
-- 2026-06-29 15:33 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/32103956822.shtml)
-- 2026-06-29 15:26 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/2760057.shtml)
-- 2026-06-29 15:24 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/369608.shtml)
-- 2026-06-29 15:28 - [沉睡花园](http://www.share.minike.top/Article/details/78678921056.shtml)
+- 2026-06-29 15:20 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/7064024066.shtml)
+- 2026-06-29 15:35 - [时光音乐会](https://www.blog.minike.top/Article/details/31210.shtml)
+- 2026-06-29 15:34 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/065912646368.shtml)
+- 2026-06-29 15:21 - [四川宜宾地震](https://www.blog.minike.top/Article/details/76721151256.shtml)
+- 2026-06-29 15:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/58632435180.shtml)
+- 2026-06-29 15:26 - [斛珠夫人](https://www.share.minike.top/Article/details/000274.shtml)
+- 2026-06-29 15:25 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/818581991.shtml)
+- 2026-06-29 15:21 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/2362490.shtml)
+- 2026-06-29 15:19 - [在委侨团负责人：家乡的帮助很及时](http://www.share.kurohicncr.top/Article/details/1375121860.shtml)
+- 2026-06-29 15:33 - [大六座SUV进入黄金时代](http://www.blog.kurohicncr.top/Article/details/302599.shtml)
+- 2026-06-29 15:43 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/410815331729.shtml)
+- 2026-06-29 15:18 - [广东一地发现极危植物新物种](https://www.blog.minike.top/Article/details/72119315275.shtml)
+- 2026-06-29 15:19 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/0852920944.shtml)
+- 2026-06-29 15:29 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.minike.top/Article/details/350742702.shtml)
+- 2026-06-29 15:41 - [久坐小心“死臀综合征”](https://www.blog.minike.top/Article/details/9551536.shtml)
