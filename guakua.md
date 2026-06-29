@@ -1,46 +1,61 @@
-# 航空股早盘涨幅居前 东方航空及中国国航均涨超6%
+# 韩国金融市场：韩股反弹收高逾3% 散户逢低买盘强劲
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-航空股早盘涨幅居前，截至发稿，东方航空（00670）上涨6.36%，报4.35港元；中国国航（00753）上涨6%，报5.30港元；南方航空（01055）上涨5.77%，报4.40港元；国泰航空（00293）上涨3.64%，报12.53港元。责任编辑：卢昱君
+韩国股市指标股指周三强劲反弹，在前一日暴跌近10%后回升逾3%，散户投资者纷纷逢低买入。韩元兑美元下跌 ，三年期公债收益率则是上涨。 韩国综合股价指数（KOSPI）收盘上涨267.18点，涨幅3.26%，报8471.02点，盘中一度上涨4.55%。 芯片制造商三星电子领涨大盘，上涨9.84%，此前有媒体报道称该公司计划实施一项价值约90万亿韩元（584亿美元）的股票回购计划。同
 
 ## 正文
 
-航空股早盘涨幅居前，截至发稿，东方航空（00670）上涨6.36%，报4.35港元；中国国航（00753）上涨6%，报5.30港元；南方航空（01055）上涨5.77%，报4.40港元；国泰航空（00293）上涨3.64%，报12.53港元。
+韩国股市指标股指周三强劲反弹，在前一日暴跌近10%后回升逾3%，散户投资者纷纷逢低买入。
 
-责任编辑：卢昱君
+韩元兑美元下跌 ，三年期公债收益率则是上涨。
+
+韩国综合股价指数（KOSPI）收盘上涨267.18点，涨幅3.26%，报8471.02点，盘中一度上涨4.55%。
+
+芯片制造商三星电子领涨大盘，上涨9.84%，此前有媒体报道称该公司计划实施一项价值约90万亿韩元（584亿美元）的股票回购计划。
+
+同业SK海力士上涨0.98%。
+
+未来资产证券策略师Seo Sang-young表示，随着散户投资者蜂拥而至，此次反弹收复了前一交易日的大部分失地。
+
+“散户投资者涌入杠杆型ETF是导致市场波动的主要原因，因为许多人出于‘害怕错过（FOMO）’心理，一直在等待入市机会，”Seo表示。
+
+“未来波动性仍将加剧，因为美光科技即将公布财报，而美国市场也在等待通胀和就业数据。
 
 ## 相关推荐
 
-- 2026-06-30 06:46 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 06:32 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 06:19 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 06:20 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 06:36 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 06:30 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 06:39 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 06:36 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 06:28 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 06:44 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 06:37 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 06:19 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 06:45 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 06:31 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 06:44 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 06:35 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 06:53 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 06:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 06:27 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 06:39 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 06:46 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 06:40 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 06:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 06:43 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 06:48 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 06:51 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 06:28 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/6370416969.shtml)
-- 2026-06-30 06:21 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/792035814.shtml)
-- 2026-06-30 06:36 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/9288311921.shtml)
-- 2026-06-30 06:30 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/1761186216.shtml)
-- 2026-06-30 06:28 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/943185.shtml)
-- 2026-06-30 06:22 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/8073111.shtml)
-- 2026-06-30 06:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/96884585274.shtml)
-- 2026-06-30 06:22 - [沉睡花园](http://www.share.minike.top/Article/details/02338.shtml)
-- 2026-06-30 06:35 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/037496731418.shtml)
-- 2026-06-30 06:47 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/729190837.shtml)
-- 2026-06-30 06:33 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/7602655.shtml)
-- 2026-06-30 06:47 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/457406.shtml)
-- 2026-06-30 06:39 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/911642465.shtml)
-- 2026-06-30 06:39 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/68754.shtml)
-- 2026-06-30 06:42 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/43420333986.shtml)
+- 2026-06-30 06:42 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/8924212.shtml)
+- 2026-06-30 06:38 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/176647.shtml)
+- 2026-06-30 06:37 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/7517313265.shtml)
+- 2026-06-30 06:39 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/231980308704.shtml)
+- 2026-06-30 06:34 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/93938283.shtml)
+- 2026-06-30 06:51 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/47311.shtml)
+- 2026-06-30 06:29 - [刘念回应](https://www.share.kurohicncr.top/Article/details/56145454984.shtml)
+- 2026-06-30 06:39 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/515485602.shtml)
+- 2026-06-30 06:33 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/73648.shtml)
+- 2026-06-30 06:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/66288451.shtml)
+- 2026-06-30 06:48 - [一生一世](https://www.blog.minike.top/Article/details/590018216492.shtml)
+- 2026-06-30 06:27 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/347588.shtml)
+- 2026-06-30 06:51 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/50600.shtml)
+- 2026-06-30 06:40 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/292546.shtml)
+- 2026-06-30 06:39 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/57239577261.shtml)

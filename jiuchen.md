@@ -1,59 +1,59 @@
-# 金建希股价操纵案法官遗书内容公布
+# 巴西央行称高利率或维持更长时间以应对通胀压力
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-据多家韩媒报道，当地时间6日凌晨1时，在韩国前总统尹锡悦妻子金建希股价操纵案二审中判处金建希有罪的法官申宗旿被发现在首尔高等法院内身亡，现场发现遗书。目前警方基本排除他杀嫌疑。 据报道，韩国警方在5日午夜前后接到报警，随后于6日凌晨1时许在首尔高等法院大楼附近的花坛中发现申宗旿，将其送往医院。 据《朝鲜日报》报道，警方在申宗旿所穿衣物中发现遗书，其中写有“对不起，我选择自行离开
+新华财经圣保罗6月24日电（记者杨家和）巴西中央银行当地时间23日发布的货币政策委员会（Copom）会议纪要表示，受通胀形势恶化和通胀预期持续上升影响，基准利率可能在较长时间内维持高位，以确保通胀回归目标区间。 巴西央行纪要显示，尽管货币政策委员会上周一致决定将基准利率（Selic）从14.50%下调至14.25%，但委员会认为当前通胀形势仍不容乐观。最新通胀水平仍高于官方目标
 
 ## 正文
 
-据多家韩媒报道，当地时间6日凌晨1时，在韩国前总统尹锡悦妻子金建希股价操纵案二审中判处金建希有罪的法官申宗旿被发现在首尔高等法院内身亡，现场发现遗书。
+新华财经圣保罗6月24日电（记者杨家和）巴西中央银行当地时间23日发布的货币政策委员会（Copom）会议纪要表示，受通胀形势恶化和通胀预期持续上升影响，基准利率可能在较长时间内维持高位，以确保通胀回归目标区间。
 
-目前警方基本排除他杀嫌疑。
+巴西央行纪要显示，尽管货币政策委员会上周一致决定将基准利率（Selic）从14.50%下调至14.25%，但委员会认为当前通胀形势仍不容乐观。
 
-据报道，韩国警方在5日午夜前后接到报警，随后于6日凌晨1时许在首尔高等法院大楼附近的花坛中发现申宗旿，将其送往医院。
+最新通胀水平仍高于官方目标区间上限，而中长期通胀预期进一步偏离目标。
 
-据《朝鲜日报》报道，警方在申宗旿所穿衣物中发现遗书，其中写有“对不起，我选择自行离开”等内容。
+根据央行最新预测，在基准情景下，巴西2026年通胀率预测值由此前的4.6%上调至5.2%，2027年通胀率预测值则由3.5%升至3.7%。
 
-遗书并未提及金建希或审判相关内容。
+巴西现行通胀目标为3%，上下浮动1.5个百分点。
 
-韩国媒体报道说，警方基本排除他杀嫌疑。
+货币政策委员会指出，自4月会议以来，市场对于未来数年的通胀预期进一步恶化，特别是2028年通胀预期出现明显“脱锚”现象。
 
-4月28日，在金建希首案二审中，法院认定金建希违反《资本市场法》和《特定犯罪加重处罚法》等，以操纵股价和斡旋受贿罪等判处其有期徒刑4年，并处罚金5000万韩元（约合23万元人民币）。
+在此背景下，维持较高利率水平仍是抑制通胀预期、推动物价回归目标的重要手段。
 
-同时，没收其收受的一条高价项链，并追缴2000余万韩元。
+委员会表示，将继续以“审慎和冷静”的态度制定货币政策，并密切关注中东地区冲突发展及其对全球能源、供应链和物价水平可能产生的直接和间接影响。
 
 ## 相关推荐
 
-- 2026-06-30 06:42 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 06:22 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 06:27 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 06:23 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 06:42 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 06:20 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 06:27 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 06:41 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-30 06:22 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 06:26 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 06:32 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 06:35 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 06:34 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-30 06:53 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 06:41 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 06:47 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 06:32 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 06:52 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 06:34 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 06:30 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 06:28 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 06:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 06:25 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 06:47 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 06:46 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 06:46 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:39 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/158640389.shtml)
-- 2026-06-30 06:38 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/29783948919.shtml)
-- 2026-06-30 06:27 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/442636582006.shtml)
-- 2026-06-30 06:19 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/0329477919.shtml)
-- 2026-06-30 06:29 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/06225977717.shtml)
-- 2026-06-30 06:25 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/61041249599.shtml)
-- 2026-06-30 06:30 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/55495.shtml)
-- 2026-06-30 06:34 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/436859707994.shtml)
-- 2026-06-30 06:28 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/223585854.shtml)
-- 2026-06-30 06:19 - [点菜也要教吗](https://www.blog.minike.top/Article/details/407014846.shtml)
-- 2026-06-30 06:38 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/0490720696.shtml)
-- 2026-06-30 06:23 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/97899774245.shtml)
-- 2026-06-30 06:33 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/94630.shtml)
-- 2026-06-30 06:37 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/22337214882.shtml)
-- 2026-06-30 06:44 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/53750.shtml)
+- 2026-06-30 06:31 - [点菜也要教吗](http://www.share.minike.top/Article/details/9632742.shtml)
+- 2026-06-30 06:37 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/8011397959.shtml)
+- 2026-06-30 06:27 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/269023640.shtml)
+- 2026-06-30 06:45 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/601064552907.shtml)
+- 2026-06-30 06:33 - [沉睡花园](https://www.blog.minike.top/Article/details/815239074.shtml)
+- 2026-06-30 06:50 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/493849.shtml)
+- 2026-06-30 06:43 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/13668693.shtml)
+- 2026-06-30 06:50 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/81139558811.shtml)
+- 2026-06-30 06:39 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/751033272.shtml)
+- 2026-06-30 06:31 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/724680822137.shtml)
+- 2026-06-30 06:29 - [千香](https://www.blog.minike.top/Article/details/441689278.shtml)
+- 2026-06-30 06:34 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/85486773498.shtml)
+- 2026-06-30 06:52 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/973802643896.shtml)
+- 2026-06-30 06:43 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/694332.shtml)
+- 2026-06-30 06:42 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/532092700.shtml)

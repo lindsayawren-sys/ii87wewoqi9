@@ -1,58 +1,49 @@
-# 中信建投期货：5月7日黑色系早报
+# 港股三大指数开盘下挫 恒生科技指数转跌
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-钢材早报：矛盾有限，关注节后现货成交 市场信息： 1、 美国总统特朗普表示，伊朗战事“很有可能结束”，并称美伊双方正接近达成协议，协议可能包括伊朗将其高浓缩铀运往美国。当被问及达成协议的具体时间框架时，特朗普称预估“一周”。 2、 中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。会议强调，增强货币政策前瞻性灵活性针对性，保持流动性充裕。要深入挖掘内需潜力。纵深
+6月25日消息，港股三大指数开盘下挫，恒生科技指数转跌。科指成分股中，携程跌超6%，美团、商汤跌超2%，阿里巴巴、小米、百度、理想汽车跌超1%。 责任编辑：郝欣煜
 
 ## 正文
 
-钢材早报：矛盾有限，关注节后现货成交 市场信息： 1、 美国总统特朗普表示，伊朗战事“很有可能结束”，并称美伊双方正接近达成协议，协议可能包括伊朗将其高浓缩铀运往美国。
+6月25日消息，港股三大指数开盘下挫，恒生科技指数转跌。
 
-当被问及达成协议的具体时间框架时，特朗普称预估“一周”。
+科指成分股中，携程跌超6%，美团、商汤跌超2%，阿里巴巴、小米、百度、理想汽车跌超1%。
 
-2、 中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。
-
-会议强调，增强货币政策前瞻性灵活性针对性，保持流动性充裕。
-
-要深入挖掘内需潜力。
-
-纵深推进全国统一大市场建设，深入整治“内卷式”竞争。
-
-努力稳定房地产市场，扎实推进城市更新。
-
-3、 中钢协副秘书长兼市场调研部主任石洪卫表示，钢坯作为初级钢铁产品有较强的资源能源属性，希望企业全面看待钢坯出口的收益和影响。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 06:31 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 06:32 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 06:33 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 06:23 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 06:38 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 06:36 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 06:37 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 06:33 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 06:25 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 06:26 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 06:46 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 06:38 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 06:24 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 06:49 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 06:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 06:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 06:24 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 06:51 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 06:41 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 06:30 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 06:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 06:25 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 06:35 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 06:29 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 06:37 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:21 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/4821187161.shtml)
-- 2026-06-30 06:44 - [送你一朵小红花](https://www.blog.minike.top/Article/details/5414082516.shtml)
-- 2026-06-30 06:42 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/441894827551.shtml)
-- 2026-06-30 06:19 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/279995472.shtml)
-- 2026-06-30 06:38 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/99286125.shtml)
-- 2026-06-30 06:34 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/95340405.shtml)
-- 2026-06-30 06:36 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/3480744457.shtml)
-- 2026-06-30 06:46 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/3422568823.shtml)
-- 2026-06-30 06:21 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/77817490191.shtml)
-- 2026-06-30 06:35 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/32899775588.shtml)
-- 2026-06-30 06:32 - [极限挑战第一季](http://www.share.minike.top/Article/details/80300830180.shtml)
-- 2026-06-30 06:22 - [沉睡花园](https://www.blog.minike.top/Article/details/4952813889.shtml)
-- 2026-06-30 06:38 - [巴拉圭先进球了](https://www.share.kurohicncr.top/Article/details/117295252773.shtml)
-- 2026-06-30 06:42 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/15443.shtml)
-- 2026-06-30 06:25 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/95201918584.shtml)
+- 2026-06-30 06:46 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/87782028.shtml)
+- 2026-06-30 06:50 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/42971.shtml)
+- 2026-06-30 06:46 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/69029839.shtml)
+- 2026-06-30 06:49 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/1346749.shtml)
+- 2026-06-30 06:36 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/716235933054.shtml)
+- 2026-06-30 06:31 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/545557547.shtml)
+- 2026-06-30 06:31 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/96037194597.shtml)
+- 2026-06-30 06:27 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/486466536.shtml)
+- 2026-06-30 06:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/10965.shtml)
+- 2026-06-30 06:37 - [急先锋](https://www.share.kurohicncr.top/Article/details/280109276.shtml)
+- 2026-06-30 06:35 - [千香](https://www.blog.minike.top/Article/details/14165.shtml)
+- 2026-06-30 06:34 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/716518029429.shtml)
+- 2026-06-30 06:42 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/9720926566.shtml)
+- 2026-06-30 06:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/3804428562.shtml)
+- 2026-06-30 06:42 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/4095549.shtml)

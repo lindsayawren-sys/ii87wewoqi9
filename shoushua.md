@@ -1,57 +1,61 @@
-# 美元兑日元汇率大跌，干预传闻四起，美伊协议乐观情绪升温
+# 压力测试过关 摩根大通、高盛等大型银行提高股利并回购股份
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-周三，美元兑大多数主要货币走低。此前美国释放信号，或即将与伊朗达成协议；与此同时，日元兑美元汇率突然飙升至两个多月来新高，市场预期日本当局或将再度入市干预。 日元早盘一度大涨 1.8%，推动美元兑日元跌至 155 的日内低点，创 2 月 24 日以来最弱水平。早盘美元曾普遍走强，但随后兑日元突然下挫，引发新一轮干预猜测。 日本财务大臣片山皋月本周稍早警告，警惕外汇市场投机行为。
+美国几家大型银行在通过了今年的美联储压力测试后提高了股息；近年来，随着监管机构研拟新的要求，压力测试已趋于宽松。 美联储年度评估结果公布后，美国最大贷款机构摩根大通将季度股利由每股1.50美元提高到1.65美元，高盛的股利从4.50美元上调至5美元。摩根大通也批准了一项新的500亿美元股票回购计划，自7月1日起生效。 富国银行的股利从45美分升至50美分，摩根士丹利也上调股利，
 
 ## 正文
 
-周三，美元兑大多数主要货币走低。
+美国几家大型银行在通过了今年的美联储压力测试后提高了股息；近年来，随着监管机构研拟新的要求，压力测试已趋于宽松。
 
-此前美国释放信号，或即将与伊朗达成协议；与此同时，日元兑美元汇率突然飙升至两个多月来新高，市场预期日本当局或将再度入市干预。
+美联储年度评估结果公布后，美国最大贷款机构摩根大通将季度股利由每股1.50美元提高到1.65美元，高盛的股利从4.50美元上调至5美元。
 
-日元早盘一度大涨 1.8%，推动美元兑日元跌至 155 的日内低点，创 2 月 24 日以来最弱水平。
+摩根大通也批准了一项新的500亿美元股票回购计划，自7月1日起生效。
 
-早盘美元曾普遍走强，但随后兑日元突然下挫，引发新一轮干预猜测。
+富国银行的股利从45美分升至50美分，摩根士丹利也上调股利，从1美元升至1.15美元。
 
-日本财务大臣片山皋月本周稍早警告，警惕外汇市场投机行为。
+这项源于2008年金融危机后建立的美联储压力测试显示，所有受检银行都能维持足够资本，以承受假设中的经济衰退冲击。
 
-此前日元短暂急涨，市场猜测东京当局已再度出手支撑日元。
+该项检测通常决定银行通过股利与股票回购向股东返还资本时，能采取多大程度的积极作为。
 
-“我多次强调，我们将依据去年日美两国签署的声明，对外汇市场投机行为采取果断措施。
+测试要求银行评估假设的危机情境，并根据其业务组合估算可能面临的损失。
 
-” 片山皋月在乌兹别克斯坦出席亚洲开发银行年会后对记者表示。
+美国银行表示，将在7月的董事会会议后公布下一季的股息派发计划。
 
 ## 相关推荐
 
-- 2026-06-30 06:47 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 06:28 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 06:20 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 06:22 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 06:43 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-30 06:22 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-30 06:28 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 06:27 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 06:24 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-30 06:46 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 06:24 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 06:26 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 06:28 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 06:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 06:36 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 06:40 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 06:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 06:49 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 06:36 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 06:32 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 06:35 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 06:35 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 06:24 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 06:32 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 06:24 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 06:46 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:28 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/8871770104.shtml)
-- 2026-06-30 06:34 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/38028783.shtml)
-- 2026-06-30 06:42 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/573788360.shtml)
-- 2026-06-30 06:19 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/30920.shtml)
-- 2026-06-30 06:28 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/0662685.shtml)
-- 2026-06-30 06:20 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/804880225853.shtml)
-- 2026-06-30 06:25 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/93927.shtml)
-- 2026-06-30 06:37 - [扬名立万](https://www.share.kurohicncr.top/Article/details/27032707806.shtml)
-- 2026-06-30 06:28 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/021714.shtml)
-- 2026-06-30 06:42 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/98709871912.shtml)
-- 2026-06-30 06:25 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/70291.shtml)
-- 2026-06-30 06:26 - [毒液2](https://www.blog.minike.top/Article/details/28168094.shtml)
-- 2026-06-30 06:24 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/66662.shtml)
-- 2026-06-30 06:26 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/63366707031.shtml)
-- 2026-06-30 06:42 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/2168887.shtml)
+- 2026-06-30 06:29 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/1155737.shtml)
+- 2026-06-30 06:27 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/94878367063.shtml)
+- 2026-06-30 06:48 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/52079808083.shtml)
+- 2026-06-30 06:43 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/53303.shtml)
+- 2026-06-30 06:36 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/779444301.shtml)
+- 2026-06-30 06:53 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/900507694.shtml)
+- 2026-06-30 06:51 - [美人鱼](https://www.share.kurohicncr.top/Article/details/2915473.shtml)
+- 2026-06-30 06:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/26060989.shtml)
+- 2026-06-30 06:53 - [刘念回应](https://www.blog.minike.top/Article/details/12856.shtml)
+- 2026-06-30 06:50 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/622520202.shtml)
+- 2026-06-30 06:26 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/353520616245.shtml)
+- 2026-06-30 06:26 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/272874887660.shtml)
+- 2026-06-30 06:25 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/9541684328.shtml)
+- 2026-06-30 06:33 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/921422.shtml)
+- 2026-06-30 06:37 - [一生一世](http://www.share.kurohicncr.top/Article/details/6790713055.shtml)

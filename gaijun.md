@@ -1,57 +1,48 @@
-# 裕信银行创纪录利润助推德商银行收购要约
+# 外交部：美伊应共同维护和落实谅解备忘录
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-意大利裕信银行周二公布了创纪录的一季度业绩，净利润同比增长16%至32.2亿欧元，远超市场预期的27亿欧元。与此同时，该行正式启动了对德国商业银行的收购要约。 财报显示，裕信银行一季度总营收达68.7亿欧元，同比增长4.9%，手续费及保险收入增长7.8%至25亿欧元，有效抵消了净利息收入下滑的影响。该行将2026年全年净利润目标上调至至少110亿欧元。 此次收购要约以0.485
+新华社北京6月24日电(记者吴梦桐、王慧慧)外交部发言人郭嘉昆24日在例行记者会上答问时表示，美伊签署谅解备忘录，承诺尊重彼此主权和领土完整，不再发动任何军事行动，避免干涉对方内政，对外发出了积极信号，应共同加以维护和落实。中方愿根据习近平主席4点主张精神，继续为早日恢复地区和平安宁发挥建设性作用。
 
 ## 正文
 
-意大利裕信银行周二公布了创纪录的一季度业绩，净利润同比增长16%至32.2亿欧元，远超市场预期的27亿欧元。
+新华社北京6月24日电(记者吴梦桐、王慧慧)外交部发言人郭嘉昆24日在例行记者会上答问时表示，美伊签署谅解备忘录，承诺尊重彼此主权和领土完整，不再发动任何军事行动，避免干涉对方内政，对外发出了积极信号，应共同加以维护和落实。
 
-与此同时，该行正式启动了对德国商业银行的收购要约。
-
-财报显示，裕信银行一季度总营收达68.7亿欧元，同比增长4.9%，手续费及保险收入增长7.8%至25亿欧元，有效抵消了净利息收入下滑的影响。
-
-该行将2026年全年净利润目标上调至至少110亿欧元。
-
-此次收购要约以0.485股裕信股票换取1股德国商业银行股票，按裕信5月4日收盘价计算约合每股31.07欧元。
-
-该报价较德国商业银行前一交易日收盘价折价8.7%，遭到德商行管理层及德国政府的明确反对。
-
-裕信CEO Andrea Orcel表示，目标是将持股比例从目前的约28%提升至30%以上，但并非寻求控股。
-
-他称：“我们作为股东的存在正在推动德商行审视自身，这只会对各方产生积极影响”。
+中方愿根据习近平主席4点主张精神，继续为早日恢复地区和平安宁发挥建设性作用。
 
 ## 相关推荐
 
-- 2026-06-30 06:23 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 06:36 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 06:36 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 06:43 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 06:43 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 06:26 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 06:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 06:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 06:45 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 06:19 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 06:40 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 06:49 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 06:32 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 06:30 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 06:25 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 06:34 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 06:50 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 06:51 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 06:45 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 06:25 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 06:26 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 06:51 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 06:35 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 06:27 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 06:41 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:25 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/50651.shtml)
-- 2026-06-30 06:21 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/41505583.shtml)
-- 2026-06-30 06:38 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/99311.shtml)
-- 2026-06-30 06:37 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/777559093.shtml)
-- 2026-06-30 06:28 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/49179.shtml)
-- 2026-06-30 06:25 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/95983075617.shtml)
-- 2026-06-30 06:19 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/844000485.shtml)
-- 2026-06-30 06:40 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/142006664145.shtml)
-- 2026-06-30 06:32 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/82110.shtml)
-- 2026-06-30 06:39 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/4520471605.shtml)
-- 2026-06-30 06:41 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/95725152.shtml)
-- 2026-06-30 06:31 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/5921706541.shtml)
-- 2026-06-30 06:44 - [青春环游记第三季](https://www.blog.minike.top/Article/details/4836894.shtml)
-- 2026-06-30 06:34 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/34682934.shtml)
-- 2026-06-30 06:34 - [速度与激情9](http://www.share.minike.top/Article/details/47137969534.shtml)
+- 2026-06-30 06:30 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/106122450.shtml)
+- 2026-06-30 06:51 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/2627698158.shtml)
+- 2026-06-30 06:52 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/7207343777.shtml)
+- 2026-06-30 06:48 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/8307395787.shtml)
+- 2026-06-30 06:53 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/45951892.shtml)
+- 2026-06-30 06:53 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/8726765977.shtml)
+- 2026-06-30 06:37 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/2818773.shtml)
+- 2026-06-30 06:45 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/1127230565.shtml)
+- 2026-06-30 06:50 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/259096057468.shtml)
+- 2026-06-30 06:46 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/77044.shtml)
+- 2026-06-30 06:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/649568.shtml)
+- 2026-06-30 06:44 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/06882604.shtml)
+- 2026-06-30 06:38 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/70055.shtml)
+- 2026-06-30 06:41 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/5855259370.shtml)
+- 2026-06-30 06:43 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/03375158.shtml)

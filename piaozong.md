@@ -1,56 +1,57 @@
-# 卖不动了！ 老板电器交出史上最差业绩：产品全线“哑火”，接班人年薪腰斩，谁靠分红套现？ | BUG
+# 银行、消金公司助贷余额增速不得高于自营贷款增速
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-文 丨 《BUG》栏目 周文猛 曾言要在2025年“再造一个新老板电器”，却在2025年交出了史上最差的年报。 近日，老板电器发布2025年度报告。财报显示，2025年全年老板电器营收101.16亿元，同比下滑9.78%；归母净利润12.56亿元，同比下滑20.38%。营收、净利润双双下降。 《BUG》栏目统计发现，这是老板电器自2010年上市以来首次营收同比下滑，同时也是首次
+近日，中国证券报·中证金牛座记者从多位业内人士处独家获悉，5月以来，多地金融监管部门对部分中小银行、消金公司下达窗口指导，要求助贷渠道贷款规模增速不得高于自营渠道贷款增速，存量助贷业务贷款余额应环比压降，融担类业务占比不得超过25%。 有分析人士向记者表示，本轮监管部门的窗口指导，不仅要求相关机构控制助贷业务增量，也对存量业务有序收缩提出较为明确的要求。被指导的机构可能在助贷业
 
 ## 正文
 
-文 丨 《BUG》栏目 周文猛 曾言要在2025年“再造一个新老板电器”，却在2025年交出了史上最差的年报。
+近日，中国证券报·中证金牛座记者从多位业内人士处独家获悉，5月以来，多地金融监管部门对部分中小银行、消金公司下达窗口指导，要求助贷渠道贷款规模增速不得高于自营渠道贷款增速，存量助贷业务贷款余额应环比压降，融担类业务占比不得超过25%。
 
-近日，老板电器发布2025年度报告。
+有分析人士向记者表示，本轮监管部门的窗口指导，不仅要求相关机构控制助贷业务增量，也对存量业务有序收缩提出较为明确的要求。
 
-财报显示，2025年全年老板电器营收101.16亿元，同比下滑9.78%；归母净利润12.56亿元，同比下滑20.38%。
+被指导的机构可能在助贷业务压降方面进度较慢，或不符监管部门预期。
 
-营收、净利润双双下降。
+“此举核心目标在于推动持牌机构回归自身定位，压实自主风控责任，逐步降低对外部渠道的依赖，同时防范中小金融机构因过度规模扩张而积累的潜在风险。
 
-《BUG》栏目统计发现，这是老板电器自2010年上市以来首次营收同比下滑，同时也是首次归母净利润同比下滑超20%。
+”上述分析人士说。
 
-更严重的是，双降趋势仍延续到了今年Q1季度。
+华西地区一家农商行相关负责人告诉记者：“我行目前已执行贷款资金月度管控要求，全面暂停了助贷渠道新增贷款的投放，部分存量贷款到期后不再续贷。
 
-惨淡的业绩背后，长期贡献70%以上营收份额的“烟灶”产品线集体哑火，以及蒸烤箱、洗碗机及集成灶等主营外“第二曲线”类业务大幅度下滑，直接拖累业绩。
+” 一家消金公司相关工作人员向记者表示：“我们以‌2025年末‌的助贷及担保增信贷款余额为上限，严控助贷业务增量，同时也缩减了助贷公司合作数量。
 
-伴随年报发布，曾在老板电器“新三年战略（2023-2025）”担任重要管理职务的副董事长任富佳，副总经理何亚东及周海昕等人，均出现大幅度降薪情况。
+”责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 06:30 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 06:45 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 06:24 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 06:41 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 06:26 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 06:46 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 06:45 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 06:34 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 06:21 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 06:26 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 06:37 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 06:34 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 06:32 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-30 06:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 06:24 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 06:37 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 06:52 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 06:26 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 06:30 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 06:25 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 06:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:40 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/97267362.shtml)
-- 2026-06-30 06:19 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/843169378155.shtml)
-- 2026-06-30 06:36 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/94113112756.shtml)
-- 2026-06-30 06:45 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/33872417964.shtml)
-- 2026-06-30 06:35 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/8163482.shtml)
-- 2026-06-30 06:38 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/6333618.shtml)
-- 2026-06-30 06:20 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/393470.shtml)
-- 2026-06-30 06:25 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/871488.shtml)
-- 2026-06-30 06:21 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/8659455997.shtml)
-- 2026-06-30 06:32 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/88334.shtml)
-- 2026-06-30 06:28 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/91232590.shtml)
-- 2026-06-30 06:37 - [送你一朵小红花](http://www.blog.minike.top/Article/details/435375.shtml)
-- 2026-06-30 06:45 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/111995005.shtml)
-- 2026-06-30 06:20 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/78758821153.shtml)
-- 2026-06-30 06:37 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/42183649.shtml)
+- 2026-06-30 06:52 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/6411186581.shtml)
+- 2026-06-30 06:39 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/411789.shtml)
+- 2026-06-30 06:31 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/45497186515.shtml)
+- 2026-06-30 06:43 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/3624887.shtml)
+- 2026-06-30 06:51 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/14735707.shtml)
+- 2026-06-30 06:48 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/181262315880.shtml)
+- 2026-06-30 06:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/135411068603.shtml)
+- 2026-06-30 06:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/439477822.shtml)
+- 2026-06-30 06:50 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/06877488982.shtml)
+- 2026-06-30 06:34 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/7032183136.shtml)
+- 2026-06-30 06:52 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/7289309.shtml)
+- 2026-06-30 06:42 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/595195176981.shtml)
+- 2026-06-30 06:30 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/4594824.shtml)
+- 2026-06-30 06:41 - [爱很美味](https://www.share.kurohicncr.top/Article/details/7857678200.shtml)
+- 2026-06-30 06:43 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/6573109032.shtml)

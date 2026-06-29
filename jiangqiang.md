@@ -1,57 +1,54 @@
-# 战后日本军演首次在境外发射进攻性导弹 中方回应
+# 金价下跌 价格可能还有进一步下跌空间
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月6日电 (记者 李京泽)中国外交部发言人林剑5月6日主持例行记者会。 有记者提问：5月6日，日本的88式岸基反舰导弹在美菲“肩并肩”军演中发射，这是战后日本首次在境外发射进攻型导弹。请问中方有何评论？ 林剑：日本曾对包括菲律宾在内的东南亚国家进行侵略和殖民统治，负有严重历史罪责。在东京审判开庭80周年这一特殊年份，曾经的侵略者不仅未能深刻反省历史罪行，反而打着所谓
+亚洲时段早盘金价下跌。现货黄金下跌0.2%，报每盎司4，018.77美元。虽然市场预计金价在跌至每盎司4，000美元后会反弹，但凯投宏观的Hamad Hussain认为，这种贵金属在未来18个月内仍有进一步下跌的空间。他指出，美联储加息的前景将推高实际收益率并令金价承压。该经济学家表示，股市潜在的暴跌也可能对金价造成更大的下行压力，因为在股市突然遭到抛售期间，投资者通常不得不出
 
 ## 正文
 
-中新网北京5月6日电 (记者 李京泽)中国外交部发言人林剑5月6日主持例行记者会。
+亚洲时段早盘金价下跌。
 
-有记者提问：5月6日，日本的88式岸基反舰导弹在美菲“肩并肩”军演中发射，这是战后日本首次在境外发射进攻型导弹。
+现货黄金下跌0.2%，报每盎司4，018.77美元。
 
-请问中方有何评论？
+虽然市场预计金价在跌至每盎司4，000美元后会反弹，但凯投宏观的Hamad Hussain认为，这种贵金属在未来18个月内仍有进一步下跌的空间。
 
-林剑：日本曾对包括菲律宾在内的东南亚国家进行侵略和殖民统治，负有严重历史罪责。
+他指出，美联储加息的前景将推高实际收益率并令金价承压。
 
-在东京审判开庭80周年这一特殊年份，曾经的侵略者不仅未能深刻反省历史罪行，反而打着所谓“安全合作”的幌子，向海外派遣军事力量，发射进攻性导弹。
+该经济学家表示，股市潜在的暴跌也可能对金价造成更大的下行压力，因为在股市突然遭到抛售期间，投资者通常不得不出售优质资产以满足追加保证金的要求。
 
-这一动向再次说明，日本的右翼势力正在推动日本加速“再军事化”进程，不断突破“专守防卫”和国际法、国内法相关规制，一些政策和行动已经远远超出了自卫的范畴。
+凯投宏观预计，到2026年底和2027年底，金价将分别跌至每盎司3，500美元和每盎司3，250美元。
 
-历史教育的严重欠账、历史观的根本性错误，叠加强军备战的战略图谋，日本的“新型军国主义”成势为患，威胁地区和平稳定。
-
-我们敦促日方深刻反省军国主义侵略历史，在军事安全领域恪守承诺、谨言慎行。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 06:45 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-30 06:21 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 06:20 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 06:28 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 06:40 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-30 06:25 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 06:30 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 06:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-30 06:18 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 06:31 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 06:20 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 06:49 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 06:44 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 06:41 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 06:40 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 06:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 06:46 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 06:42 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 06:32 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 06:27 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 06:49 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:44 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/5013217408.shtml)
-- 2026-06-30 06:38 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/041933326.shtml)
-- 2026-06-30 06:28 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/11193.shtml)
-- 2026-06-30 06:45 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/56233.shtml)
-- 2026-06-30 06:32 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/59404775.shtml)
-- 2026-06-30 06:27 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/30147767684.shtml)
-- 2026-06-30 06:21 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/667383.shtml)
-- 2026-06-30 06:43 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/743392563200.shtml)
-- 2026-06-30 06:39 - [点菜也要教吗](http://www.share.minike.top/Article/details/90583.shtml)
-- 2026-06-30 06:42 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/391204.shtml)
-- 2026-06-30 06:36 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/0323757251.shtml)
-- 2026-06-30 06:34 - [急先锋](http://www.blog.minike.top/Article/details/17423253063.shtml)
-- 2026-06-30 06:19 - [我和我的家乡](https://www.share.minike.top/Article/details/1548385.shtml)
-- 2026-06-30 06:19 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/04949048558.shtml)
-- 2026-06-30 06:20 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/9360510217.shtml)
+- 2026-06-30 06:48 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/61469539.shtml)
+- 2026-06-30 06:38 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/76355.shtml)
+- 2026-06-30 06:30 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/16763100.shtml)
+- 2026-06-30 06:40 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/88156271244.shtml)
+- 2026-06-30 06:30 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/878521573.shtml)
+- 2026-06-30 06:45 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/974219199076.shtml)
+- 2026-06-30 06:25 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/549492283.shtml)
+- 2026-06-30 06:44 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/44124126330.shtml)
+- 2026-06-30 06:30 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/738058500.shtml)
+- 2026-06-30 06:42 - [斗破苍穹](https://www.share.minike.top/Article/details/0397431.shtml)
+- 2026-06-30 06:41 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/8381197.shtml)
+- 2026-06-30 06:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/42608.shtml)
+- 2026-06-30 06:42 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/1940614.shtml)
+- 2026-06-30 06:43 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/55670206.shtml)
+- 2026-06-30 06:30 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/679004098764.shtml)

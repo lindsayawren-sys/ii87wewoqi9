@@ -1,60 +1,58 @@
-# 2025银行年报观察室｜增利不增收，中间业务“掉链子”，广州银行有点难
+# 华如科技董事会会议决议公告带“修订痕迹” 公司投资者热线：已在进行处理
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-（来源：北京商报）大湾区金融棋局正酣，区域城商行的生存竞赛已然进入深水区。扎根广州、深耕本土的广州银行，在近日交出了2025年“成绩单”。这一年，广州银行资产规模突破9300亿元，不良贷款余额与不良率“双降”，资产端“稳”的底色持续加固，但盈利端却陷入“增利不增收”的境地。拆解来看，净息差跌至1.05%，资产收益率下行远快于负债成本压降，导致利息净收入出现下滑；手续费及佣金收入
+记者|胥帅 编辑|董兴生 6月24日盘后，华如科技（SZ301302，股价28.15元，市值43.88亿元）披露了《第五届董事会第十七次会议决议公告》。然而，这份公告是带有明显Word修订痕迹和内部审核批注的草稿版本。 根据公告原文，整份文件有名为“Chiara”的修改记录。在排版格式上，文件中可见“删除”“设置格式：字体：（默认）宋体”等软件自动生成的修订标记。 另外，公司内
 
 ## 正文
 
-（来源：北京商报）大湾区金融棋局正酣，区域城商行的生存竞赛已然进入深水区。
+记者|胥帅 编辑|董兴生 6月24日盘后，华如科技（SZ301302，股价28.15元，市值43.88亿元）披露了《第五届董事会第十七次会议决议公告》。
 
-扎根广州、深耕本土的广州银行，在近日交出了2025年“成绩单”。
+然而，这份公告是带有明显Word修订痕迹和内部审核批注的草稿版本。
 
-这一年，广州银行资产规模突破9300亿元，不良贷款余额与不良率“双降”，资产端“稳”的底色持续加固，但盈利端却陷入“增利不增收”的境地。
+根据公告原文，整份文件有名为“Chiara”的修改记录。
 
-拆解来看，净息差跌至1.05%，资产收益率下行远快于负债成本压降，导致利息净收入出现下滑；手续费及佣金收入同比降幅超27%，暴露中间业务创新不足、转型滞后的短板。
+在排版格式上，文件中可见“删除”“设置格式：字体：（默认）宋体”等软件自动生成的修订标记。
 
-更严峻的是，IPO折戟后资本补充渠道受阻，而广州银行资本充足率已然明显下行，资本约束已然成为掣肘信贷扩张、业务创新的瓶颈。
+另外，公司内部人员在起草文件时的讨论批注也被保留。
 
-增利不增收当区域城商行的竞争进入“白热化”阶段，身处粤港澳大湾区的广州银行交出了一份“喜忧参半”的成绩单。
+在非独立董事候选人提名的相关内容旁，留有一条内部批注：“请确认议案名称和公司内部的会议资料等是否一致，已按照股东会通知修改。
 
-2025年，广州银行总资产站上新台阶，达9353.64亿元，比上年末增加805.58亿元，增幅9.42%，显示出强劲的规模扩张动能；与此同时，资产质量持续优化，不良指标实现“双降”，不良贷款余额84.19亿元，同比下降1.06亿元；不良贷款率1.73%，同比下降0.11个百分点。
+股东会通知中的提案名为‘关于公司董事⋯⋯’。
 
-然而，这份看似稳健的成绩单背后，盈利端的结构性矛盾已然凸显，全年实现营业收入125.65亿元，同比下滑8.85%；净利润11.83亿元，同比增长16.91%。
+”此外，在独立董事提名的段落附近，也有批注：“职工代表董事不在此提名，直接由职代会选举产生。
 
 ## 相关推荐
 
-- 2026-06-30 06:29 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 06:34 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 06:30 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 06:45 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 06:38 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-30 06:32 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 06:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 06:22 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 06:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 06:32 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 06:34 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 06:31 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 06:20 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 06:19 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 06:42 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 06:27 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 06:24 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 06:39 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 06:33 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 06:38 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 06:32 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 06:36 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 06:49 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 06:53 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 06:53 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 06:52 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:40 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/30411785055.shtml)
-- 2026-06-30 06:31 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/253805682214.shtml)
-- 2026-06-30 06:31 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/2606609.shtml)
-- 2026-06-30 06:33 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/5600377.shtml)
-- 2026-06-30 06:37 - [美股](http://www.share.kurohicncr.top/Article/details/81442384.shtml)
-- 2026-06-30 06:36 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/26501.shtml)
-- 2026-06-30 06:19 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/974452784737.shtml)
-- 2026-06-30 06:19 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/958404774857.shtml)
-- 2026-06-30 06:46 - [极限挑战第一季](https://www.blog.minike.top/Article/details/436709.shtml)
-- 2026-06-30 06:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/4061675.shtml)
-- 2026-06-30 06:44 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/15837542236.shtml)
-- 2026-06-30 06:18 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/989958995816.shtml)
-- 2026-06-30 06:40 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/00426127.shtml)
-- 2026-06-30 06:23 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/80799.shtml)
-- 2026-06-30 06:42 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/342069.shtml)
+- 2026-06-30 06:31 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/751298386.shtml)
+- 2026-06-30 06:35 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/63042668.shtml)
+- 2026-06-30 06:26 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/062185607.shtml)
+- 2026-06-30 06:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/85883.shtml)
+- 2026-06-30 06:32 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/797772316.shtml)
+- 2026-06-30 06:26 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/9199933.shtml)
+- 2026-06-30 06:36 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/00604578.shtml)
+- 2026-06-30 06:33 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/893381975.shtml)
+- 2026-06-30 06:33 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/5865763.shtml)
+- 2026-06-30 06:35 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/309998130.shtml)
+- 2026-06-30 06:25 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/6067820637.shtml)
+- 2026-06-30 06:47 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/069751232591.shtml)
+- 2026-06-30 06:25 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/2037177654.shtml)
+- 2026-06-30 06:45 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/5496972.shtml)
+- 2026-06-30 06:44 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/68220.shtml)

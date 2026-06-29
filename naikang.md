@@ -1,60 +1,57 @@
-# 东方证券拟通过发行A股股份及支付现金方式购买上海证券100%股权
+# 急修“安保三文件”，暴露日本加速军事转轨的急躁姿态（钟声）
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-东方证券（03958）公布，公司拟通过发行 A 股股份及支付现金的方式购买百联集团、国泰海通、国际投资、国际集团、上海城投合计持有的上海证券 100%的股权。其中，拟通过发行 A 股股份的方式购买百联集团持有的上海证券 50%股权、国际投资持有的上海证券16.3333%股权、国际集团持有的上海证券 7.6767%股权、上海城投持有的上海证券 1%股权；拟通过发行 A 股股份的方
+历史从不宽恕无视教训的冒险者。日方任何形式的“再军事化”举动，不仅是对地区安全稳定的冲击，更是对自身未来最轻率的背弃 围绕年内修订“安保三文件”，日本自民党日前通过该党拟向政府提交的建议草案。草案内容激进，包括大幅增加防卫费、全面取消武器出口限制，以及大力发展进攻性军事力量等。这已非简单的政策调整，而是日本右翼势力加速挣脱战后束缚、全面推进“再军事化”的危险举措，对地区和平稳定
 
 ## 正文
 
-东方证券（03958）公布，公司拟通过发行 A 股股份及支付现金的方式购买百联集团、国泰海通、国际投资、国际集团、上海城投合计持有的上海证券 100%的股权。
+历史从不宽恕无视教训的冒险者。
 
-其中，拟通过发行 A 股股份的方式购买百联集团持有的上海证券 50%股权、国际投资持有的上海证券16.3333%股权、国际集团持有的上海证券 7.6767%股权、上海城投持有的上海证券 1%股权；拟通过发行 A 股股份的方式购买国泰海通持有的上海证券 18.7400%股权，通过支付现金的方式购买国泰海通持有的上海证券 6.2500%股权。
+日方任何形式的“再军事化”举动，不仅是对地区安全稳定的冲击，更是对自身未来最轻率的背弃 围绕年内修订“安保三文件”，日本自民党日前通过该党拟向政府提交的建议草案。
 
-本次发行的股份发行价格为10.29 元/股。
+草案内容激进，包括大幅增加防卫费、全面取消武器出口限制，以及大力发展进攻性军事力量等。
 
-上海证券主要从事的业务包括经纪业务、证券自营业务、期货业务、信用业务等，还包括投资银行、资产管理、基金评价研究等业务。
+这已非简单的政策调整，而是日本右翼势力加速挣脱战后束缚、全面推进“再军事化”的危险举措，对地区和平稳定的潜在冲击不容小觑。
 
-截至2025 年12 月31日，上海证券控制 2 家全资子公司和 1 家全资二级子公司，拥有9 家分公司以及72 家证券营业部，形成以上海为中心，以长三角、珠三角、京津冀、成渝经济圈为主体的经营网络，为广大客户提供全方位、系统性、多层次、专业化的综合金融服务。
+日本政府紧锣密鼓推动修订“安保三文件”，是突破战后“专守防卫”原则的关键一步。
 
-本次交易完成后，上市公司的主营业务将保持不变。
+《国家安全保障战略》《国家防卫战略》《防卫力量整备计划》三份安保文件，被认为是日本安全与防务的总纲领。
 
-上市公司将通过整合双方资源形成优势互补，扩大公司资产规模和资本实力，进一步提升综合金融服务能力和上市公司在财富管理、投资银行、机构服务等领域的竞争力，巩固综合竞争优势和行业地位，提升金融服务实体经济质效和服务经济社会发展能级。
+2022年底，日本政府通过现行版本，原计划到2027财年将防卫费提升至国内生产总值(GDP)的2%。
 
-责任编辑：卢昱君
+然而，高市早苗上台后便加快推进相关计划，将这一目标提前至2025财年完成。
 
 ## 相关推荐
 
-- 2026-06-30 06:34 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 06:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 06:29 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 06:43 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-30 06:46 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-30 06:34 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 06:31 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 06:37 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 06:36 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 06:41 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 06:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 06:30 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-30 06:32 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 06:29 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 06:33 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 06:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 06:46 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 06:25 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 06:47 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-30 06:40 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 06:39 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 06:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-30 06:26 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 06:24 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 06:42 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:30 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/5511334474.shtml)
-- 2026-06-30 06:30 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/172549702126.shtml)
-- 2026-06-30 06:23 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/558281847857.shtml)
-- 2026-06-30 06:38 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/956488.shtml)
-- 2026-06-30 06:47 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/764360.shtml)
-- 2026-06-30 06:23 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/462026.shtml)
-- 2026-06-30 06:19 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/4805492190.shtml)
-- 2026-06-30 06:43 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/89419500.shtml)
-- 2026-06-30 06:41 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/109187.shtml)
-- 2026-06-30 06:37 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/263980103110.shtml)
-- 2026-06-30 06:23 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/92612.shtml)
-- 2026-06-30 06:41 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/01777177.shtml)
-- 2026-06-30 06:33 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/919758.shtml)
-- 2026-06-30 06:41 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/230176781841.shtml)
-- 2026-06-30 06:42 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/1987854269.shtml)
+- 2026-06-30 06:38 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/3454682.shtml)
+- 2026-06-30 06:44 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/333510873.shtml)
+- 2026-06-30 06:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/290145596720.shtml)
+- 2026-06-30 06:46 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/161120.shtml)
+- 2026-06-30 06:48 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/8537633.shtml)
+- 2026-06-30 06:43 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/18825468.shtml)
+- 2026-06-30 06:51 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/76694.shtml)
+- 2026-06-30 06:43 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/03935003112.shtml)
+- 2026-06-30 06:34 - [日本进球](http://www.blog.minike.top/Article/details/889405.shtml)
+- 2026-06-30 06:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/95689.shtml)
+- 2026-06-30 06:42 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/0015526584.shtml)
+- 2026-06-30 06:39 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/55222.shtml)
+- 2026-06-30 06:32 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/1954362659.shtml)
+- 2026-06-30 06:36 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/440616521712.shtml)
+- 2026-06-30 06:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/685871057975.shtml)

@@ -1,57 +1,60 @@
-# 2026世界数字教育大会将在浙江杭州举办
+# 中国首台重载智能盾构换刀机器人在厦门发布
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月7日电 (记者 曾玥)记者7日从教育部新闻发布会获悉，2026世界数字教育大会将于5月11日至5月13日在浙江杭州举办。 教育部国际合作与交流司司长杨丹介绍，本次大会由教育部和浙江省人民政府共同主办，以“人工智能+教育：变革 发展 治理”为主题，共同展望“人工智能+教育”的全球趋势和全新机遇，讨论人工智能如何推动教育系统性变革，促进教育高质量发展，并构建包容、安全
+中新社厦门6月25日电 (吴冠标 李思源)中国首台重载智能盾构换刀机器人25日在厦门正式发布。当天，该设备在厦金大桥(厦门段)项目环岛路隧道施工现场的“厦金号”盾构机上完成上机调试。 盾构机在挖掘隧道时，刀盘上的滚刀如同“牙齿”，持续切削岩石泥土，磨损极快，需要频繁更换。传统换刀需3名作业人员带压进舱更换，耗时4小时以上，且面临多种风险。 厦门路桥工程公司厦金大桥(厦门段)项目
 
 ## 正文
 
-中新网北京5月7日电 (记者 曾玥)记者7日从教育部新闻发布会获悉，2026世界数字教育大会将于5月11日至5月13日在浙江杭州举办。
+中新社厦门6月25日电 (吴冠标 李思源)中国首台重载智能盾构换刀机器人25日在厦门正式发布。
 
-教育部国际合作与交流司司长杨丹介绍，本次大会由教育部和浙江省人民政府共同主办，以“人工智能+教育：变革 发展 治理”为主题，共同展望“人工智能+教育”的全球趋势和全新机遇，讨论人工智能如何推动教育系统性变革，促进教育高质量发展，并构建包容、安全、可持续的全球教育治理新格局。
+当天，该设备在厦金大桥(厦门段)项目环岛路隧道施工现场的“厦金号”盾构机上完成上机调试。
 
-“本次大会以更加开放包容的姿态，得到全球范围内的广泛关注和积极响应，这次参会的嘉宾层次、覆盖面都创历史新高。
+盾构机在挖掘隧道时，刀盘上的滚刀如同“牙齿”，持续切削岩石泥土，磨损极快，需要频繁更换。
 
-”杨丹说，截至目前，大会外宾达到500多人，主要外宾包括瑞士联邦主席帕姆兰，联合国教科文组织总干事阿纳尼，英国、塞尔维亚、泰国、南非、乌兹别克斯坦、吉尔吉斯斯坦等20余个国家的教育部门负责人，以及包括联合国儿基会、非盟、经合组织等重要国际组织代表。
+传统换刀需3名作业人员带压进舱更换，耗时4小时以上，且面临多种风险。
 
-教育部科学技术与信息化司副司长舒华介绍，本次大会将按照前沿引领、实践赋能、全球共识三个篇章，共发布八项成果。
+厦门路桥工程公司厦金大桥(厦门段)项目标段经理郑联枭称，厦金大桥(厦门段)项目环岛路隧道紧邻海岸线，地下水位高、覆土浅、周边环境复杂，该设备应用于环岛路盾构隧道，将提升盾构换刀效率，节约盾构施工成本。
 
-第一篇章前沿引领，将发布三项成果，包括《中国智慧教育发展报告(2025—2026)》《全球数字教育发展指数(2026年)》和数字教育研究全球十大热点(2026)。
+据介绍，“厦金号”盾构机使用智能盾构换刀机器人搭配项目数字孪生智慧管控系统后，更换单把滚刀时间为25至40分钟，效率提升50%以上，全过程舱内无需人员进入，有效提升盾构施工安全性。
 
-其中，本年度参评《全球数字教育发展指数(2026年)》的国家和地区从72个扩展至82个，首次将“超越人工智能的思维能力培养”纳入指数研究，深化对“人工智能+教育”的洞察。
+中国工程院院士钱七虎表示，智能换刀机器人的研发为中国交通工程装备自主化、无人化、智能化发展探索了新路径，也为产业化应用奠定了基础。
 
-第二篇章实践赋能，将发布四项成果，包括中国智慧教育公共服务平台升级、《人工智能教育伦理：参考框架》、世界数字教育创新十大案例以及《人工智能教育应用系统》《人工智能赋能智慧校园基本要素》两项世界数字教育联盟标准。
+该机器人整机软硬件实现100%国产化，拥有完全自主知识产权。
 
 ## 相关推荐
 
-- 2026-06-30 06:47 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 06:20 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 06:26 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 06:43 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 06:32 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 06:32 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 06:34 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 06:38 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 06:29 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-30 06:31 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 06:43 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 06:47 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 06:46 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 06:34 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 06:34 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 06:45 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 06:34 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 06:31 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 06:38 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 06:44 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 06:32 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 06:26 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 06:31 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 06:35 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 06:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:34 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/73121226.shtml)
-- 2026-06-30 06:40 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/012764993.shtml)
-- 2026-06-30 06:20 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/5514101.shtml)
-- 2026-06-30 06:22 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/995582381728.shtml)
-- 2026-06-30 06:41 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/1416305137.shtml)
-- 2026-06-30 06:29 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/10641157.shtml)
-- 2026-06-30 06:27 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/067698.shtml)
-- 2026-06-30 06:36 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/847305040753.shtml)
-- 2026-06-30 06:29 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/665815.shtml)
-- 2026-06-30 06:34 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/168895755.shtml)
-- 2026-06-30 06:35 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/790067696510.shtml)
-- 2026-06-30 06:42 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/716203349905.shtml)
-- 2026-06-30 06:43 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/305695.shtml)
-- 2026-06-30 06:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/5635649.shtml)
-- 2026-06-30 06:46 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/24475.shtml)
+- 2026-06-30 06:47 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/55316.shtml)
+- 2026-06-30 06:47 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/894803.shtml)
+- 2026-06-30 06:39 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/231343535.shtml)
+- 2026-06-30 06:52 - [美人鱼](http://www.share.minike.top/Article/details/4572664785.shtml)
+- 2026-06-30 06:33 - [爱很美味](https://www.share.minike.top/Article/details/58930808.shtml)
+- 2026-06-30 06:33 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/151875895435.shtml)
+- 2026-06-30 06:32 - [起风了](http://www.share.kurohicncr.top/Article/details/27521712388.shtml)
+- 2026-06-30 06:28 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/5451029813.shtml)
+- 2026-06-30 06:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/303046198.shtml)
+- 2026-06-30 06:36 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/14955480711.shtml)
+- 2026-06-30 06:37 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/110856680.shtml)
+- 2026-06-30 06:39 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/18559640.shtml)
+- 2026-06-30 06:24 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/704482345.shtml)
+- 2026-06-30 06:41 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/642110.shtml)
+- 2026-06-30 06:33 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/20864919.shtml)

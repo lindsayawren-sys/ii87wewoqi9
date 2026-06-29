@@ -1,57 +1,45 @@
-# A股5月“开门红” 科技叙事激活市场情绪
+# 广东珠海：群众失足坠海，海警联动公安消防迅速施救
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！证券时报记者 胡华雄 “五一”假期后首个交易日，A股市场整体大幅上涨，其中科技类股票涨幅可观——科技叙事激活市场情绪，赚钱效应显著，国产半导体和芯片类相关股票表现尤为突出。 当天上证指数和深证成指分别上涨1.17%和2.33%，反映科创板上市公司证券整体表现的科创综指则大涨3.75%，盘中一度暴涨逾5%，创
+发布时间：2026年06月24日 15:44 来源：中国新闻网 近日，广东珠海，外伶仃岛客运码头突发群众坠海险情，海警联动公安、消防极速驰援，三分钟成功施救，上演“生死时速”。(来源：广东海警局 作者：邓榕烜、卢俊、吴长德） 责任编辑：【魏聪聪】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年06月24日 15:44 来源：中国新闻网 近日，广东珠海，外伶仃岛客运码头突发群众坠海险情，海警联动公安、消防极速驰援，三分钟成功施救，上演“生死时速”。
 
-证券时报记者 胡华雄 “五一”假期后首个交易日，A股市场整体大幅上涨，其中科技类股票涨幅可观——科技叙事激活市场情绪，赚钱效应显著，国产半导体和芯片类相关股票表现尤为突出。
-
-当天上证指数和深证成指分别上涨1.17%和2.33%，反映科创板上市公司证券整体表现的科创综指则大涨3.75%，盘中一度暴涨逾5%，创出该指数发布以来历史新高。
-
-其中，反映科创板代表性芯片产业上市公司证券整体表现的上证科创板芯片指数大涨5.92%，当天盘中最大涨幅一度接近10%。
-
-据Wind统计口径，当天市场整体成交量明显放大，沪深北三市合计成交额约3.25万亿元，创出最近3个多月新高，单日激增逾4000亿元。
-
-A股市场芯片股的活跃既体现在价格上，也体现在成交量上。
-
-当天上证科创板芯片指数成份股中，佰维存储、海光信息、澜起科技、仕佳光子收盘涨幅均超过10%，盘中股价均创出历史新高，寒武纪股价首次突破1900元，亦创出历史新高。
-
-此外，当天上证科创板芯片指数成份股合计成交2303亿元，创出该指数发布以来历史新高，其中寒武纪、澜起科技、海光信息、佰维存储、中芯国际、芯原股份等股票成交额均超过百亿元。
+(来源：广东海警局 作者：邓榕烜、卢俊、吴长德） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 06:23 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 06:25 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 06:31 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 06:44 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 06:44 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 06:34 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 06:29 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 06:28 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 06:46 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 06:26 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 06:18 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 06:46 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 06:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 06:39 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 06:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 06:41 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 06:52 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 06:49 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 06:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 06:53 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 06:43 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 06:50 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:23 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/0053437.shtml)
-- 2026-06-30 06:27 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/20393.shtml)
-- 2026-06-30 06:21 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/6755756.shtml)
-- 2026-06-30 06:32 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/97692958338.shtml)
-- 2026-06-30 06:42 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/98166208.shtml)
-- 2026-06-30 06:35 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/522373738441.shtml)
-- 2026-06-30 06:20 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/068709189757.shtml)
-- 2026-06-30 06:42 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/7950849309.shtml)
-- 2026-06-30 06:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/409694.shtml)
-- 2026-06-30 06:24 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/41793571.shtml)
-- 2026-06-30 06:33 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/3710515.shtml)
-- 2026-06-30 06:27 - [巴西2比1日本](http://www.blog.minike.top/Article/details/1380148639.shtml)
-- 2026-06-30 06:35 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/325679280.shtml)
-- 2026-06-30 06:24 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/43555.shtml)
-- 2026-06-30 06:26 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/500682587.shtml)
+- 2026-06-30 06:37 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/4087923040.shtml)
+- 2026-06-30 06:30 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/74937744.shtml)
+- 2026-06-30 06:51 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/0644020177.shtml)
+- 2026-06-30 06:31 - [金刚川](http://www.blog.kurohicncr.top/Article/details/341000.shtml)
+- 2026-06-30 06:26 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/007848.shtml)
+- 2026-06-30 06:46 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/164945.shtml)
+- 2026-06-30 06:38 - [月亮](http://www.share.minike.top/Article/details/2681579698.shtml)
+- 2026-06-30 06:40 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/6754448746.shtml)
+- 2026-06-30 06:33 - [千与千寻](http://www.share.kurohicncr.top/Article/details/28774.shtml)
+- 2026-06-30 06:27 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/694054551.shtml)
+- 2026-06-30 06:33 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/1969347.shtml)
+- 2026-06-30 06:26 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/556846647.shtml)
+- 2026-06-30 06:41 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/88772190.shtml)
+- 2026-06-30 06:33 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/15119.shtml)
+- 2026-06-30 06:51 - [锐评T1零封KC](https://www.share.minike.top/Article/details/1636827.shtml)

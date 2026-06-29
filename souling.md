@@ -1,57 +1,56 @@
-# 赵建平重仓！这条赛道夏季、秋季会继续迎来加速上涨行情！
+# 山西汾阳市委统战部、市新联会走进牧庄村开展暖心敬老志愿服务
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券市场周刊市场号 没有经常“点赞”“在看”“留言”的 ，也会慢慢收不到推送。 文 | 尚扬 “五一”小长假后，A股上演了“红五月”行情，指数集体高开高走，全程单边上行，丝毫不给回调机会。 市场情绪拉满，资金跑步入场，5月6日节后首个交易日，市场成交额达3.25万亿元，比节前最后一个交易日猛增近500
+【新联会】凝“新”聚“能” 守护最美夕阳——市委统战部、市新联会走进牧庄村开展暖心敬老志愿服务 为传承中华民族敬老、爱老、助老的传统美德，切实将暖心关怀精准送到老年群众身边，6月23日，汾阳市委统战部联合市新的社会阶层人士联谊会、正能量志愿者团队，深入栗家庄镇牧庄村日间照料中心，开展“凝‘新’聚‘能’ 守护最美夕阳”主题敬老志愿服务活动。市委统战部副部长任婧出席活动，市新联会会
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+【新联会】凝“新”聚“能” 守护最美夕阳——市委统战部、市新联会走进牧庄村开展暖心敬老志愿服务 为传承中华民族敬老、爱老、助老的传统美德，切实将暖心关怀精准送到老年群众身边，6月23日，汾阳市委统战部联合市新的社会阶层人士联谊会、正能量志愿者团队，深入栗家庄镇牧庄村日间照料中心，开展“凝‘新’聚‘能’ 守护最美夕阳”主题敬老志愿服务活动。
 
-来源：证券市场周刊市场号 没有经常“点赞”“在看”“留言”的 ，也会慢慢收不到推送。
+市委统战部副部长任婧出席活动，市新联会会长原华强、秘书长樊新旺等新联会成员参加。
 
-文 | 尚扬 “五一”小长假后，A股上演了“红五月”行情，指数集体高开高走，全程单边上行，丝毫不给回调机会。
+活动现场设置一站式便民服务专区，精准匹配老年人日常需求。
 
-市场情绪拉满，资金跑步入场，5月6日节后首个交易日，市场成交额达3.25万亿元，比节前最后一个交易日猛增近5000亿元，赚钱效应明显。
+义剪志愿者细致询问老人喜好，提供免费理发服务；摄影志愿者贴心搀扶老人入座，细心整理衣着、调整姿态，用镜头定格美好瞬间。
 
-5月7日，成交额仍在3万亿元以上。
+服务间隙，志愿者与老人围坐谈心，细致了解生活起居与身体状况，以贴心陪伴舒缓老人孤寂，现场氛围温暖融洽。
 
-板块方面，科技成长赛道携手继续上行，AI算力、半导体、存储芯片掀起涨停潮，硬科技成为了资金主攻方向。
+本次活动整合新阶层企业、本土商户志愿力量，实现公益资源联动助力。
 
-资深市场人士彭祖表示，牛市行情会在夏秋两季继续演绎，4月是开始，5月会加速，秋季则还有一轮大攻势。
+市新联会会员单位领舞者旭萍艺校、龙泰礼宴、驴哥车行、汾都香小米、豆芽摄影等捐赠价值2000元爱心物资，并提供便民服务；正能量志愿者团队捐赠米面油等生活物资，并全程记录活动温情瞬间，以实物帮扶、现场服务为老年人送上切实关怀。
 
-AI驱动周期远超以往，客户订单能见度延伸至未来两年，行业尚看不到终点。
+爱心传递温情，服务温暖晚年。
 
 ## 相关推荐
 
-- 2026-06-30 06:47 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 06:37 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 06:25 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 06:39 - [《共患难》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 06:20 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 06:30 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-30 06:23 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 06:29 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 06:38 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 06:29 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 06:36 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 06:35 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 06:50 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 06:50 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 06:26 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 06:30 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 06:31 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-30 06:42 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 06:32 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 06:46 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 06:51 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:22 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/205123778.shtml)
-- 2026-06-30 06:46 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/884614.shtml)
-- 2026-06-30 06:18 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/7574982071.shtml)
-- 2026-06-30 06:41 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/071327.shtml)
-- 2026-06-30 06:47 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/734634358.shtml)
-- 2026-06-30 06:26 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/02194449.shtml)
-- 2026-06-30 06:37 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/97731612776.shtml)
-- 2026-06-30 06:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/6929199003.shtml)
-- 2026-06-30 06:25 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/045655301.shtml)
-- 2026-06-30 06:46 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/59428.shtml)
-- 2026-06-30 06:26 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/11461548200.shtml)
-- 2026-06-30 06:30 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/05553616.shtml)
-- 2026-06-30 06:19 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/54257545.shtml)
-- 2026-06-30 06:42 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/6441029.shtml)
-- 2026-06-30 06:47 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/29902748.shtml)
+- 2026-06-30 06:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/9416261.shtml)
+- 2026-06-30 06:43 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/553616303203.shtml)
+- 2026-06-30 06:26 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/5733638773.shtml)
+- 2026-06-30 06:53 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/02609142809.shtml)
+- 2026-06-30 06:40 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/92841422.shtml)
+- 2026-06-30 06:39 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/2940929080.shtml)
+- 2026-06-30 06:42 - [第一炉香](http://www.share.kurohicncr.top/Article/details/93428.shtml)
+- 2026-06-30 06:40 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/509947573.shtml)
+- 2026-06-30 06:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/84064.shtml)
+- 2026-06-30 06:49 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/52304600619.shtml)
+- 2026-06-30 06:32 - [周生如故](http://www.share.kurohicncr.top/Article/details/988401803.shtml)
+- 2026-06-30 06:50 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/45935163183.shtml)
+- 2026-06-30 06:29 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/25828139388.shtml)
+- 2026-06-30 06:28 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/610109125.shtml)
+- 2026-06-30 06:32 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/69342409211.shtml)

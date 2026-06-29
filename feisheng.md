@@ -1,61 +1,52 @@
-# AI芯片“搬运工”中电港：营收破500亿，负债率82%，现金流失血51亿
+# VITASOY INT‘L发布年度业绩 股东应占溢利2.74亿港元同比增长17%
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：市值风云 高增长的AB面。 作者 | beyond 编辑 | 小白 如果你关注半导体赛道，大概率听过“AI芯片”“算力”“存储”这些热词。但你可能不知道，在英伟达、AMD这些芯片原厂和下游服务器、汽车厂商之间，还藏着一类“搬运工”——电子元器件分销商。 中电港（001287.SZ，公司），正是中国本土
+VITASOY INT‘L（00345）发布截至2026年3月31日止年度业绩，收入60.61亿港元，同比减少3%；公司股权持有人应占溢利2.74亿港元，同比增长17%；每股基本盈利26.3港仙。拟派发末期股息每股普通股13.5港仙。 集团收入较上一个财政年度减少3%，主要由于中国内地及香港业务（特别是澳门特别行政区及维他天地业务）疲弱的营商环境所致。公司股权持有人应占溢利增加
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+VITASOY INT‘L（00345）发布截至2026年3月31日止年度业绩，收入60.61亿港元，同比减少3%；公司股权持有人应占溢利2.74亿港元，同比增长17%；每股基本盈利26.3港仙。
 
-来源：市值风云 高增长的AB面。
+拟派发末期股息每股普通股13.5港仙。
 
-作者 | beyond 编辑 | 小白 如果你关注半导体赛道，大概率听过“AI芯片”“算力”“存储”这些热词。
+集团收入较上一个财政年度减少3%，主要由于中国内地及香港业务（特别是澳门特别行政区及维他天地业务）疲弱的营商环境所致。
 
-但你可能不知道，在英伟达、AMD这些芯片原厂和下游服务器、汽车厂商之间，还藏着一类“搬运工”——电子元器件分销商。
+公司股权持有人应占溢利增加17%至2.74亿港元，得益于出售维他奶（上海）有限公司持有的土地及楼宇（VSL 出售事项）的收益以及营运过程中有效合理控制经营成本，惟部分升幅被毛利下降、澳洲减值费用（VAP 减值）以及税项支出增加所抵销。
 
-中电港（001287.SZ，公司），正是中国本土最大的电子元器件分销商。
-
-这家背靠中国电子信息产业集团的公司，2025年前三季度营收突破505亿元，净利润同比增长73%，AI相关业务更是暴增144%。
-
-（来源：公司2025年三季报） 但与此同时，它的资产负债率超过80%，经营现金流净流出51亿元——高增长的光环下，财务“走钢丝”的惊险同样真实。
-
-公司经营质量如何，我们一探究竟。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:31 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 06:23 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 06:32 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 06:40 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 06:20 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 06:20 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 06:33 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 06:46 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 06:23 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 06:40 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 06:41 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 06:35 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 06:33 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 06:35 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 06:39 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 06:29 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 06:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 06:40 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 06:37 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 06:32 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 06:45 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 06:37 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 06:34 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 06:30 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 06:47 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 06:33 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 06:30 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:27 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/7275288539.shtml)
-- 2026-06-30 06:29 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/0869672730.shtml)
-- 2026-06-30 06:28 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/18442295.shtml)
-- 2026-06-30 06:38 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/839836073209.shtml)
-- 2026-06-30 06:27 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/5922155.shtml)
-- 2026-06-30 06:41 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/568040.shtml)
-- 2026-06-30 06:24 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/819042273.shtml)
-- 2026-06-30 06:32 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/28580.shtml)
-- 2026-06-30 06:32 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/95428986.shtml)
-- 2026-06-30 06:21 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/5501207.shtml)
-- 2026-06-30 06:23 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/470909.shtml)
-- 2026-06-30 06:19 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/69460270780.shtml)
-- 2026-06-30 06:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/44735993365.shtml)
-- 2026-06-30 06:34 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/643642.shtml)
-- 2026-06-30 06:44 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/04174812633.shtml)
+- 2026-06-30 06:25 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/29781.shtml)
+- 2026-06-30 06:53 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/124211.shtml)
+- 2026-06-30 06:28 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/89756.shtml)
+- 2026-06-30 06:40 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/125717.shtml)
+- 2026-06-30 06:40 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/17235695.shtml)
+- 2026-06-30 06:48 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/951817823.shtml)
+- 2026-06-30 06:42 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/3698558.shtml)
+- 2026-06-30 06:51 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/46867924199.shtml)
+- 2026-06-30 06:47 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/26848.shtml)
+- 2026-06-30 06:36 - [天道](http://www.blog.kurohicncr.top/Article/details/0772809566.shtml)
+- 2026-06-30 06:43 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/42140.shtml)
+- 2026-06-30 06:35 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/3402108034.shtml)
+- 2026-06-30 06:34 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/486980927.shtml)
+- 2026-06-30 06:48 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/06514.shtml)
+- 2026-06-30 06:43 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/86162661578.shtml)

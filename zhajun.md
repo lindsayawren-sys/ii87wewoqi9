@@ -1,56 +1,45 @@
-# 再过五年甘肃算力规模有望突破50万P
+# 国际金价银价24日大跌
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新社兰州5月6日电 (记者 闫姣 丁思)再过五年，甘肃省算力规模有望突破50万P(千万亿次浮点运算/秒)，成为中国西部最大算力保障基地。 甘肃省政府新闻办公室6日在兰州举行“开局起步‘十五五’——奋力谱写中国式现代化甘肃篇章”专场新闻发布会，发布上述信息。该省近年累计签约头部数字经济企业1600多家，建成标准机架超10万个，智算规模突破15万P。 “我们优质的算力服务已延伸到
+发布时间：2026年06月25日 10:53 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新社兰州5月6日电 (记者 闫姣 丁思)再过五年，甘肃省算力规模有望突破50万P(千万亿次浮点运算/秒)，成为中国西部最大算力保障基地。
-
-甘肃省政府新闻办公室6日在兰州举行“开局起步‘十五五’——奋力谱写中国式现代化甘肃篇章”专场新闻发布会，发布上述信息。
-
-该省近年累计签约头部数字经济企业1600多家，建成标准机架超10万个，智算规模突破15万P。
-
-“我们优质的算力服务已延伸到北美、欧洲和亚太地区，把算力真正打造成了可供全国使用、又可出海贸易的数字经济产品。
-
-”甘肃省委常委、常务副省长程晓波表示，庆阳数据中心集群目前已成为八大枢纽中增速最快、智算占比最高、消纳最充分的集群。
-
-“眼下，庆阳东数西算园区塔吊林立、商客云集，机架和算力供不应求。
-
-”程晓波称，庆阳区位优势明显，地质条件稳定，适宜发展大数据和算力产业。
-
-当地通过创新使用“绿电聚合”模式，大幅降低用电成本，园区到户电价只有东部地区一半，将“瓦特”优势转化为“比特”优势。
+发布时间：2026年06月25日 10:53 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 06:37 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 06:30 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 06:32 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 06:18 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 06:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 06:41 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 06:18 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 06:40 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 06:20 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 06:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 06:50 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 06:41 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 06:30 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 06:37 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 06:45 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 06:39 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 06:50 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 06:48 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 06:31 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 06:45 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 06:26 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 06:44 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 06:39 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:39 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/396936.shtml)
-- 2026-06-30 06:38 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/87468606.shtml)
-- 2026-06-30 06:23 - [送你一朵小红花](https://www.share.minike.top/Article/details/57292984.shtml)
-- 2026-06-30 06:41 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/42749128681.shtml)
-- 2026-06-30 06:21 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/11367241.shtml)
-- 2026-06-30 06:32 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/130024.shtml)
-- 2026-06-30 06:36 - [沙丘](http://www.blog.minike.top/Article/details/663740.shtml)
-- 2026-06-30 06:40 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/5302856803.shtml)
-- 2026-06-30 06:40 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/62701.shtml)
-- 2026-06-30 06:35 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/148640957950.shtml)
-- 2026-06-30 06:44 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/65481525875.shtml)
-- 2026-06-30 06:40 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/91893444006.shtml)
-- 2026-06-30 06:19 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/2906336.shtml)
-- 2026-06-30 06:35 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/0209351853.shtml)
-- 2026-06-30 06:22 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/4495019.shtml)
+- 2026-06-30 06:31 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/3077363870.shtml)
+- 2026-06-30 06:31 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/0401269341.shtml)
+- 2026-06-30 06:34 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/75336707169.shtml)
+- 2026-06-30 06:49 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/47046164985.shtml)
+- 2026-06-30 06:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/0079618.shtml)
+- 2026-06-30 06:27 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/921422.shtml)
+- 2026-06-30 06:33 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/44893.shtml)
+- 2026-06-30 06:30 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/3248160198.shtml)
+- 2026-06-30 06:25 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/152311.shtml)
+- 2026-06-30 06:24 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/476205879.shtml)
+- 2026-06-30 06:27 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/65384541.shtml)
+- 2026-06-30 06:47 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/403140333.shtml)
+- 2026-06-30 06:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/63406.shtml)
+- 2026-06-30 06:26 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/59566509.shtml)
+- 2026-06-30 06:49 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/4852566344.shtml)

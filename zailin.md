@@ -1,59 +1,59 @@
-# 中国智造背后的创新力量（人民论坛）
+# 高通预计到2029年手机以外芯片收入将达400亿美元，数据中心芯片收入将达150亿美元
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-近日，第139届广交会上的一幕，火遍海内外社交平台。一名来自阿根廷的肌无力患者，在浙江杭州企业太希智能的外骨骼机器人辅助下，从轮椅上缓缓起身，迈出久违步伐，同伴喜极而泣。短短几十秒，科技的力量与温情有了具象表达。有网友留言：“这背后，是中国智造的硬核挺立。”“从0到1”，“造得出”的能力，源于热带雨林般的创新生态。 外骨骼机器人的应用，从科幻走进现实，涉及人工智能、人机交互等多
+高通公司周三表示，随着其业务重心从核心智能手机芯片转向其他领域，预计到 2029 年，其数据中心业务的销售额将达到 150 亿美元。受此消息提振，该公司股价在周三盘后交易中上涨超过 12%。 高通首席财务官Akash Palkhiwala在投资者介绍会上表示，数据中心业务将在 2027 财年带来 50 亿美元的收入，其中 10 亿美元来自新的定制芯片客户。 高通还表示，预计到
 
 ## 正文
 
-近日，第139届广交会上的一幕，火遍海内外社交平台。
+高通公司周三表示，随着其业务重心从核心智能手机芯片转向其他领域，预计到 2029 年，其数据中心业务的销售额将达到 150 亿美元。
 
-一名来自阿根廷的肌无力患者，在浙江杭州企业太希智能的外骨骼机器人辅助下，从轮椅上缓缓起身，迈出久违步伐，同伴喜极而泣。
+受此消息提振，该公司股价在周三盘后交易中上涨超过 12%。
 
-短短几十秒，科技的力量与温情有了具象表达。
+高通首席财务官Akash Palkhiwala在投资者介绍会上表示，数据中心业务将在 2027 财年带来 50 亿美元的收入，其中 10 亿美元来自新的定制芯片客户。
 
-有网友留言：“这背后，是中国智造的硬核挺立。
+高通还表示，预计到 2029 年，智能手机以外的芯片收入将达到 400 亿美元，高于之前预计的 220 亿美元，而届时手机芯片将仅占其芯片收入的三分之一。
 
-”“从0到1”，“造得出”的能力，源于热带雨林般的创新生态。
+“我们将真正实现多元化，”Palkhiwala说。
 
-外骨骼机器人的应用，从科幻走进现实，涉及人工智能、人机交互等多个尖端领域，离不开企业潜心研发。
+为高通众多芯片提供底层技术的Arm Holdings的股价在预测发布后也上涨了5%。
 
-但这份突破，绝非孤军奋战的传奇，而是支撑网络环环相扣的共创。
+美国银行分析师此前曾表示，预计到2027-2028财年，高通的数据中心业务每年将带来约20亿至50亿美元的营收。
 
-浙大校友基金会领投天使轮，高校与企业组成“产学研用”矩阵，杭州拱墅区开辟专利快速预审通道……阳光雨露充沛，创新种子自能破土而出、拔节生长。
+当天早些时候，高通公司表示，微软和Meta Platforms将使用其新型AI芯片，并且还将为另外两家未透露名称的“超大规模云服务商”定制芯片。
 
 ## 相关推荐
 
-- 2026-06-30 06:26 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 06:44 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 06:38 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 06:46 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 06:23 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 06:32 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 06:36 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 06:22 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 06:32 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 06:39 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 06:20 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 06:31 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 06:44 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 06:38 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 06:38 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 06:51 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 06:44 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 06:53 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 06:39 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 06:44 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 06:52 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 06:27 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 06:29 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 06:34 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 06:31 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 06:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:42 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/164627634.shtml)
-- 2026-06-30 06:45 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/557247.shtml)
-- 2026-06-30 06:45 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/764197823318.shtml)
-- 2026-06-30 06:43 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/66851896.shtml)
-- 2026-06-30 06:43 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/0278315167.shtml)
-- 2026-06-30 06:29 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/69998135.shtml)
-- 2026-06-30 06:31 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/870300.shtml)
-- 2026-06-30 06:20 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/7252340.shtml)
-- 2026-06-30 06:43 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/43246.shtml)
-- 2026-06-30 06:26 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/32995921622.shtml)
-- 2026-06-30 06:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/1268633.shtml)
-- 2026-06-30 06:42 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/74849.shtml)
-- 2026-06-30 06:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/11635063.shtml)
-- 2026-06-30 06:19 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/287909.shtml)
-- 2026-06-30 06:40 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/89217606.shtml)
+- 2026-06-30 06:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/117785659.shtml)
+- 2026-06-30 06:48 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/613530.shtml)
+- 2026-06-30 06:51 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/9094177972.shtml)
+- 2026-06-30 06:27 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/9853654.shtml)
+- 2026-06-30 06:33 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/3744645964.shtml)
+- 2026-06-30 06:44 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/241670.shtml)
+- 2026-06-30 06:31 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/00531.shtml)
+- 2026-06-30 06:45 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/8824857.shtml)
+- 2026-06-30 06:33 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/744847466237.shtml)
+- 2026-06-30 06:39 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/556766132301.shtml)
+- 2026-06-30 06:27 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/6262812.shtml)
+- 2026-06-30 06:39 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/391862454365.shtml)
+- 2026-06-30 06:28 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/794442.shtml)
+- 2026-06-30 06:40 - [斗破苍穹](http://www.blog.minike.top/Article/details/120463.shtml)
+- 2026-06-30 06:28 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/79246338594.shtml)

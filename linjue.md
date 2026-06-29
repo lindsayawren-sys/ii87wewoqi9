@@ -1,60 +1,61 @@
-# 快手-W盘中涨超8% 花旗给予“买入”评级
+# 欧洲政策研究中心研究主任：中欧在应对人工智能等方面拥有共同利益
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-快手-W（01024）盘中涨超8%，截至发稿，股价上涨6.62%，现报47.98港元，成交额26.55亿港元。 近日，据快手-W旗下大模型可灵AI官微消息，可灵AI在视频3.0系列模型中推出原生4K直出功能，支持一键生成院线级质感视频，为业内首个原生4K直出的视频模型。该功能面向影视及广告等专业视频行业客户，可在无需复杂后期处理的情况下，直接输出高分辨率画面，实现影视工业级视觉
+中新网上海6月25日电 (记者 李佳佳)欧洲政策研究中心(CEPS)研究主任、欧洲大学学院新兴技术兼职教授、欧洲学院布鲁日校区人工智能政策与治理客座教授安德烈·伦达(Andrea Renda)近日援引“竞合”概念，即竞争与合作并存，指出中国和欧洲虽然在某些领域存在竞争，但在应对人工智能等全球性挑战方面拥有共同利益。 Andrea Renda教授是在中欧国际工商学院第十二届欧洲论
 
 ## 正文
 
-快手-W（01024）盘中涨超8%，截至发稿，股价上涨6.62%，现报47.98港元，成交额26.55亿港元。
+中新网上海6月25日电 (记者 李佳佳)欧洲政策研究中心(CEPS)研究主任、欧洲大学学院新兴技术兼职教授、欧洲学院布鲁日校区人工智能政策与治理客座教授安德烈·伦达(Andrea Renda)近日援引“竞合”概念，即竞争与合作并存，指出中国和欧洲虽然在某些领域存在竞争，但在应对人工智能等全球性挑战方面拥有共同利益。
 
-近日，据快手-W旗下大模型可灵AI官微消息，可灵AI在视频3.0系列模型中推出原生4K直出功能，支持一键生成院线级质感视频，为业内首个原生4K直出的视频模型。
+Andrea Renda教授是在中欧国际工商学院第十二届欧洲论坛布鲁塞尔站上发表该观点的，论坛在布鲁塞尔Residence Palace与中欧国际工商学院上海校区两地同步举行，由中欧国际工商学院携手欧盟中国贸易协会、欧盟中国商会(CCCEU)等重要机构联合主办，汇聚中欧两地的政策制定者、商界领袖、学者与技术专家，围绕“竞合共生？
 
-该功能面向影视及广告等专业视频行业客户，可在无需复杂后期处理的情况下，直接输出高分辨率画面，实现影视工业级视觉效果。
+中欧AI发展合作机遇”这一主题展开深入探讨。
 
-花旗发布研报称，预计快手-W（01024）将于5月底公布2026年首季业绩。
+随着人工智能深刻重塑产业、经济与全球治理格局，中国与欧洲各自的优势愈加鲜明：中国拥有广泛的应用场景、强大的工程能力和庞大的产业规模，欧洲则在健全的治理体系、可信赖的技术框架和监管经验方面见长。
 
-该行预期，公司收入及经调整盈利大致符合市场共识。
+在此背景下，双方围绕创新、治理与共同发展开展对话变得空前重要。
 
-受2025年第四季度电商行业新税务政策影响，该行维持此前预测，预期2026首季商品交易总额（GMV）增长将放缓至高单位数。
+Andrea Renda教授指出，人工智能的竞争正日益超越大语言模型的范畴，向工业应用、具身智能、基础设施和能源效率等领域延伸。
 
-花旗认为，基于可灵AI的巨大潜力，仍看好快手； 给予“买入” 评级； 目标价72港元。
+他结合近期数据指出，全球人工智能格局正日益由不同的发展模式所塑造：美国在投资和前沿技术方面保持领先，中国在大规模、高性价比的应用上表现突出，欧洲则在研究、人才和监管方面具有优势。
 
-责任编辑：卢昱君
+展望未来，Andrea Renda教授呼吁对技术主权采取更为开放的路径。
 
 ## 相关推荐
 
-- 2026-06-30 06:46 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 06:39 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 06:24 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 06:25 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 06:18 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 06:21 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 06:33 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 06:30 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 06:30 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 06:28 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 06:37 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 06:30 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 06:28 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 06:35 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-30 06:49 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 06:51 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 06:47 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 06:35 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 06:41 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 06:42 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 06:26 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 06:40 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 06:48 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 06:46 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 06:46 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 06:53 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 06:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 06:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 06:49 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:36 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/6777433.shtml)
-- 2026-06-30 06:37 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/85778.shtml)
-- 2026-06-30 06:46 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/0444041870.shtml)
-- 2026-06-30 06:37 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/26400495303.shtml)
-- 2026-06-30 06:26 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/41380.shtml)
-- 2026-06-30 06:37 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/74862316.shtml)
-- 2026-06-30 06:43 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/826269.shtml)
-- 2026-06-30 06:22 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/42958.shtml)
-- 2026-06-30 06:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/22555791483.shtml)
-- 2026-06-30 06:32 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/146897460008.shtml)
-- 2026-06-30 06:47 - [请回答王牌2019](https://www.share.minike.top/Article/details/422317.shtml)
-- 2026-06-30 06:19 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/343035927.shtml)
-- 2026-06-30 06:43 - [苗族银饰](http://www.blog.minike.top/Article/details/1962338.shtml)
-- 2026-06-30 06:38 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/107066.shtml)
-- 2026-06-30 06:24 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/62959479339.shtml)
+- 2026-06-30 06:49 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/401977843145.shtml)
+- 2026-06-30 06:38 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/732849174.shtml)
+- 2026-06-30 06:44 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/4292428833.shtml)
+- 2026-06-30 06:30 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/3515973367.shtml)
+- 2026-06-30 06:28 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/96818460937.shtml)
+- 2026-06-30 06:38 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/1265399.shtml)
+- 2026-06-30 06:46 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/6100349598.shtml)
+- 2026-06-30 06:33 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/0574817.shtml)
+- 2026-06-30 06:47 - [明星大侦探第一季](http://www.share.minike.top/Article/details/27575085841.shtml)
+- 2026-06-30 06:26 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/6255627862.shtml)
+- 2026-06-30 06:34 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/76859612528.shtml)
+- 2026-06-30 06:49 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/75404.shtml)
+- 2026-06-30 06:40 - [日本进球](https://www.blog.kurohicncr.top/Article/details/790424730823.shtml)
+- 2026-06-30 06:51 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/402469618252.shtml)
+- 2026-06-30 06:25 - [恋与深空回应争议](http://www.share.minike.top/Article/details/237623995.shtml)

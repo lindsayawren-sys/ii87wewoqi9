@@ -1,60 +1,56 @@
-# 五一档总票房7.58亿元！它凭什么刷新今年最高分纪录？
+# 多管齐下，严禁“特供酒”抬头
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月6日电(记者 任思雨)据国家电影局统计，2026五一档票房为7.58亿元，观影人次为2084.19万，放映场次为237.6万场。影片《消失的人》《寒战1994》《穿普拉达的女王2》《10间敢死队》《给阿嬷的情书》分列档期票房前五名，这五部影片累计票房均突破5000万。其中，《消失的人》《寒战1994》贡献五一档大盘票房的60%以上。 今年五一档，十余部影片集中上映
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 转自：经济参考报 国务院食安办近日集中通报一批“特供酒”典型违法案件，重申市场上不存在任何官方“特供酒”，各类假借党政军名义的“特供”“专供”酒品均为虚假噱头与假冒伪劣产品。 自2013年五部门联合下发禁令、全面清退相关标识产品以来，十余年治理下，“特供酒”虽从线下公开市场基本销声匿迹，却在灰色地带暗流涌动。伴随电商直播
 
 ## 正文
 
-中新网北京5月6日电(记者 任思雨)据国家电影局统计，2026五一档票房为7.58亿元，观影人次为2084.19万，放映场次为237.6万场。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 转自：经济参考报 国务院食安办近日集中通报一批“特供酒”典型违法案件，重申市场上不存在任何官方“特供酒”，各类假借党政军名义的“特供”“专供”酒品均为虚假噱头与假冒伪劣产品。
 
-影片《消失的人》《寒战1994》《穿普拉达的女王2》《10间敢死队》《给阿嬷的情书》分列档期票房前五名，这五部影片累计票房均突破5000万。
+自2013年五部门联合下发禁令、全面清退相关标识产品以来，十余年治理下，“特供酒”虽从线下公开市场基本销声匿迹，却在灰色地带暗流涌动。
 
-其中，《消失的人》《寒战1994》贡献五一档大盘票房的60%以上。
+伴随电商直播的流量扩张，不法分子改头换面、另辟蹊径，让这一早被明令禁止的灰色产业死灰复燃，甚至演化出更隐蔽、更具迷惑性的新形态。
 
-今年五一档，十余部影片集中上映，涵盖动作、犯罪、喜剧、悬疑、惊悚、爱情、动画等多种类型，给观众带来多样化的选择。
+禁令高悬十余年，这一灰色产业为何屡禁不绝？
 
-在电影供给丰富的同时，票价也更加“亲民”。
+“特供酒”乱象再抬头 在中国白酒行业发展历程中，“特供”“专供”曾一度风靡。
 
-灯塔专业版数据分析师陈晋向记者表示，“相较往年，今年五一档新片发行结算票价整体下调，拉动档期平均票价明显走低。
+随着白酒消费需求增长，一些企业和个人开始利用消费者对“特供”身份的崇拜心理，大肆制售假冒“特供酒”牟取暴利。
 
-2026年五一档平均票价36.4元，去年同期为39.6元，同比减少3.2元、降幅达8%。
+2013年3月，五部门联合下发《关于严禁中央和国家机关使用“特供”“专供”等标识的通知》，明确严禁中央和国家机关各部门及所属行政事业单位使用、自行或授权制售冠以“特供”“专供”等标识的物品。
 
-” 在观众结构层面，2026年五一档男女观众分布较去年更为均衡。
+2024年9月，市场监管总局发布《关于严禁制售“特供酒”的公告》，明确严禁生产销售含有“特供”“专供”“内供”党政机关和军队等类似标识内容的酒类商品，严禁借党政机关和军队等名义违法推销酒类商品，进行虚假或引人误解的商业宣传。
 
 ## 相关推荐
 
-- 2026-06-30 06:19 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 06:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 06:32 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 06:39 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 06:20 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 06:36 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 06:41 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 06:38 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 06:21 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 06:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 06:45 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 06:46 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-30 06:25 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 06:44 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 06:29 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 06:32 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 06:53 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 06:41 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 06:35 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 06:30 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 06:53 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 06:51 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 06:51 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 06:26 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:30 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/9549765197.shtml)
-- 2026-06-30 06:46 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/619023285990.shtml)
-- 2026-06-30 06:31 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/506786741.shtml)
-- 2026-06-30 06:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/4284077630.shtml)
-- 2026-06-30 06:23 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/3859429460.shtml)
-- 2026-06-30 06:22 - [85花告别古偶](http://www.blog.minike.top/Article/details/99939594.shtml)
-- 2026-06-30 06:23 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/817723.shtml)
-- 2026-06-30 06:38 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/08521449.shtml)
-- 2026-06-30 06:23 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/090215271.shtml)
-- 2026-06-30 06:28 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/109673.shtml)
-- 2026-06-30 06:21 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/151874.shtml)
-- 2026-06-30 06:46 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/036066.shtml)
-- 2026-06-30 06:41 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/7619792.shtml)
-- 2026-06-30 06:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/875654314798.shtml)
-- 2026-06-30 06:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/57889788.shtml)
+- 2026-06-30 06:53 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/582804.shtml)
+- 2026-06-30 06:47 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/256943052.shtml)
+- 2026-06-30 06:33 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/63278.shtml)
+- 2026-06-30 06:39 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/41590226.shtml)
+- 2026-06-30 06:28 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/3110873.shtml)
+- 2026-06-30 06:35 - [刘念回应](https://www.share.minike.top/Article/details/4495485769.shtml)
+- 2026-06-30 06:45 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/730202715.shtml)
+- 2026-06-30 06:28 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/42265012549.shtml)
+- 2026-06-30 06:37 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/32835689.shtml)
+- 2026-06-30 06:25 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/146179.shtml)
+- 2026-06-30 06:49 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.minike.top/Article/details/739169.shtml)
+- 2026-06-30 06:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/806200606.shtml)
+- 2026-06-30 06:44 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/296335669.shtml)
+- 2026-06-30 06:27 - [扫黑风暴](http://www.share.minike.top/Article/details/022384720.shtml)
+- 2026-06-30 06:30 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/09973.shtml)

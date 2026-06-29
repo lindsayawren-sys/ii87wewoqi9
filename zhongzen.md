@@ -1,57 +1,56 @@
-# GTC泽汇资本:金价反弹动能增强
+# 中企亮相第41届国际超算大会
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-5月6日，贵金属市场迎来明显反弹，金价在多重因素共振下走高。GTC泽汇资本表示，受美元走软与能源价格回落带动，黄金重新获得上行动力，现货黄金一度上涨逾2%，站上每盎司4660美元上方。与此同时，期货市场同步走强，显示短线资金情绪明显改善，避险与流动性逻辑重新占据主导。 中东局势释放缓和信号成为关键变量之一。市场普遍认为，相关地区冲突存在转向外交解决的可能，使得此前推动油价飙升的
+发布时间：2026年06月24日 13:00 来源：中国新闻网 当地时间6月23日，第41届国际超级计算大会正在德国汉堡举行。 本届大会以“连点成线”为主题，聚焦人工智能(AI)、量子计算等领域发展，以及相关技术在科学研究和产业中的应用。大会期间，全球约188家超算供应商和研究机构现场展示相关产品及研究成果。 中科曙光高级副总裁任京暘在接受中新社记者采访时表示，随着算力规模持续
 
 ## 正文
 
-5月6日，贵金属市场迎来明显反弹，金价在多重因素共振下走高。
+发布时间：2026年06月24日 13:00 来源：中国新闻网 当地时间6月23日，第41届国际超级计算大会正在德国汉堡举行。
 
-GTC泽汇资本表示，受美元走软与能源价格回落带动，黄金重新获得上行动力，现货黄金一度上涨逾2%，站上每盎司4660美元上方。
+本届大会以“连点成线”为主题，聚焦人工智能(AI)、量子计算等领域发展，以及相关技术在科学研究和产业中的应用。
 
-与此同时，期货市场同步走强，显示短线资金情绪明显改善，避险与流动性逻辑重新占据主导。
+大会期间，全球约188家超算供应商和研究机构现场展示相关产品及研究成果。
 
-中东局势释放缓和信号成为关键变量之一。
+中科曙光高级副总裁任京暘在接受中新社记者采访时表示，随着算力规模持续扩大，降低能耗成为行业共识。
 
-市场普遍认为，相关地区冲突存在转向外交解决的可能，使得此前推动油价飙升的风险溢价开始回落。
+中科曙光近年来持续布局液冷技术，在超大规模计算系统冷却赛道上具有独特优势。
 
-GTC泽汇资本认为，能源价格的回调有效缓解了通胀压力预期，也降低了主要央行继续维持紧缩立场的必要性。
+他以大会期间展示的超节点产品ScaleX为例介绍，该产品通过采用浸没式相变液冷技术进行散热，可实现约30%的节能效果，提高设备长期运行稳定性。
 
-在此背景下，黄金所面临的利率压制有所减轻，价格弹性得以释放。
+谈及先进计算产业未来竞争格局，任京暘认为，除了机器性能本身，开放协同的计算生态同样关键。
 
-从宏观环境看，美元走弱为金价提供了直接支撑。
+产业链上下游需要共同攻关关键技术，共享创新成果，形成良性发展环境。
 
 ## 相关推荐
 
-- 2026-06-30 06:33 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 06:28 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 06:26 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 06:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 06:19 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 06:39 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 06:38 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 06:47 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-30 06:38 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 06:25 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 06:37 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 06:44 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 06:24 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 06:44 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 06:53 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 06:34 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 06:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 06:40 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 06:41 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 06:31 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 06:45 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:29 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/58677526948.shtml)
-- 2026-06-30 06:36 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/777367827662.shtml)
-- 2026-06-30 06:18 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/171228524.shtml)
-- 2026-06-30 06:18 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/677679477.shtml)
-- 2026-06-30 06:29 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/19933269.shtml)
-- 2026-06-30 06:41 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/575168776819.shtml)
-- 2026-06-30 06:33 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/26457122.shtml)
-- 2026-06-30 06:43 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/81797962.shtml)
-- 2026-06-30 06:22 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/95659930877.shtml)
-- 2026-06-30 06:45 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/052111131502.shtml)
-- 2026-06-30 06:45 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/900752717055.shtml)
-- 2026-06-30 06:42 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/6406550897.shtml)
-- 2026-06-30 06:20 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.kurohicncr.top/Article/details/1682418739.shtml)
-- 2026-06-30 06:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/469259359.shtml)
-- 2026-06-30 06:44 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/7605870.shtml)
+- 2026-06-30 06:43 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/6520575524.shtml)
+- 2026-06-30 06:35 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/77821132.shtml)
+- 2026-06-30 06:32 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/0257834040.shtml)
+- 2026-06-30 06:31 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/757233761.shtml)
+- 2026-06-30 06:27 - [森保一 保守](http://www.blog.minike.top/Article/details/80922184.shtml)
+- 2026-06-30 06:31 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/17213436092.shtml)
+- 2026-06-30 06:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/07551882.shtml)
+- 2026-06-30 06:47 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/36426388.shtml)
+- 2026-06-30 06:26 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/3530639246.shtml)
+- 2026-06-30 06:41 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/415270.shtml)
+- 2026-06-30 06:34 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/702737.shtml)
+- 2026-06-30 06:47 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/621590248.shtml)
+- 2026-06-30 06:41 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/8446475426.shtml)
+- 2026-06-30 06:50 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/28862809019.shtml)
+- 2026-06-30 06:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/300707726.shtml)

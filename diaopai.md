@@ -1,42 +1,46 @@
-# 矿床地质学家、中国工程院院士陈毓川逝世
+# 深耕高原绿色发展 三江集团擦亮“青字号”产品金名片
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新网5月7日电 据中国地质科学院微信公众号消息，中国共产党优秀党员，中国工程院院士，著名矿床地质学家，原地质矿产部党组成员、总工程师，中国地质科学院原院长陈毓川同志，因病医治无效，于2026年5月6日15时54分在北京大学第一医院逝世，享年92岁。
+发布时间：2026年06月24日 20:40 来源：中国新闻网 近日，青海外贸优品展示推介暨援青之果发布系列活动在北京举办，全方位展示青海特色农牧产业发展成果。作为省属重点国有农牧龙头企业，三江集团深耕四大高原特色全产业链，以种业科创和精深加工为核心，打造高品质“青字号”产品，助力青海绿色有机农畜产品走出高原、走向全国。 记者范思忆 谢龙飞 北京报道 责任编辑：【罗攀】
 
 ## 正文
 
-中新网5月7日电 据中国地质科学院微信公众号消息，中国共产党优秀党员，中国工程院院士，著名矿床地质学家，原地质矿产部党组成员、总工程师，中国地质科学院原院长陈毓川同志，因病医治无效，于2026年5月6日15时54分在北京大学第一医院逝世，享年92岁。
+发布时间：2026年06月24日 20:40 来源：中国新闻网 近日，青海外贸优品展示推介暨援青之果发布系列活动在北京举办，全方位展示青海特色农牧产业发展成果。
+
+作为省属重点国有农牧龙头企业，三江集团深耕四大高原特色全产业链，以种业科创和精深加工为核心，打造高品质“青字号”产品，助力青海绿色有机农畜产品走出高原、走向全国。
+
+记者范思忆 谢龙飞 北京报道 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 06:40 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 06:46 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 06:24 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 06:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 06:32 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 06:18 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 06:41 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 06:29 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 06:38 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 06:21 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 06:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 06:45 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 06:29 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 06:50 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 06:34 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 06:52 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 06:24 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 06:31 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 06:32 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 06:32 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:32 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/2976217.shtml)
-- 2026-06-30 06:35 - [日本淘汰](http://www.blog.minike.top/Article/details/2121600.shtml)
-- 2026-06-30 06:43 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/51003199386.shtml)
-- 2026-06-30 06:36 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/2052324021.shtml)
-- 2026-06-30 06:35 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/904570.shtml)
-- 2026-06-30 06:41 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/634401344.shtml)
-- 2026-06-30 06:18 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/60681647248.shtml)
-- 2026-06-30 06:19 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/413862516.shtml)
-- 2026-06-30 06:29 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/932315888.shtml)
-- 2026-06-30 06:33 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/5948823560.shtml)
-- 2026-06-30 06:30 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/004897767280.shtml)
-- 2026-06-30 06:47 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/9026857248.shtml)
-- 2026-06-30 06:44 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/40706363.shtml)
-- 2026-06-30 06:35 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/83815647045.shtml)
-- 2026-06-30 06:37 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/477434395.shtml)
+- 2026-06-30 06:44 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/011674351.shtml)
+- 2026-06-30 06:43 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/4402601.shtml)
+- 2026-06-30 06:41 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/46656743338.shtml)
+- 2026-06-30 06:24 - [月亮](https://www.blog.kurohicncr.top/Article/details/7313527.shtml)
+- 2026-06-30 06:42 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/50330985958.shtml)
+- 2026-06-30 06:43 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/859580467.shtml)
+- 2026-06-30 06:35 - [为什么会有「念旧」的心理？](https://www.blog.minike.top/Article/details/6413705661.shtml)
+- 2026-06-30 06:52 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/611658489.shtml)
+- 2026-06-30 06:49 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/31814682.shtml)
+- 2026-06-30 06:40 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/50087.shtml)
+- 2026-06-30 06:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/7228806.shtml)
+- 2026-06-30 06:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/85371.shtml)
+- 2026-06-30 06:27 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/021286.shtml)
+- 2026-06-30 06:44 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/701738271.shtml)
+- 2026-06-30 06:27 - [起风了](https://www.blog.kurohicncr.top/Article/details/50733.shtml)

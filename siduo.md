@@ -1,59 +1,56 @@
-# 白宫记者协会晚宴嫌犯被控袭击特工
+# 阿联酋退出后，伊拉克因配额争端向欧佩克施压
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-美国联邦检察官周二对被控企图暗杀总统特朗普的男子追加了一项指控，称他上个月在华盛顿一场新闻界晚宴外冲闯安检站时，用霰弹枪击中了一名特勤局特工。 这份由华盛顿一个大陪审团提交的起诉书，在针对科尔·艾伦（Cole Allen）的刑事案件中增加了第四项指控。根据一份刑事诉状，31岁的艾伦此前在华盛顿希尔顿酒店被捕后，已被控企图暗杀特朗普以及两项枪支犯罪，其中包括在暴力犯罪期间开枪。代
+核心要点 巴格达方面周四表示，伊拉克要求欧佩克大幅提高本国的石油供应配额，此前已有消息称，伊拉克或将因本次配额争议退出这一石油卡特尔组织。 伊拉克是欧佩克第二大石油出口国，在组织内具备举足轻重的影响力。今年 4 月，欧佩克第三大产油国阿联酋已经宣布退出该组织。 此前路透社曾报道，伊拉克正在权衡退出欧佩克；彭博社也援引伊拉克石油部发言人的表态称，如果石油生产配额无法上调，伊拉克
 
 ## 正文
 
-美国联邦检察官周二对被控企图暗杀总统特朗普的男子追加了一项指控，称他上个月在华盛顿一场新闻界晚宴外冲闯安检站时，用霰弹枪击中了一名特勤局特工。
+核心要点 巴格达方面周四表示，伊拉克要求欧佩克大幅提高本国的石油供应配额，此前已有消息称，伊拉克或将因本次配额争议退出这一石油卡特尔组织。
 
-这份由华盛顿一个大陪审团提交的起诉书，在针对科尔·艾伦（Cole Allen）的刑事案件中增加了第四项指控。
+伊拉克是欧佩克第二大石油出口国，在组织内具备举足轻重的影响力。
 
-根据一份刑事诉状，31岁的艾伦此前在华盛顿希尔顿酒店被捕后，已被控企图暗杀特朗普以及两项枪支犯罪，其中包括在暴力犯罪期间开枪。
+今年 4 月，欧佩克第三大产油国阿联酋已经宣布退出该组织。
 
-代理司法部长托德．布兰奇（Todd Blanche）是出席白宫记者协会晚宴的特朗普政府官员之一。
+此前路透社曾报道，伊拉克正在权衡退出欧佩克；彭博社也援引伊拉克石油部发言人的表态称，如果石油生产配额无法上调，伊拉克 “必须做出留任还是退出的抉择”。
 
-他表示，艾伦当时全副武装，“冲闯安保防线并开枪击中了一名特勤局特工，企图暗杀总统特朗普，但由于执法人员勇敢而迅速的反应，他被制止了。
+伊拉克石油部于周四晚些时候表态，有关巴格达可能退出欧佩克的报道 “并不代表伊拉克政府的官方立场”，但同时强调，伊拉克仍坚持要求重新审议各国石油生产配额。
 
-”布兰奇在周二的一份声明中补充道：“在总统特朗普的领导下，暴力的政治行动者永远不会获胜，我们将依法在最大程度上起诉任何参与这些可怕行为的人。
+伊拉克石油部与欧佩克方面均未第一时间回应美国消费者新闻与商业频道的置评请求。
 
-”此前，对于击中参与晚宴安保工作的那名特勤局特工的子弹是否为艾伦所发，外界最初存在一些疑虑。
+伊拉克经济高度依赖石油出口，自 2 月 28 日美、以两国与伊朗开战以来，该国高度依赖波斯湾外运石油的产业短板暴露无遗。
 
-责任编辑：王永生
+伊拉克内阁于今年 6 月批准方案，计划通过库尔德地区 — 土耳其输油管道大幅提升原油出口量，日出口量将从当前的 22 万桶提升至 77 万桶，增幅超两倍。
 
 ## 相关推荐
 
-- 2026-06-30 06:28 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 06:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 06:37 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 06:19 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 06:19 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 06:38 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 06:44 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 06:31 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 06:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 06:36 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 06:28 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 06:33 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 06:24 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 06:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 06:47 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 06:26 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 06:26 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 06:46 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 06:43 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 06:41 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 06:44 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 06:44 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 06:31 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:29 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/03655081592.shtml)
-- 2026-06-30 06:31 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/514378927003.shtml)
-- 2026-06-30 06:27 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/9686374529.shtml)
-- 2026-06-30 06:19 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/458867924.shtml)
-- 2026-06-30 06:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/22806893315.shtml)
-- 2026-06-30 06:22 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/244099.shtml)
-- 2026-06-30 06:46 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/57210872479.shtml)
-- 2026-06-30 06:21 - [日本进球](https://www.share.kurohicncr.top/Article/details/73904705.shtml)
-- 2026-06-30 06:31 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/80872.shtml)
-- 2026-06-30 06:47 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/017786.shtml)
-- 2026-06-30 06:22 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/718088.shtml)
-- 2026-06-30 06:28 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/2745558380.shtml)
-- 2026-06-30 06:31 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/5083799838.shtml)
-- 2026-06-30 06:21 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/25301.shtml)
-- 2026-06-30 06:41 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/231994909024.shtml)
+- 2026-06-30 06:46 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/16081949.shtml)
+- 2026-06-30 06:29 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/920314558399.shtml)
+- 2026-06-30 06:27 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/188907.shtml)
+- 2026-06-30 06:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/195295.shtml)
+- 2026-06-30 06:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/030071668490.shtml)
+- 2026-06-30 06:39 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/6793470.shtml)
+- 2026-06-30 06:53 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/1698789.shtml)
+- 2026-06-30 06:53 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/815217.shtml)
+- 2026-06-30 06:43 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/192502091235.shtml)
+- 2026-06-30 06:42 - [世界杯](http://www.blog.minike.top/Article/details/10828382.shtml)
+- 2026-06-30 06:39 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/148728.shtml)
+- 2026-06-30 06:28 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/9383983778.shtml)
+- 2026-06-30 06:26 - [巴西扳平比分](https://www.share.minike.top/Article/details/915792704.shtml)
+- 2026-06-30 06:32 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/1227184927.shtml)
+- 2026-06-30 06:48 - [金刚川](http://www.share.kurohicncr.top/Article/details/202988064664.shtml)

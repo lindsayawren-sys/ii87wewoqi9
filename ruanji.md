@@ -1,56 +1,58 @@
-# 东西问丨陈姝伶：中印尼合作何以成为“全球南方”发展样本？
+# 2026年“蔡襄奖”海峡两岸少年儿童书法大赛在福建泉州启动
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新社雅加达5月6日电 题：中印尼合作何以成为“全球南方”发展样本？ ——专访印度尼西亚学者、根塔拉研究院战略研究部总监陈姝伶 中新社记者 李志全 在全球格局加速重构、不确定性持续上升背景下，“全球南方”如何在动荡中探索自主发展路径，正成为国际舆论关注的焦点。作为东南亚最大经济体，印度尼西亚如何应对外部冲击、推进转型发展，同样备受关注。 在中国发展经验中，哪些方面对印度尼西亚具
+中新网泉州6月24日电 (记者 孙虹)2026年“蔡襄奖”海峡两岸少年儿童书法大赛启动仪式24日在福建泉州洛江区举办。据悉，大赛即日起面向两岸少年儿童书法爱好者征稿，征稿时间截至2026年7月26日。 洛江区政协主席李奉恒介绍，洛江已连续十二年举办蔡襄文化主题书法赛事，成功开展国家级、省、市、区各级活动20余次，“蔡襄奖”由此成长为专业性强、影响力广的品牌赛事，深受广大青少年及
 
 ## 正文
 
-中新社雅加达5月6日电 题：中印尼合作何以成为“全球南方”发展样本？
+中新网泉州6月24日电 (记者 孙虹)2026年“蔡襄奖”海峡两岸少年儿童书法大赛启动仪式24日在福建泉州洛江区举办。
 
-——专访印度尼西亚学者、根塔拉研究院战略研究部总监陈姝伶 中新社记者 李志全 在全球格局加速重构、不确定性持续上升背景下，“全球南方”如何在动荡中探索自主发展路径，正成为国际舆论关注的焦点。
+据悉，大赛即日起面向两岸少年儿童书法爱好者征稿，征稿时间截至2026年7月26日。
 
-作为东南亚最大经济体，印度尼西亚如何应对外部冲击、推进转型发展，同样备受关注。
+洛江区政协主席李奉恒介绍，洛江已连续十二年举办蔡襄文化主题书法赛事，成功开展国家级、省、市、区各级活动20余次，“蔡襄奖”由此成长为专业性强、影响力广的品牌赛事，深受广大青少年及家长好评。
 
-在中国发展经验中，哪些方面对印度尼西亚具有现实启示？
+据悉，本次大赛分为小学一组(一至三年级)、小学二组(四至六年级)、中学组(含中职)三个组别，从参赛作品中按照各组别的投稿数量比例进行初评，初评产生300件入选作品进入复评，复评产生200件拟获奖作品，拟获奖作品的作者获得参加现场决赛资格。
 
-相关经验如何在本土语境中实现转化？
+现场决赛拟于2026年8月中旬举行，根据各组别投稿数量比例，设置特等奖、一等奖、二等奖、三等奖若干名。
 
-中印尼合作又如何在更广范围内形成示范效应？
+“大赛将推动蔡襄书法文化的种子深植于更多少年儿童心中，在笔墨间生根发芽，在两岸间传递情谊。
 
-印度尼西亚学者、根塔拉研究院战略研究部总监陈姝伶(Christine Susanna Tjhin)近日接受中新社“东西问”专访，就这些问题予以探讨。
+”李奉恒如是说。
 
-现将访谈实录摘要如下： 中新社记者：您如何看待当前全球南方国家之间的合作？
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:40 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 06:27 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 06:36 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 06:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-30 06:22 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-30 06:18 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 06:18 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-30 06:30 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-30 06:25 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 06:41 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 06:42 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 06:35 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 06:50 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 06:48 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 06:39 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 06:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 06:33 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 06:27 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 06:51 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 06:25 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 06:51 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 06:48 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:26 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/98636785795.shtml)
-- 2026-06-30 06:42 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/9776371.shtml)
-- 2026-06-30 06:47 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/71059198156.shtml)
-- 2026-06-30 06:42 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/993173.shtml)
-- 2026-06-30 06:22 - [爱很美味](http://www.share.kurohicncr.top/Article/details/328214.shtml)
-- 2026-06-30 06:47 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/380899997782.shtml)
-- 2026-06-30 06:22 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/337328.shtml)
-- 2026-06-30 06:24 - [起风了](http://www.blog.minike.top/Article/details/56880.shtml)
-- 2026-06-30 06:46 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/0487332.shtml)
-- 2026-06-30 06:42 - [请回答王牌2019](https://www.blog.minike.top/Article/details/79431432358.shtml)
-- 2026-06-30 06:41 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/1566823.shtml)
-- 2026-06-30 06:19 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/10712.shtml)
-- 2026-06-30 06:21 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/2965568573.shtml)
-- 2026-06-30 06:42 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/8375612549.shtml)
-- 2026-06-30 06:32 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/34281.shtml)
+- 2026-06-30 06:48 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/632684.shtml)
+- 2026-06-30 06:44 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/013086.shtml)
+- 2026-06-30 06:46 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/1906141.shtml)
+- 2026-06-30 06:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/9621698.shtml)
+- 2026-06-30 06:33 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/809482.shtml)
+- 2026-06-30 06:54 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/1046765.shtml)
+- 2026-06-30 06:46 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/85356659.shtml)
+- 2026-06-30 06:32 - [天道](https://www.share.minike.top/Article/details/020604.shtml)
+- 2026-06-30 06:35 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/95391175.shtml)
+- 2026-06-30 06:35 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/58479.shtml)
+- 2026-06-30 06:29 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/78245031.shtml)
+- 2026-06-30 06:34 - [天道](https://www.share.minike.top/Article/details/94011.shtml)
+- 2026-06-30 06:53 - [我们的少年时代2](https://www.blog.minike.top/Article/details/7312888734.shtml)
+- 2026-06-30 06:27 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/9468790.shtml)
+- 2026-06-30 06:36 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/0986342479.shtml)

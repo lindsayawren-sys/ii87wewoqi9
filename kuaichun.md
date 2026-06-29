@@ -1,60 +1,51 @@
-# 刚果海上钻探活动推动Perenco产量提升
+# 业内预计三星HBM4全年销售额有望冲击100亿美元
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-Perrodo家族拥有的石油钻探公司Perenco已在刚果共和国近海的Tchibouela East油田完成了一项五口井的钻探活动，使石油日产量增加了6，000桶。 该公司表示，这项于2025年底结束的钻探活动包括水平井和U型井，旨在提高石油采收率，同时降低作业风险。 继Tchibouela East油田取得成果后，Perenco Congo已在Masseko油田启动了一项新的
+三星电子第六代高带宽内存产品HBM4自今年2月量产以来，仅用时约130天，销售额便突破10亿美元（约合1.54万亿韩元），业内预计该产品全年销售额有望冲击100亿美元。 为此，三星电子会长李在镕亲自前往位于韩国忠清南道的天安HBM生产基地视察，实地考察产能及品质竞争力，释放出公司将大力扩张该业务的信号。 业内23日消息显示，受HBM4市场需求暴涨拉动，三星近期交出了上述亮眼业绩
 
 ## 正文
 
-Perrodo家族拥有的石油钻探公司Perenco已在刚果共和国近海的Tchibouela East油田完成了一项五口井的钻探活动，使石油日产量增加了6，000桶。
+三星电子第六代高带宽内存产品HBM4自今年2月量产以来，仅用时约130天，销售额便突破10亿美元（约合1.54万亿韩元），业内预计该产品全年销售额有望冲击100亿美元。
 
-该公司表示，这项于2025年底结束的钻探活动包括水平井和U型井，旨在提高石油采收率，同时降低作业风险。
+为此，三星电子会长李在镕亲自前往位于韩国忠清南道的天安HBM生产基地视察，实地考察产能及品质竞争力，释放出公司将大力扩张该业务的信号。
 
-继Tchibouela East油田取得成果后，Perenco Congo已在Masseko油田启动了一项新的五口井钻探活动，以提高产量并测试一个新的地质层位。
+业内23日消息显示，受HBM4市场需求暴涨拉动，三星近期交出了上述亮眼业绩。
 
-Perenco Congo董事总经理Gregoire de Courcelles表示：“近期在Tchibouela East油田完成的五口井加密钻探活动之后，我们看到了产量的持续提升。
+按照当前市场走势测算，该产品截至6月末的累计销售额预计将达到12亿美元，全年销售额有望突破100亿美元。
 
-这一积极结果清楚地证明了我们有能力延长油田寿命并为所有利益相关方最大化区块价值。
-
-” “Tchibouela East油田已投产近三十年，我们很高兴能够帮助确保该油田在未来许多年内继续生产。
-
-作业节奏仍在继续，我们现在正在Masseko油田进行钻探，该油田初期产出的初步结果令人鼓舞。
-
-” Perenco表示，2025年其在刚果的产量为每日72，500桶油当量。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 06:42 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 06:33 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 06:31 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 06:24 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 06:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 06:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 06:38 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 06:41 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 06:32 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 06:37 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-30 06:33 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 06:25 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 06:25 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 06:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 06:50 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 06:30 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 06:37 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 06:30 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 06:35 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 06:48 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 06:37 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 06:30 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 06:46 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 06:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 06:44 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:42 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/7205850.shtml)
-- 2026-06-30 06:36 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/3132476.shtml)
-- 2026-06-30 06:27 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/66624967.shtml)
-- 2026-06-30 06:33 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/7303290229.shtml)
-- 2026-06-30 06:40 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/822790831710.shtml)
-- 2026-06-30 06:31 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/339513.shtml)
-- 2026-06-30 06:38 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/03261815551.shtml)
-- 2026-06-30 06:19 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/581287394900.shtml)
-- 2026-06-30 06:31 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/456100565961.shtml)
-- 2026-06-30 06:40 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/72803.shtml)
-- 2026-06-30 06:32 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/05159.shtml)
-- 2026-06-30 06:25 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/32433057375.shtml)
-- 2026-06-30 06:22 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/78714328261.shtml)
-- 2026-06-30 06:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/763922449.shtml)
-- 2026-06-30 06:43 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/4172746.shtml)
+- 2026-06-30 06:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/7891610361.shtml)
+- 2026-06-30 06:30 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/2876028654.shtml)
+- 2026-06-30 06:32 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/071554.shtml)
+- 2026-06-30 06:52 - [起风了](https://www.share.kurohicncr.top/Article/details/543066250.shtml)
+- 2026-06-30 06:33 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/49579687.shtml)
+- 2026-06-30 06:53 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/1865948.shtml)
+- 2026-06-30 06:51 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/39226293.shtml)
+- 2026-06-30 06:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/086572731883.shtml)
+- 2026-06-30 06:45 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/94264148243.shtml)
+- 2026-06-30 06:49 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/297225.shtml)
+- 2026-06-30 06:34 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/50317351058.shtml)
+- 2026-06-30 06:24 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/0270668002.shtml)
+- 2026-06-30 06:32 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/4882290402.shtml)
+- 2026-06-30 06:38 - [爱很美味](http://www.share.kurohicncr.top/Article/details/855928247681.shtml)
+- 2026-06-30 06:49 - [毒液2](http://www.blog.kurohicncr.top/Article/details/89916.shtml)

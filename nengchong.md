@@ -1,57 +1,60 @@
-# 酒价内参5月6日价格发布：青花汾20下跌5元
+# 深夜，大跳水！黄金、白银、原油，集体暴跌！特朗普发声
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月6日整体温和回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9952元，较昨日上涨7元，升至近三天高位。市场在止跌后连续两日回暖，终端交投情绪小幅改善，核心单品涨跌分化依然显著。 今日白酒市场11大单品六涨五跌，赢家略占上风。上
+黄金、白银、原油集体跳水。 当地时间6月24日，黄金、白银盘中暴跌，现货黄金跌破4000美元/盎司。截至发稿，伦敦金现、COMEX黄金跌近4%；伦敦银现跌近5%，COMEX白银跌近6%。 原油亦暴跌，美油逼近70美元整数关口。截至发稿，美油跌超4%，布油跌近4%。 继高盛、德银之后，又一家国际投行下调了黄金目标价。蒙特利尔银行资本市场（BMO Capital Markets）在
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月6日整体温和回升。
+黄金、白银、原油集体跳水。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9952元，较昨日上涨7元，升至近三天高位。
+当地时间6月24日，黄金、白银盘中暴跌，现货黄金跌破4000美元/盎司。
 
-市场在止跌后连续两日回暖，终端交投情绪小幅改善，核心单品涨跌分化依然显著。
+截至发稿，伦敦金现、COMEX黄金跌近4%；伦敦银现跌近5%，COMEX白银跌近6%。
 
-今日白酒市场11大单品六涨五跌，赢家略占上风。
+原油亦暴跌，美油逼近70美元整数关口。
 
-上涨方面，青花郎涨幅居前，上涨6元/瓶，价格创下20余日以来新高；习酒君品上涨5元/瓶；国窖1573上涨4元/瓶，重返900元大关以上；水晶剑南春上涨3元/瓶；古井贡古20上涨2元/瓶，逼近一个月来最高纪录；洋河梦之蓝M6+上涨1元/瓶。
+截至发稿，美油跌超4%，布油跌近4%。
 
-下跌方面，青花汾20与精品茅台均下跌5元/瓶；飞天茅台下跌2元/瓶；五粮液普五八代与五粮液1618均小幅下跌1元/瓶。
+继高盛、德银之后，又一家国际投行下调了黄金目标价。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+蒙特利尔银行资本市场（BMO Capital Markets）在其第三季度大宗商品展望报告中表示，预计今年下半年黄金均价约为4625美元/盎司，较此前的预期下调了5%。
 
-随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
+这家投行还下调了白银的短期前景，预计第三季度白银均价约为69美元/盎司。
 
 ## 相关推荐
 
-- 2026-06-30 06:41 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 06:20 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 06:37 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 06:22 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 06:21 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 06:19 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 06:34 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-30 06:22 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-30 06:28 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 06:37 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 06:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 06:32 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 06:28 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 06:26 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 06:36 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 06:40 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 06:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 06:25 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 06:52 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 06:40 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 06:37 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 06:43 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 06:28 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 06:48 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 06:39 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:18 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/091161799977.shtml)
-- 2026-06-30 06:21 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/41795.shtml)
-- 2026-06-30 06:26 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/30533.shtml)
-- 2026-06-30 06:21 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/49050670600.shtml)
-- 2026-06-30 06:21 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/4162363894.shtml)
-- 2026-06-30 06:26 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/558919391342.shtml)
-- 2026-06-30 06:47 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/397060.shtml)
-- 2026-06-30 06:41 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/33861064105.shtml)
-- 2026-06-30 06:44 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/863919407190.shtml)
-- 2026-06-30 06:29 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/636172.shtml)
-- 2026-06-30 06:22 - [亚洲球队全部告别世界杯](https://www.blog.minike.top/Article/details/75251692172.shtml)
-- 2026-06-30 06:39 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/989020835731.shtml)
-- 2026-06-30 06:45 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/70087181.shtml)
-- 2026-06-30 06:41 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/8529973421.shtml)
-- 2026-06-30 06:32 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/68674.shtml)
+- 2026-06-30 06:42 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/622022851.shtml)
+- 2026-06-30 06:37 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/942367.shtml)
+- 2026-06-30 06:30 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/1765244354.shtml)
+- 2026-06-30 06:43 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/95215440040.shtml)
+- 2026-06-30 06:36 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/215757499.shtml)
+- 2026-06-30 06:24 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/782538392403.shtml)
+- 2026-06-30 06:30 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/91037.shtml)
+- 2026-06-30 06:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/91472553331.shtml)
+- 2026-06-30 06:24 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/93303.shtml)
+- 2026-06-30 06:32 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/487744.shtml)
+- 2026-06-30 06:47 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/33414945300.shtml)
+- 2026-06-30 06:26 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/3794261.shtml)
+- 2026-06-30 06:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/94220.shtml)
+- 2026-06-30 06:40 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/61364532.shtml)
+- 2026-06-30 06:38 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/215167572289.shtml)

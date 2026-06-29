@@ -1,57 +1,59 @@
-# A股迎5月开门红，芯片板块爆发，这三只ETF怎么选？
+# 工信部：支持全球顶尖开源项目和开发者来华发展
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-5月首个交易日，A股迎来开门红，芯片板块成为市场最亮眼的主线，多只存储芯片、AI芯片概念股触及涨停。从存储涨价到AI算力需求爆发，从国产化加速到龙头一季报业绩超预期，多重催化叠加下，芯片相关指数连续走高，市场关注度直线升温。 但面对市场上名目繁多的芯片指数，不少投资者犯了难：芯片产业指数、科创芯片指数、科创芯片设计主题指数……到底该选哪一只？ 芯片产业链本身上下游环节较多，不同
+中新网北京6月25日电 2026开放原子开源生态大会25日在北京开幕，工业和信息化部副部长熊继军出席大会并致辞。他在致辞中指出，支持全球顶尖的开源项目和开发者来华发展。 熊继军指出，开源作为数字时代跨国别、跨领域的重要协作方式，在引领技术创新发展、推动产业协同演进方面作用日益凸显。目前，我国构建了连接国内外、贯通产学研的协同创新平台，开源参与者数量、增长速度均位居世界前列，At
 
 ## 正文
 
-5月首个交易日，A股迎来开门红，芯片板块成为市场最亮眼的主线，多只存储芯片、AI芯片概念股触及涨停。
+中新网北京6月25日电 2026开放原子开源生态大会25日在北京开幕，工业和信息化部副部长熊继军出席大会并致辞。
 
-从存储涨价到AI算力需求爆发，从国产化加速到龙头一季报业绩超预期，多重催化叠加下，芯片相关指数连续走高，市场关注度直线升温。
+他在致辞中指出，支持全球顶尖的开源项目和开发者来华发展。
 
-但面对市场上名目繁多的芯片指数，不少投资者犯了难：芯片产业指数、科创芯片指数、科创芯片设计主题指数……到底该选哪一只？
+熊继军指出，开源作为数字时代跨国别、跨领域的重要协作方式，在引领技术创新发展、推动产业协同演进方面作用日益凸显。
 
-芯片产业链本身上下游环节较多，不同指数会根据不同的侧重点来选股。
+目前，我国构建了连接国内外、贯通产学研的协同创新平台，开源参与者数量、增长速度均位居世界前列，AtomGit人工智能开源社区成立，一批优质开源项目活跃在国际舞台上，开源生态正从规模扩张迈向高质量发展新阶段。
 
-如果你对整个产业链没有那么熟悉，但又比较看好芯片国产化的长期空间，最简单的办法就是找一个能够均衡覆盖全产业链的指数。
+熊继军表示，下一步，工业和信息化部将加快推进开源体系建设迈上新台阶。
 
-例如中证芯片产业指数，它从沪深两市选取业务涉及芯片设计、制造、封测，以及半导体材料、设备的50只个股。
+提升开源供给能力，加大对基础软件、工业软件、人工智能等领域开源发展的牵引力度，夯实数字产业发展根基。
 
-根据申万三级行业分类，其数字芯片设计占比约53%，半导体设备占比约20%，集成电路制造占比近10%，行业分布比较均衡。
+繁荣开源产业生态，坚持应用牵引，支持优秀开源产品落地应用，加快探索开源商业模式创新，实现从社区代码到商业产品的转化闭环。
 
-另一个选择是上证科创板芯片指数，它的行业分布与芯片产业指数相近，但选股范围限定在科创板。
+筑牢开源治理防线，推动完善开源安全治理规则，提升企业和开发者的治理素养，构建“社区响应、平台预警、企业履责”的协同治理防线。
 
 ## 相关推荐
 
-- 2026-06-30 06:39 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 06:38 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 06:18 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 06:25 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 06:32 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-30 06:21 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 06:18 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 06:36 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-30 06:37 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 06:18 - [月亮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 06:32 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 06:27 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 06:46 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 06:33 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 06:26 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 06:24 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 06:49 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 06:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 06:52 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 06:47 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 06:34 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 06:27 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 06:27 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 06:53 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:26 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/2889307313.shtml)
-- 2026-06-30 06:24 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/764622597.shtml)
-- 2026-06-30 06:44 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/16001478.shtml)
-- 2026-06-30 06:35 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/888723383.shtml)
-- 2026-06-30 06:28 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/73906010765.shtml)
-- 2026-06-30 06:40 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/230887799906.shtml)
-- 2026-06-30 06:38 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/08893967716.shtml)
-- 2026-06-30 06:39 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/588492.shtml)
-- 2026-06-30 06:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/7908677294.shtml)
-- 2026-06-30 06:35 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/279332506.shtml)
-- 2026-06-30 06:24 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/91916376534.shtml)
-- 2026-06-30 06:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/04929.shtml)
-- 2026-06-30 06:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/261724.shtml)
-- 2026-06-30 06:46 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/2667498.shtml)
-- 2026-06-30 06:19 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/854371.shtml)
+- 2026-06-30 06:49 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/9699481326.shtml)
+- 2026-06-30 06:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/8439117.shtml)
+- 2026-06-30 06:48 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/77727.shtml)
+- 2026-06-30 06:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/85859.shtml)
+- 2026-06-30 06:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/111055558893.shtml)
+- 2026-06-30 06:33 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/1973177.shtml)
+- 2026-06-30 06:39 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/121201.shtml)
+- 2026-06-30 06:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/09746198882.shtml)
+- 2026-06-30 06:38 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/3520829802.shtml)
+- 2026-06-30 06:29 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/8719988451.shtml)
+- 2026-06-30 06:32 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/40058642.shtml)
+- 2026-06-30 06:33 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/239748.shtml)
+- 2026-06-30 06:48 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/16788041213.shtml)
+- 2026-06-30 06:45 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/4406394.shtml)
+- 2026-06-30 06:29 - [沉睡花园](http://www.share.minike.top/Article/details/4442644.shtml)

@@ -1,60 +1,59 @@
-# 美伊接近达成协议消息出炉，油价暴跌、股市大涨
+# 国际海员在浙江宁波沉浸式体验中国文化
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-有报道称，美国方面认为已接近与伊朗达成一份一页纸的备忘录，以此结束中东冲突。受此消息影响，全球股市走高、油价大幅下挫。 全球原油基准布伦特原油大跌超6%，跌至每桶103美元。本周一，尽管为期一个月的脆弱停火协议仍在存续，但美伊双方爆发军事冲突，当时布伦特原油价格一度逼近每桶115美元。 美国原油基准西德克萨斯轻质原油（WTI） 下跌7%，报每桶95.20美元。 欧洲股市同步走强
+中新网宁波6月24日电 (张斌 骆泽明 邱吉琳)“第一次做青团，很有趣。希望以后每次在北仑上岸，都能来这里体验中国文化。”品尝着自己亲手制作的青团，来自俄罗斯的海员波诺马连科笑着说道。 第十六个世界海员日即将到来。24日，7名国际海员走进浙江宁波北仑区新碶街道玉兰社区，在青团制作、宋式点茶和大漆描金等传统文化体验中，度过了一段温馨而特别的岸上时光。 活动伊始，玉兰社区工作人员便
 
 ## 正文
 
-有报道称，美国方面认为已接近与伊朗达成一份一页纸的备忘录，以此结束中东冲突。
+中新网宁波6月24日电 (张斌 骆泽明 邱吉琳)“第一次做青团，很有趣。
 
-受此消息影响，全球股市走高、油价大幅下挫。
+希望以后每次在北仑上岸，都能来这里体验中国文化。
 
-全球原油基准布伦特原油大跌超6%，跌至每桶103美元。
+”品尝着自己亲手制作的青团，来自俄罗斯的海员波诺马连科笑着说道。
 
-本周一，尽管为期一个月的脆弱停火协议仍在存续，但美伊双方爆发军事冲突，当时布伦特原油价格一度逼近每桶115美元。
+第十六个世界海员日即将到来。
 
-美国原油基准西德克萨斯轻质原油（WTI） 下跌7%，报每桶95.20美元。
+24日，7名国际海员走进浙江宁波北仑区新碶街道玉兰社区，在青团制作、宋式点茶和大漆描金等传统文化体验中，度过了一段温馨而特别的岸上时光。
 
-欧洲股市同步走强，泛欧斯托克600指数上涨2.3%。
+活动伊始，玉兰社区工作人员便端出了“海儒农耕”特色农产品。
 
-美股盘前同样走高，标普500指数期货上涨0.7%，预示华尔街开盘走强。
+软糯的水磨年糕、醇厚的梅山腐乳等宁波特色美食，让远道而来的海员们感受到浓浓的地方风味。
 
-美国新闻媒体报道称，白宫承认与伊朗谈判已接近达成共识，但强调双方暂未敲定任何正式协议。
+不少人当场表示，想把这些特色食品带回船上，与同伴一起分享。
 
 ## 相关推荐
 
-- 2026-06-30 06:26 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 06:20 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 06:22 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 06:34 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 06:22 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 06:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 06:18 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 06:34 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 06:38 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 06:32 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 06:23 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 06:21 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 06:32 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 06:29 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 06:42 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 06:24 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 06:41 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 06:24 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 06:37 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 06:48 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 06:48 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 06:35 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 06:32 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 06:48 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 06:42 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 06:24 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 06:41 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/0169292530.shtml)
-- 2026-06-30 06:35 - [日本反击率先破门](https://www.share.minike.top/Article/details/8203193379.shtml)
-- 2026-06-30 06:37 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/73430.shtml)
-- 2026-06-30 06:43 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/3629319592.shtml)
-- 2026-06-30 06:35 - [世界杯](https://www.share.kurohicncr.top/Article/details/55965401.shtml)
-- 2026-06-30 06:21 - [周生如故](http://www.blog.minike.top/Article/details/4137593.shtml)
-- 2026-06-30 06:30 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/15335.shtml)
-- 2026-06-30 06:21 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/06223.shtml)
-- 2026-06-30 06:32 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/033705.shtml)
-- 2026-06-30 06:28 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/71332270770.shtml)
-- 2026-06-30 06:35 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/39813273521.shtml)
-- 2026-06-30 06:37 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/74763910.shtml)
-- 2026-06-30 06:34 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/30862.shtml)
-- 2026-06-30 06:26 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/258434.shtml)
-- 2026-06-30 06:20 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/2379262.shtml)
+- 2026-06-30 06:34 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/966647041265.shtml)
+- 2026-06-30 06:36 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/371869.shtml)
+- 2026-06-30 06:44 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/008717380.shtml)
+- 2026-06-30 06:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/613937.shtml)
+- 2026-06-30 06:33 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/08481.shtml)
+- 2026-06-30 06:50 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/0427360.shtml)
+- 2026-06-30 06:45 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/83837495724.shtml)
+- 2026-06-30 06:27 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/1709475946.shtml)
+- 2026-06-30 06:44 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/0882982559.shtml)
+- 2026-06-30 06:43 - [亚洲球队全部告别世界杯](https://www.blog.minike.top/Article/details/468303783406.shtml)
+- 2026-06-30 06:37 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/12975326.shtml)
+- 2026-06-30 06:39 - [金刚川](http://www.share.minike.top/Article/details/8895042779.shtml)
+- 2026-06-30 06:39 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/884647402596.shtml)
+- 2026-06-30 06:53 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/275347386.shtml)
+- 2026-06-30 06:26 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/823462738891.shtml)

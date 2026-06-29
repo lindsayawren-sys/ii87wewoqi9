@@ -1,58 +1,54 @@
-# 文化中国行丨二十四节气·立夏
+# 曾沛慈回忆音乐成长之路：《下周同样时间》更贴近现在的我
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-立夏，是夏季的第一个节气，万物初盛、夏韵方兴。让我们一起感受这个时节的自然之美和文化意蕴。 夏，大也。“万物至此皆长大，故名立夏”。 这个时节，新麦吐芒，青梅挂枝，草木莽莽，展现出生命力充盈、纵情生长的美。 “春争日，夏争时”。立夏后农事繁忙。中国人以忙碌来回应夏季的热烈，用汗水去浇灌即将到来的收获。 立夏日，许多地方有喝“七家茶”、吃“立夏饭”、尝新等风俗。我们接受自然的馈赠
+发布时间：2026年06月25日 21:03 来源：中国新闻网 提起心中最幸福和感到最不容易的一张专辑，歌手曾沛慈的答案会是第一张专辑——《我是曾沛慈》。 2014年，《我是曾沛慈》的发布会上，音乐前奏刚刚响起，她忍不住大哭，因为等待发片的那七年里，经历过的事情太多。后来，曾沛慈陆续推出《我爱你 以上》《谜之音》《今天阳光就是特别耀眼特别和谐》《下周同样时间》，每张专辑对应的人
 
 ## 正文
 
-立夏，是夏季的第一个节气，万物初盛、夏韵方兴。
+发布时间：2026年06月25日 21:03 来源：中国新闻网 提起心中最幸福和感到最不容易的一张专辑，歌手曾沛慈的答案会是第一张专辑——《我是曾沛慈》。
 
-让我们一起感受这个时节的自然之美和文化意蕴。
+2014年，《我是曾沛慈》的发布会上，音乐前奏刚刚响起，她忍不住大哭，因为等待发片的那七年里，经历过的事情太多。
 
-夏，大也。
+后来，曾沛慈陆续推出《我爱你 以上》《谜之音》《今天阳光就是特别耀眼特别和谐》《下周同样时间》，每张专辑对应的人生阶段和音乐表达都有不同，而去年刚发布的《下周同样时间》，是她感受到更从容、更自由、更幸福的一张专辑，也更贴近大家现在认识的曾沛慈。
 
-“万物至此皆长大，故名立夏”。
+她说，如果当年的自己是青涩真实，那现在就是蜕变、突破和成熟。
 
-这个时节，新麦吐芒，青梅挂枝，草木莽莽，展现出生命力充盈、纵情生长的美。
-
-“春争日，夏争时”。
-
-立夏后农事繁忙。
-
-中国人以忙碌来回应夏季的热烈，用汗水去浇灌即将到来的收获。
+(记者 任思雨） 责任编辑：【张曦】
 
 ## 相关推荐
 
-- 2026-06-30 06:36 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 06:23 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 06:43 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 06:24 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 06:41 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 06:26 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 06:34 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 06:39 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 06:41 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-30 06:18 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 06:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 06:33 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 06:35 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 06:29 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 06:38 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 06:52 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-30 06:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 06:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 06:29 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 06:33 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 06:28 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 06:33 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 06:48 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 06:31 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 06:30 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 06:27 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:38 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/965138.shtml)
-- 2026-06-30 06:42 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/2778380.shtml)
-- 2026-06-30 06:22 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/898695.shtml)
-- 2026-06-30 06:31 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/924158.shtml)
-- 2026-06-30 06:44 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/24829462728.shtml)
-- 2026-06-30 06:21 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/96749525.shtml)
-- 2026-06-30 06:41 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/52990019638.shtml)
-- 2026-06-30 06:43 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/372464529.shtml)
-- 2026-06-30 06:46 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/50457.shtml)
-- 2026-06-30 06:34 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/94795.shtml)
-- 2026-06-30 06:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/4313608.shtml)
-- 2026-06-30 06:40 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/83299851714.shtml)
-- 2026-06-30 06:47 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/8053294.shtml)
-- 2026-06-30 06:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/39117.shtml)
-- 2026-06-30 06:35 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/45484471300.shtml)
+- 2026-06-30 06:51 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/49822.shtml)
+- 2026-06-30 06:40 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/755808879727.shtml)
+- 2026-06-30 06:26 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/42797135.shtml)
+- 2026-06-30 06:31 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/35739032.shtml)
+- 2026-06-30 06:44 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/42874529.shtml)
+- 2026-06-30 06:45 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/3127974.shtml)
+- 2026-06-30 06:38 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/980666015882.shtml)
+- 2026-06-30 06:37 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/53512216.shtml)
+- 2026-06-30 06:34 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/103220568.shtml)
+- 2026-06-30 06:25 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/702537.shtml)
+- 2026-06-30 06:43 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/526699.shtml)
+- 2026-06-30 06:42 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/5282403651.shtml)
+- 2026-06-30 06:25 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/496943.shtml)
+- 2026-06-30 06:36 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/07573990.shtml)
+- 2026-06-30 06:41 - [毒液2](https://www.blog.kurohicncr.top/Article/details/90290007.shtml)

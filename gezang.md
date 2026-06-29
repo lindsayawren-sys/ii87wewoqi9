@@ -1,60 +1,61 @@
-# “中国有色金属之乡”甘肃“找矿”再突破
+# 刚果（金）加强疫区人员旅行管理 法国隔离密接者
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新社兰州5月6日电 (记者 丁思 闫姣)甘肃省副省长王旭6日在兰州向媒体介绍说，甘肃是中国闻名的“有色金属之乡”，目前已发现矿产151种、查明资源量的有105种，镍、铂、钯、钌等13种矿产资源量居中国第一，51种矿产资源量位列中国前五。当日，甘肃省人民政府新闻办公室举行“开局起步‘十五五’——奋力谱写中国式现代化甘肃篇章”专场新闻发布会。 近年来，甘肃纵深推进新一轮找矿突破战
+刚果(金)政府24日宣布，来自该国埃博拉疫区的人员在进行国内或国际旅行前，须先完成21天自我观察，以降低疫情传播风险。法国24日报告确诊一例从刚果(金)返回的输入性病例后，该国卫生部已确认并隔离5名密切接触者。刚果(金)政府当天发表公告说，法国报告的病例曾于5月22日至6月19日在刚果(金)东部伊图里省鲁万帕拉镇一处埃博拉治疗中心工作，是一名医生，结束轮换后返回法国。该医生在刚
 
 ## 正文
 
-中新社兰州5月6日电 (记者 丁思 闫姣)甘肃省副省长王旭6日在兰州向媒体介绍说，甘肃是中国闻名的“有色金属之乡”，目前已发现矿产151种、查明资源量的有105种，镍、铂、钯、钌等13种矿产资源量居中国第一，51种矿产资源量位列中国前五。
+刚果(金)政府24日宣布，来自该国埃博拉疫区的人员在进行国内或国际旅行前，须先完成21天自我观察，以降低疫情传播风险。
 
-当日，甘肃省人民政府新闻办公室举行“开局起步‘十五五’——奋力谱写中国式现代化甘肃篇章”专场新闻发布会。
+法国24日报告确诊一例从刚果(金)返回的输入性病例后，该国卫生部已确认并隔离5名密切接触者。
 
-近年来，甘肃纵深推进新一轮找矿突破战略行动，加快推动资源优势向经济优势、发展优势转化。
+刚果(金)政府当天发表公告说，法国报告的病例曾于5月22日至6月19日在刚果(金)东部伊图里省鲁万帕拉镇一处埃博拉治疗中心工作，是一名医生，结束轮换后返回法国。
 
-“我们加大了‘找’的力度。
+该医生在刚果(金)期间未出现异常症状。
 
-”王旭说，甘肃加力推进矿产资源勘查，完善财政引领、社会参与的投入机制，“十四五”时期投入资金55.65亿元(人民币，下同)，新发现庆城亿吨级油田、泾川特大型铀矿、宕昌锑矿、玉门前红泉金矿、平凉冶镁白云岩等大中型矿产地35处。
+公告说，已同法国政府联系并共享相关数据，以便追踪可能的接触者。
 
-甘肃放大了“用”的效益，充分发挥市场配置资源的决定性作用，推动找矿成果转化利用。
+刚果(金)政府同时宣布，来自该国埃博拉疫区人员在进行国内或国际旅行前，须先完成21天自我观察，相关部门须加强对潜在暴露人员的管理。
 
-“十四五”时期累计出让矿业权755宗、成交价616.56亿元，拉动投资1000亿元以上、新增工业产值3000亿元。
+法国卫生部长斯特凡妮·里斯特24日说，上述确诊病例在医院接受隔离治疗，已确认并隔离5名密切接触者，他们乘坐同一航班返回法国。
 
-甘肃矿业及相关原材料加工、制品业营收，年均保持在7000亿元以上，占到全省规模以上工业企业营收的三分之二，矿业经济“压舱石”作用日益凸显。
+刚果(金)政府24日发布的疫情数据显示，该国本轮埃博拉疫情累计确诊病例升至1118例，其中291例死亡。
 
 ## 相关推荐
 
-- 2026-06-30 06:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 06:18 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 06:26 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 06:40 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 06:40 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-30 06:41 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 06:41 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 06:20 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 06:30 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 06:33 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-30 06:44 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 06:38 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 06:43 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 06:44 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 06:44 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 06:30 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 06:44 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 06:52 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 06:39 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 06:32 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 06:31 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 06:34 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 06:29 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 06:27 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 06:46 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-30 06:27 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 06:31 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 06:49 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 06:45 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:45 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/78589.shtml)
-- 2026-06-30 06:25 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/41939885602.shtml)
-- 2026-06-30 06:19 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/4621903861.shtml)
-- 2026-06-30 06:45 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/07355215476.shtml)
-- 2026-06-30 06:21 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/1083802.shtml)
-- 2026-06-30 06:30 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/3817916391.shtml)
-- 2026-06-30 06:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/410770.shtml)
-- 2026-06-30 06:25 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/0107768.shtml)
-- 2026-06-30 06:43 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/199333909.shtml)
-- 2026-06-30 06:25 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/04984757.shtml)
-- 2026-06-30 06:37 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/65585.shtml)
-- 2026-06-30 06:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/25933746.shtml)
-- 2026-06-30 06:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/192494.shtml)
-- 2026-06-30 06:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/20539208639.shtml)
-- 2026-06-30 06:38 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/6830889.shtml)
+- 2026-06-30 06:38 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/05691706965.shtml)
+- 2026-06-30 06:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/7061301336.shtml)
+- 2026-06-30 06:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/0897546.shtml)
+- 2026-06-30 06:31 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/55493076071.shtml)
+- 2026-06-30 06:26 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/21281534.shtml)
+- 2026-06-30 06:30 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/58585871282.shtml)
+- 2026-06-30 06:52 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/60613.shtml)
+- 2026-06-30 06:45 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/812059315320.shtml)
+- 2026-06-30 06:40 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/4857383491.shtml)
+- 2026-06-30 06:28 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/9920710081.shtml)
+- 2026-06-30 06:40 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/2754419.shtml)
+- 2026-06-30 06:49 - [急先锋](http://www.blog.minike.top/Article/details/809742.shtml)
+- 2026-06-30 06:41 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/167766455.shtml)
+- 2026-06-30 06:26 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/182277322246.shtml)
+- 2026-06-30 06:38 - [金刚川](http://www.blog.kurohicncr.top/Article/details/388551430942.shtml)

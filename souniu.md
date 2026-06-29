@@ -1,57 +1,61 @@
-# 西安光机所在超表面光学微操纵领域取得新进展
+# 圣邦股份首挂上市 早盘上涨23.47%公司为国内领先的模拟集成电路(IC)企业
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新网西安5月6日电 (记者 阿琳娜)记者6日从西安光机所获悉，该所与南京大学、香港科技大学、瑞士洛桑联邦理工学院的联合研究，提出并展示了一种“广义超构光学扳手”新型器件，为光学微操纵技术向高维度、多目标协同控制提供新路径。 据了解，该器件基于超构表面光场调控原理，可在三维空间内对微纳物体进行可编程操控。形象而言，它如同一把由激光构成的“微型扳手”，不仅可以按照预设路线“抓住”
+圣邦股份（03661）首挂上市，公告显示，每股定价85.2港元，共发行5400.12万股股份，每手100股，所得款项净额约45亿港元。截至发稿，股价上涨23.47%，现报105.20港元，成交额8.69亿港元。 招股书显示，圣邦股份是中国领先的模拟集成电路（IC）公司。公司设计、开发并销售具备传感、放大、转换及驱动等功能的模拟集成电路及传感器，构成所有电子系统基础构建模块。根据
 
 ## 正文
 
-中新网西安5月6日电 (记者 阿琳娜)记者6日从西安光机所获悉，该所与南京大学、香港科技大学、瑞士洛桑联邦理工学院的联合研究，提出并展示了一种“广义超构光学扳手”新型器件，为光学微操纵技术向高维度、多目标协同控制提供新路径。
+圣邦股份（03661）首挂上市，公告显示，每股定价85.2港元，共发行5400.12万股股份，每手100股，所得款项净额约45亿港元。
 
-据了解，该器件基于超构表面光场调控原理，可在三维空间内对微纳物体进行可编程操控。
+截至发稿，股价上涨23.47%，现报105.20港元，成交额8.69亿港元。
 
-形象而言，它如同一把由激光构成的“微型扳手”，不仅可以按照预设路线“抓住”并“旋转”微纳物体，还可以同时形成多个光扳手，实现不同路径的并行输运。
+招股书显示，圣邦股份是中国领先的模拟集成电路（IC）公司。
 
-该成果有力推动了光学微操纵器件向功能复用与芯片集成方向发展。
+公司设计、开发并销售具备传感、放大、转换及驱动等功能的模拟集成电路及传感器，构成所有电子系统基础构建模块。
 
-当前，光子器件的小型化与片上集成，已成为面向微纳制造及新一代信息科技的重要发展方向。
+根据弗若斯特沙利文的资料，按2025年收入计，公司在中国模拟集成电路市场的国内公司中位列第一，并在全球公司中位列第八，占市场份额的1.8%。
 
-在光学微操纵领域，构建光扳手是实现微纳粒子输运的关键途径。
+自2007年成立以来，公司不断开发并拓展全面的产品组合，扩大了电子技术的边界。
 
-但过去要产生和调控这样的光扳手，往往需要体积较大的光场调控设备。
+截至最后实际可行日期，公司拥有超过7，200种模拟产品与传感器产品，涵盖38个产品类别，凭借稳健的设计及工艺能力，提供系统级解决方案，以缩短产品上市时间。
 
-近年来发展的超构表面光扳手虽突破了体积限制，但仍存在功能复用度低、操控模式单一、难以满足多目标高维轨迹定制等问题。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:22 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 06:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 06:30 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-30 06:42 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-30 06:35 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 06:35 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 06:27 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 06:46 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 06:35 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 06:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 06:37 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 06:28 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 06:37 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 06:32 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 06:51 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 06:33 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 06:41 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 06:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 06:29 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 06:28 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 06:30 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 06:24 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 06:48 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 06:34 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 06:37 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 06:25 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:32 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/417772125041.shtml)
-- 2026-06-30 06:43 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/890772782011.shtml)
-- 2026-06-30 06:27 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/7902855.shtml)
-- 2026-06-30 06:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/54257.shtml)
-- 2026-06-30 06:29 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/175127738184.shtml)
-- 2026-06-30 06:24 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/06584925498.shtml)
-- 2026-06-30 06:31 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/678956.shtml)
-- 2026-06-30 06:30 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/47078.shtml)
-- 2026-06-30 06:44 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/3708512.shtml)
-- 2026-06-30 06:23 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/02503.shtml)
-- 2026-06-30 06:40 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/452499.shtml)
-- 2026-06-30 06:36 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/64972105.shtml)
-- 2026-06-30 06:28 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/62567.shtml)
-- 2026-06-30 06:46 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/40175.shtml)
-- 2026-06-30 06:24 - [内马尔替补](https://www.blog.minike.top/Article/details/746290438.shtml)
+- 2026-06-30 06:49 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/0231235.shtml)
+- 2026-06-30 06:35 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/052695.shtml)
+- 2026-06-30 06:26 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/81272105.shtml)
+- 2026-06-30 06:29 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/17387540.shtml)
+- 2026-06-30 06:27 - [恋与深空 巧合](http://www.share.minike.top/Article/details/0408076.shtml)
+- 2026-06-30 06:33 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/846492.shtml)
+- 2026-06-30 06:38 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/35345.shtml)
+- 2026-06-30 06:44 - [千与千寻](http://www.share.kurohicncr.top/Article/details/26681.shtml)
+- 2026-06-30 06:45 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/661515.shtml)
+- 2026-06-30 06:26 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/14061856.shtml)
+- 2026-06-30 06:44 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/7862631.shtml)
+- 2026-06-30 06:39 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/92612.shtml)
+- 2026-06-30 06:32 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/47782393.shtml)
+- 2026-06-30 06:36 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/505617209783.shtml)
+- 2026-06-30 06:38 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/57385.shtml)

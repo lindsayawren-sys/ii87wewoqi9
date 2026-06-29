@@ -1,59 +1,56 @@
-# 星空卫视因运营陷入困境，明起停播
+# A股四大指数多数高开，存储芯片板块走强
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-界面新闻 5月6日，星空卫视官方微博发布公告，正式宣告因运营陷入困境，卫星合作方已通知该频道将于5月8日暂停卫星传输服务。公告同时明确表示，频道将积极推进业务重组，寻求频道资产收购、内容平台合作等多种发展可能，以新的模式延续品牌初心。 此次卫星传输暂停的直接原因是星空卫视持续面临的运营压力，核心在于高昂的卫星传输成本与萎缩的收入来源难以平衡。 卫星传输服务并非无偿，单转发器年租
+作者 | 一财阿驴 6月25日，A股四大指数多数高开，上证指数跌0.18%，深成指涨0.3%，创业板指涨0.63%，科创综指涨0.42%。 盘面上，半导体产业链持续走强，存储器、先进封装方向领涨；AI手机、玻璃基板、光刻机等指数活跃。黄金、锂电池、SPD、稀土、金融科技、AI应用题材走弱。市场逾3300股下跌。 具体来看，存储芯片板块高开，太极实业涨停，汇成股份涨超10%，盛视
 
 ## 正文
 
-界面新闻 5月6日，星空卫视官方微博发布公告，正式宣告因运营陷入困境，卫星合作方已通知该频道将于5月8日暂停卫星传输服务。
+作者 | 一财阿驴 6月25日，A股四大指数多数高开，上证指数跌0.18%，深成指涨0.3%，创业板指涨0.63%，科创综指涨0.42%。
 
-公告同时明确表示，频道将积极推进业务重组，寻求频道资产收购、内容平台合作等多种发展可能，以新的模式延续品牌初心。
+盘面上，半导体产业链持续走强，存储器、先进封装方向领涨；AI手机、玻璃基板、光刻机等指数活跃。
 
-此次卫星传输暂停的直接原因是星空卫视持续面临的运营压力，核心在于高昂的卫星传输成本与萎缩的收入来源难以平衡。
+黄金、锂电池、SPD、稀土、金融科技、AI应用题材走弱。
 
-卫星传输服务并非无偿，单转发器年租金就超过千万元。
+市场逾3300股下跌。
 
-近年来短视频、流媒体平台快速崛起，大幅挤压传统卫星电视的生存空间，导致电视广告市场份额持续下滑，星空卫视的广告收入也随之大幅缩减，进一步加剧运营压力。
+具体来看，存储芯片板块高开，太极实业涨停，汇成股份涨超10%，盛视科技、雅克科技、佰维存储、江波龙、胜科纳米跟涨。
 
-同时，星空卫视自身转型滞后，长期依赖传统卫星传输模式，未能及时适应媒介迭代趋势，缺乏独立线上传播平台和用户数据积累，内容制作与传播渠道脱节，即便拥有经典内容资源，也难以有效触达观众，逐渐被市场边缘化。
+消息面上，美光科技公布财报，受益于人工智能浪潮催生的存储芯片需求暴涨，公司2026财年第三季度业绩大幅增长，盘后股价大涨近16%。
 
-近年来，海外综艺、剧集的引进门槛提高，一定程度上也限制了星空卫视的内容供给，而星空卫视其自身内容创新不足，难以持续吸引观众，进一步影响收入增长。
+美光在公告中表示，三季度总营收414.6亿美元，市场预期358.4亿美元，去年同期93亿美元，毛利率大幅跳升，达84.9%，上一财季为74.9%，去年同期仅39%，大幅超出分析师预期。
 
-有网友看到公告后评论，感慨这是“时代的眼泪”、“天呐，以为你们早就不营业了，小时候老想看你们了”，“改成星空电影台或许还有一线生机”。
+本财季净利润282.4亿美元，每股收益24.46美元；对比去年同期净利润18.9亿美元、每股1.68美元。
 
 ## 相关推荐
 
-- 2026-06-30 06:39 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 06:34 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 06:19 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 06:46 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 06:22 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 06:41 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 06:19 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 06:21 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 06:42 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 06:25 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 06:19 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 06:38 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 06:31 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 06:41 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 06:51 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 06:34 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 06:44 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 06:32 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 06:34 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 06:52 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 06:45 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 06:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 06:37 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:44 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/35266927.shtml)
-- 2026-06-30 06:41 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/803101092487.shtml)
-- 2026-06-30 06:29 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/3090997.shtml)
-- 2026-06-30 06:24 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/5611926463.shtml)
-- 2026-06-30 06:30 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/048427127.shtml)
-- 2026-06-30 06:41 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/230098199.shtml)
-- 2026-06-30 06:42 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/91491159.shtml)
-- 2026-06-30 06:23 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/51561.shtml)
-- 2026-06-30 06:34 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/252034065581.shtml)
-- 2026-06-30 06:22 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/96970185665.shtml)
-- 2026-06-30 06:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/51017.shtml)
-- 2026-06-30 06:21 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/0107285273.shtml)
-- 2026-06-30 06:21 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/14601143743.shtml)
-- 2026-06-30 06:44 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/79531527483.shtml)
-- 2026-06-30 06:23 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/4565913.shtml)
+- 2026-06-30 06:29 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/03914.shtml)
+- 2026-06-30 06:46 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/528705333.shtml)
+- 2026-06-30 06:35 - [逃狱兄弟](http://www.blog.minike.top/Article/details/62621925801.shtml)
+- 2026-06-30 06:29 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/321468210.shtml)
+- 2026-06-30 06:35 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/884070.shtml)
+- 2026-06-30 06:53 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/528474.shtml)
+- 2026-06-30 06:44 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/101513104.shtml)
+- 2026-06-30 06:49 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/4454153788.shtml)
+- 2026-06-30 06:26 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/5706883.shtml)
+- 2026-06-30 06:24 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/61825326989.shtml)
+- 2026-06-30 06:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/333937488.shtml)
+- 2026-06-30 06:49 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/49316.shtml)
+- 2026-06-30 06:27 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/1917852.shtml)
+- 2026-06-30 06:24 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/012452764.shtml)
+- 2026-06-30 06:47 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/8236525718.shtml)

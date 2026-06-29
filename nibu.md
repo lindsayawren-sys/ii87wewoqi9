@@ -1,58 +1,58 @@
-# 2026年中国田径大众达标系列赛在肇庆举行
+# 2026年“1%工程”第一批开明足球学校共建签约暨授牌仪式在江西上饶举行
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新网肇庆5月6日电 (记者 张璐)据广东省田径协会5日消息，2026年中国田径大众达标系列赛暨广东省田径公开赛(第1站)4日在肇庆市体育中心体育场落幕。来自全国各地1440名田径爱好者齐聚“岭南名郡”——肇庆，用汗水与拼搏诠释了“全龄运动，青春不老”的赛事精神，奉献了一场速度与激情并存的田径盛宴。 本站比赛最小的参赛者仅3岁，最年长的参赛者54岁，穿越年龄的界限在同一片赛场上
+2026年“1%工程”第一批开明足球学校共建签约暨授牌仪式在上饶举行 在第23届国际足联世界杯正踢得如火如荼之际，为助推我省青少年足球发展，6月23日，2026年“1%工程”第一批开明足球学校共建签约暨授牌仪式在上饶市带湖小学举行。省政协副主席、民进省委会主委卢天锡，省委会副主委胡国良，上饶市副市长祝美清等出席。 仪式现场，卢天锡为2026年“1%工程”第一批开明足球学校——南
 
 ## 正文
 
-中新网肇庆5月6日电 (记者 张璐)据广东省田径协会5日消息，2026年中国田径大众达标系列赛暨广东省田径公开赛(第1站)4日在肇庆市体育中心体育场落幕。
+2026年“1%工程”第一批开明足球学校共建签约暨授牌仪式在上饶举行 在第23届国际足联世界杯正踢得如火如荼之际，为助推我省青少年足球发展，6月23日，2026年“1%工程”第一批开明足球学校共建签约暨授牌仪式在上饶市带湖小学举行。
 
-来自全国各地1440名田径爱好者齐聚“岭南名郡”——肇庆，用汗水与拼搏诠释了“全龄运动，青春不老”的赛事精神，奉献了一场速度与激情并存的田径盛宴。
+省政协副主席、民进省委会主委卢天锡，省委会副主委胡国良，上饶市副市长祝美清等出席。
 
-本站比赛最小的参赛者仅3岁，最年长的参赛者54岁，穿越年龄的界限在同一片赛场上同框竞技。
+仪式现场，卢天锡为2026年“1%工程”第一批开明足球学校——南昌市东湖区扬子洲学校、九江市濂溪区浔南小学、浮梁县新平中学、上饶市带湖小学、鹰潭市余江区第二中学、抚州市临川区第十六中学授牌，标志着这些学校正式成为“1%工程开明足球”共建学校。
 
-从60米、100米的短距离对决，到5000米、10000米的长距离耐力比拼，赛事项目设置兼具竞技性与参与性，充分满足了不同年龄段田径爱好者的参赛需求。
+胡国良向共建学校赠送民进书法名家书写的寄语，鼓励青少年在足球运动中熟悉规则、遵守规则、运用规则，在球场上保持放松心态与高度专注，练好基本功，更重要的是在学习和生活中运用足球精神，学会团结、坚韧、永奋进。
 
-据了解，为了提升赛事水平和广大跑友的参赛体验，组委会邀请了广东田径名将、肇庆籍运动员莫家蝶，近期状态火热的广东短跑新星陈嘉浩和吴昊霖来到现场，为获奖运动员颁发奖牌与证书。
+省委会社会服务部部长尹春亮介绍了“1%工程·开明足球”公益项目的背景、目标和具体实施规划，并和6所学校现场签约。
 
-此前，陈嘉浩在这里跑出10秒22的个人最好成绩，力压群雄夺得百米冠军；莫家蝶以13秒08的“跨项首秀”成绩，一举斩获职业生涯首个百米栏全国冠军。
+省青少年发展基金会理事长毛鸿山代表“1%工程”向6所共学校举牌捐赠。
 
-据介绍，本次赛事为广大田径爱好者提供了一个高水平、规范化的竞技交流平台，展示了广东田径蓬勃发展的群众基础和青少年后备人才储备。
+此次公益活动为6所学校捐赠了足球运动专项经费、图书、足球等物资，总价值达30万元。
 
-(完)
+活动由民进上饶市委会主委付春平主持，上饶市教育局局长刘平，民进南昌市委会、九江市委会、景德镇市委会、鹰潭市委会、抚州市工委及6所共建学校代表参加。
 
 ## 相关推荐
 
-- 2026-06-30 06:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 06:35 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 06:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 06:47 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 06:26 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 06:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 06:22 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 06:45 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 06:23 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 06:22 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 06:36 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 06:47 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 06:48 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 06:35 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 06:45 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 06:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 06:38 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 06:50 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 06:47 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 06:36 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 06:29 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 06:35 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 06:41 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 06:50 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:37 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/643744.shtml)
-- 2026-06-30 06:31 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/110287587367.shtml)
-- 2026-06-30 06:45 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/62924466544.shtml)
-- 2026-06-30 06:19 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/657413291.shtml)
-- 2026-06-30 06:36 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/82527.shtml)
-- 2026-06-30 06:39 - [《共患难》](https://www.blog.minike.top/Article/details/847707.shtml)
-- 2026-06-30 06:39 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/4491476.shtml)
-- 2026-06-30 06:21 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/579150609.shtml)
-- 2026-06-30 06:23 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/00831609343.shtml)
-- 2026-06-30 06:36 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/88628638.shtml)
-- 2026-06-30 06:23 - [极限挑战第一季](http://www.blog.minike.top/Article/details/5298905690.shtml)
-- 2026-06-30 06:46 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/618259174.shtml)
-- 2026-06-30 06:39 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/849556.shtml)
-- 2026-06-30 06:20 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/241663081.shtml)
-- 2026-06-30 06:48 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/1325749.shtml)
+- 2026-06-30 06:40 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/8050783.shtml)
+- 2026-06-30 06:49 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/011246.shtml)
+- 2026-06-30 06:44 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/71793.shtml)
+- 2026-06-30 06:52 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/642468270178.shtml)
+- 2026-06-30 06:50 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/20471.shtml)
+- 2026-06-30 06:51 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/899813695.shtml)
+- 2026-06-30 06:44 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/20076232169.shtml)
+- 2026-06-30 06:30 - [周生如故](http://www.share.minike.top/Article/details/221499.shtml)
+- 2026-06-30 06:26 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/7609091.shtml)
+- 2026-06-30 06:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/96945391030.shtml)
+- 2026-06-30 06:34 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/14172786784.shtml)
+- 2026-06-30 06:47 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/72031878.shtml)
+- 2026-06-30 06:33 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/788780018959.shtml)
+- 2026-06-30 06:29 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/1582363.shtml)
+- 2026-06-30 06:25 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/82595515562.shtml)

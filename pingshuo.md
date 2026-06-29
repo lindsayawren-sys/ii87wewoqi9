@@ -1,59 +1,57 @@
-# A股收评：超3500只个股飘红，三大指数集体收涨
+# 工资里这笔“养老钱”三年赚了11.31%，更多打工人有望受益
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-A股收评：超3500只个股飘红，三大指数集体收涨；光通信概念股爆发，互联网、半导体板块上涨，煤炭、油气股大跌 7日，A股三大指数高开高走，集体收涨。Wind数据显示，截至收盘，上证指数涨0.48%，深证成指涨1.18%，创业板指涨1.45%。 全市成交额3.17万亿，超3500只个股上涨。 板块方面，算力硬件产业链延续强势，光纤、CPO方向领涨。太空光伏、光刻机、工业母机、AI
+21世纪经济报道记者 林汉垚每个月工资里扣除的一笔企业年金缴费，正在悄悄积累成一笔规模超4万亿元的养老资金。近日，人力资源和社会保障部最新披露的数据显示，截至2026年一季度末，全国企业年金积累基金规模达到42798.99亿元。与此同时，企业年金基金近三年累计收益率达到11.31%，继续保持双位数水平。在规模增长和收益表现之外，企业年金的发展也正在迎来新的变化。随着《关于进一步
 
 ## 正文
 
-A股收评：超3500只个股飘红，三大指数集体收涨；光通信概念股爆发，互联网、半导体板块上涨，煤炭、油气股大跌 7日，A股三大指数高开高走，集体收涨。
+21世纪经济报道记者 林汉垚每个月工资里扣除的一笔企业年金缴费，正在悄悄积累成一笔规模超4万亿元的养老资金。
 
-Wind数据显示，截至收盘，上证指数涨0.48%，深证成指涨1.18%，创业板指涨1.45%。
+近日，人力资源和社会保障部最新披露的数据显示，截至2026年一季度末，全国企业年金积累基金规模达到42798.99亿元。
 
-全市成交额3.17万亿，超3500只个股上涨。
+与此同时，企业年金基金近三年累计收益率达到11.31%，继续保持双位数水平。
 
-板块方面，算力硬件产业链延续强势，光纤、CPO方向领涨。
+在规模增长和收益表现之外，企业年金的发展也正在迎来新的变化。
 
-太空光伏、光刻机、工业母机、AI应用、消费电子、短剧游戏概念股活跃。
+随着《关于进一步做好企业年金工作的意见》（以下简称《意见》）落地，降低参与门槛、推广集合计划、扩大覆盖范围成为政策发力方向。
 
-煤炭、油气、锂矿板块调整。
+收益率保持两位数增长与2025年年末相比，企业年金基金继续保持规模扩张和收益稳健的态势。
 
-（中新经纬微信公众号）
+最新数据显示，2026年一季度末，企业年金积累基金规模达到42798.99亿元，较2025年末增长1.78%。
+
+同期，企业年金投资资产净值达到42521.54亿元，环比增长1.99%。
 
 ## 相关推荐
 
-- 2026-06-30 06:32 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 06:40 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 06:33 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 06:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 06:35 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-30 06:31 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 06:28 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 06:24 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 06:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 06:34 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 06:44 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 06:41 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 06:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 06:43 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 06:26 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 06:25 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 06:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 06:34 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 06:28 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 06:44 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 06:53 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 06:47 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 06:47 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 06:49 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 06:49 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 06:33 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:41 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/02925209.shtml)
-- 2026-06-30 06:24 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/163344364.shtml)
-- 2026-06-30 06:18 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/023192876.shtml)
-- 2026-06-30 06:40 - [女心理师](http://www.share.minike.top/Article/details/728485.shtml)
-- 2026-06-30 06:28 - [苗族银饰](https://www.blog.minike.top/Article/details/546799494.shtml)
-- 2026-06-30 06:40 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/70978.shtml)
-- 2026-06-30 06:40 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/67122240524.shtml)
-- 2026-06-30 06:42 - [速度与激情9](http://www.blog.minike.top/Article/details/402596926346.shtml)
-- 2026-06-30 06:31 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/449608.shtml)
-- 2026-06-30 06:46 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/06405836.shtml)
-- 2026-06-30 06:47 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/43163.shtml)
-- 2026-06-30 06:36 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/572892262.shtml)
-- 2026-06-30 06:25 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/2292016343.shtml)
-- 2026-06-30 06:46 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/9262436408.shtml)
-- 2026-06-30 06:27 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/4933821907.shtml)
+- 2026-06-30 06:49 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/37045.shtml)
+- 2026-06-30 06:45 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/08688270469.shtml)
+- 2026-06-30 06:51 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/488194564947.shtml)
+- 2026-06-30 06:31 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/14191338944.shtml)
+- 2026-06-30 06:44 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/28460696119.shtml)
+- 2026-06-30 06:42 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/2557025182.shtml)
+- 2026-06-30 06:52 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/67977836525.shtml)
+- 2026-06-30 06:30 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/09143667.shtml)
+- 2026-06-30 06:44 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/2860318.shtml)
+- 2026-06-30 06:30 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/0316238.shtml)
+- 2026-06-30 06:32 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/84487931315.shtml)
+- 2026-06-30 06:51 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/62824988.shtml)
+- 2026-06-30 06:42 - [斛珠夫人](https://www.share.minike.top/Article/details/74231076969.shtml)
+- 2026-06-30 06:48 - [日本进球](https://www.blog.minike.top/Article/details/6224468851.shtml)
+- 2026-06-30 06:39 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/677243392160.shtml)

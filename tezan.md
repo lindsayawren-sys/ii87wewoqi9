@@ -1,60 +1,61 @@
-# 逆市下跌，港股医药现低吸机遇？520880、159137溢价飙升！创新药产业链普跌，后续仍有催化
+# 中国工程院院士许健民获国际气象组织奖
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-5月6日，港股大面积反弹，医药意外掉队，100%创新药研发标的——港股通创新药ETF华宝（520880）、医疗核心资产——港股通医疗ETF华宝（159137）双双跌逾1%。值得关注的是，两只ETF场内均呈现宽幅溢价，显示买盘资金活跃。 成份股方面，创新药龙头普跌，信达生物跌超2%，石药集团、三生制药跌超3%，映恩生物-B跌超5%。港股通医疗板块CXO概念为主要拖累，药明生物、药
+中新社北京6月24日电 记者24日从中国气象局获悉，当地时间6月24日，中国工程院院士许健民在瑞士日内瓦领取第70届国际气象组织(IMO)奖。 国际气象组织奖是全球气象界的最高荣誉奖项，被誉为“气象界诺贝尔奖”。该奖项每年颁发一次，用于奖励全球在气象、水文和地球物理科学领域作出过杰出贡献的人士。 作为中国风云气象卫星事业的奠基人与开拓者，许健民领导并制定了风云气象卫星发展蓝图，
 
 ## 正文
 
-5月6日，港股大面积反弹，医药意外掉队，100%创新药研发标的——港股通创新药ETF华宝（520880）、医疗核心资产——港股通医疗ETF华宝（159137）双双跌逾1%。
+中新社北京6月24日电 记者24日从中国气象局获悉，当地时间6月24日，中国工程院院士许健民在瑞士日内瓦领取第70届国际气象组织(IMO)奖。
 
-值得关注的是，两只ETF场内均呈现宽幅溢价，显示买盘资金活跃。
+国际气象组织奖是全球气象界的最高荣誉奖项，被誉为“气象界诺贝尔奖”。
 
-成份股方面，创新药龙头普跌，信达生物跌超2%，石药集团、三生制药跌超3%，映恩生物-B跌超5%。
+该奖项每年颁发一次，用于奖励全球在气象、水文和地球物理科学领域作出过杰出贡献的人士。
 
-港股通医疗板块CXO概念为主要拖累，药明生物、药明康德跌逾1%。
+作为中国风云气象卫星事业的奠基人与开拓者，许健民领导并制定了风云气象卫星发展蓝图，推动风云一号极轨气象卫星和风云二号静止气象卫星研制发射，实现了中国气象卫星从无到有的历史性突破。
 
-消息面上，2026年ASCO年会将于5月29日至6月2日在芝加哥举行，东吴证券指出，中国创新药企本届ASCO表现进一步从“数量爆发”走向“质量突破”，12家企业13项研究入选LBA，创历史新高。
+他带领团队攻克卫星云图高精度定位、图像抖动校正等一批气象卫星应用关键技术，推动风云气象卫星成为气象预报预测、应对气候变化、助力防灾减灾的重要手段。
 
-整体来看，国产创新药或正加速进入国际高等级临床证据兑现阶段。
+同时，他引领风云气象卫星服务全球，完成风云二号H星轨道优化，填补了印度洋静止气象卫星观测的空白；促成发射全球首颗民用晨昏轨道业务气象卫星——风云三号E星，填补天基观测系统的关键空白。
 
-CXO方面，浙商医药团队指出，在产业持续出清，股价相对低位背景下，看好本土头部CDMO企业和受益国内需求复苏CRO企业底部投资机会。
+许健民还非常关心空间天气业务发展，提出要做好太阳活动的监视，用科学态度分析太阳活动对气候变化的影响。
 
-从财务、需求和供给数据分析，我们认为CXO基本面拐点已经出现，并有望持续复苏。
+中国风云气象卫星事业实现从跟跑到并跑、部分领跑的跨越式发展。
 
 ## 相关推荐
 
-- 2026-06-30 06:23 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 06:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 06:26 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 06:38 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 06:44 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 06:34 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 06:23 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 06:25 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 06:42 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-30 06:34 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-30 06:27 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 06:23 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 06:42 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 06:23 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 06:33 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 06:24 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 06:51 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 06:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 06:35 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 06:30 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 06:28 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 06:39 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 06:31 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 06:39 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 06:34 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 06:44 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 06:50 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 06:32 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 06:36 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:36 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/879495.shtml)
-- 2026-06-30 06:31 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/2812544.shtml)
-- 2026-06-30 06:33 - [小娘惹](https://www.share.minike.top/Article/details/706190709.shtml)
-- 2026-06-30 06:20 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/271559056362.shtml)
-- 2026-06-30 06:32 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/0568660.shtml)
-- 2026-06-30 06:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/7933676.shtml)
-- 2026-06-30 06:31 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/50924375797.shtml)
-- 2026-06-30 06:33 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/50466730.shtml)
-- 2026-06-30 06:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/134081.shtml)
-- 2026-06-30 06:34 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/078671.shtml)
-- 2026-06-30 06:45 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/4940381.shtml)
-- 2026-06-30 06:38 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/621629706147.shtml)
-- 2026-06-30 06:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/995437043.shtml)
-- 2026-06-30 06:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/33032650242.shtml)
-- 2026-06-30 06:37 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/0849065536.shtml)
+- 2026-06-30 06:44 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/6514428.shtml)
+- 2026-06-30 06:37 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/01511999058.shtml)
+- 2026-06-30 06:39 - [毒液2](http://www.share.minike.top/Article/details/05138679.shtml)
+- 2026-06-30 06:49 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/08609808.shtml)
+- 2026-06-30 06:30 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/0353793345.shtml)
+- 2026-06-30 06:38 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/6898052.shtml)
+- 2026-06-30 06:46 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/2136891462.shtml)
+- 2026-06-30 06:39 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/112917.shtml)
+- 2026-06-30 06:50 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/722024008.shtml)
+- 2026-06-30 06:43 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/23232355.shtml)
+- 2026-06-30 06:38 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/94923.shtml)
+- 2026-06-30 06:38 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/10927.shtml)
+- 2026-06-30 06:42 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/3442988862.shtml)
+- 2026-06-30 06:38 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/11439714.shtml)
+- 2026-06-30 06:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/444079166.shtml)

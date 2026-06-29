@@ -1,58 +1,49 @@
-# “东莞首富”拿下190亿算力大单，是馅饼还是陷阱？
+# 位元堂发布年度业绩 股东应占溢利399.2万港元同比下降43.8%
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源 | 野马财经 作者 | 孙梦圆 入局算力，能否接住泼天的富贵？ 宣布鲸吞280亿秦淮数据后，5月6日，东阳光（600673.SH）又接下了最高190亿元的算力大单。 公告称，东阳光控股子公司东莞东阳光云智算科技有限公司与某企业A公司签署的《算力服务采购
+位元堂（00897）发布截至2026年3月31日止年度业绩，收益6.83亿港元，同比下降8.3%；母公司拥有人应占溢利399.2万港元，同比下降43.8%；每股基本盈利0.35港仙。 期内利润减少乃主要由于（i）物业、厂房及设备减值亏损增加；（ii）投资物业公平值收益变为公平值亏损；（iii）出售物业、厂房及设备项目之收益减少的综合影响，而以上则部分被销售及分销开支以及融资成本
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+位元堂（00897）发布截至2026年3月31日止年度业绩，收益6.83亿港元，同比下降8.3%；母公司拥有人应占溢利399.2万港元，同比下降43.8%；每股基本盈利0.35港仙。
 
-来源 | 野马财经 作者 | 孙梦圆 入局算力，能否接住泼天的富贵？
+期内利润减少乃主要由于（i）物业、厂房及设备减值亏损增加；（ii）投资物业公平值收益变为公平值亏损；（iii）出售物业、厂房及设备项目之收益减少的综合影响，而以上则部分被销售及分销开支以及融资成本减少所抵销。
 
-宣布鲸吞280亿秦淮数据后，5月6日，东阳光（600673.SH）又接下了最高190亿元的算力大单。
-
-公告称，东阳光控股子公司东莞东阳光云智算科技有限公司与某企业A公司签署的《算力服务采购框架合同》，合同预计总金额区间为160亿元至190亿元（含税），合同期限为合同约定的订单验收通过后60个月。
-
-东阳光表示，本次大额算力服务合同的成功签署，不仅为东阳光算力业务板块锁定了稳定且长期的收入来源，更成为公司深耕智算服务领域、夯实算力业务核心竞争力的关键里程碑，为公司打造强劲的第二增长曲线奠定坚实基础。
-
-消息一出，东阳光收获两连板，7日股价报42.83元/股，市值站上了1289亿元的高位。
-
-但市场也对这笔买卖质疑声满满，首先，架构存疑：关联方刚斥资280亿收购成熟算力资产秦淮数据不用，却让一家无业绩的空壳子公司承接神秘“A公司”百亿大单，背景成谜令人联想海南华铁（维权）“烂尾”前车之鉴。
-
-其次，资金承压：公司负债率超66%，净利微薄，却需全额垫资数十亿买服务器，且回款周期长达五年，一旦融资受阻导致交付延期，客户便可无责解约。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:18 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-30 06:30 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 06:21 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 06:29 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 06:45 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 06:41 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 06:18 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 06:42 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 06:27 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 06:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 06:26 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 06:23 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 06:27 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 06:30 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 06:41 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 06:32 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 06:25 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 06:40 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 06:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 06:47 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 06:43 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 06:38 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 06:35 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 06:40 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 06:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:22 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/4640121305.shtml)
-- 2026-06-30 06:29 - [美股](https://www.blog.kurohicncr.top/Article/details/4432307.shtml)
-- 2026-06-30 06:21 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/69598123401.shtml)
-- 2026-06-30 06:38 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/11922773.shtml)
-- 2026-06-30 06:19 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/5377321081.shtml)
-- 2026-06-30 06:34 - [千与千寻](http://www.share.kurohicncr.top/Article/details/506002.shtml)
-- 2026-06-30 06:25 - [恋与深空 日服](http://www.share.minike.top/Article/details/419390652479.shtml)
-- 2026-06-30 06:24 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/70145.shtml)
-- 2026-06-30 06:43 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/152891048229.shtml)
-- 2026-06-30 06:32 - [起风了](http://www.blog.minike.top/Article/details/5477382.shtml)
-- 2026-06-30 06:40 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/16082.shtml)
-- 2026-06-30 06:19 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/358814596.shtml)
-- 2026-06-30 06:32 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/1886438.shtml)
-- 2026-06-30 06:37 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/753797808.shtml)
-- 2026-06-30 06:21 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/46140583675.shtml)
+- 2026-06-30 06:26 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/27854.shtml)
+- 2026-06-30 06:38 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/96265.shtml)
+- 2026-06-30 06:29 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/5657075040.shtml)
+- 2026-06-30 06:33 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/0565672.shtml)
+- 2026-06-30 06:48 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/39240861755.shtml)
+- 2026-06-30 06:40 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/523695225274.shtml)
+- 2026-06-30 06:28 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/133999.shtml)
+- 2026-06-30 06:51 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/1153789.shtml)
+- 2026-06-30 06:45 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/84979450549.shtml)
+- 2026-06-30 06:33 - [扫黑风暴](http://www.share.minike.top/Article/details/73494.shtml)
+- 2026-06-30 06:46 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/08960943928.shtml)
+- 2026-06-30 06:48 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/965220.shtml)
+- 2026-06-30 06:50 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/463431052.shtml)
+- 2026-06-30 06:27 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/83341.shtml)
+- 2026-06-30 06:40 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/52161.shtml)

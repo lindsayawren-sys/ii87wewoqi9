@@ -1,57 +1,56 @@
-# 优步上调订单交易额指引 股价暴涨 10%
+# Kalshi寻求以400亿美元估值进行新一轮融资
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 核心要点 这家网约车巨头周三公布一季度营收不及市场预期，但给出的当季订单交易额指引大幅超越分析师预测，财报发布后股价飙升 10%。 路孚特统计的华尔街预期与优步实际业绩对比： 优步表示，由于股权投资公允价值重估，一季度净利润受到 15 亿美元拖累。公司在财报中称，非通用会计准则每股收益为 0.72 美元。优步持有亚洲出行企业滴滴与 Grab
+Kalshi正冲击400亿美元估值，其与Polymarket的差距从未如此悬殊。 Kalshi最新一轮融资谈判不仅仅是一次常规的估值上调。它表明，受监管的预测市场正被迅速视为金融基础设施，而Polymarket仍在花钱买路，试图回到同一起跑线。 Kalshi目前正尝试以约400亿美元的估值进行融资，不妨先静下心来审视一下这个数字。2025年6月，在由Paradigm领投的1.8
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 核心要点 这家网约车巨头周三公布一季度营收不及市场预期，但给出的当季订单交易额指引大幅超越分析师预测，财报发布后股价飙升 10%。
+Kalshi正冲击400亿美元估值，其与Polymarket的差距从未如此悬殊。
 
-路孚特统计的华尔街预期与优步实际业绩对比： 优步表示，由于股权投资公允价值重估，一季度净利润受到 15 亿美元拖累。
+Kalshi最新一轮融资谈判不仅仅是一次常规的估值上调。
 
-公司在财报中称，非通用会计准则每股收益为 0.72 美元。
+它表明，受监管的预测市场正被迅速视为金融基础设施，而Polymarket仍在花钱买路，试图回到同一起跑线。
 
-优步持有亚洲出行企业滴滴与 Grab 的股权。
+Kalshi目前正尝试以约400亿美元的估值进行融资，不妨先静下心来审视一下这个数字。
 
-受此次估值重估带来的税前利空影响，公司净利润从去年同期 17.8 亿美元骤降至2.63 亿美元；一季度营收同比增长 14%，从 115 亿美元增至 132 亿美元。
+2025年6月，在由Paradigm领投的1.85亿美元融资后，该公司的估值为20亿美元。
 
-外卖配送是优步增长最快的业务板块，一季度营收从去年同期 37.8 亿美元增至50.7 亿美元，同比大涨 34%，高于分析师平均预期的 48.9 亿美元。
+到了12月，估值达到110亿美元。
 
-公司称，澳大利亚、日本、英国外卖业务增长势头强劲。
+2026年5月，Kalshi从Coatue、红杉资本、AndreessenHorowitz和摩根士丹利等投资者手中筹集了10亿美元，估值达到220亿美元。
 
-营收整体不及预期，主要受 ** 出行业务（网约车）** 拖累：该板块营收同比仅增长 5%，至 68 亿美元，低于市场预期的 71.1 亿美元。
+该公司已就新一轮融资展开深入谈判，该轮融资最早可能在第三季度完成。
 
 ## 相关推荐
 
-- 2026-06-30 06:38 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 06:35 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 06:37 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 06:41 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 06:47 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 06:31 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 06:43 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 06:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 06:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 06:23 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 06:33 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 06:43 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 06:38 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 06:37 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 06:36 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 06:40 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 06:44 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 06:30 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 06:27 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-30 06:52 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 06:41 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:25 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/3941868.shtml)
-- 2026-06-30 06:41 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/89902.shtml)
-- 2026-06-30 06:19 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/872018361.shtml)
-- 2026-06-30 06:41 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/5764087748.shtml)
-- 2026-06-30 06:45 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/8082368230.shtml)
-- 2026-06-30 06:47 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/98430678.shtml)
-- 2026-06-30 06:39 - [德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/66605.shtml)
-- 2026-06-30 06:36 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/1127681.shtml)
-- 2026-06-30 06:20 - [一见倾心](https://www.share.kurohicncr.top/Article/details/007884.shtml)
-- 2026-06-30 06:45 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/167554142.shtml)
-- 2026-06-30 06:41 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/075040076.shtml)
-- 2026-06-30 06:42 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/283637146.shtml)
-- 2026-06-30 06:36 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/496925465041.shtml)
-- 2026-06-30 06:39 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/00338417.shtml)
-- 2026-06-30 06:28 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/65869376160.shtml)
+- 2026-06-30 06:35 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/9984829.shtml)
+- 2026-06-30 06:50 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/2086846836.shtml)
+- 2026-06-30 06:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/494513856503.shtml)
+- 2026-06-30 06:35 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/50347671598.shtml)
+- 2026-06-30 06:28 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/948617948.shtml)
+- 2026-06-30 06:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/7854313738.shtml)
+- 2026-06-30 06:36 - [金刚川](https://www.share.minike.top/Article/details/853850398.shtml)
+- 2026-06-30 06:30 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/163991.shtml)
+- 2026-06-30 06:53 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/0296540.shtml)
+- 2026-06-30 06:41 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/863499195.shtml)
+- 2026-06-30 06:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/73301618.shtml)
+- 2026-06-30 06:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/14695.shtml)
+- 2026-06-30 06:33 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/079010611893.shtml)
+- 2026-06-30 06:38 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/02816847.shtml)
+- 2026-06-30 06:52 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/431943684336.shtml)

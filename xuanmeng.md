@@ -1,59 +1,58 @@
-# 三百万只萤火虫点亮一座城 浙江丽水莲都的突围路
+# 量化“固收+”成为理财新趋势，富国鸿利增强今日首发
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新网丽水5月7日电(胡丰盛 吴炫伟)暮春的浙江丽水九龙湿地，晚风拂过林间，300万只萤火虫提着微光飞舞，在林间、草间、溪畔织就流动星河数，吸引数十万名“追光者”从全国各地过来打卡。 萤火虫是生态的“质检官”。这种对水质、湿度、光照极度敏感的小生灵，被学界公认为可视化生态指示物种。 然而，守着漫天流萤，九龙湿地附近的民宿、小吃店却一度冷冷清清，赏萤游客甚至比不上隔壁花海的零头。
+低利率环境下，居民存款搬家正在加速。央行数据显示，2026年4月和5月，中国居民存款合计减少2.05万亿元，这是近十年来居民存款首次出现连续两个月负增长。同期，以理财、基金、保险为代表的非银金融机构存款大幅增加3.61万亿元，显示出广大投资者对于稳健理财的迫切需求。 在这股热潮中，量化“固收+”成为稳健投资者的进阶之选。量化 “固收+”，即以债券为底仓求稳健，以权益资产为增厚收
 
 ## 正文
 
-中新网丽水5月7日电(胡丰盛 吴炫伟)暮春的浙江丽水九龙湿地，晚风拂过林间，300万只萤火虫提着微光飞舞，在林间、草间、溪畔织就流动星河数，吸引数十万名“追光者”从全国各地过来打卡。
+低利率环境下，居民存款搬家正在加速。
 
-萤火虫是生态的“质检官”。
+央行数据显示，2026年4月和5月，中国居民存款合计减少2.05万亿元，这是近十年来居民存款首次出现连续两个月负增长。
 
-这种对水质、湿度、光照极度敏感的小生灵，被学界公认为可视化生态指示物种。
+同期，以理财、基金、保险为代表的非银金融机构存款大幅增加3.61万亿元，显示出广大投资者对于稳健理财的迫切需求。
 
-然而，守着漫天流萤，九龙湿地附近的民宿、小吃店却一度冷冷清清，赏萤游客甚至比不上隔壁花海的零头。
+在这股热潮中，量化“固收+”成为稳健投资者的进阶之选。
 
-如何破圈突围？
+量化 “固收+”，即以债券为底仓求稳健，以权益资产为增厚收益的手段，并结合量化模型充分挖掘细碎、分散的超额收益，力争让持有体验更优。
 
-当地干部跨部门组建了一个以文旅、宣传、运营人员为主的团队——萤火虫·文旅融合技能共富服务团(简称“服务团”)，让萤火虫照亮致富路。
+而今日正式发行的富国鸿利增强（A类：027948；C类：027949），正是一只深度融合量化模型与 AI 技术的量化“固收+”产品，力争在波动中寻找确定性机会，打造中长期底仓配置的优质选择。
 
-服务团在讨论春季营销主题时，拉出了一张涵盖华东十多个赏萤地的对比表，赏萤期、位置、社交媒体声量、游客评价关键词，十几项指标密密麻麻。
+从资产配置策略来看，富国鸿利增强属于红利风格的“固收+”基金，采用“纯债打底+红利增强”的策略，债券资产仓位不低于80%，权益及转债类资产仓位控制在5%-20%区间，以红利增强策略为核心，兼顾收益弹性与回撤控制。
 
-就在这张表上，他们发现了一个被所有人忽略的细节：九龙湿地的萤火虫比周边地区早活跃整整两周。
+对于“固收+”组合而言，“+”的部分选择不同的风格，往往会带来不同的持有体验。
 
 ## 相关推荐
 
-- 2026-06-30 06:20 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 06:44 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 06:25 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 06:46 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 06:47 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 06:18 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-30 06:42 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 06:43 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 06:33 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 06:47 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 06:47 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 06:32 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 06:29 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 06:50 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 06:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 06:24 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 06:38 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 06:26 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 06:44 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 06:32 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 06:52 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 06:50 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 06:28 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 06:31 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 06:31 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:46 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/878250.shtml)
-- 2026-06-30 06:20 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/5544524.shtml)
-- 2026-06-30 06:18 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/1056628.shtml)
-- 2026-06-30 06:34 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/96532523183.shtml)
-- 2026-06-30 06:37 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/798621979.shtml)
-- 2026-06-30 06:40 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/2316576.shtml)
-- 2026-06-30 06:41 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/398060455.shtml)
-- 2026-06-30 06:37 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/18730233619.shtml)
-- 2026-06-30 06:29 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/2902071.shtml)
-- 2026-06-30 06:21 - [美人鱼](http://www.blog.minike.top/Article/details/09691722775.shtml)
-- 2026-06-30 06:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/79282.shtml)
-- 2026-06-30 06:24 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/6674540.shtml)
-- 2026-06-30 06:31 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/5845032354.shtml)
-- 2026-06-30 06:19 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/5651744.shtml)
-- 2026-06-30 06:30 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/85358583066.shtml)
+- 2026-06-30 06:42 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/41565.shtml)
+- 2026-06-30 06:35 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/9641206484.shtml)
+- 2026-06-30 06:52 - [周生如故](https://www.share.minike.top/Article/details/62877849842.shtml)
+- 2026-06-30 06:27 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/1738074.shtml)
+- 2026-06-30 06:25 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/9327078740.shtml)
+- 2026-06-30 06:31 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/08647164.shtml)
+- 2026-06-30 06:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/9431064294.shtml)
+- 2026-06-30 06:50 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/2254937281.shtml)
+- 2026-06-30 06:39 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/497672.shtml)
+- 2026-06-30 06:42 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/72052227.shtml)
+- 2026-06-30 06:49 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/61482215.shtml)
+- 2026-06-30 06:28 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/4847765205.shtml)
+- 2026-06-30 06:42 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/58299.shtml)
+- 2026-06-30 06:34 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/50297446.shtml)
+- 2026-06-30 06:46 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/084159195523.shtml)

@@ -1,50 +1,56 @@
-# SpaceX将向Anthropic开放其大型AI超级计算机使用权
+# 长江有色：25日镍价下跌 商家询盘谨慎下游观望情绪浓厚
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-埃隆・马斯克旗下的 SpaceX 公司于周三宣布，已签署合作协议，向人工智能企业 Anthropic 开放Colossus 1大型 AI 超级计算机的使用权限。此举标志着人工智能赛道两大顶尖巨头正式联手。 SpaceX 在官网公告中表示，Anthropic 将借助这批新增算力，提升旗下 AI 助手Claude Pro与Claude Max付费订阅用户的服务承载能力。 这家航天企
+长江有色金属网 ccmn沪镍走势：今日午盘后沪期镍区间震荡下跌，沪期镍主力月2607合约开盘报129340元/吨，盘中最高报130390元/吨，最低价报127220元/吨，收盘报130140元/吨，下跌1040元/吨，跌幅0.79%，沪镍主力月2607主力合约成交量193980手。 据长江有色属网统计：6月25日ccmn长江综合1#镍价报129150元/吨-130750元/吨，
 
 ## 正文
 
-埃隆・马斯克旗下的 SpaceX 公司于周三宣布，已签署合作协议，向人工智能企业 Anthropic 开放Colossus 1大型 AI 超级计算机的使用权限。
+长江有色金属网 ccmn沪镍走势：今日午盘后沪期镍区间震荡下跌，沪期镍主力月2607合约开盘报129340元/吨，盘中最高报130390元/吨，最低价报127220元/吨，收盘报130140元/吨，下跌1040元/吨，跌幅0.79%，沪镍主力月2607主力合约成交量193980手。
 
-此举标志着人工智能赛道两大顶尖巨头正式联手。
+据长江有色属网统计：6月25日ccmn长江综合1#镍价报129150元/吨-130750元/吨，均价报129950元/吨，较前一日价格下跌2500元，长江现货1#镍报129200元/吨-130800元/吨，均价报130000元/吨，较前一日价格下跌2500元，广东现货镍报131000元/吨-131400元/吨，均价报131200元/吨，较前一日价格下跌2100元。
 
-SpaceX 在官网公告中表示，Anthropic 将借助这批新增算力，提升旗下 AI 助手Claude Pro与Claude Max付费订阅用户的服务承载能力。
+宏观面影响因素 海外市场通胀预期抬升，加息预期推高美元指数，美元计价工业金属估值承压；美股风险资产走弱，资金撤离大宗商品板块。
 
-这家航天企业补充称，Anthropic 还有意与 SpaceX 合作，共同建设数吉瓦级太空轨道 AI 算力基础设施。
+国内月末资金回笼，制造业消费刺激政策暂未落地，市场采购情绪低迷，内外利空共振。
 
-责任编辑：郭明煜
+叠加印尼传出年度采矿配额上调至 3.6 亿吨，远超年初 2.6 亿吨初始额度，供给扩容预期直接击穿沪镍底部支撑，伦镍跌破 17000 关口，尾盘加速下行。
+
+全品类镍原料供需与产业链格局 红土镍矿：菲律宾低品位矿发运增量明显，弥补印尼矿配额上调带来的流通增量；硫化镍矿产出增量有限，供给刚性较强。
+
+镍铁、高冰镍小幅紧缺，高冰镍产纯镍具备成本优势，镍铁转产通道打开，上游挺价惜售，下游仅零散成交；MHP 湿法冶炼受硫磺成本压制，开工负荷下调；再生镍产能扩张但废料流通不足，替代作用有限。
+
+下游不锈钢、三元电池同步淡季，刚需采购为主，全链累库延续。
 
 ## 相关推荐
 
-- 2026-06-30 06:45 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 06:30 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 06:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 06:42 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 06:45 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 06:30 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 06:46 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 06:40 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 06:29 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 06:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 06:46 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 06:36 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 06:36 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 06:31 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 06:42 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 06:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 06:43 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 06:45 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 06:29 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 06:25 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:39 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/24610.shtml)
-- 2026-06-30 06:32 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/688306.shtml)
-- 2026-06-30 06:28 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/026344101390.shtml)
-- 2026-06-30 06:47 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/1128280051.shtml)
-- 2026-06-30 06:34 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/49683662.shtml)
-- 2026-06-30 06:36 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/116987.shtml)
-- 2026-06-30 06:31 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/93920179156.shtml)
-- 2026-06-30 06:47 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/5999082.shtml)
-- 2026-06-30 06:23 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/517763920894.shtml)
-- 2026-06-30 06:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/8546835822.shtml)
-- 2026-06-30 06:38 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/89328249.shtml)
-- 2026-06-30 06:47 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/38673963201.shtml)
-- 2026-06-30 06:48 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/17548808.shtml)
-- 2026-06-30 06:38 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/42252864.shtml)
-- 2026-06-30 06:36 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/325049752.shtml)
+- 2026-06-30 06:27 - [千与千寻](http://www.share.minike.top/Article/details/3600618.shtml)
+- 2026-06-30 06:41 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/573283642034.shtml)
+- 2026-06-30 06:33 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/8709000952.shtml)
+- 2026-06-30 06:47 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/8032382.shtml)
+- 2026-06-30 06:28 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/728070.shtml)
+- 2026-06-30 06:30 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/23708.shtml)
+- 2026-06-30 06:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/91694.shtml)
+- 2026-06-30 06:30 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/3892696.shtml)
+- 2026-06-30 06:48 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/668741491.shtml)
+- 2026-06-30 06:24 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/770271735.shtml)
+- 2026-06-30 06:38 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/790165.shtml)
+- 2026-06-30 06:36 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/06859125.shtml)
+- 2026-06-30 06:40 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/3338934537.shtml)
+- 2026-06-30 06:38 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/79361.shtml)
+- 2026-06-30 06:30 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/1372398704.shtml)

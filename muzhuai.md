@@ -1,54 +1,58 @@
-# 5月7日“农产品批发价格200指数”比昨天下降0.15个点
+# 中国首次发现2.56亿年前棘鳞鲨 以化石产地邵阳命名建新种
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新网5月7日电 据农业农村部网站消息，据农业农村部监测，5月7日“农产品批发价格200指数”为115.96，比昨天下降0.15个点，“菜篮子”产品批发价格指数为116.53，比昨天下降0.17个点。 截至今日14:00时，全国农产品批发市场猪肉平均价格为15.12元/公斤，比昨天下降0.5%；牛肉66.34元/公斤，比昨天下降0.6%；羊肉63.80元/公斤，比昨天下降0.8
+中新网北京6月25日电 (记者 孙自法)记者6月25日从中国科学院古脊椎动物与古人类研究所吴飞翔研究员团队获悉，该团队与合作者最近在湖南邵阳动物群中研究发现保存较好的二叠纪棘鳞鲨化石，命名为新种邵阳棘鳞鲨。 作为一类已灭绝的软骨鱼类，邵阳棘鳞鲨年代距今约2.56亿年，早于二叠纪末大灭绝约500万年。这是中国二叠纪地层中首次发现棘鳞鲨化石，也为认识二叠纪大灭绝前夕软骨鱼类的多样性
 
 ## 正文
 
-中新网5月7日电 据农业农村部网站消息，据农业农村部监测，5月7日“农产品批发价格200指数”为115.96，比昨天下降0.15个点，“菜篮子”产品批发价格指数为116.53，比昨天下降0.17个点。
+中新网北京6月25日电 (记者 孙自法)记者6月25日从中国科学院古脊椎动物与古人类研究所吴飞翔研究员团队获悉，该团队与合作者最近在湖南邵阳动物群中研究发现保存较好的二叠纪棘鳞鲨化石，命名为新种邵阳棘鳞鲨。
 
-截至今日14:00时，全国农产品批发市场猪肉平均价格为15.12元/公斤，比昨天下降0.5%；牛肉66.34元/公斤，比昨天下降0.6%；羊肉63.80元/公斤，比昨天下降0.8%；鸡蛋8.78元/公斤，比昨天下降0.6%；白条鸡16.74元/公斤，比昨天下降3.9%。
+作为一类已灭绝的软骨鱼类，邵阳棘鳞鲨年代距今约2.56亿年，早于二叠纪末大灭绝约500万年。
 
-重点监测的28种蔬菜平均价格为4.29元/公斤，比昨天上升0.9%；重点监测的6种水果平均价格为7.59元/公斤，比昨天下降1.3%。
+这是中国二叠纪地层中首次发现棘鳞鲨化石，也为认识二叠纪大灭绝前夕软骨鱼类的多样性演化提供了新材料。
 
-鲫鱼20.19元/公斤，比昨天下降0.8%；鲤鱼14.74元/公斤，比昨天下降1.4%；白鲢鱼10.49元/公斤，比昨天下降1.5%；大带鱼40.49元/公斤，比昨天下降6.1%。
+吴飞翔研究员介绍，二叠纪-三叠纪大灭绝是显生宙最严重的生态危机，对海洋生态系统产生深远影响。
 
-今日，国内鲜活农产品批发市场重点监测的46个品种中，与昨天相比价格升幅前五名的是菠菜、葱头、菜花、生菜和芹菜，幅度分别为3.9%、3.2%、3.2%、2.6%和2.3%；价格降幅前五名的是大带鱼、菠萝、鸭梨、白条鸡和大黄花鱼，幅度分别为6.1%、5.2%、4.8%、3.9%和3.4%。
+然而，晚二叠世鱼类化石记录相对稀少，限制了对于这场危机前夕海洋生态系统的深入认识。
+
+研究团队此次在二叠纪邵阳动物群中初步考察发现包含头足类无脊椎动物(菊石、角石等)和若干鱼类(软骨鱼类和硬骨鱼类中的“古鳕类”、龙鱼类等)。
+
+生物地层证据显示，该动物群形成年代仅早于二叠纪末大灭绝约500万年。
+
+邵阳棘鳞鲨化石保存为皮齿印痕，标本高约3厘米至4厘米，整体狭长呈三角形。
 
 ## 相关推荐
 
-- 2026-06-30 06:28 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 06:28 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 06:21 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 06:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 06:23 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 06:34 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 06:37 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 06:30 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 06:18 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 06:31 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 06:37 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 06:39 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 06:30 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 06:30 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 06:25 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 06:35 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 06:27 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 06:41 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 06:28 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 06:28 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 06:32 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 06:35 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 06:30 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 06:28 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-30 06:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 06:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:44 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/59336.shtml)
-- 2026-06-30 06:21 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/7988003.shtml)
-- 2026-06-30 06:25 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/00084530949.shtml)
-- 2026-06-30 06:20 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/106413391.shtml)
-- 2026-06-30 06:31 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/54589466.shtml)
-- 2026-06-30 06:25 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/5665637.shtml)
-- 2026-06-30 06:18 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/0607802079.shtml)
-- 2026-06-30 06:28 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/7925439265.shtml)
-- 2026-06-30 06:31 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/839734508.shtml)
-- 2026-06-30 06:45 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/9601804516.shtml)
-- 2026-06-30 06:37 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/50698218725.shtml)
-- 2026-06-30 06:20 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/1410275.shtml)
-- 2026-06-30 06:40 - [小娘惹](http://www.blog.minike.top/Article/details/6796011554.shtml)
-- 2026-06-30 06:34 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/55505988.shtml)
-- 2026-06-30 06:33 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/64703.shtml)
+- 2026-06-30 06:36 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/73146426.shtml)
+- 2026-06-30 06:41 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/7586755.shtml)
+- 2026-06-30 06:31 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/681645.shtml)
+- 2026-06-30 06:27 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/73309553.shtml)
+- 2026-06-30 06:46 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/64113.shtml)
+- 2026-06-30 06:24 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/62073.shtml)
+- 2026-06-30 06:42 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/40637800.shtml)
+- 2026-06-30 06:34 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/64333633.shtml)
+- 2026-06-30 06:46 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/74645767480.shtml)
+- 2026-06-30 06:47 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/207817.shtml)
+- 2026-06-30 06:24 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/81921446671.shtml)
+- 2026-06-30 06:47 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/71500714874.shtml)
+- 2026-06-30 06:35 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/408588993227.shtml)
+- 2026-06-30 06:44 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/99048876.shtml)
+- 2026-06-30 06:41 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/10321.shtml)

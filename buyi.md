@@ -1,59 +1,49 @@
-# 聚焦高质量发展 第六届中国（北京）广电媒体融合发展大会即启
+# 靳东带领中国煤矿文工团青年演员下矿：回望初心来路 采集鲜活素材
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月6日电 (记者 高凯)由中国广播电视社会组织联合会、中共北京市委宣传部、北京市广播电视局共同主办的第六届中国(北京)广电媒体融合发展大会将在北京举办。 据介绍，大会以“深融致远视听无界”为主题，采用“1+9+N”模式，设置10场主体活动及多项配套活动，聚焦主流媒体系统性变革，开展视听传播创新、全媒体传播运营、AI影视创作、视听赋能教育及视听赋能科普等多场主题研讨，
+发布时间：2026年06月25日 18:51 来源：中国新闻网 6月22日至24日，中国煤矿文工团走进黑龙江鸡西，开展“重走初心路 溯源根脉情”系列主题活动。这支发源于黑龙江鸡西矿区的国家级文艺院团，重回初心始发之地，与一线矿工面对面谈心交流，了解生产工作日常，送上暖心关怀与真挚问候。以脚步回望峥嵘来路，致敬默默奉献的煤炭产业建设者，践行“文艺为民、扎根矿山”的初心使命。 田德
 
 ## 正文
 
-中新网北京5月6日电 (记者 高凯)由中国广播电视社会组织联合会、中共北京市委宣传部、北京市广播电视局共同主办的第六届中国(北京)广电媒体融合发展大会将在北京举办。
+发布时间：2026年06月25日 18:51 来源：中国新闻网 6月22日至24日，中国煤矿文工团走进黑龙江鸡西，开展“重走初心路 溯源根脉情”系列主题活动。
 
-据介绍，大会以“深融致远视听无界”为主题，采用“1+9+N”模式，设置10场主体活动及多项配套活动，聚焦主流媒体系统性变革，开展视听传播创新、全媒体传播运营、AI影视创作、视听赋能教育及视听赋能科普等多场主题研讨，并配套设置政企对话会、村播兴农直播、视听+融合创新互动体验区等特色内容。
+这支发源于黑龙江鸡西矿区的国家级文艺院团，重回初心始发之地，与一线矿工面对面谈心交流，了解生产工作日常，送上暖心关怀与真挚问候。
 
-开幕式主论坛上，来自国家广播电视总局、北京市人民政府、中国广播电视社会组织联合会、北京市广播电视局等管理部门、协会代表，以及中央广播电视总台、头部网络视听平台、知名高校智库等机构代表将齐聚一堂，围绕主流媒体系统性变革、技术赋能内容生产力、网络视听平台赋能主流舆论新格局等核心议题展开深度分享。
+以脚步回望峥嵘来路，致敬默默奉献的煤炭产业建设者，践行“文艺为民、扎根矿山”的初心使命。
 
-同时，主论坛还将举行京津冀节节高服务共同体成立仪式、2026年“京琅琊”人才专项遴选及名家工作室推荐申报启动仪式、全国首个城市取景地图点亮仪式等一系列重磅发布，以及《中国视听大数据(CVB)主流媒体视听作品收视报告》发布、《北京市促进“人工智能+视听”产业高质量发展重点项目支持管理办法(2026-2029)》等三项资金扶持政策发布，全景展示视听融合发展领域的最新成果与政策利好。
-
-大会设置九场主题研讨。
-
-分别聚焦内容创新与技术革新、全媒体传播运营全链升级、产业服务与生态共建、跨界赋能与场景融合等话题。
-
-主体活动外，大会设置多项特色配套活动。
-
-“智赋视听·政通业兴——视听产业人工智能创新应用政企对话会”将邀请全国各省市视听主管机构与创新技术企业代表共同交流，围绕人工智能赋能视听产业创新发展探讨合作机遇。
+田德雨黑龙江鸡西报道 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 06:36 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 06:46 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 06:24 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 06:33 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 06:18 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 06:24 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 06:39 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 06:41 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 06:37 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 06:25 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 06:29 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 06:36 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 06:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 06:43 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 06:24 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 06:34 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 06:34 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 06:43 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 06:51 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 06:35 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 06:30 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 06:47 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 06:48 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 06:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:33 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/35231042.shtml)
-- 2026-06-30 06:40 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/72457.shtml)
-- 2026-06-30 06:38 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/9746253775.shtml)
-- 2026-06-30 06:18 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/52385027.shtml)
-- 2026-06-30 06:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/794622.shtml)
-- 2026-06-30 06:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/7877818968.shtml)
-- 2026-06-30 06:27 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/92819.shtml)
-- 2026-06-30 06:21 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/329048288.shtml)
-- 2026-06-30 06:43 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/87509216375.shtml)
-- 2026-06-30 06:47 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/493552959.shtml)
-- 2026-06-30 06:20 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/16174189.shtml)
-- 2026-06-30 06:22 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/61272.shtml)
-- 2026-06-30 06:47 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/40245314512.shtml)
-- 2026-06-30 06:45 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/390591.shtml)
-- 2026-06-30 06:47 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/641371124.shtml)
+- 2026-06-30 06:24 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/66871.shtml)
+- 2026-06-30 06:29 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/755807.shtml)
+- 2026-06-30 06:35 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/541176540696.shtml)
+- 2026-06-30 06:28 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/05275727.shtml)
+- 2026-06-30 06:31 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/45254052.shtml)
+- 2026-06-30 06:48 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/296445209.shtml)
+- 2026-06-30 06:39 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/078913.shtml)
+- 2026-06-30 06:40 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/49369881.shtml)
+- 2026-06-30 06:44 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/46688372.shtml)
+- 2026-06-30 06:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/80449.shtml)
+- 2026-06-30 06:36 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/91272.shtml)
+- 2026-06-30 06:35 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/41970711.shtml)
+- 2026-06-30 06:42 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/21473.shtml)
+- 2026-06-30 06:34 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/809909888976.shtml)
+- 2026-06-30 06:46 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/046947645661.shtml)

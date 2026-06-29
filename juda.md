@@ -1,58 +1,45 @@
-# 与“稻”相伴13年 民革党员将青春种在田野里
+# 定海海洋农商银行获批增加注册资本至5.85亿元
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新网宁波5月5日电 题：与“稻”相伴13年 民革党员将青春种在田野里 作者 吴怡欣 五月气温渐升，浙江省宁波市鄞州区姜山镇归本水稻农场里，四月初栽种的稻苗已拔节生长，嫩绿铺满田地，一片生机盎然。 春季插秧、夏季管护、秋季收获、冬季备耕——水稻贯穿了“90后”农创客、民革党员汪琰斌的四季，也见证着他扎根乡土、逐梦田野的13年时光。 回乡逐梦 深耕一方田野 对于汪琰斌而言，投身农
+6月25日金融一线消息，国家金融监督管理总局舟山监管分局发布批复，同意定海海洋农商银行增加注册资本19778038元人民币，由565084200元人民币变更为584862238元人民币。 责任编辑：秦艺
 
 ## 正文
 
-中新网宁波5月5日电 题：与“稻”相伴13年 民革党员将青春种在田野里 作者 吴怡欣 五月气温渐升，浙江省宁波市鄞州区姜山镇归本水稻农场里，四月初栽种的稻苗已拔节生长，嫩绿铺满田地，一片生机盎然。
+6月25日金融一线消息，国家金融监督管理总局舟山监管分局发布批复，同意定海海洋农商银行增加注册资本19778038元人民币，由565084200元人民币变更为584862238元人民币。
 
-春季插秧、夏季管护、秋季收获、冬季备耕——水稻贯穿了“90后”农创客、民革党员汪琰斌的四季，也见证着他扎根乡土、逐梦田野的13年时光。
-
-回乡逐梦 深耕一方田野 对于汪琰斌而言，投身农业是深思熟虑后的选择。
-
-他回忆：“在上大学之前，我查阅了很多资料，觉得农业这条道路值得尝试，于是选择了园艺技术专业。
-
-” 经过几年的专业学习，汪琰斌从事农业生产的心愈发坚定。
-
-2013年，汪琰斌一毕业便回到家乡宁波鄞州，在姜山镇创办归本水稻农场，开启了种稻生涯。
-
-最初，经验尚浅的汪琰斌还摸不透稻田的脾性。
-
-幸运的是，鄞州区种植业发展成熟，较早建立了系统的农户培训体系，让他这位新手有了成长的平台。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 06:26 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 06:23 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 06:30 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-30 06:23 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 06:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 06:36 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 06:29 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 06:36 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 06:32 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 06:18 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 06:45 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 06:19 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-30 06:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 06:53 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 06:48 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 06:48 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 06:26 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 06:29 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 06:29 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 06:28 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 06:27 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 06:42 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 06:37 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:20 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/79733158700.shtml)
-- 2026-06-30 06:41 - [巴西绝杀](http://www.blog.minike.top/Article/details/484668.shtml)
-- 2026-06-30 06:30 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/54453.shtml)
-- 2026-06-30 06:47 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/39915562.shtml)
-- 2026-06-30 06:26 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/62411826.shtml)
-- 2026-06-30 06:39 - [毒液2](https://www.share.kurohicncr.top/Article/details/362468.shtml)
-- 2026-06-30 06:19 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/9890716.shtml)
-- 2026-06-30 06:21 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/7041080.shtml)
-- 2026-06-30 06:44 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/4457115906.shtml)
-- 2026-06-30 06:26 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/40042426739.shtml)
-- 2026-06-30 06:35 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/37522139.shtml)
-- 2026-06-30 06:24 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/0278795.shtml)
-- 2026-06-30 06:31 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/2159592.shtml)
-- 2026-06-30 06:30 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/7845975.shtml)
-- 2026-06-30 06:21 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/041354568587.shtml)
+- 2026-06-30 06:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/258488.shtml)
+- 2026-06-30 06:42 - [一生一世](http://www.share.kurohicncr.top/Article/details/228631.shtml)
+- 2026-06-30 06:38 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/19651429.shtml)
+- 2026-06-30 06:51 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/4969096058.shtml)
+- 2026-06-30 06:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/693268.shtml)
+- 2026-06-30 06:48 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/192734155.shtml)
+- 2026-06-30 06:30 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/24876006.shtml)
+- 2026-06-30 06:30 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/5916293.shtml)
+- 2026-06-30 06:35 - [明星大侦探第四季](https://www.share.minike.top/Article/details/80302609939.shtml)
+- 2026-06-30 06:46 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/384483384223.shtml)
+- 2026-06-30 06:40 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/35722.shtml)
+- 2026-06-30 06:41 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/1868903.shtml)
+- 2026-06-30 06:31 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/400649.shtml)
+- 2026-06-30 06:27 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/24125.shtml)
+- 2026-06-30 06:51 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/8798062.shtml)

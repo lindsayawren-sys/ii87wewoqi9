@@ -1,47 +1,57 @@
-# 特朗普称暂停“自由计划”行动
+# “促进英中关系结出更多果实”——访英国驻华大使魏磊
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-美东时间5日傍晚，美国总统特朗普在社交媒体发文，称“疏导”霍尔木兹海峡船舶通行的“自由计划”将在短期内暂停。(央视新闻客户端)
+英国驻华大使魏磊近日参访陕西延安并走进梁家河，成为首位以官方身份展开红色之旅的西方大国驻华大使。他在参访期间接受本报记者采访表示，通过此次访问，他深入了解了延安时期中国共产党艰苦卓绝的奋斗历史，了解到中国领导人的基层成长经历和治国理政思想的实践来源，增进了对中国过去、现在和未来发展的认识。魏磊同中国渊源深厚。他曾两度任职于英国驻华使馆，并在对外经济贸易大学学习中文。去年8月，魏
 
 ## 正文
 
-美东时间5日傍晚，美国总统特朗普在社交媒体发文，称“疏导”霍尔木兹海峡船舶通行的“自由计划”将在短期内暂停。
+英国驻华大使魏磊近日参访陕西延安并走进梁家河，成为首位以官方身份展开红色之旅的西方大国驻华大使。
 
-(央视新闻客户端)
+他在参访期间接受本报记者采访表示，通过此次访问，他深入了解了延安时期中国共产党艰苦卓绝的奋斗历史，了解到中国领导人的基层成长经历和治国理政思想的实践来源，增进了对中国过去、现在和未来发展的认识。
+
+魏磊同中国渊源深厚。
+
+他曾两度任职于英国驻华使馆，并在对外经济贸易大学学习中文。
+
+去年8月，魏磊出任英国驻华大使。
+
+在他看来，了解驻在国历史，读懂一个国家的历史观与发展观，是外交官履职尽责的必修课。
+
+“此次参访机会难得，有助于我们了解今天的中国如何看待延安时期的历史，也有助于英国政府更好判断中国的政策方向。
+
+”魏磊说。
 
 ## 相关推荐
 
-- 2026-06-30 06:37 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-30 06:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 06:34 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 06:39 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 06:34 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 06:47 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-30 06:41 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 06:45 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 06:23 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 06:44 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 06:35 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 06:44 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 06:39 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 06:51 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 06:31 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 06:33 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 06:51 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 06:33 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 06:32 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 06:26 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 06:45 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 06:50 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 06:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 06:33 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:35 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/07645.shtml)
-- 2026-06-30 06:45 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/1765420.shtml)
-- 2026-06-30 06:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/101845916.shtml)
-- 2026-06-30 06:31 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/25771655.shtml)
-- 2026-06-30 06:44 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/02398125.shtml)
-- 2026-06-30 06:44 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/60963591.shtml)
-- 2026-06-30 06:31 - [千香](https://www.share.minike.top/Article/details/012962615450.shtml)
-- 2026-06-30 06:25 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/4859045587.shtml)
-- 2026-06-30 06:45 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/913509.shtml)
-- 2026-06-30 06:26 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/3888527084.shtml)
-- 2026-06-30 06:40 - [斗破苍穹](https://www.share.minike.top/Article/details/6152116402.shtml)
-- 2026-06-30 06:18 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/29778.shtml)
-- 2026-06-30 06:36 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/835520.shtml)
-- 2026-06-30 06:27 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/1203028.shtml)
-- 2026-06-30 06:38 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/117803.shtml)
+- 2026-06-30 06:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/60505.shtml)
+- 2026-06-30 06:24 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/210015174.shtml)
+- 2026-06-30 06:31 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/08177311646.shtml)
+- 2026-06-30 06:53 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/383485896.shtml)
+- 2026-06-30 06:32 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/4148266953.shtml)
+- 2026-06-30 06:31 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/682623.shtml)
+- 2026-06-30 06:51 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/511891.shtml)
+- 2026-06-30 06:29 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/301979888511.shtml)
+- 2026-06-30 06:53 - [巴西vs日本](https://www.share.minike.top/Article/details/607076871.shtml)
+- 2026-06-30 06:24 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/50391385.shtml)
+- 2026-06-30 06:42 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/982266125940.shtml)
+- 2026-06-30 06:48 - [第一炉香](http://www.share.kurohicncr.top/Article/details/846734.shtml)
+- 2026-06-30 06:27 - [千与千寻](https://www.share.minike.top/Article/details/020226.shtml)
+- 2026-06-30 06:31 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/858762375549.shtml)
+- 2026-06-30 06:40 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/6424737.shtml)

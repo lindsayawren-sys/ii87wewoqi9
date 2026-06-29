@@ -1,56 +1,61 @@
-# Meta股价下滑 出版商提起新诉讼加剧人工智能版权之争
+# 盖茨作证：爱泼斯坦曾谋划借婚外情对其勒索
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-Meta Platforms股价周三盘前下跌约1%，此前一批主要出版商在曼哈顿提起联邦诉讼，对公司如何训练其人工智能系统提出了新的质疑。 提起诉讼的有爱思唯尔、麦克米伦出版公司、圣智学习集团、阿歇特图书集团和麦格劳希尔，以及作家斯科特·特罗。他们指控Meta在构建其Llama人工智能模型时，未经许可大量使用了受版权保护的材料。诉状称，这些数据可能是在没有适当许可或授权的情况下获
+根据当地时间周二公布的闭门听证会笔录，微软联合创始人比尔・盖茨本月早些时候向美国众议院监督委员会作证称：在他试图断绝与已定罪性犯罪者杰弗里・爱泼斯坦往来后，对方曾打算利用盖茨婚外情的不雅私密信息，强行重新介入自己的生活，不过爱泼斯坦并未对他发出明确的威胁。 笔录显示，盖茨表示，爱泼斯坦通过一名顾问向他发出过隐晦的威胁，还似乎授意盖茨的顾问如何对自己实施勒索，并真假信息混杂，试图
 
 ## 正文
 
-Meta Platforms股价周三盘前下跌约1%，此前一批主要出版商在曼哈顿提起联邦诉讼，对公司如何训练其人工智能系统提出了新的质疑。
+根据当地时间周二公布的闭门听证会笔录，微软联合创始人比尔・盖茨本月早些时候向美国众议院监督委员会作证称：在他试图断绝与已定罪性犯罪者杰弗里・爱泼斯坦往来后，对方曾打算利用盖茨婚外情的不雅私密信息，强行重新介入自己的生活，不过爱泼斯坦并未对他发出明确的威胁。
 
-提起诉讼的有爱思唯尔、麦克米伦出版公司、圣智学习集团、阿歇特图书集团和麦格劳希尔，以及作家斯科特·特罗。
+笔录显示，盖茨表示，爱泼斯坦通过一名顾问向他发出过隐晦的威胁，还似乎授意盖茨的顾问如何对自己实施勒索，并真假信息混杂，试图利用私密负面材料拿捏这位软件行业亿万富豪。
 
-他们指控Meta在构建其Llama人工智能模型时，未经许可大量使用了受版权保护的材料。
+谈及美国司法部今年早些时候公开的爱泼斯坦相关文件，盖茨表示：“我并未遭到勒索，但翻看这些邮件能发现，爱泼斯坦当时的种种设想已经朝着勒索的方向发展。
 
-诉状称，这些数据可能是在没有适当许可或授权的情况下获取的。
+从很多他写给自己的邮件里能看出，他一直在反复琢磨，自己或者授意其他人该如何勒索我，但这些内容从来没有发送给过我。
 
-原告认为，这种做法可能通过让人工智能系统能够生成本可与原创作品直接竞争的摘要和书籍式内容，从而对传统出版收入造成压力。
+” 听证过程中，盖茨承认自己至少有三段婚外情，但表示这些婚外情中的女性均与爱泼斯坦没有任何关系，爱泼斯坦也是在两人断绝往来之后才得知这些事情。
 
-Meta此前在一宗相关的法律挑战中曾获胜，但现在面临着新的审查，出版商表示此次新诉讼的范围更广。
+这份证词罕见披露了爱泼斯坦被指试图利用私密负面信息操控知名公众人物的具体细节。
 
-预计Meta将对指控提出异议，这将在涉及英伟达和特斯拉的不断发展的技术格局中，就人工智能使用受版权保护的材料进行训练是否属于合理使用，引发又一场高风险的法律较量。
+美国司法部去年曾表示，没有发现可信证据能够证明爱泼斯坦对各界名流实施过勒索。
 
-责任编辑：张俊 SF065
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 06:36 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 06:37 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 06:41 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 06:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 06:38 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 06:41 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 06:18 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 06:27 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 06:29 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 06:29 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 06:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 06:42 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 06:40 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 06:24 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 06:28 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 06:24 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 06:25 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 06:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 06:38 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 06:32 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-30 06:24 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 06:43 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 06:41 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 06:52 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 06:24 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:32 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/6690737413.shtml)
-- 2026-06-30 06:27 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/784743.shtml)
-- 2026-06-30 06:27 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/232653.shtml)
-- 2026-06-30 06:21 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/52227555.shtml)
-- 2026-06-30 06:42 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/109498364.shtml)
-- 2026-06-30 06:33 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/89413275.shtml)
-- 2026-06-30 06:27 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/07733.shtml)
-- 2026-06-30 06:43 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/401415567.shtml)
-- 2026-06-30 06:26 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/477015342299.shtml)
-- 2026-06-30 06:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/605842.shtml)
-- 2026-06-30 06:33 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/44567571097.shtml)
-- 2026-06-30 06:39 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/34886283913.shtml)
-- 2026-06-30 06:44 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/110489076.shtml)
-- 2026-06-30 06:29 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/86940487.shtml)
-- 2026-06-30 06:38 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/86047.shtml)
+- 2026-06-30 06:47 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/3479397.shtml)
+- 2026-06-30 06:51 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/3050224.shtml)
+- 2026-06-30 06:25 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/3234582.shtml)
+- 2026-06-30 06:37 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/689680493895.shtml)
+- 2026-06-30 06:44 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/712531727.shtml)
+- 2026-06-30 06:32 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/356473443259.shtml)
+- 2026-06-30 06:31 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/78059213048.shtml)
+- 2026-06-30 06:38 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/68043616510.shtml)
+- 2026-06-30 06:42 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/4358431550.shtml)
+- 2026-06-30 06:33 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/9564686279.shtml)
+- 2026-06-30 06:37 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/456108551.shtml)
+- 2026-06-30 06:53 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/977388331.shtml)
+- 2026-06-30 06:37 - [月亮](http://www.blog.kurohicncr.top/Article/details/33568483023.shtml)
+- 2026-06-30 06:38 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/866641308194.shtml)
+- 2026-06-30 06:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/86074478.shtml)

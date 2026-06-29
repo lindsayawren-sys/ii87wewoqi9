@@ -1,60 +1,58 @@
-# “冰火两重天”反季体验成为天津“五一”假日新亮点
+# 首钢朗泽午后涨逾9%再创新高 现场数据中心整合CCUS技术成为行业新趋势
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中国“五一”旅游热度攀升 消费潜力持续释放这个藏在云南深山的派出所 为何被游客设为导航目的地？“24小时打卡6地”！外国人偷偷爱上中国小城“一手驴火、一手咖啡” 年轻人混搭出街头新时尚博物馆“镇馆之宝”排队热 文博游何以持续火热？沉浸式观演走热京津冀百年中山装何以穿出“国潮”新生？全球出行新选择 世界爱上了“中国造”沙漠里的“追光者”：旅拍定制师为游客定制专属记忆五四 | 今天
+首钢朗泽（02553）盘中涨逾13%，高见53.20港元，再创上市新高。截至发稿，股价上涨8.83%，现报51.15港元，成交额4362.04万港元。 SOFC燃料电池系统或有望成为数据中心供电新方案。Bloom Energy最新报告显示，为应对激增的用电需求与减碳压力，数据中心自建发电结合碳捕集、利用与封存（CCUS） 成为行业新趋势。预计到2030年，31%的现场供电数据中
 
 ## 正文
 
-中国“五一”旅游热度攀升 消费潜力持续释放这个藏在云南深山的派出所 为何被游客设为导航目的地？
+首钢朗泽（02553）盘中涨逾13%，高见53.20港元，再创上市新高。
 
-“24小时打卡6地”！
+截至发稿，股价上涨8.83%，现报51.15港元，成交额4362.04万港元。
 
-外国人偷偷爱上中国小城“一手驴火、一手咖啡” 年轻人混搭出街头新时尚博物馆“镇馆之宝”排队热 文博游何以持续火热？
+SOFC燃料电池系统或有望成为数据中心供电新方案。
 
-沉浸式观演走热京津冀百年中山装何以穿出“国潮”新生？
+Bloom Energy最新报告显示，为应对激增的用电需求与减碳压力，数据中心自建发电结合碳捕集、利用与封存（CCUS） 成为行业新趋势。
 
-全球出行新选择 世界爱上了“中国造”沙漠里的“追光者”：旅拍定制师为游客定制专属记忆五四 | 今天为青年们喝彩！
+预计到2030年，31%的现场供电数据中心设施将采CCUS技术，预计到2035年这一比例将上升至41%。
 
-一只流浪狗，为何让这座安徽小城收获泼天流量？
+公开资料显示，首钢朗泽深耕于碳捕集、利用和封存行业（CCUS），专注于以钢铁厂、铁合金厂生产过程中产生的含碳工业尾气为原料，通过碳捕集和利用技术生产乙醇及微生物蛋白等低碳产品，并提供低碳综合性解决方案。
 
-短评：欧洲议会的“选择性失明”东京审判为何关乎今天？
+据弗若斯特沙利文统计，依照2025年数据，首钢朗泽为全球利用合成生物技术的CCUS行业中规模最大的企业。
 
-爱奇艺，到底在急什么？
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:28 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 06:37 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 06:42 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 06:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 06:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 06:21 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 06:42 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 06:33 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 06:35 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-30 06:36 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 06:21 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 06:29 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 06:29 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 06:18 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 06:38 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 06:37 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 06:41 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 06:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 06:37 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 06:49 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 06:51 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 06:33 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 06:50 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 06:32 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 06:53 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 06:42 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:31 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/434285.shtml)
-- 2026-06-30 06:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/44742291.shtml)
-- 2026-06-30 06:33 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/03350595242.shtml)
-- 2026-06-30 06:18 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/929546326911.shtml)
-- 2026-06-30 06:25 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/582348.shtml)
-- 2026-06-30 06:42 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/843831399.shtml)
-- 2026-06-30 06:25 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/77888771.shtml)
-- 2026-06-30 06:28 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/73400151898.shtml)
-- 2026-06-30 06:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/439227.shtml)
-- 2026-06-30 06:37 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/1088302983.shtml)
-- 2026-06-30 06:35 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/625274615.shtml)
-- 2026-06-30 06:46 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/3541235.shtml)
-- 2026-06-30 06:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/86991753989.shtml)
-- 2026-06-30 06:42 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/89038246.shtml)
-- 2026-06-30 06:19 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/523122.shtml)
+- 2026-06-30 06:31 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/4572919679.shtml)
+- 2026-06-30 06:31 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/0088076296.shtml)
+- 2026-06-30 06:50 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/556434374419.shtml)
+- 2026-06-30 06:44 - [毒液2](http://www.blog.minike.top/Article/details/988168365553.shtml)
+- 2026-06-30 06:52 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/46554055674.shtml)
+- 2026-06-30 06:44 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/01911.shtml)
+- 2026-06-30 06:24 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/13524657.shtml)
+- 2026-06-30 06:44 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/1271856.shtml)
+- 2026-06-30 06:48 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/18157412.shtml)
+- 2026-06-30 06:24 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/383861725.shtml)
+- 2026-06-30 06:32 - [天道](http://www.share.minike.top/Article/details/71335705212.shtml)
+- 2026-06-30 06:31 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/0713268.shtml)
+- 2026-06-30 06:31 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/23668646371.shtml)
+- 2026-06-30 06:31 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/571365672042.shtml)
+- 2026-06-30 06:41 - [毒液2](http://www.share.minike.top/Article/details/90217482.shtml)

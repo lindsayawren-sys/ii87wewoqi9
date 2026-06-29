@@ -1,57 +1,59 @@
-# 欧元集团主席呼吁：欧洲需要更大银行以抗衡美中
+# 苹果上调Mac、iPad等价格 AI数据中心扩张引发内存和存储器空前短缺
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-欧元集团主席皮耶拉卡基斯周二表示，欧盟需要拥有规模更大的银行，才能与美国和中国的同业展开有效竞争。他强调，欧洲需要的是“欧洲冠军”，而非“各国冠军”，而跨境合并是打造欧洲级银行集团的关键路径。 皮耶拉卡基斯向欧洲议会经济委员会指出，如果欧洲不推动在欧盟层面建立有能力的银行，它们将无法与美中对手竞争。他指出，欧洲市值最大的银行桑坦德银行，规模仅为美国最大银行摩根大通的五分之一。
+苹果公司周四采取极端举措，上调Mac、iPad、家用设备和Vision Pro的价格，以抵消前所未有的内存芯片和存储器短缺所带来的成本上升。 根据苹果在线零售商店公布的价格调整，所有Mac和iPad机型均已提价。其最新款笔记本电脑MacBook Neo起售价由599美元升至699美元，MacBook Air起售价则由1，099美元升至1，299美元。 入门款14英寸MacBoo
 
 ## 正文
 
-欧元集团主席皮耶拉卡基斯周二表示，欧盟需要拥有规模更大的银行，才能与美国和中国的同业展开有效竞争。
+苹果公司周四采取极端举措，上调Mac、iPad、家用设备和Vision Pro的价格，以抵消前所未有的内存芯片和存储器短缺所带来的成本上升。
 
-他强调，欧洲需要的是“欧洲冠军”，而非“各国冠军”，而跨境合并是打造欧洲级银行集团的关键路径。
+根据苹果在线零售商店公布的价格调整，所有Mac和iPad机型均已提价。
 
-皮耶拉卡基斯向欧洲议会经济委员会指出，如果欧洲不推动在欧盟层面建立有能力的银行，它们将无法与美中对手竞争。
+其最新款笔记本电脑MacBook Neo起售价由599美元升至699美元，MacBook Air起售价则由1，099美元升至1，299美元。
 
-他指出，欧洲市值最大的银行桑坦德银行，规模仅为美国最大银行摩根大通的五分之一。
+入门款14英寸MacBook Pro起售价由1，699美元升至1，999美元，16英寸机型起售价则由2，499美元升至2，999美元。
 
-推动银行规模扩大的紧迫原因之一，在于技术竞争。
+iMac台式机起售价由1，299美元升至1，499美元，Mac Studio则由1，999美元升至2，499美元。
 
-当前数字金融工具和市场增长迅速，欧洲银行需要足够的体量来支撑大规模的技术投资。
+苹果发言人表示，“AI数据中心的快速扩张，导致对内存芯片和存储器的需求异常激增”，公司“从未见过某种零部件价格如此快速地出现如此大幅上涨”。
 
-皮耶拉卡基斯警告称，若欧洲银行错失这些技术投资，将“无法参与未来的方程式”。
+苹果还表示，“目前为止，一直在为客户消化这些涨价影响，但现在已经到了必须上调部分产品价格的时候，包括今天对iPad和Mac的提价。
 
-目前，跨境银行合并时常受到国家政治的阻碍。
+我们知道这不是消费者乐见的消息，公司正全力寻找解决方案。
 
 ## 相关推荐
 
-- 2026-06-30 06:29 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 06:21 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 06:38 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 06:19 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 06:25 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 06:24 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 06:40 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 06:47 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 06:36 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 06:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 06:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 06:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 06:53 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 06:35 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 06:48 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 06:35 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 06:39 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 06:42 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 06:52 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 06:45 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 06:33 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 06:48 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 06:27 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 06:25 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/726665.shtml)
-- 2026-06-30 06:29 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/22729.shtml)
-- 2026-06-30 06:33 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/215364863.shtml)
-- 2026-06-30 06:37 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/71536.shtml)
-- 2026-06-30 06:24 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/75430328.shtml)
-- 2026-06-30 06:37 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/83454459828.shtml)
-- 2026-06-30 06:42 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/91640842.shtml)
-- 2026-06-30 06:32 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/0475489.shtml)
-- 2026-06-30 06:40 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/9465611.shtml)
-- 2026-06-30 06:20 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/11547.shtml)
-- 2026-06-30 06:40 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/53172217238.shtml)
-- 2026-06-30 06:38 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/5573811792.shtml)
-- 2026-06-30 06:33 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/03811166757.shtml)
-- 2026-06-30 06:19 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/02240151909.shtml)
-- 2026-06-30 06:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/229943.shtml)
+- 2026-06-30 06:42 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/50798785882.shtml)
+- 2026-06-30 06:50 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/02458.shtml)
+- 2026-06-30 06:47 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/7862243.shtml)
+- 2026-06-30 06:39 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/466000430883.shtml)
+- 2026-06-30 06:31 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/0967121.shtml)
+- 2026-06-30 06:27 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/696996766.shtml)
+- 2026-06-30 06:30 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/23193535024.shtml)
+- 2026-06-30 06:24 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/15729.shtml)
+- 2026-06-30 06:51 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/326030548.shtml)
+- 2026-06-30 06:45 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/2668930516.shtml)
+- 2026-06-30 06:50 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/8020362403.shtml)
+- 2026-06-30 06:35 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/7571517.shtml)
+- 2026-06-30 06:33 - [极限挑战第一季](https://www.share.minike.top/Article/details/192198493.shtml)
+- 2026-06-30 06:43 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/67834.shtml)
+- 2026-06-30 06:38 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/218011500110.shtml)

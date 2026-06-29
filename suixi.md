@@ -1,59 +1,57 @@
-# 光大期货0507热点追踪：PX领跌化工品，供需双缩下成本支撑松动
+# 贝恩资本或将收购大众旗下船用发动机子公司Everllence
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-今日，国内化工品板块集体走弱，PX0>对二甲苯（PX）跌幅尤为明显。截至收盘，PX主力合约跌幅约5%，领跌化工板块，市场情绪明显转弱。 从基本面看，近期PX及下游PTA装置检修、重启消息交替出现，供应端虽有阶段性收缩，但需求端订单跟进有限，成本向下传导不畅。尽管五一节前聚酯原料端一度受原油提振走强，但节后终端需求恢复不及预期，叠加部分聚酯工厂减产，原料采购意愿下降，导致PX价格
+据知情人士透露，贝恩资本即将收购大众汽车旗下船用发动机部门Everllence的多数股权，击败了包括一家与大众汽车主要股东联手竞购的私募股权公司在内的其他竞购者。 这笔交易预计将成为今年欧洲工业界规模最大的业务剥离之一，因为大众汽车正寻求在集团汽车业务大幅裁员之际释放现金流。 据消息人士称，这笔交易对Everllence的估值80亿至90亿欧元之间。 贝恩资本在此次收购中与CV
 
 ## 正文
 
-今日，国内化工品板块集体走弱，PX0>对二甲苯（PX）跌幅尤为明显。
+据知情人士透露，贝恩资本即将收购大众汽车旗下船用发动机部门Everllence的多数股权，击败了包括一家与大众汽车主要股东联手竞购的私募股权公司在内的其他竞购者。
 
-截至收盘，PX主力合约跌幅约5%，领跌化工板块，市场情绪明显转弱。
+这笔交易预计将成为今年欧洲工业界规模最大的业务剥离之一，因为大众汽车正寻求在集团汽车业务大幅裁员之际释放现金流。
 
-从基本面看，近期PX及下游PTA装置检修、重启消息交替出现，供应端虽有阶段性收缩，但需求端订单跟进有限，成本向下传导不畅。
+据消息人士称，这笔交易对Everllence的估值80亿至90亿欧元之间。
 
-尽管五一节前聚酯原料端一度受原油提振走强，但节后终端需求恢复不及预期，叠加部分聚酯工厂减产，原料采购意愿下降，导致PX价格承压。
+贝恩资本在此次收购中与CVC和EQT展开竞争，其中EQT是与保时捷股份公司和卡塔尔组成的财团的成员之一。
 
-此外，随着检修装置陆续重启，市场对中期供应趋于宽松的担忧也有所升温。
+保时捷持有大众汽车53.3%的投票权，而卡塔尔通过其主权财富基金持有17%的股份。
 
-成本端方面，国际油价近期高位波动加剧。
+Everllence的前身为MAN Energy Solutions，为航运业生产柴油发动机，但收购方也看到了该公司在人工智能领域的增长潜力，因为数据中心需要发电机来供电。
 
-美伊局势反复拉扯，供应中断风险与OPEC增产预期并存，原油价格缺乏持续上行动力，对PX的成本支撑有所松动。
-
-与此同时，乙二醇港口库存虽持续去化，但对整个聚酯链的提振作用有限。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 06:24 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 06:34 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 06:46 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 06:18 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 06:18 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 06:42 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 06:39 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 06:42 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 06:19 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 06:26 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 06:39 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 06:41 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 06:37 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 06:31 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 06:48 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 06:50 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 06:28 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 06:46 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 06:27 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 06:50 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 06:26 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 06:46 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 06:52 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 06:31 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 06:50 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 06:27 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:42 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/850925.shtml)
-- 2026-06-30 06:21 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/784167298824.shtml)
-- 2026-06-30 06:32 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.minike.top/Article/details/78926606.shtml)
-- 2026-06-30 06:31 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/324007.shtml)
-- 2026-06-30 06:27 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/4648245.shtml)
-- 2026-06-30 06:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/822264716.shtml)
-- 2026-06-30 06:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/7569080796.shtml)
-- 2026-06-30 06:24 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/89580337935.shtml)
-- 2026-06-30 06:22 - [这一刀 会很帅](http://www.share.minike.top/Article/details/0759728841.shtml)
-- 2026-06-30 06:40 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/1121386814.shtml)
-- 2026-06-30 06:28 - [日本淘汰](https://www.share.minike.top/Article/details/0135620966.shtml)
-- 2026-06-30 06:40 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/413335677.shtml)
-- 2026-06-30 06:45 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/9883642688.shtml)
-- 2026-06-30 06:43 - [周生如故](http://www.blog.kurohicncr.top/Article/details/458124.shtml)
-- 2026-06-30 06:26 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/23539.shtml)
+- 2026-06-30 06:27 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/04529263.shtml)
+- 2026-06-30 06:30 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/463246.shtml)
+- 2026-06-30 06:26 - [急先锋](http://www.blog.kurohicncr.top/Article/details/8893910.shtml)
+- 2026-06-30 06:26 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/67515873.shtml)
+- 2026-06-30 06:28 - [巴西vs日本](http://www.blog.minike.top/Article/details/384737070.shtml)
+- 2026-06-30 06:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/57064649.shtml)
+- 2026-06-30 06:33 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/59466241.shtml)
+- 2026-06-30 06:26 - [金牌调解](http://www.blog.minike.top/Article/details/8843776574.shtml)
+- 2026-06-30 06:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/08444.shtml)
+- 2026-06-30 06:45 - [天道](https://www.blog.kurohicncr.top/Article/details/6595451.shtml)
+- 2026-06-30 06:52 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/749748.shtml)
+- 2026-06-30 06:44 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/77924904.shtml)
+- 2026-06-30 06:38 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/705326120.shtml)
+- 2026-06-30 06:34 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/32098189.shtml)
+- 2026-06-30 06:47 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/981106.shtml)

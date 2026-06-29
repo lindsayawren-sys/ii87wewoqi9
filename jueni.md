@@ -1,60 +1,60 @@
-# 外交部：国际社会必须坚决反对日本一些势力妄图开历史倒车的逆流
+# 菜粕反弹了？能持续吗？
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月7日电(记者 郭超凯 李晓喻)中国外交部发言人林剑7日主持例行记者会。 有记者提问：日本近期全国范围内爆发的示威活动吸引了公众广泛关注。全国各地有数万计的人参加抗议活动，仅东京一地就有约5万人聚集在一起，反对政府计划修改和平宪法涉及宣布放弃战争的第九条。在此背景下，中国政府如何看待日本国内这些事态的发展，尤其是公众对修宪的反对态度？ 林剑：我们注意到日本国内有关动
+作者：李金涛/F3015806、Z0013195/ 辅助研究员：伯今/F03112274/ 要点速览版 核心矛盾：短期现实与中期预期之间的博弈 短期：库存未形成压力，且水产旺季刚需尚存，价格下方有支撑； 中期：原料供应持续到港，产量稳步增长，而需求端实际增量极为有限，一旦低价驱动的投机采购消退，市场将面临持续的供需宽松压力。 跟踪变量 沿海菜籽到港及压榨节奏、水产旺季投料持续性
 
 ## 正文
 
-中新网北京5月7日电(记者 郭超凯 李晓喻)中国外交部发言人林剑7日主持例行记者会。
+作者：李金涛/F3015806、Z0013195/ 辅助研究员：伯今/F03112274/ 要点速览版 核心矛盾：短期现实与中期预期之间的博弈 短期：库存未形成压力，且水产旺季刚需尚存，价格下方有支撑； 中期：原料供应持续到港，产量稳步增长，而需求端实际增量极为有限，一旦低价驱动的投机采购消退，市场将面临持续的供需宽松压力。
 
-有记者提问：日本近期全国范围内爆发的示威活动吸引了公众广泛关注。
+跟踪变量 沿海菜籽到港及压榨节奏、水产旺季投料持续性及饲料企业采购意愿、欧盟及加拿大菜籽产量预估的后续调整。
 
-全国各地有数万计的人参加抗议活动，仅东京一地就有约5万人聚集在一起，反对政府计划修改和平宪法涉及宣布放弃战争的第九条。
+供应端 呈现“远期宽松、短期偏紧”的结构性特征。
 
-在此背景下，中国政府如何看待日本国内这些事态的发展，尤其是公众对修宪的反对态度？
+当前中加菜籽贸易保持通畅，6月加拿大菜籽到港量约41万吨，沿海油厂开机率稳步抬升，菜粕月度产量持续增加。
 
-林剑：我们注意到日本国内有关动向，越来越多的日本民众发声抗议高市政府修宪企图，这反映出日本右翼势力推动修宪、加速“再军事化”不得人心，已引起包括日本民众在内全世界爱好和平人民的高度警惕和强烈反对。
+截至6月19日，沿海地区主要油厂菜籽库存40万吨，环比增加4万吨；菜粕库存2.78万吨，环比增加1.13万吨。
 
-日本军国主义曾对中国等亚洲各国人民犯下残暴罪行，也给日本人民带来深重灾难。
+虽然库存低于五年同期均值，但依旧处于历史正常值。
 
-为防止日本军国主义复萌再次为祸世界，二战胜利前后盟国确定了《开罗宣言》《波茨坦公告》等一系列制度性、法律性安排，明确规定日本应完全解除武装，不得维持能使其重新武装的产业，日本对此予以接受。
+需求端 水产养殖形成季节性刚需支撑。
 
-联合国宪章也做了相应规定，从制度层面永久禁止日本走军国主义道路。
+随着气温回升，水产养殖进入传统投料旺季，华南、华东投料量环比有所增加。
 
 ## 相关推荐
 
-- 2026-06-30 06:43 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 06:27 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 06:45 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 06:29 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 06:28 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 06:35 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 06:20 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 06:30 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 06:28 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 06:18 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 06:44 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 06:26 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 06:26 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 06:32 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 06:34 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 06:36 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 06:25 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 06:35 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 06:43 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 06:34 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 06:27 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 06:30 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 06:50 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-30 06:33 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 06:28 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 06:37 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 06:31 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 06:51 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:38 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/095063139.shtml)
-- 2026-06-30 06:19 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/987159675.shtml)
-- 2026-06-30 06:35 - [扬名立万](https://www.share.kurohicncr.top/Article/details/32196.shtml)
-- 2026-06-30 06:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/0810441301.shtml)
-- 2026-06-30 06:46 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/183350877987.shtml)
-- 2026-06-30 06:34 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/80719122.shtml)
-- 2026-06-30 06:24 - [恋与深空回应争议](https://www.share.minike.top/Article/details/12061599878.shtml)
-- 2026-06-30 06:33 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/079114224.shtml)
-- 2026-06-30 06:33 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/14417.shtml)
-- 2026-06-30 06:38 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/4770681.shtml)
-- 2026-06-30 06:41 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/383031834.shtml)
-- 2026-06-30 06:45 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/98151.shtml)
-- 2026-06-30 06:32 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/53518234.shtml)
-- 2026-06-30 06:19 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/583178713.shtml)
-- 2026-06-30 06:30 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/2127942.shtml)
+- 2026-06-30 06:27 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/68683433.shtml)
+- 2026-06-30 06:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/967288387.shtml)
+- 2026-06-30 06:44 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/8929517.shtml)
+- 2026-06-30 06:39 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/3443617569.shtml)
+- 2026-06-30 06:30 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/6743379.shtml)
+- 2026-06-30 06:52 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/037910.shtml)
+- 2026-06-30 06:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/699096326098.shtml)
+- 2026-06-30 06:51 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/5174612.shtml)
+- 2026-06-30 06:39 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/306130085159.shtml)
+- 2026-06-30 06:38 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/4888541.shtml)
+- 2026-06-30 06:37 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/6715543.shtml)
+- 2026-06-30 06:24 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/292126.shtml)
+- 2026-06-30 06:52 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/99855.shtml)
+- 2026-06-30 06:48 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/657286.shtml)
+- 2026-06-30 06:37 - [网瘾賊大的阿嬷](http://www.blog.minike.top/Article/details/49669198221.shtml)

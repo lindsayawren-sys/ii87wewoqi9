@@ -1,60 +1,61 @@
-# 一张照片刷开门锁？消协实测曝光：智能锁这些功能有隐患
+# “十四五”期间，我国单位GDP使用建设用地面积累计下降19.36%
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-智能门锁凭借便捷高效的使用体验，已经成为不少现代家庭的标配产品。不过，您有没有想到，这些智能门锁也有安全隐患？近日，京津冀三地消协组织共采集20个主流品牌、30款热销智能门锁进行比较试验。令人意想不到的是，这其中有的产品，用一张打印照片就能打开。在对某款智能锁的测试中，工作人员事先录入其人脸信息，令人意想不到的是，随后另一名工作人员使用其照片也顺利地打开了门锁。 工程师介绍，出
+中新网北京6月25日电 (陶思阅)今年6月25日是第36个全国土地日。自然资源部25日透露，“十四五”期间，我国单位GDP使用建设用地面积累计下降19.36%，高出15%的预期目标4.36个百分点。 自然资源部当日还发布《节地技术和节地模式推荐目录(第五批)》，引导各地进一步提升节约集约用地水平，推动经济社会发展全面绿色转型。 据悉，本次目录共收录了来自22个省(区、市)的48
 
 ## 正文
 
-智能门锁凭借便捷高效的使用体验，已经成为不少现代家庭的标配产品。
+中新网北京6月25日电 (陶思阅)今年6月25日是第36个全国土地日。
 
-不过，您有没有想到，这些智能门锁也有安全隐患？
+自然资源部25日透露，“十四五”期间，我国单位GDP使用建设用地面积累计下降19.36%，高出15%的预期目标4.36个百分点。
 
-近日，京津冀三地消协组织共采集20个主流品牌、30款热销智能门锁进行比较试验。
+自然资源部当日还发布《节地技术和节地模式推荐目录(第五批)》，引导各地进一步提升节约集约用地水平，推动经济社会发展全面绿色转型。
 
-令人意想不到的是，这其中有的产品，用一张打印照片就能打开。
+据悉，本次目录共收录了来自22个省(区、市)的48个节地技术与节地模式典型案例，覆盖了城乡发展、产业园区及工业项目、基础设施和公共服务设施等多个领域节约集约用地，各具特色，有很强的代表性和示范性。
 
-在对某款智能锁的测试中，工作人员事先录入其人脸信息，令人意想不到的是，随后另一名工作人员使用其照片也顺利地打开了门锁。
+目录聚焦“向优化结构要空间”“向立体开发要效益”“向科技创新要产出”“向功能转换要品质”四大方向。
 
-工程师介绍，出现这类问题，主要是部分企业希望给用户带来更顺畅、接近“秒开”的解锁体验，因此会适当调低识别阈值，优先保障操作的便捷性。
+围绕“向优化结构要空间”开展实践的典型案例共13个。
 
-某智能家居检测中心副部长 魏明然：把阈值调低，给人的体验是开门会比较快。
+在存量工业用地盘活方面，整合碎片化闲置土地、实施“腾笼换鸟”。
 
-有的门锁把阈值调得相对高一些，安全性会高一些，在体验上开门时间会稍长。
+例如，宁夏宁东市能源化工基地项目通过系统排查，锁定碎片化可盘活存量用地，探索“商业+文化”业态融合开发、公共设施邻建嵌入等方式，提升城市功能品质。
 
 ## 相关推荐
 
-- 2026-06-30 06:30 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 06:22 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 06:40 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 06:32 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 06:40 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-30 06:38 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 06:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 06:39 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 06:35 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 06:42 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 06:22 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 06:47 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 06:28 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 06:25 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 06:43 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 06:46 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-30 06:34 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 06:32 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 06:31 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 06:33 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 06:35 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 06:36 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 06:41 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 06:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 06:30 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 06:46 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 06:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 06:44 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 06:40 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:31 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/986522800362.shtml)
-- 2026-06-30 06:46 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/9279263400.shtml)
-- 2026-06-30 06:30 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/6903097643.shtml)
-- 2026-06-30 06:38 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/108518847.shtml)
-- 2026-06-30 06:32 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/86152583.shtml)
-- 2026-06-30 06:25 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/700894747446.shtml)
-- 2026-06-30 06:24 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/4541705206.shtml)
-- 2026-06-30 06:18 - [点菜也要教吗](https://www.share.minike.top/Article/details/282751.shtml)
-- 2026-06-30 06:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/870160.shtml)
-- 2026-06-30 06:36 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/905813.shtml)
-- 2026-06-30 06:22 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/116970.shtml)
-- 2026-06-30 06:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/46673.shtml)
-- 2026-06-30 06:39 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/6406910.shtml)
-- 2026-06-30 06:42 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/02426853.shtml)
-- 2026-06-30 06:29 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/08982253346.shtml)
+- 2026-06-30 06:44 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/3425555662.shtml)
+- 2026-06-30 06:49 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/415577.shtml)
+- 2026-06-30 06:26 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/4258731607.shtml)
+- 2026-06-30 06:47 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/6273218.shtml)
+- 2026-06-30 06:30 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/2879491.shtml)
+- 2026-06-30 06:43 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/3771062.shtml)
+- 2026-06-30 06:42 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/143086190.shtml)
+- 2026-06-30 06:48 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/517632136.shtml)
+- 2026-06-30 06:30 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/1440102.shtml)
+- 2026-06-30 06:45 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/938221.shtml)
+- 2026-06-30 06:46 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/880595837681.shtml)
+- 2026-06-30 06:29 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/37475584.shtml)
+- 2026-06-30 06:26 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/22056164.shtml)
+- 2026-06-30 06:53 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/326238554.shtml)
+- 2026-06-30 06:47 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/75751.shtml)

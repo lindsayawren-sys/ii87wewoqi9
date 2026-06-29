@@ -1,61 +1,56 @@
-# 莱茵金属营收同比增长，预计后续增速进一步抬升
+# 如何确保美国遵守承诺使谅解备忘录全面履行？中方回应
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 营收同比上涨 8%，但低于瓦拉研究汇编的市场一致预期 德国军工巨头莱茵金属公布一季度销售额同比走高，并预计下一报告期增长动能将进一步增强。 这家德国最大军火制造商周四公布，今年一季度销售额达19.4 亿欧元（约 22.8 亿美元），同比增长 8%；但低于瓦拉研究统计的市场一致预期 22.7 亿欧元。 这家在法兰克福上市的企业本周早些时候已发
+中新网北京6月24日电 (记者 张素)中国外交部发言人郭嘉昆24日主持例行记者会。 会上，有伊朗媒体记者问，中方如何发挥影响力确保美国遵守承诺全面履行谅解备忘录，并协助伊朗和地区实现长久和平？ 郭嘉昆：中方始终认为，应通过对话谈判解决地区热点和各方分歧，反对使用武力或用武力相威胁。美伊签署谅解备忘录，承诺尊重彼此主权和领土完整，不再发动任何军事行动，避免干涉对方内政，对外发出了
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 营收同比上涨 8%，但低于瓦拉研究汇编的市场一致预期 德国军工巨头莱茵金属公布一季度销售额同比走高，并预计下一报告期增长动能将进一步增强。
+中新网北京6月24日电 (记者 张素)中国外交部发言人郭嘉昆24日主持例行记者会。
 
-这家德国最大军火制造商周四公布，今年一季度销售额达19.4 亿欧元（约 22.8 亿美元），同比增长 8%；但低于瓦拉研究统计的市场一致预期 22.7 亿欧元。
+会上，有伊朗媒体记者问，中方如何发挥影响力确保美国遵守承诺全面履行谅解备忘录，并协助伊朗和地区实现长久和平？
 
-这家在法兰克福上市的企业本周早些时候已发布初步业绩数据，其截至 3 月末的订单储备增长 31%，规模约达 730 亿欧元。
+郭嘉昆：中方始终认为，应通过对话谈判解决地区热点和各方分歧，反对使用武力或用武力相威胁。
 
-莱茵金属首席执行官阿尔明・帕佩格表示，受益于海军、车辆业务大额订单落地，加之西班牙穆尔西亚弹药工厂在去年爆炸事故后已恢复满负荷生产，预计二季度营收与新订单增速将进一步走强。
+美伊签署谅解备忘录，承诺尊重彼此主权和领土完整，不再发动任何军事行动，避免干涉对方内政，对外发出了积极信号，应共同加以维护和落实。
 
-公司当期净利润达1.11 亿欧元，去年同期为 8400 万欧元； 备受分析师和投资者关注的季度营业利润为 2.24 亿欧元，营业利润率由去年的 10.5% 升至11.6%。
+中方始终秉持公正立场，支持一切有助于和平的努力，支持伊方维护主权、安全和民族尊严，支持伊朗改善同海湾各国及地区国家关系。
 
-市场此前预期营业利润为 2.619 亿欧元，营业利润率同样预估 11.6%。
+中方愿根据习近平主席四点主张精神，继续以自己的方式提供协助，为早日恢复地区和平安宁发挥建设性作用。
 
-莱茵金属维持 2026 年全年业绩展望： 预计全年销售额140 亿–145 亿欧元，营业利润率约19%。
-
-责任编辑：郭明煜
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:27 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 06:29 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 06:45 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 06:47 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 06:24 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-30 06:28 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 06:21 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 06:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 06:32 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 06:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 06:33 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 06:22 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 06:32 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 06:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 06:40 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 06:40 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 06:28 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 06:43 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 06:32 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 06:33 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 06:36 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 06:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 06:33 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 06:31 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 06:39 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 06:26 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 06:51 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:42 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/514646.shtml)
-- 2026-06-30 06:35 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/999198.shtml)
-- 2026-06-30 06:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/576351654.shtml)
-- 2026-06-30 06:46 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/84486918.shtml)
-- 2026-06-30 06:35 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/12612.shtml)
-- 2026-06-30 06:38 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/26523506.shtml)
-- 2026-06-30 06:29 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/08841.shtml)
-- 2026-06-30 06:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/033895228.shtml)
-- 2026-06-30 06:46 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/697407684.shtml)
-- 2026-06-30 06:18 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/11934.shtml)
-- 2026-06-30 06:20 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/720401363392.shtml)
-- 2026-06-30 06:24 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/601217839623.shtml)
-- 2026-06-30 06:27 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/9311587.shtml)
-- 2026-06-30 06:27 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/682736617.shtml)
-- 2026-06-30 06:28 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/55097.shtml)
+- 2026-06-30 06:24 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/55617.shtml)
+- 2026-06-30 06:45 - [沙丘](http://www.blog.minike.top/Article/details/88308723491.shtml)
+- 2026-06-30 06:31 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/120612.shtml)
+- 2026-06-30 06:36 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/5869885880.shtml)
+- 2026-06-30 06:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/80382.shtml)
+- 2026-06-30 06:45 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/7225702773.shtml)
+- 2026-06-30 06:43 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/833306670161.shtml)
+- 2026-06-30 06:33 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/70940809.shtml)
+- 2026-06-30 06:40 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/035660299.shtml)
+- 2026-06-30 06:44 - [感动全网的699分女生想报考清华](https://www.blog.minike.top/Article/details/59316698.shtml)
+- 2026-06-30 06:32 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/374636278.shtml)
+- 2026-06-30 06:34 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/5837915.shtml)
+- 2026-06-30 06:31 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/48707.shtml)
+- 2026-06-30 06:53 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/06189945.shtml)
+- 2026-06-30 06:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/480547523561.shtml)

@@ -1,56 +1,54 @@
-# 李松蔚：“爱情几乎掉到了鄙视链的最底端”
+# 深化职教合作 天津向老挝捐赠4台网络综合布线实训台
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中国新闻周刊作者：赵汐贝 发于2026.5.4总第1234期《中国新闻周刊》杂志 如今，从短视频到情感博主，“高嫁秘籍”“拿捏优质男”成了个显性赛道。但这背后，或许不只是婚恋技巧的分享，而是一场精心设计的流量生意，折射出更深层的社会结构性变化与集体焦虑。北大心理学博士、资深心理咨询师李松蔚感慨，接受所谓婚恋技巧的咨询，看似赋予女性一种所谓的控制感，但其实它更像一种幻象，而另一方
+中新网天津6月25日电 (薛淳月 周亚强)2026年是中老建交65周年暨“中老友好年”，天津市电子信息技师学院—老挝人民民主共和国理工学院实训设备捐赠活动近日在天津举行。 此次活动以“命运与共启新程 技能共建促发展”为主题，天津市电子信息技师学院和老挝理工学院共同签署设备捐赠交接协议，向老挝理工学院捐赠4台网络综合布线实训台。 老挝理工学院院长蓝丰·森沙旺在接受采访时表示：“此
 
 ## 正文
 
-中国新闻周刊作者：赵汐贝 发于2026.5.4总第1234期《中国新闻周刊》杂志 如今，从短视频到情感博主，“高嫁秘籍”“拿捏优质男”成了个显性赛道。
+中新网天津6月25日电 (薛淳月 周亚强)2026年是中老建交65周年暨“中老友好年”，天津市电子信息技师学院—老挝人民民主共和国理工学院实训设备捐赠活动近日在天津举行。
 
-但这背后，或许不只是婚恋技巧的分享，而是一场精心设计的流量生意，折射出更深层的社会结构性变化与集体焦虑。
+此次活动以“命运与共启新程 技能共建促发展”为主题，天津市电子信息技师学院和老挝理工学院共同签署设备捐赠交接协议，向老挝理工学院捐赠4台网络综合布线实训台。
 
-北大心理学博士、资深心理咨询师李松蔚感慨，接受所谓婚恋技巧的咨询，看似赋予女性一种所谓的控制感，但其实它更像一种幻象，而另一方面，它又加剧了亲密关系的焦虑和不安全感。
+老挝理工学院院长蓝丰·森沙旺在接受采访时表示：“此次捐赠将显著改善学院信息通信技术专业实训条件，为老挝数字产业发展所需技能人才培养提供有力支撑。
 
-以下为《中国新闻周刊》和李松蔚的对话： “无论你获得什么， 都已经把自己献祭出去” 《中国新闻周刊》：从“Ayawawa”到“曲曲大女人”再到前一阵走红的周媛，类似教导女性在婚恋中“拿大结果”的培训在最近10年一直有着庞大的需求，在你的心理咨询客户中，有这样的受众吗？
+”他期待以此次合作为起点，推动两校在专业建设、师资培训、技能竞赛等领域持续深化交流。
 
-李松蔚：在我的职业范畴里，其实不太能遇到这类培训的受众。
+据介绍，天津市电子信息技师学院未来还将帮助老挝理工学院建成信息网络综合布线实训室，并开展“线上+线下”技能培训、师资互访、标准共建等系列合作，促进两国技能人才培养协同发展。
 
-因为这类培训的基础逻辑，跟心理学不太一样。
+天津市电子信息技师学院院长祝露表示，希望与老挝理工学院在技能发展示范项目、教师能力提升平台等领域合作，借助“一带一路”南南合作技能开发网络平台，持续推动技能标准互鉴与人才培养共进，为两国技能人才成长与区域发展贡献力量。
 
-心理学认为，亲密关系要建立在两个人的真诚互信和深度沟通之上，它本质上不是靠技巧或单方面算计就能掌控的，而是一个比工具理性更大的东西。
-
-所谓亲密关系，大于一个人的个体策略和理性框架。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:18 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 06:43 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 06:37 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 06:25 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 06:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 06:35 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 06:30 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 06:36 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 06:33 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 06:30 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 06:29 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 06:26 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 06:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 06:33 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 06:50 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 06:33 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 06:27 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 06:45 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 06:37 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 06:32 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:33 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/248657.shtml)
-- 2026-06-30 06:39 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/180624.shtml)
-- 2026-06-30 06:22 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/140308269.shtml)
-- 2026-06-30 06:33 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/88885314.shtml)
-- 2026-06-30 06:23 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/478793944124.shtml)
-- 2026-06-30 06:32 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/827845989.shtml)
-- 2026-06-30 06:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/9116643792.shtml)
-- 2026-06-30 06:44 - [急先锋](http://www.blog.minike.top/Article/details/006239.shtml)
-- 2026-06-30 06:38 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/873173362373.shtml)
-- 2026-06-30 06:45 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/2195108945.shtml)
-- 2026-06-30 06:23 - [巴西绝杀日本](https://www.share.minike.top/Article/details/550718238.shtml)
-- 2026-06-30 06:45 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/819644.shtml)
-- 2026-06-30 06:30 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/2112281.shtml)
-- 2026-06-30 06:21 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/30229.shtml)
-- 2026-06-30 06:28 - [孙兴慜道歉](https://www.share.minike.top/Article/details/0736680722.shtml)
+- 2026-06-30 06:25 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/560165.shtml)
+- 2026-06-30 06:37 - [日本16强魔咒](http://www.blog.minike.top/Article/details/43681087023.shtml)
+- 2026-06-30 06:25 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/90716.shtml)
+- 2026-06-30 06:50 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/3690838292.shtml)
+- 2026-06-30 06:29 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/62088549446.shtml)
+- 2026-06-30 06:32 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/996826088.shtml)
+- 2026-06-30 06:32 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/9731308306.shtml)
+- 2026-06-30 06:38 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/3072138876.shtml)
+- 2026-06-30 06:38 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/26268.shtml)
+- 2026-06-30 06:28 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/1787657927.shtml)
+- 2026-06-30 06:24 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/7039102562.shtml)
+- 2026-06-30 06:49 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/3058994.shtml)
+- 2026-06-30 06:39 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/95617.shtml)
+- 2026-06-30 06:38 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/131401987.shtml)
+- 2026-06-30 06:54 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/36844903896.shtml)

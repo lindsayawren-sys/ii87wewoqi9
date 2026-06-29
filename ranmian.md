@@ -1,61 +1,61 @@
-# 操盘必读：影响股市利好或利空消息_2026年5月7日_财经新闻
+# 第十五届巴黎中国曲艺节在巴黎举办
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-宏观新闻 1、外交部发言人林剑5月6日主持例行记者会。有记者就美国总统特朗普相关涉华言论提问。对此，林剑表示，中美双方就特朗普总统访华事保持着沟通。 2、中共中央政治局委员、外交部长王毅在北京同伊朗外长阿拉格齐举行会谈。阿拉格齐通报了伊美谈判最新情况及伊方下步考虑，表示事实已经证明，政治危机无法通过军事手段解决，伊方将坚决维护国家主权和民族尊严，同时通过和平谈判方式，不断积累共
+中新网巴黎6月24日电 当地时间6月19日至22日，第十五届巴黎中国曲艺节在巴黎举办。 6月19日恰逢端午节，“舌尖上的曲艺——巴黎中国曲艺节端午雅集”为曲艺节拉开序幕。长子鼓书、四川清音、杭州小热昏、东北二人转轮番登场，以生动精彩的表演讲述中国各地风土人情与饮食文化。 演出间隙，从国内专程赶来的大厨现场展示山西刀削面和龙须面的制作过程，并邀请观众走上前来亲手体验。大家一边欣赏
 
 ## 正文
 
-宏观新闻 1、外交部发言人林剑5月6日主持例行记者会。
+中新网巴黎6月24日电 当地时间6月19日至22日，第十五届巴黎中国曲艺节在巴黎举办。
 
-有记者就美国总统特朗普相关涉华言论提问。
+6月19日恰逢端午节，“舌尖上的曲艺——巴黎中国曲艺节端午雅集”为曲艺节拉开序幕。
 
-对此，林剑表示，中美双方就特朗普总统访华事保持着沟通。
+长子鼓书、四川清音、杭州小热昏、东北二人转轮番登场，以生动精彩的表演讲述中国各地风土人情与饮食文化。
 
-2、中共中央政治局委员、外交部长王毅在北京同伊朗外长阿拉格齐举行会谈。
+演出间隙，从国内专程赶来的大厨现场展示山西刀削面和龙须面的制作过程，并邀请观众走上前来亲手体验。
 
-阿拉格齐通报了伊美谈判最新情况及伊方下步考虑，表示事实已经证明，政治危机无法通过军事手段解决，伊方将坚决维护国家主权和民族尊严，同时通过和平谈判方式，不断积累共识，寻求全面、永久的解决方案。
+大家一边欣赏表演，一边了解各地美食背后的故事与民俗风情。
 
-当前可尽快解决好霍尔木兹海峡开放问题。
+艺术家们还与观众共同包粽子、话端午，分享端午节的由来和节庆传统。
 
-王毅表示，中方愿秉持习近平主席四点主张精神，以支持中东地区国家构建“四个共同家园”为目标，进一步致力于缓局降温、消弭战事，为启动和谈继续提供助力，为恢复中东地区和平安宁发挥更大作用。
+6月20日晚举行的“牡丹艺韵——中国曲艺牡丹奖专场演出”将本届曲艺节推向高潮。
 
-3、美国总统特朗普当地时间5月6日在接受采访时表示，尽管外界预计美伊接近达成结束冲突的协议框架，但目前开始考虑美伊举行面对面和平谈判“为时尚早”。
+演出开始前，巴黎中国文化中心副主任朱晓云和中国曲协分党组书记、驻会副主席杨发航分别致辞。
 
 ## 相关推荐
 
-- 2026-06-30 06:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 06:34 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-30 06:29 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 06:39 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 06:25 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 06:21 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-30 06:34 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 06:31 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 06:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 06:20 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 06:44 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 06:40 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 06:36 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 06:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 06:32 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 06:33 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 06:39 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 06:41 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 06:28 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 06:35 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 06:52 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 06:41 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 06:31 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 06:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 06:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 06:36 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 06:38 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 06:41 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 06:39 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 06:34 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:27 - [85花告别古偶](https://www.share.minike.top/Article/details/02763753.shtml)
-- 2026-06-30 06:40 - [电影后室值得看吗](https://www.share.minike.top/Article/details/062851721.shtml)
-- 2026-06-30 06:43 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/0387433983.shtml)
-- 2026-06-30 06:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/118100.shtml)
-- 2026-06-30 06:20 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/514440.shtml)
-- 2026-06-30 06:19 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/658296051214.shtml)
-- 2026-06-30 06:37 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/61313073.shtml)
-- 2026-06-30 06:19 - [乔家的儿女](https://www.share.minike.top/Article/details/425326968.shtml)
-- 2026-06-30 06:32 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/647472865.shtml)
-- 2026-06-30 06:20 - [世界杯](https://www.blog.minike.top/Article/details/8313738418.shtml)
-- 2026-06-30 06:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/081375427103.shtml)
-- 2026-06-30 06:23 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/2629017393.shtml)
-- 2026-06-30 06:38 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/922260076837.shtml)
-- 2026-06-30 06:45 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/772146583052.shtml)
-- 2026-06-30 06:47 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/751309.shtml)
+- 2026-06-30 06:52 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/47710526.shtml)
+- 2026-06-30 06:39 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/15050071.shtml)
+- 2026-06-30 06:35 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/19331.shtml)
+- 2026-06-30 06:52 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/263878950504.shtml)
+- 2026-06-30 06:32 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/4902444251.shtml)
+- 2026-06-30 06:51 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/512274212250.shtml)
+- 2026-06-30 06:36 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/12493.shtml)
+- 2026-06-30 06:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/322539.shtml)
+- 2026-06-30 06:37 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/4342551.shtml)
+- 2026-06-30 06:41 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/37074432.shtml)
+- 2026-06-30 06:28 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/16515140092.shtml)
+- 2026-06-30 06:46 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/870846.shtml)
+- 2026-06-30 06:52 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/92881.shtml)
+- 2026-06-30 06:30 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/5427122963.shtml)
+- 2026-06-30 06:51 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/39586984.shtml)

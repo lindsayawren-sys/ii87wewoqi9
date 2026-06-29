@@ -1,58 +1,57 @@
-# 英伟达CEO黄仁勋：AI 将创造就业 而非摧毁就业
+# 文化开放日活动在雅加达举行
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-在米尔肯研究所近期主办的一场讨论中， 英伟达首席执行官黄仁勋表示，人工智能将创造而非摧毁就业机会。他认为，人工智能为美国再工业化带来了重大机遇，且 AI 行业正在催生需要劳动力的新型工业工厂。 黄仁勋驳斥了他所谓的“科幻故事”，这些故事让人们因恐惧而完全回避人工智能。他表示，自己最大的担忧是，过度夸大的恐惧会阻碍公众接触这项技术。他还指出，自动化工作中的某个特定任务并不会消除整
+中新网雅加达6月25日电 (记者 李志全)为庆祝中国—东盟建立全面战略伙伴关系5周年，中国驻东盟使团和中国公共外交协会23日在印度尼西亚雅加达联合举办文化开放日活动。中国驻东盟大使王擎夫妇、中国公共外交协会副会长佟晓玲以及东盟副秘书长山伦、各国驻东盟使节等150余人出席。 王擎回顾5年来中国—东盟全面战略伙伴关系取得的重要进展，强调中国东盟人文交流为构建更为紧密的中国—东盟命运
 
 ## 正文
 
-在米尔肯研究所近期主办的一场讨论中， 英伟达首席执行官黄仁勋表示，人工智能将创造而非摧毁就业机会。
+中新网雅加达6月25日电 (记者 李志全)为庆祝中国—东盟建立全面战略伙伴关系5周年，中国驻东盟使团和中国公共外交协会23日在印度尼西亚雅加达联合举办文化开放日活动。
 
-他认为，人工智能为美国再工业化带来了重大机遇，且 AI 行业正在催生需要劳动力的新型工业工厂。
+中国驻东盟大使王擎夫妇、中国公共外交协会副会长佟晓玲以及东盟副秘书长山伦、各国驻东盟使节等150余人出席。
 
-黄仁勋驳斥了他所谓的“科幻故事”，这些故事让人们因恐惧而完全回避人工智能。
+王擎回顾5年来中国—东盟全面战略伙伴关系取得的重要进展，强调中国东盟人文交流为构建更为紧密的中国—东盟命运共同体发挥了不可替代的重要作用。
 
-他表示，自己最大的担忧是，过度夸大的恐惧会阻碍公众接触这项技术。
+中方愿以全球文明倡议为指引，同东盟持续深化人文领域交流合作，促进文明互鉴，传承世代友好，携手建设和平、安宁、繁荣、美丽、友好“五大家园”。
 
-他还指出，自动化工作中的某个特定任务并不会消除整个岗位，因为工作的更广泛目的与任何单一任务都是截然不同的。
+活动期间，福建泉州艺术团进行了南音、提线木偶戏等非遗表演和文创展示，与活动承办方雅加达公共关系学院学生表演的巴厘岛传统舞蹈珠联璧合，受到来宾热烈欢迎。
 
-尽管黄仁勋保持乐观，但对话中也承认了人们对 AI 快速发展所带来的持续经济焦虑。
-
-主持人提出疑问：这种速度是否可能比以往的技术变革造成更大的社会动荡和不平等？
-
-一些批评者指责 AI 行业本身制造末日言论，将其作为一种营销策略，为那些不具备此类警告所暗示能力的产品制造热度。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:42 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 06:22 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 06:46 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 06:25 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 06:26 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 06:19 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 06:26 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 06:31 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 06:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 06:28 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 06:39 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 06:25 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 06:46 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 06:30 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 06:27 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 06:39 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 06:32 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 06:46 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 06:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-30 06:44 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 06:42 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 06:46 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 06:32 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 06:32 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 06:32 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 06:26 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 06:45 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:47 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/0058133200.shtml)
-- 2026-06-30 06:23 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/22792250.shtml)
-- 2026-06-30 06:40 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/169114943.shtml)
-- 2026-06-30 06:39 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/874119.shtml)
-- 2026-06-30 06:46 - [日本进球](https://www.share.kurohicncr.top/Article/details/1095758.shtml)
-- 2026-06-30 06:40 - [巴西绝杀日本](http://www.share.minike.top/Article/details/09680742.shtml)
-- 2026-06-30 06:45 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/21092761.shtml)
-- 2026-06-30 06:30 - [日本进球](https://www.share.kurohicncr.top/Article/details/7916839.shtml)
-- 2026-06-30 06:21 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/621584770.shtml)
-- 2026-06-30 06:33 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/55348052101.shtml)
-- 2026-06-30 06:30 - [急先锋](https://www.blog.kurohicncr.top/Article/details/85760748407.shtml)
-- 2026-06-30 06:40 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/7776558.shtml)
-- 2026-06-30 06:45 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/7849784.shtml)
-- 2026-06-30 06:37 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/11664924.shtml)
-- 2026-06-30 06:18 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/52383425781.shtml)
+- 2026-06-30 06:50 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/3685172073.shtml)
+- 2026-06-30 06:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/3485922.shtml)
+- 2026-06-30 06:44 - [急先锋](https://www.share.minike.top/Article/details/63151331.shtml)
+- 2026-06-30 06:52 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/6754816389.shtml)
+- 2026-06-30 06:30 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/597671915.shtml)
+- 2026-06-30 06:42 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/880216012927.shtml)
+- 2026-06-30 06:39 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/5820160.shtml)
+- 2026-06-30 06:38 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/765906293147.shtml)
+- 2026-06-30 06:34 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/17819093073.shtml)
+- 2026-06-30 06:26 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/023205.shtml)
+- 2026-06-30 06:42 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/53824813440.shtml)
+- 2026-06-30 06:38 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/677283.shtml)
+- 2026-06-30 06:27 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/036127229203.shtml)
+- 2026-06-30 06:25 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/25133331986.shtml)
+- 2026-06-30 06:33 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/55409165.shtml)

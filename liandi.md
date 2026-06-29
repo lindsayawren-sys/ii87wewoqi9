@@ -1,46 +1,57 @@
-# 5月6日增减持汇总：五粮液披露增持情况，润都股份等18股拟减持（表）
+# 美国科技股下跌，“木头姐”大举加仓
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据统计，5月6日盘后，五粮液披露增持情况，包括润都股份、科华控股（维权）、鑫磊股份、凡拓数创、乾照光电、华信新材、红旗连锁、盛弘股份、蓝海华腾、科创新源、家联科技、中稀有色、佰奥智能、巨星农牧、华钰矿业、西部黄金、杭电股份、东材科技在内的18家A股上市公司披露拟减持情况。 责任编辑：宋雅芳
+美国科技股周二普遍下跌，凯茜·伍德的ARK投资管理公司增持了多家科技和出行公司的股份。 ARK通过旗下两只基金ARKK和ARKK买入了21226股特斯拉股票，按收盘价每股381.61美元计算，价值约810万美元。 此次买入正值特斯拉在德克萨斯州一起致命事故后面临对其FSD技术的严格审查之际。埃隆·马斯克和特斯拉人工智能主管已公开否认事故与FSD系统有关，并强调事故发生时驾驶员进
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美国科技股周二普遍下跌，凯茜·伍德的ARK投资管理公司增持了多家科技和出行公司的股份。
 
-据统计，5月6日盘后，五粮液披露增持情况，包括润都股份、科华控股（维权）、鑫磊股份、凡拓数创、乾照光电、华信新材、红旗连锁、盛弘股份、蓝海华腾、科创新源、家联科技、中稀有色、佰奥智能、巨星农牧、华钰矿业、西部黄金、杭电股份、东材科技在内的18家A股上市公司披露拟减持情况。
+ARK通过旗下两只基金ARKK和ARKK买入了21226股特斯拉股票，按收盘价每股381.61美元计算，价值约810万美元。
 
-责任编辑：宋雅芳
+此次买入正值特斯拉在德克萨斯州一起致命事故后面临对其FSD技术的严格审查之际。
+
+埃隆·马斯克和特斯拉人工智能主管已公开否认事故与FSD系统有关，并强调事故发生时驾驶员进行了手动干预。
+
+Ark还通过ARKK和ARKW买入了Cerebras Systems的25795 股股票，价值约 580 万美元。
+
+此次交易紧随Cerebras公布首份财报之后。
+
+尽管该公司报告亏损，但其业绩仍超出市场预期，其股价在周三盘后交易中下跌了超过 11%。
+
+Ark通过ARKF、ARKK 和 ARKW买入了Palantir的 81，254 股股票。
 
 ## 相关推荐
 
-- 2026-06-30 06:18 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 06:33 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 06:45 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 06:26 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 06:37 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 06:30 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 06:23 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 06:34 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 06:25 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 06:27 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 06:32 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 06:27 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 06:24 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 06:40 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 06:47 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 06:46 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 06:50 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 06:27 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 06:46 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 06:36 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 06:24 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:36 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/728197971024.shtml)
-- 2026-06-30 06:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/22334418.shtml)
-- 2026-06-30 06:20 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/497710.shtml)
-- 2026-06-30 06:28 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/581187880.shtml)
-- 2026-06-30 06:36 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/8868684.shtml)
-- 2026-06-30 06:38 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/34962770.shtml)
-- 2026-06-30 06:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/1572101381.shtml)
-- 2026-06-30 06:41 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/74620.shtml)
-- 2026-06-30 06:22 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/300087088.shtml)
-- 2026-06-30 06:30 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/272302.shtml)
-- 2026-06-30 06:21 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/2374195.shtml)
-- 2026-06-30 06:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/68821.shtml)
-- 2026-06-30 06:40 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/12240.shtml)
-- 2026-06-30 06:37 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/826910132692.shtml)
-- 2026-06-30 06:18 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/14533.shtml)
+- 2026-06-30 06:25 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/621318987953.shtml)
+- 2026-06-30 06:48 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/41381006.shtml)
+- 2026-06-30 06:27 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/085643246.shtml)
+- 2026-06-30 06:53 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/5898368281.shtml)
+- 2026-06-30 06:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/1333349.shtml)
+- 2026-06-30 06:26 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/090276330.shtml)
+- 2026-06-30 06:48 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/542269021.shtml)
+- 2026-06-30 06:42 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/56610429.shtml)
+- 2026-06-30 06:36 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/22886112991.shtml)
+- 2026-06-30 06:40 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/14976.shtml)
+- 2026-06-30 06:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/53246.shtml)
+- 2026-06-30 06:51 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/8633872.shtml)
+- 2026-06-30 06:25 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/5070504.shtml)
+- 2026-06-30 06:41 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/15764874976.shtml)
+- 2026-06-30 06:34 - [极限挑战第一季](http://www.blog.minike.top/Article/details/6489796.shtml)

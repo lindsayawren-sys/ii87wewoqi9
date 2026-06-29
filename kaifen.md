@@ -1,49 +1,59 @@
-# 机器人概念股多数上涨 德昌电机控股涨超10%三花智控上涨5%
+# 20国媒体人探访新疆产业与民生新图景
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-机器人概念股多数上涨，截至发稿，德昌电机控股（00179）上涨10.37%，报25.76港元；越疆（02432）上涨5%，报31.92港元；三花智控（02050）上涨4.96%，报35.12港元；极智嘉-W（02590）上涨4.49%，报17.92港元。责任编辑：卢昱君
+中新网乌鲁木齐6月25日电 (苟继鹏)连日来，“走进丝绸之路经济带核心区”主题采访团在新疆吐鲁番市、和田地区、乌鲁木齐市等地开展实地参访。来自巴基斯坦、德国、西班牙、土耳其等20个国家的媒体从业者，深度探访新疆文化保护、产业发展、乡村振兴等新图景。 24日，采访团一行走进位于乌鲁木齐市的卓郎新疆智能机械有限公司。作为一家全球化公司，卓郎集团在全球已有4大制造基地和3大研发中心。
 
 ## 正文
 
-机器人概念股多数上涨，截至发稿，德昌电机控股（00179）上涨10.37%，报25.76港元；越疆（02432）上涨5%，报31.92港元；三花智控（02050）上涨4.96%，报35.12港元；极智嘉-W（02590）上涨4.49%，报17.92港元。
+中新网乌鲁木齐6月25日电 (苟继鹏)连日来，“走进丝绸之路经济带核心区”主题采访团在新疆吐鲁番市、和田地区、乌鲁木齐市等地开展实地参访。
 
-责任编辑：卢昱君
+来自巴基斯坦、德国、西班牙、土耳其等20个国家的媒体从业者，深度探访新疆文化保护、产业发展、乡村振兴等新图景。
+
+24日，采访团一行走进位于乌鲁木齐市的卓郎新疆智能机械有限公司。
+
+作为一家全球化公司，卓郎集团在全球已有4大制造基地和3大研发中心。
+
+其中，卓郎新疆智能机械有限公司成立于2016年，主要面向中国西北市场，以及中亚、西亚和南亚市场。
+
+来自捷克的米库拉什·切尔尼表示：“我对这些设备的工作原理很感兴趣，了解到整条生产线都实现了全自动化运行，相关产品的出口数据十分亮眼。
+
+新疆制造业的发展水平，实在令人刮目相看。
+
+” 在新疆伊斯兰教经学院，采访团参观了教学场地、图书馆等设施，详细了解学院办学宗旨、课程设置、师资力量以及培养教职人员等方面情况。
 
 ## 相关推荐
 
-- 2026-06-30 06:29 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 06:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 06:35 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 06:19 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 06:35 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 06:21 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 06:41 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 06:46 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 06:45 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 06:41 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 06:18 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 06:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-30 06:43 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 06:36 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 06:33 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 06:50 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 06:25 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 06:41 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 06:52 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 06:51 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 06:34 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 06:46 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 06:28 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 06:35 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 06:27 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 06:32 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 06:52 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 06:53 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:21 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/882652.shtml)
-- 2026-06-30 06:47 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/9033193.shtml)
-- 2026-06-30 06:19 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/42787909743.shtml)
-- 2026-06-30 06:44 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/674831816949.shtml)
-- 2026-06-30 06:25 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/88416.shtml)
-- 2026-06-30 06:20 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/51927.shtml)
-- 2026-06-30 06:32 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/75354676.shtml)
-- 2026-06-30 06:39 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/856450.shtml)
-- 2026-06-30 06:37 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/8717076393.shtml)
-- 2026-06-30 06:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/56270.shtml)
-- 2026-06-30 06:43 - [日本反击率先破门](https://www.share.minike.top/Article/details/6168567820.shtml)
-- 2026-06-30 06:36 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/174184145557.shtml)
-- 2026-06-30 06:46 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/0232712.shtml)
-- 2026-06-30 06:42 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/1799732.shtml)
-- 2026-06-30 06:27 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/2252995159.shtml)
+- 2026-06-30 06:37 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/012920462.shtml)
+- 2026-06-30 06:37 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/108754.shtml)
+- 2026-06-30 06:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/31466999.shtml)
+- 2026-06-30 06:34 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/549921979.shtml)
+- 2026-06-30 06:50 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/7430208573.shtml)
+- 2026-06-30 06:49 - [一生一世](http://www.share.kurohicncr.top/Article/details/57326783.shtml)
+- 2026-06-30 06:31 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/803228802.shtml)
+- 2026-06-30 06:27 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/8437329217.shtml)
+- 2026-06-30 06:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/997723091765.shtml)
+- 2026-06-30 06:48 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/09531987.shtml)
+- 2026-06-30 06:29 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/0061716045.shtml)
+- 2026-06-30 06:25 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/2565385.shtml)
+- 2026-06-30 06:25 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/22420722454.shtml)
+- 2026-06-30 06:53 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/78453.shtml)
+- 2026-06-30 06:38 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/490693807.shtml)

@@ -1,56 +1,59 @@
-# 中超第10轮：泰山大胜申花 蓉城保持不败继续领跑
+# 致公党福建泉州市委会赴晋江开展“参政为公、实干为民”主题教育调研
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新社北京5月6日电 (刘梦青)2026赛季中超联赛第10轮比赛6日全部战罢。外援克雷桑上演“帽子戏法”，助山东泰山4:1大胜上海申花；成都蓉城1:0绝杀辽宁铁人，保持不败继续领跑积分榜。 本轮山东泰山一扫此前两场“齐鲁德比”不胜的阴霾，主场4:1大胜上海申花。泰山队克雷桑、卡扎伊什维利、泽卡进攻“三叉戟”强势爆发，上半场第24分钟克雷桑边路传中、泽卡头球破门，为球队首开记录；
+【主题教育】丨 致公党泉州市委会赴晋江开展“参政为公、实干为民”主题教育调研 6月24日上午，致公党泉州市委会主委洪奕蓉带队赴晋江市开展“参政为公、实干为民”主题教育调研。中共晋江市委常委、统战部部长丁鸿雨等会见调研组一行。 座谈会上，调研组一行详细了解基层组织建设、参政议政、社会服务、对外联络等工作开展情况。晋江市委会党员代表结合履职实际踊跃发言，围绕市县两级组织联动、党员培
 
 ## 正文
 
-中新社北京5月6日电 (刘梦青)2026赛季中超联赛第10轮比赛6日全部战罢。
+【主题教育】丨 致公党泉州市委会赴晋江开展“参政为公、实干为民”主题教育调研 6月24日上午，致公党泉州市委会主委洪奕蓉带队赴晋江市开展“参政为公、实干为民”主题教育调研。
 
-外援克雷桑上演“帽子戏法”，助山东泰山4:1大胜上海申花；成都蓉城1:0绝杀辽宁铁人，保持不败继续领跑积分榜。
+中共晋江市委常委、统战部部长丁鸿雨等会见调研组一行。
 
-本轮山东泰山一扫此前两场“齐鲁德比”不胜的阴霾，主场4:1大胜上海申花。
+座谈会上，调研组一行详细了解基层组织建设、参政议政、社会服务、对外联络等工作开展情况。
 
-泰山队克雷桑、卡扎伊什维利、泽卡进攻“三叉戟”强势爆发，上半场第24分钟克雷桑边路传中、泽卡头球破门，为球队首开记录；随后第26分钟克雷桑推射破门，帮助主队扩大优势。
+晋江市委会党员代表结合履职实际踊跃发言，围绕市县两级组织联动、党员培训机制优化、参政议政平台拓展等议题，提出多条建设性意见。
 
-下半场泰山愈战愈勇、打出精彩转换进攻。
+调研组表示，将认真梳理汇总相关建议，并转化为改进工作作风、提升履职效能的务实举措，切实回应基层组织工作需求。
 
-泽卡、卡扎伊什维利送出妙传，助克雷桑完成赛季首次“帽子戏法”。
+调研期间，调研组还实地走访“致公之家”，调研致和社工及致公党晋江市委会社工支部。
 
-申花再遇外援伤病困扰，上半场特谢拉无对抗伤退，下半场仅拉唐头球扳回一城。
+致公党泉州市委会有关领导参加调研活动。
 
-此役泰山送申花联赛两连败，同时打破了对阵申花5场不胜的魔咒。
+供稿：泉州市委会 编辑：宣传处 来源：“福建致公”微信公众号
 
 ## 相关推荐
 
-- 2026-06-30 06:24 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 06:44 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 06:34 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 06:20 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 06:24 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 06:38 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-30 06:30 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-30 06:26 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 06:33 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 06:26 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 06:41 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 06:50 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 06:48 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 06:36 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 06:47 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 06:34 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 06:52 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 06:45 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 06:37 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 06:40 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 06:51 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 06:53 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 06:36 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:41 - [普京间接喊话特朗普有何考量](https://www.blog.minike.top/Article/details/918105.shtml)
-- 2026-06-30 06:38 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/75475.shtml)
-- 2026-06-30 06:34 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/275440523.shtml)
-- 2026-06-30 06:18 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/150469107.shtml)
-- 2026-06-30 06:46 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/74889686.shtml)
-- 2026-06-30 06:19 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/153750.shtml)
-- 2026-06-30 06:43 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/896855.shtml)
-- 2026-06-30 06:40 - [巴西绝杀日本](http://www.share.minike.top/Article/details/56496275004.shtml)
-- 2026-06-30 06:21 - [一生一世](https://www.blog.kurohicncr.top/Article/details/2474801.shtml)
-- 2026-06-30 06:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/94178689930.shtml)
-- 2026-06-30 06:31 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/8387668938.shtml)
-- 2026-06-30 06:44 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/15930599.shtml)
-- 2026-06-30 06:23 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/2711754785.shtml)
-- 2026-06-30 06:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/4369011.shtml)
-- 2026-06-30 06:40 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/859226988406.shtml)
+- 2026-06-30 06:40 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/221130959.shtml)
+- 2026-06-30 06:26 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/271558602785.shtml)
+- 2026-06-30 06:24 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/7612327226.shtml)
+- 2026-06-30 06:45 - [时光音乐会](https://www.share.minike.top/Article/details/07448206.shtml)
+- 2026-06-30 06:51 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/663346049.shtml)
+- 2026-06-30 06:39 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/48744833148.shtml)
+- 2026-06-30 06:47 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/401563061.shtml)
+- 2026-06-30 06:42 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/8810616680.shtml)
+- 2026-06-30 06:37 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/78161.shtml)
+- 2026-06-30 06:28 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/461224668842.shtml)
+- 2026-06-30 06:46 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/478872192.shtml)
+- 2026-06-30 06:46 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/9277481.shtml)
+- 2026-06-30 06:40 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/2244695.shtml)
+- 2026-06-30 06:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/8406864776.shtml)
+- 2026-06-30 06:51 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/80354450086.shtml)

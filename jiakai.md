@@ -1,48 +1,58 @@
-# 先正达考虑2026年下半年在香港IPO 估值可能达到500亿美元
+# 瑛泰医疗拟斥资1000万美元进一步收购德晋医疗约0.79%股权
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-德国商报援引消息人士的话报道，总部位于瑞士的种子和农用化学品公司先正达计划于9月或10月在香港交易所上市。报道称，这家由中国国有企业中化控股的公司估值可能达到500亿美元。责任编辑：王永生
+瑛泰医疗（01501）公布，就公司收购Valgen Holding Corporation已发行股本总额约23.18%，于2026年6月25日，公司（作为买方，或透过其代名人）与目标公司若干现有股东（即卖方）订立进一步股份转让协议，该公司拟向卖方收购目标公司119，545股B轮优先股（进一步销售股份），占目标公司已发行股本总额约0.79%，总对价为1000万美元（相等于约人民币
 
 ## 正文
 
-德国商报援引消息人士的话报道，总部位于瑞士的种子和农用化学品公司先正达计划于9月或10月在香港交易所上市。
+瑛泰医疗（01501）公布，就公司收购Valgen Holding Corporation已发行股本总额约23.18%，于2026年6月25日，公司（作为买方，或透过其代名人）与目标公司若干现有股东（即卖方）订立进一步股份转让协议，该公司拟向卖方收购目标公司119，545股B轮优先股（进一步销售股份），占目标公司已发行股本总额约0.79%，总对价为1000万美元（相等于约人民币6820.9万元）。
 
-报道称，这家由中国国有企业中化控股的公司估值可能达到500亿美元。
+据悉，目标公司持有德晋医疗100%股权。
 
-责任编辑：王永生
+目标公司为无实质业务活动的控股公司。
+
+德晋医疗主要从事房室瓣疾病方面（尤其是二尖瓣及三尖瓣介入治疗）介入治疗技术及产品的研发、生产及销售。
+
+德晋医疗为目标集团在中国的主要经营实体。
+
+目标集团自主研发的四款产品已获国家药监局纳入创新医疗器械特别审查程序，分别为MitralStitch®经心尖二尖瓣修复系统、DragonFly™经导管二尖瓣夹系统、DragonFly-T®经导管三尖瓣夹系统及DragonFire®经导管心肌射频消融系统。
+
+其中，DragonFly™经导管二尖瓣夹系统为国家药监局批准的首款国产经导管二尖瓣产品。
+
+于首次收购事项及第二次收购事项均完成后，公司将合共持有目标公司已发行股本总额约23.97%。
 
 ## 相关推荐
 
-- 2026-06-30 06:29 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 06:18 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 06:47 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 06:36 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-30 06:24 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 06:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 06:47 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 06:47 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 06:39 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 06:25 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 06:46 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-30 06:18 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 06:31 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 06:52 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 06:53 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 06:43 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 06:53 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 06:37 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 06:24 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 06:47 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 06:32 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 06:33 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 06:37 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-30 06:51 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:19 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/92912606091.shtml)
-- 2026-06-30 06:20 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/512479.shtml)
-- 2026-06-30 06:28 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/51174330.shtml)
-- 2026-06-30 06:47 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/98423856.shtml)
-- 2026-06-30 06:31 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/14220.shtml)
-- 2026-06-30 06:25 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/631605925.shtml)
-- 2026-06-30 06:38 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/6882140.shtml)
-- 2026-06-30 06:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/224558100957.shtml)
-- 2026-06-30 06:41 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/3034225.shtml)
-- 2026-06-30 06:47 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/285856562303.shtml)
-- 2026-06-30 06:29 - [逃狱兄弟](http://www.share.minike.top/Article/details/7213321.shtml)
-- 2026-06-30 06:18 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/396564094.shtml)
-- 2026-06-30 06:45 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/031182887.shtml)
-- 2026-06-30 06:32 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/541040243991.shtml)
-- 2026-06-30 06:29 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/94270487193.shtml)
+- 2026-06-30 06:47 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/354423879.shtml)
+- 2026-06-30 06:51 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/76887.shtml)
+- 2026-06-30 06:24 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/784288174456.shtml)
+- 2026-06-30 06:52 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/2596226.shtml)
+- 2026-06-30 06:48 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/823394197108.shtml)
+- 2026-06-30 06:28 - [啊啊啊](http://www.share.minike.top/Article/details/031384.shtml)
+- 2026-06-30 06:33 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/61385216.shtml)
+- 2026-06-30 06:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/982261243307.shtml)
+- 2026-06-30 06:31 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/142530.shtml)
+- 2026-06-30 06:43 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/09347338.shtml)
+- 2026-06-30 06:31 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/55271.shtml)
+- 2026-06-30 06:36 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/23425331344.shtml)
+- 2026-06-30 06:27 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/808149129684.shtml)
+- 2026-06-30 06:39 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/2394527.shtml)
+- 2026-06-30 06:45 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/972545997077.shtml)

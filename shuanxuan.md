@@ -1,61 +1,47 @@
-# 聚焦人工智能教育应用等 2026世界数字教育大会将发布八项成果
+# 时政画说丨禾下新野
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-今天，教育部在京召开发布会，介绍2026年世界数字教育大会的筹备情况。 教育部科学技术与信息化司副司长舒华介绍，2026世界数字教育大会将按照前沿引领、实践赋能与全球共识三个篇章，共发布八项成果。 第一篇章前沿引领，共发布三项成果。包括《中国智慧教育发展报告(2025—2026)》《全球数字教育发展指数(2026)》《人工智能教育伦理：参考框架》。其中，《全球数字教育发展指数(
+发布时间：2026年06月25日 09:47 来源：央视新闻客户端 责任编辑：【杨彦宇】
 
 ## 正文
 
-今天，教育部在京召开发布会，介绍2026年世界数字教育大会的筹备情况。
-
-教育部科学技术与信息化司副司长舒华介绍，2026世界数字教育大会将按照前沿引领、实践赋能与全球共识三个篇章，共发布八项成果。
-
-第一篇章前沿引领，共发布三项成果。
-
-包括《中国智慧教育发展报告(2025—2026)》《全球数字教育发展指数(2026)》《人工智能教育伦理：参考框架》。
-
-其中，《全球数字教育发展指数(2026)》参评的国家和地区从72个扩展至82个，首次将“超越人工智能的思维能力培养”纳入指数研究，深化对“人工智能+教育”的洞察。
-
-第二篇章实践赋能，共发布四项成果。
-
-中国智慧教育公共服务平台升级，发布《人工智能教育伦理：参考框架》，公布世界数字教育创新十大案例，以及发布两项世界数字教育联盟标准，包含《人工智能教育应用系统》和《人工智能赋能智慧校园基本要素》两项标准。
-
-第三篇章全球共识，发布一项成果，即《人工智能教育杭州倡议》，呼吁世界各国携手并进，加快落实联合国未来峰会《全球数字契约》，推动实现2030年教育可持续发展目标。
+发布时间：2026年06月25日 09:47 来源：央视新闻客户端 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-30 06:18 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 06:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 06:29 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 06:20 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 06:19 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 06:43 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 06:25 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 06:40 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-30 06:28 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 06:31 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 06:44 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 06:24 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 06:23 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 06:30 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 06:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 06:42 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-30 06:53 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 06:37 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 06:53 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 06:28 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 06:45 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 06:38 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 06:26 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 06:42 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 06:36 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 06:46 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 06:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 06:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 06:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 06:34 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:42 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/364887531.shtml)
-- 2026-06-30 06:32 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/4008111726.shtml)
-- 2026-06-30 06:31 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/6795386.shtml)
-- 2026-06-30 06:33 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/95510240.shtml)
-- 2026-06-30 06:35 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/7528225.shtml)
-- 2026-06-30 06:36 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/86470420.shtml)
-- 2026-06-30 06:24 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/27022640.shtml)
-- 2026-06-30 06:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/7754771408.shtml)
-- 2026-06-30 06:20 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/3010975.shtml)
-- 2026-06-30 06:43 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/13890.shtml)
-- 2026-06-30 06:35 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/6284744682.shtml)
-- 2026-06-30 06:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/3575012325.shtml)
-- 2026-06-30 06:28 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/6636394508.shtml)
-- 2026-06-30 06:31 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/226813335.shtml)
-- 2026-06-30 06:33 - [世界杯](https://www.blog.minike.top/Article/details/42560996753.shtml)
+- 2026-06-30 06:39 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/3446331409.shtml)
+- 2026-06-30 06:34 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/30785.shtml)
+- 2026-06-30 06:26 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/924840482.shtml)
+- 2026-06-30 06:25 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/862224907.shtml)
+- 2026-06-30 06:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/83738.shtml)
+- 2026-06-30 06:35 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/645183067.shtml)
+- 2026-06-30 06:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/2923015939.shtml)
+- 2026-06-30 06:52 - [为什么会有「念旧」的心理？](https://www.blog.minike.top/Article/details/353879.shtml)
+- 2026-06-30 06:53 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/67426603.shtml)
+- 2026-06-30 06:40 - [金牌调解](http://www.share.minike.top/Article/details/57334441.shtml)
+- 2026-06-30 06:44 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/8377937976.shtml)
+- 2026-06-30 06:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/568530181235.shtml)
+- 2026-06-30 06:41 - [明星大侦探第一季](https://www.share.minike.top/Article/details/1990899125.shtml)
+- 2026-06-30 06:46 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/050345243013.shtml)
+- 2026-06-30 06:25 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/98398.shtml)

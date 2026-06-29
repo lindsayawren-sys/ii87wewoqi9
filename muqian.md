@@ -1,61 +1,60 @@
-# 各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态
+# 游戏驿站首席执行官放弃350亿美元薪酬方案，此举将对其收购亿贝的计划产生哪些影响
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-当地时间5月5日，美国国务卿鲁比奥在一场记者会上称，美国今年2月底对伊朗发动的“史诗怒火”军事行动已经结束。同日，伊朗最高领袖外事顾问韦拉亚提则表示，伊朗与美国之间仍处于战争状态，并将继续开展“抵抗”。就在美伊各执一词之时，双方在霍尔木兹海峡对峙也在升级。美总统特朗普此前宣布于中东当地时间4日上午在霍尔木兹海峡开始名为“自由计划”的疏导行动，则被指欲以人道之名，为对伊行动制造合
+登录新浪财经APP 搜索【信披】查看更多考评等级 核心要点 本周，游戏驿站首席执行官瑞安・科恩再次向华尔街表态，自己收购亿贝的决心并未动摇，但依旧没有说明这笔收购该如何落地。 这家在 2021 年爆红的 “网红概念股” 游戏零售商于周二发布公告，公司董事会批准了科恩的申请，撤回此前一项奖金激励方案。按照原方案，只要达成既定业绩考核指标，科恩最高可获得 350 亿美元的薪酬奖励。
 
 ## 正文
 
-当地时间5月5日，美国国务卿鲁比奥在一场记者会上称，美国今年2月底对伊朗发动的“史诗怒火”军事行动已经结束。
+登录新浪财经APP 搜索【信披】查看更多考评等级 核心要点 本周，游戏驿站首席执行官瑞安・科恩再次向华尔街表态，自己收购亿贝的决心并未动摇，但依旧没有说明这笔收购该如何落地。
 
-同日，伊朗最高领袖外事顾问韦拉亚提则表示，伊朗与美国之间仍处于战争状态，并将继续开展“抵抗”。
+这家在 2021 年爆红的 “网红概念股” 游戏零售商于周二发布公告，公司董事会批准了科恩的申请，撤回此前一项奖金激励方案。
 
-就在美伊各执一词之时，双方在霍尔木兹海峡对峙也在升级。
+按照原方案，只要达成既定业绩考核指标，科恩最高可获得 350 亿美元的薪酬奖励。
 
-美总统特朗普此前宣布于中东当地时间4日上午在霍尔木兹海峡开始名为“自由计划”的疏导行动，则被指欲以人道之名，为对伊行动制造合法性。
+这也是自 5 月份科恩抛出 560 亿美元收购亿贝的大胆提案以来，游戏驿站首次围绕这笔收购发布重大动态。
 
-美称“史诗怒火”军事行动已结束 美国国务卿鲁比奥5日在一场记者会上称，正如美总统特朗普通知国会所说，美国今年2月底对伊朗发动的“史诗怒火”军事行动已经结束，“我们已完成这一阶段任务”。
+收购提议一经公布便遭到亿贝董事会否决，对方评价该收购方案 “既缺乏可信度，也没有吸引力”。
 
-特朗普：伊朗“知道该做什么，也知道不该做什么” 美国总统特朗普5日早些时候在白宫回答记者提问时，拒绝谈论伊朗方面究竟何种行为将被视为违反美伊停火协议。
+结合游戏驿站约 100 亿美元的市值，整个资本市场也普遍认同这一观点。
 
-当被问到“伊朗的什么行为算违反停火”，特朗普含糊地回答说：“你们会知道的，因为我会告诉你们……他们(伊朗)知道该做什么，也知道不该做什么。
+科恩于 2023 年出任游戏驿站首席执行官，通过大刀阔斧的成本压缩带领公司实现盈利，但他始终没能打消市场的诸多质疑。
 
-”他还称，伊朗在“玩把戏”，但“他们想要达成协议”。
+当初公布收购计划时，游戏驿站仅表示已拿到多伦多道明银行 200 亿美元的融资意向函，却并未说明剩余的资金缺口该如何补齐。
 
 ## 相关推荐
 
-- 2026-06-30 06:41 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 06:29 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 06:23 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 06:34 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 06:24 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 06:31 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 06:20 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 06:21 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-30 06:30 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 06:21 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 06:35 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 06:28 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-30 06:19 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 06:47 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 06:36 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 06:30 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 06:32 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 06:40 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-30 06:30 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 06:37 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 06:44 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 06:36 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 06:47 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 06:49 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 06:38 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 06:37 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 06:51 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 06:41 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 06:47 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:37 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/348197243260.shtml)
-- 2026-06-30 06:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/61966.shtml)
-- 2026-06-30 06:42 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/8946058573.shtml)
-- 2026-06-30 06:29 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/704939873.shtml)
-- 2026-06-30 06:43 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/81274.shtml)
-- 2026-06-30 06:32 - [森保一 保守](http://www.share.minike.top/Article/details/25452.shtml)
-- 2026-06-30 06:40 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/767600.shtml)
-- 2026-06-30 06:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/32098391057.shtml)
-- 2026-06-30 06:21 - [时光音乐会](https://www.blog.minike.top/Article/details/68836564.shtml)
-- 2026-06-30 06:28 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/15638958604.shtml)
-- 2026-06-30 06:39 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/014853298.shtml)
-- 2026-06-30 06:41 - [一见倾心](https://www.blog.minike.top/Article/details/65535.shtml)
-- 2026-06-30 06:37 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/93533381529.shtml)
-- 2026-06-30 06:33 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/242698676.shtml)
-- 2026-06-30 06:45 - [恋与深空 巧合](http://www.share.minike.top/Article/details/9955649952.shtml)
+- 2026-06-30 06:52 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/66744752.shtml)
+- 2026-06-30 06:25 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/437888821.shtml)
+- 2026-06-30 06:35 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/0061374585.shtml)
+- 2026-06-30 06:42 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/522685.shtml)
+- 2026-06-30 06:40 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/34026.shtml)
+- 2026-06-30 06:33 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/32433012593.shtml)
+- 2026-06-30 06:30 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/016583901.shtml)
+- 2026-06-30 06:52 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/483081892.shtml)
+- 2026-06-30 06:38 - [天道](https://www.share.minike.top/Article/details/84423983.shtml)
+- 2026-06-30 06:48 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/60707184.shtml)
+- 2026-06-30 06:46 - [扬名立万](http://www.blog.minike.top/Article/details/12770354.shtml)
+- 2026-06-30 06:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/3976472.shtml)
+- 2026-06-30 06:51 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/7033532657.shtml)
+- 2026-06-30 06:40 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/9852879300.shtml)
+- 2026-06-30 06:29 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/723939695.shtml)

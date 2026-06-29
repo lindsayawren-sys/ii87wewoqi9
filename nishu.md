@@ -1,53 +1,49 @@
-# 2026年“五一”假期全社会跨区域人员流动量超15.17亿人次
+# 收评|国内期货主力合约跌多涨少 沪银、20号胶跌超7%
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月06日 18:55 来源：中国新闻网 5月6日，记者从交通运输部获悉，2026年5月1日至5日，全社会跨区域人员流动超15.17亿人次，日均超3.03亿人次，同比增长3.49%。 假期期间，铁路客运总量超1.06亿人次，日均2127.54万人次，同比增长4.6%。公路人员流动总量(包括高速公路及普通国省道非营业性小客车人员出行量、公路营业性客运量)超1
+2026年6月25日，国内期货主力合约跌多涨少，沪银、20号胶跌超7%，钯、碳酸锂、铂、合成橡胶、橡胶、PTA、SC原油跌超5%。涨幅方面，豆一涨近1%，豆粕、花生小幅上涨。 责任编辑：赵思远
 
 ## 正文
 
-发布时间：2026年05月06日 18:55 来源：中国新闻网 5月6日，记者从交通运输部获悉，2026年5月1日至5日，全社会跨区域人员流动超15.17亿人次，日均超3.03亿人次，同比增长3.49%。
+2026年6月25日，国内期货主力合约跌多涨少，沪银、20号胶跌超7%，钯、碳酸锂、铂、合成橡胶、橡胶、PTA、SC原油跌超5%。
 
-假期期间，铁路客运总量超1.06亿人次，日均2127.54万人次，同比增长4.6%。
+涨幅方面，豆一涨近1%，豆粕、花生小幅上涨。
 
-公路人员流动总量(包括高速公路及普通国省道非营业性小客车人员出行量、公路营业性客运量)超13.91亿人次，日均超2.78亿人次，同比增长3.51%。
-
-水路客运总量849.2万人次，日均为169.84万人次，同比下降1.37%。
-
-民航客运总量1054万人次，日均为210.8万人次，同比下降5.74%。
-
-(记者 刘超） 责任编辑：【卢岩】
+责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-30 06:31 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 06:33 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 06:46 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 06:21 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 06:39 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 06:27 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 06:19 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-30 06:31 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 06:36 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-30 06:44 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 06:26 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 06:30 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 06:48 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 06:39 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 06:31 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 06:43 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 06:49 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 06:42 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 06:40 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 06:37 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 06:45 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 06:25 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 06:45 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 06:43 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:22 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/881490977.shtml)
-- 2026-06-30 06:30 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/983746224879.shtml)
-- 2026-06-30 06:19 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/56299032.shtml)
-- 2026-06-30 06:29 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/527962.shtml)
-- 2026-06-30 06:37 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/646973.shtml)
-- 2026-06-30 06:21 - [美人鱼](https://www.share.minike.top/Article/details/8673379126.shtml)
-- 2026-06-30 06:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/02502620469.shtml)
-- 2026-06-30 06:19 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/583600.shtml)
-- 2026-06-30 06:23 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/7896026640.shtml)
-- 2026-06-30 06:32 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/03520842.shtml)
-- 2026-06-30 06:45 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/08109123.shtml)
-- 2026-06-30 06:37 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/65528.shtml)
-- 2026-06-30 06:20 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/404093756.shtml)
-- 2026-06-30 06:46 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/378620.shtml)
-- 2026-06-30 06:31 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/01293.shtml)
+- 2026-06-30 06:45 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/232561165.shtml)
+- 2026-06-30 06:31 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/59639809.shtml)
+- 2026-06-30 06:28 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/542641670194.shtml)
+- 2026-06-30 06:50 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/98901155386.shtml)
+- 2026-06-30 06:30 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/930853068542.shtml)
+- 2026-06-30 06:41 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/22796.shtml)
+- 2026-06-30 06:41 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/064364558595.shtml)
+- 2026-06-30 06:46 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/409092.shtml)
+- 2026-06-30 06:34 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/2595885.shtml)
+- 2026-06-30 06:35 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/9730285288.shtml)
+- 2026-06-30 06:44 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/45246287459.shtml)
+- 2026-06-30 06:25 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/8883828754.shtml)
+- 2026-06-30 06:39 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/8253748.shtml)
+- 2026-06-30 06:49 - [乔家的儿女](http://www.share.minike.top/Article/details/58862.shtml)
+- 2026-06-30 06:29 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/557648217.shtml)

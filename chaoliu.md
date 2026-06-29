@@ -1,58 +1,55 @@
-# 透视非上市寿险2025年业绩：泰康赚279亿元蝉联“利润王”，中邮人寿投资收益逆袭
+# 多次赴中国采购！河南智造鸡笼“圈粉”埃及客商
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-每经记者|袁园 随着资本市场回暖与寿险业转型深化，非上市寿险公司2025年经营业绩交出亮眼答卷。 《每日经济新闻》记者最新统计数据显示，50家非上市寿险公司全年实现净利润657.84 亿元，较2024年的493.88亿元同比增长33.2%；投资收益总额达到1910.19亿元，较2024年的1543.45亿元同比增长23.76%。 在行业整体复苏背景下，头部公司表现尤为突出，盈利
+发布时间：2026年06月25日 11:48 来源：中国新闻网 “我在埃及就使用中国设备，质量完全可以和欧美产品媲美，但价格更有优势！”6月24日，“小城大业”网络主题宣传活动走进河南省驻马店市西平县，探寻当地智能畜牧装备何以成为“国际名片”。 来自埃及的客商海瑟姆看到车间里的高端生产线和云平台，连连用“震撼”来形容。他在受访时表示，自己每年要来中国多次，这次是专程为确认新一批
 
 ## 正文
 
-每经记者|袁园 随着资本市场回暖与寿险业转型深化，非上市寿险公司2025年经营业绩交出亮眼答卷。
+发布时间：2026年06月25日 11:48 来源：中国新闻网 “我在埃及就使用中国设备，质量完全可以和欧美产品媲美，但价格更有优势！
 
-《每日经济新闻》记者最新统计数据显示，50家非上市寿险公司全年实现净利润657.84 亿元，较2024年的493.88亿元同比增长33.2%；投资收益总额达到1910.19亿元，较2024年的1543.45亿元同比增长23.76%。
+”6月24日，“小城大业”网络主题宣传活动走进河南省驻马店市西平县，探寻当地智能畜牧装备何以成为“国际名片”。
 
-在行业整体复苏背景下，头部公司表现尤为突出，盈利面持续扩大，亏损企业数量较上年减少，行业发展质量显著提升。
+来自埃及的客商海瑟姆看到车间里的高端生产线和云平台，连连用“震撼”来形容。
 
-联合资信分析称，监管政策持续引导行业回归保障本源，推动险企向精细化、规范化发展，头部险企在资本补充、产品创新、风险抵御及数字化转型方面更具优势，居民保险消费更倾向于选择品牌信誉度高、偿付能力稳定的大型险企，进一步强化了头部主体的市场地位，使得行业竞争格局持续向头部集中。
+他在受访时表示，自己每年要来中国多次，这次是专程为确认新一批智能养殖设备而来。
 
-2025年，非上市寿险公司整体投资收益呈现明显反弹趋势，一些大型机构和部分银行系寿险公司表现尤为突出。
+近年来，随着自动化、数字化技术不断迭代升级，“河南智造”正以更高品质、更优性价比赢得海外客户认可，成为县域特色产业“出海”的新名片。
 
-数据显示，泰康人寿以481.28亿元的投资收益继续稳居榜首，虽然较2024年的504.41亿元略有下滑，但仍遥遥领先其他公司。
-
-中邮人寿、工银安盛人寿、中信保诚人寿等公司也表现亮眼，分别实现126.28亿元、93.45亿元和79.09亿元的投资收益。
-
-从增长幅度来看，多家公司在2025年实现了投资收益的“由负转正”或大幅跃升。
+(李超庆 夏青华 范晓恒 王士豪) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 06:32 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 06:33 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 06:35 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-30 06:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-30 06:37 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 06:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 06:33 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 06:30 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 06:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 06:36 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 06:34 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 06:45 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 06:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 06:48 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 06:34 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 06:37 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 06:30 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 06:36 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 06:25 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 06:41 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 06:49 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 06:29 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 06:49 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 06:51 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 06:30 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:28 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/734361387364.shtml)
-- 2026-06-30 06:24 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/9122241.shtml)
-- 2026-06-30 06:44 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/41880305513.shtml)
-- 2026-06-30 06:31 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/7742000205.shtml)
-- 2026-06-30 06:21 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/26685.shtml)
-- 2026-06-30 06:33 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/60373.shtml)
-- 2026-06-30 06:37 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/5257367.shtml)
-- 2026-06-30 06:24 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/292974.shtml)
-- 2026-06-30 06:38 - [第一炉香](http://www.blog.minike.top/Article/details/8464866873.shtml)
-- 2026-06-30 06:28 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/31889801.shtml)
-- 2026-06-30 06:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/71264173.shtml)
-- 2026-06-30 06:32 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/16737.shtml)
-- 2026-06-30 06:31 - [小娘惹](http://www.blog.minike.top/Article/details/02606465.shtml)
-- 2026-06-30 06:24 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/737249475.shtml)
-- 2026-06-30 06:39 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/391325351744.shtml)
+- 2026-06-30 06:40 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/5451423.shtml)
+- 2026-06-30 06:32 - [第一炉香](https://www.share.kurohicncr.top/Article/details/448983133967.shtml)
+- 2026-06-30 06:44 - [美股](http://www.share.kurohicncr.top/Article/details/662259441.shtml)
+- 2026-06-30 06:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/030002.shtml)
+- 2026-06-30 06:33 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/9310321.shtml)
+- 2026-06-30 06:41 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/57491155094.shtml)
+- 2026-06-30 06:24 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/32745670.shtml)
+- 2026-06-30 06:52 - [恋与深空 日服](https://www.blog.minike.top/Article/details/6340038795.shtml)
+- 2026-06-30 06:28 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/53420.shtml)
+- 2026-06-30 06:31 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/298073624.shtml)
+- 2026-06-30 06:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/34111.shtml)
+- 2026-06-30 06:46 - [巴西vs日本](http://www.blog.minike.top/Article/details/35372165.shtml)
+- 2026-06-30 06:25 - [金牌调解](https://www.share.kurohicncr.top/Article/details/16565693017.shtml)
+- 2026-06-30 06:43 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/40523210285.shtml)
+- 2026-06-30 06:48 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/073927.shtml)

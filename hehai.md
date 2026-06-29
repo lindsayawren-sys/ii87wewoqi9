@@ -1,57 +1,50 @@
-# U17男足亚洲杯开赛 中国队首战0:1不敌印尼队
+# 伪满皇宫博物院赶新“潮”：文博市集解锁文旅融合新体验
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新社北京5月6日电 当地时间5日，2026亚足联U17男足亚洲杯在沙特阿拉伯开赛。中国队首战遭遇印尼队绝杀，以0:1告负，无缘“开门红”。 本届U17男足亚洲杯共有16支球队参赛，分为4个小组，中国队与日本、印尼、卡塔尔队同分在B组，每个小组的前两名将直通U17男足世界杯。开赛前中国队方面表示，重返世少赛(U17男足世界杯)是球队目前“最大的目标”，而中国队上一次参加该项赛事
+发布时间：2026年06月25日 07:41 来源：中国新闻网 6月24日，吉林长春，“潮集万象·2026文博生活市集”在伪满皇宫博物院正式启幕，老字号、非遗技艺、文博文创、特色餐饮等多元业态亮相博物院M+文化创意街区，游客在边吃边玩中了解、体验城市文化。 据悉，该市集是长春探索文物资源与文化、商业、旅游深度融合的一次实践，30余家优质商户汇聚，推动文化空间从静态展示走向动态体
 
 ## 正文
 
-中新社北京5月6日电 当地时间5日，2026亚足联U17男足亚洲杯在沙特阿拉伯开赛。
+发布时间：2026年06月25日 07:41 来源：中国新闻网 6月24日，吉林长春，“潮集万象·2026文博生活市集”在伪满皇宫博物院正式启幕，老字号、非遗技艺、文博文创、特色餐饮等多元业态亮相博物院M+文化创意街区，游客在边吃边玩中了解、体验城市文化。
 
-中国队首战遭遇印尼队绝杀，以0:1告负，无缘“开门红”。
+据悉，该市集是长春探索文物资源与文化、商业、旅游深度融合的一次实践，30余家优质商户汇聚，推动文化空间从静态展示走向动态体验，让历史可触摸、文化可感知、美好可共享。
 
-本届U17男足亚洲杯共有16支球队参赛，分为4个小组，中国队与日本、印尼、卡塔尔队同分在B组，每个小组的前两名将直通U17男足世界杯。
-
-开赛前中国队方面表示，重返世少赛(U17男足世界杯)是球队目前“最大的目标”，而中国队上一次参加该项赛事是在2005年。
-
-本届亚洲杯是中国足球2009年龄段球员的首次正式国际大考，这支U17国足被寄予期望。
-
-去年11月的亚洲杯预选赛上，中国队五战全胜，打进42球且一球未失。
-
-在今年2月的两场热身赛中，中国队曾在客场以7:0和3:2连胜印尼队。
-
-当天比赛上半场开局后，中国队便积极组织进攻，创造了多次射门机会，印尼队则凭借顽强防守力保球门不失，半场结束双方互交白卷。
+(记者 吕盛楠） 责任编辑：【陈海峰】
 
 ## 相关推荐
 
-- 2026-06-30 06:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 06:25 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 06:24 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 06:33 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 06:30 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 06:26 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 06:44 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 06:19 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 06:37 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 06:37 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 06:22 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 06:53 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 06:40 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 06:49 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 06:26 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 06:46 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 06:50 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 06:25 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 06:27 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 06:32 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 06:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 06:45 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 06:48 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 06:49 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 06:47 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:28 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/114234.shtml)
-- 2026-06-30 06:34 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/066403334947.shtml)
-- 2026-06-30 06:26 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/9773444.shtml)
-- 2026-06-30 06:22 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/24373300952.shtml)
-- 2026-06-30 06:36 - [周生如故](http://www.share.kurohicncr.top/Article/details/627115574366.shtml)
-- 2026-06-30 06:25 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/170390.shtml)
-- 2026-06-30 06:20 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/49260832.shtml)
-- 2026-06-30 06:21 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/421266.shtml)
-- 2026-06-30 06:40 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/3062920.shtml)
-- 2026-06-30 06:36 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/63617251.shtml)
-- 2026-06-30 06:20 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/57439.shtml)
-- 2026-06-30 06:40 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/992931269.shtml)
-- 2026-06-30 06:24 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/9401750.shtml)
-- 2026-06-30 06:30 - [天道](http://www.blog.minike.top/Article/details/86202168.shtml)
-- 2026-06-30 06:23 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/90974661140.shtml)
+- 2026-06-30 06:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/6379427.shtml)
+- 2026-06-30 06:51 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/4982692066.shtml)
+- 2026-06-30 06:31 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/754781472470.shtml)
+- 2026-06-30 06:42 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/84242277079.shtml)
+- 2026-06-30 06:24 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/621551.shtml)
+- 2026-06-30 06:27 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/57000559817.shtml)
+- 2026-06-30 06:36 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/07050532927.shtml)
+- 2026-06-30 06:38 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/9585377.shtml)
+- 2026-06-30 06:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/627566.shtml)
+- 2026-06-30 06:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/05984950059.shtml)
+- 2026-06-30 06:53 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/35006.shtml)
+- 2026-06-30 06:32 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/264219.shtml)
+- 2026-06-30 06:27 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/24413648.shtml)
+- 2026-06-30 06:40 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/1632023.shtml)
+- 2026-06-30 06:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/705401254.shtml)

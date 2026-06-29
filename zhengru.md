@@ -1,52 +1,61 @@
-# 欧洲央行薪资追踪指标显示薪资增长前景保持稳定
+# 挪威阿克海洋生物CEO Matts Johansen：在中国投资建设创新与制造中心
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-欧洲央行周三发布的薪资追踪数据显示，自伊朗冲突爆发以来，欧元区协商薪资增长趋势基本保持平稳，为担忧通胀失控的政策制定者带来些许宽慰。 欧洲央行表示，基于截至 4 月中旬收集的数据，计入一次性补贴（平滑与非平滑口径）后的 2026 年协商薪资增速均为2.6%，与 3 月末的最新预测持平。 目前薪资走势受到密切关注，因能源价格飙升推高通胀，而大规模员工薪酬加薪诉求，或引发难以遏制的
+专题：2026第十七届夏季达沃斯论坛 6月24日消息，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）今日在大连举行。挪威阿克海洋生物有限公司（Aker BioMarine）CEO Matts Johansen向新浪财经表示，如何实现规模化创新对于全球营养供给具有重要意义。“我们经常谈论稀土和芯片对技术发展的重要性，但在食品生产所需的关键营养素方面，同样存在稀缺性
 
 ## 正文
 
-欧洲央行周三发布的薪资追踪数据显示，自伊朗冲突爆发以来，欧元区协商薪资增长趋势基本保持平稳，为担忧通胀失控的政策制定者带来些许宽慰。
+专题：2026第十七届夏季达沃斯论坛 6月24日消息，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）今日在大连举行。
 
-欧洲央行表示，基于截至 4 月中旬收集的数据，计入一次性补贴（平滑与非平滑口径）后的 2026 年协商薪资增速均为2.6%，与 3 月末的最新预测持平。
+挪威阿克海洋生物有限公司（Aker BioMarine）CEO Matts Johansen向新浪财经表示，如何实现规模化创新对于全球营养供给具有重要意义。
 
-目前薪资走势受到密切关注，因能源价格飙升推高通胀，而大规模员工薪酬加薪诉求，或引发难以遏制的薪资 - 物价螺旋上升效应。
+“我们经常谈论稀土和芯片对技术发展的重要性，但在食品生产所需的关键营养素方面，同样存在稀缺性，这是我们希望引起关注的议题。
 
-责任编辑：郭明煜
+” 阿克海洋生物是全球领先的南极磷虾生物技术创新企业，业务覆盖全球多个国家及地区。
+
+Johansen介绍，中国已占公司全球市场份额的20%，是其增长最快的市场。
+
+正是基于这一增长态势，公司正在中国投资建设创新与制造中心，以服务全球市场。
+
+关于可持续发展，Johansen表示这是贯穿公司二十年运营的核心理念。
+
+“我们的使命是改善人类和地球健康。
 
 ## 相关推荐
 
-- 2026-06-30 06:38 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 06:28 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 06:22 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 06:27 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 06:37 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 06:47 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 06:24 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 06:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 06:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 06:27 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 06:47 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 06:42 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 06:34 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 06:30 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-30 06:24 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 06:49 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 06:31 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 06:45 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-30 06:46 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 06:53 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 06:29 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 06:46 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 06:38 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 06:49 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 06:37 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 06:26 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 06:50 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 06:49 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 06:40 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:19 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/96034473039.shtml)
-- 2026-06-30 06:28 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/34346.shtml)
-- 2026-06-30 06:32 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/3549900.shtml)
-- 2026-06-30 06:29 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/917783.shtml)
-- 2026-06-30 06:24 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/204807046100.shtml)
-- 2026-06-30 06:44 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/17497870.shtml)
-- 2026-06-30 06:24 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/013966561666.shtml)
-- 2026-06-30 06:24 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/4554462.shtml)
-- 2026-06-30 06:30 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/121222276.shtml)
-- 2026-06-30 06:22 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/65276911.shtml)
-- 2026-06-30 06:33 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/388595.shtml)
-- 2026-06-30 06:22 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/59499612626.shtml)
-- 2026-06-30 06:23 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/76129661.shtml)
-- 2026-06-30 06:36 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/273957.shtml)
-- 2026-06-30 06:30 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/057127510.shtml)
+- 2026-06-30 06:42 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/866474704866.shtml)
+- 2026-06-30 06:38 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/8681042.shtml)
+- 2026-06-30 06:32 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/05342842.shtml)
+- 2026-06-30 06:45 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/895617.shtml)
+- 2026-06-30 06:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/159211406101.shtml)
+- 2026-06-30 06:48 - [日本进球](https://www.share.minike.top/Article/details/435557685.shtml)
+- 2026-06-30 06:24 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/08170937309.shtml)
+- 2026-06-30 06:43 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/31101.shtml)
+- 2026-06-30 06:40 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/179718298.shtml)
+- 2026-06-30 06:48 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/879726.shtml)
+- 2026-06-30 06:31 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/594470966639.shtml)
+- 2026-06-30 06:35 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/580134.shtml)
+- 2026-06-30 06:31 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/85826561969.shtml)
+- 2026-06-30 06:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/85132495.shtml)
+- 2026-06-30 06:40 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/454719101.shtml)

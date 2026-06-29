@@ -1,57 +1,52 @@
-# 油价下跌，受美伊和平协议希望影响
+# 美国地质调查局预估委内瑞拉地震遇难人数或过万
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-受美伊和平协议希望影响，油价在早盘交易中下跌，该协议可能会减少供应中断。近月西得州中质油期货下跌1.6%，报每桶100.60美元；近月布伦特原油期货下跌1.1%，报每桶108.64美元。美国总统特朗普在Truth Social的一篇帖子中表示：“在与伊朗代表达成一项全面且最终的协议方面取得了巨大进展。“然而，油价的跌幅可能有限，因为特朗普还表示，他已同意暂停”Project F
+中新网6月25日电 委内瑞拉24日发生强震后，代总统德尔西·罗德里格斯宣布该国进入紧急状态。据路透社报道，美国地质调查局初步预估死亡人数很可能在1万至10万之间。该机构还表示：“此次灾害很可能影响范围广泛。” 据此前报道，据美国地质调查局地震信息网消息，格林尼治时间24日22时4分，委内瑞拉蒙塔尔万附近发生7.1级地震，震源深度10公里。后续监测显示，不到一分钟内，委内瑞拉再次
 
 ## 正文
 
-受美伊和平协议希望影响，油价在早盘交易中下跌，该协议可能会减少供应中断。
+中新网6月25日电 委内瑞拉24日发生强震后，代总统德尔西·罗德里格斯宣布该国进入紧急状态。
 
-近月西得州中质油期货下跌1.6%，报每桶100.60美元；近月布伦特原油期货下跌1.1%，报每桶108.64美元。
+据路透社报道，美国地质调查局初步预估死亡人数很可能在1万至10万之间。
 
-美国总统特朗普在Truth Social的一篇帖子中表示：“在与伊朗代表达成一项全面且最终的协议方面取得了巨大进展。
+该机构还表示：“此次灾害很可能影响范围广泛。
 
-“然而，油价的跌幅可能有限，因为特朗普还表示，他已同意暂停”Project Freedom“，这是该政府推动商船通过霍尔木兹海峡的举措。
+” 据此前报道，据美国地质调查局地震信息网消息，格林尼治时间24日22时4分，委内瑞拉蒙塔尔万附近发生7.1级地震，震源深度10公里。
 
-特朗普补充说，美国对伊朗港口的封锁将继续全面实施。
-
-责任编辑：王永生
+后续监测显示，不到一分钟内，委内瑞拉再次发生强震，震级7.5级，震中位于北纬10.40度、西经68.32度，震源深度10公里。
 
 ## 相关推荐
 
-- 2026-06-30 06:20 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 06:37 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 06:38 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 06:25 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 06:29 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 06:24 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 06:18 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 06:28 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 06:34 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 06:42 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 06:33 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 06:18 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 06:27 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 06:28 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 06:20 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 06:31 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 06:43 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 06:42 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 06:40 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 06:32 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 06:51 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 06:44 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 06:36 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 06:28 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 06:52 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-30 06:50 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 06:32 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:29 - [一见倾心](https://www.share.minike.top/Article/details/309936135570.shtml)
-- 2026-06-30 06:27 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/36854.shtml)
-- 2026-06-30 06:24 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/07810599.shtml)
-- 2026-06-30 06:27 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/38478007.shtml)
-- 2026-06-30 06:31 - [一生一世](https://www.share.minike.top/Article/details/36463086.shtml)
-- 2026-06-30 06:39 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/649882419.shtml)
-- 2026-06-30 06:19 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/8365784386.shtml)
-- 2026-06-30 06:44 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/59827158336.shtml)
-- 2026-06-30 06:29 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/43050697.shtml)
-- 2026-06-30 06:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/0071928.shtml)
-- 2026-06-30 06:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/94725847953.shtml)
-- 2026-06-30 06:44 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/17531188.shtml)
-- 2026-06-30 06:38 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/017499920.shtml)
-- 2026-06-30 06:35 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/0407366462.shtml)
-- 2026-06-30 06:47 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/139389568839.shtml)
+- 2026-06-30 06:43 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/892454.shtml)
+- 2026-06-30 06:42 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/468102.shtml)
+- 2026-06-30 06:38 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/287877.shtml)
+- 2026-06-30 06:40 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/48491191900.shtml)
+- 2026-06-30 06:41 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/21293957.shtml)
+- 2026-06-30 06:45 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/890315.shtml)
+- 2026-06-30 06:31 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/11790.shtml)
+- 2026-06-30 06:33 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/0638246917.shtml)
+- 2026-06-30 06:39 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/30332278.shtml)
+- 2026-06-30 06:38 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/34070711465.shtml)
+- 2026-06-30 06:25 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/2366559.shtml)
+- 2026-06-30 06:40 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/833705701042.shtml)
+- 2026-06-30 06:24 - [小娘惹](https://www.share.minike.top/Article/details/140491.shtml)
+- 2026-06-30 06:38 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/303418481883.shtml)
+- 2026-06-30 06:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/611136270.shtml)

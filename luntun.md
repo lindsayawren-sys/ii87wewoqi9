@@ -1,52 +1,58 @@
-# 河北农工党沧州市委与沧州市工人文化宫联合举办当代书画名家作品展
+# 奋进“十五五” 前海人寿全面开展2026年“7.8全国保险公众宣传日”系列活动
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-为庆祝“五一”国际劳动节，响应国家发展文化事业、树立文化自信的号召，5月1日，由沧州市工人文化宫主办、农工党沧州市委协办的《中国梦·劳动美——迎五一当代书画名家作品展》在沧州市工人文化宫正式启幕。此次展览聚焦时代发展、家国情怀、文化传承与劳动风采，作品题材丰富、形式多样，既展现了深厚的艺术功底，也彰显了新时代参政党成员的责任担当与精神风貌。开展期间，吸引了众多市民、职工和农工党
+专题：2026年7.8全国保险公众宣传日——中国保险行业协会×新浪财经 近日，前海人寿保险股份有限公司（以下简称“前海人寿”）积极响应中国保险行业协会号召，围绕“奋进‘十五五’保险让前行更有底气”年度主题，全面启动2026年“7.8全国保险公众宣传日”系列活动。 前海人寿总分公司周密部署、上下联动，聚焦科技保险、养老保险、保险服务新市民需求、服务优化等多个维度，计划开展包括主题
 
 ## 正文
 
-为庆祝“五一”国际劳动节，响应国家发展文化事业、树立文化自信的号召，5月1日，由沧州市工人文化宫主办、农工党沧州市委协办的《中国梦·劳动美——迎五一当代书画名家作品展》在沧州市工人文化宫正式启幕。
+专题：2026年7.8全国保险公众宣传日——中国保险行业协会×新浪财经 近日，前海人寿保险股份有限公司（以下简称“前海人寿”）积极响应中国保险行业协会号召，围绕“奋进‘十五五’保险让前行更有底气”年度主题，全面启动2026年“7.8全国保险公众宣传日”系列活动。
 
-此次展览聚焦时代发展、家国情怀、文化传承与劳动风采，作品题材丰富、形式多样，既展现了深厚的艺术功底，也彰显了新时代参政党成员的责任担当与精神风貌。
+前海人寿总分公司周密部署、上下联动，聚焦科技保险、养老保险、保险服务新市民需求、服务优化等多个维度，计划开展包括主题快闪、热梗微短剧创作、保险知识公益答题、“保险五进入”等形式多样、内容丰富的线上线下宣传活动，以实际行动全方位普及保险知识、解读保险价值、优化民生服务，助力塑造可信赖、能托付、有温度的保险行业形象。
 
-开展期间，吸引了众多市民、职工和农工党党员前来观展交流。
+结合“七一”建党节，前海人寿各分公司将走进红色教育基地、城市地标、社区广场等场所，以歌咏、经典朗诵、情景表演等群众喜闻乐见的形式开展“不忘初心·保险同行”主题快闪活动，让红色文化与保险初心相融共生，凝聚奋进力量。
 
-大家驻足欣赏、交流心得，在艺术熏陶中感受传统文化魅力，在书画意境中凝聚奋进力量。
+在短剧创作方面，前海人寿将创新采用AI技术手段，将四大名著元素与保险生活场景结合，通过创作一系列“四大名著话保险”热梗微短剧，生动解读保险功能与保障意义。
 
-此次书画展是农工党沧州市委丰富文化建设的生动实践，农工党沧州市委将继续发挥自身优势，联合社会各界力量，开展更多形式多样、内容丰富的文化惠民活动，以文化人、以艺通心，为加快建设现代化沿海经济强市贡献智慧和力量。
+同时，前海人寿将广泛动员全员、客户及社会公众参与“一朵小红花”保险知识公益答题活动，让保险知识、保险理念以更鲜活、更接地气的形式走入大众视野。
 
-来源：沧州农工党微信公众号
+活动期间，前海人寿各分支机构将全面升级营业场所服务设施。
+
+建设保险便民服务点、保险温暖驿站，完善爱心座椅、无障碍通道、适老化设施等便民硬件，设置新市民服务、助老护幼、关爱户外劳动者专属服务区域等，持续打造暖心舒适的服务空间。
+
+同时，还将组织员工主动走进学校、农村、社区、机关及企业，为群众面对面普及金融保险知识，开展消费者权益保护、防范非法金融活动、打击代理退保黑产、反洗钱、反保险欺诈等主题宣传，让保险宣传真正下沉基层、惠及民生。
 
 ## 相关推荐
 
-- 2026-06-30 06:30 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 06:22 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 06:42 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 06:41 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 06:27 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 06:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 06:27 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 06:24 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 06:34 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 06:27 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 06:41 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 06:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 06:37 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 06:43 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 06:47 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 06:32 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 06:32 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 06:50 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 06:29 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 06:25 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 06:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 06:46 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/59657422.shtml)
-- 2026-06-30 06:43 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/3556918871.shtml)
-- 2026-06-30 06:26 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/58778204655.shtml)
-- 2026-06-30 06:41 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/818481365439.shtml)
-- 2026-06-30 06:35 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/281236774.shtml)
-- 2026-06-30 06:28 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/053928171.shtml)
-- 2026-06-30 06:30 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/9450818.shtml)
-- 2026-06-30 06:20 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/676264932.shtml)
-- 2026-06-30 06:18 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/95460.shtml)
-- 2026-06-30 06:20 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/45456156266.shtml)
-- 2026-06-30 06:28 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/1624382.shtml)
-- 2026-06-30 06:23 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/4894748.shtml)
-- 2026-06-30 06:22 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/0470677.shtml)
-- 2026-06-30 06:38 - [时光音乐会](http://www.share.minike.top/Article/details/76483831645.shtml)
-- 2026-06-30 06:36 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/77092406180.shtml)
+- 2026-06-30 06:39 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/226029268.shtml)
+- 2026-06-30 06:51 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/74068604.shtml)
+- 2026-06-30 06:38 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/87171368.shtml)
+- 2026-06-30 06:27 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/234970809091.shtml)
+- 2026-06-30 06:52 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/56879.shtml)
+- 2026-06-30 06:38 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/3287202.shtml)
+- 2026-06-30 06:31 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/35323987.shtml)
+- 2026-06-30 06:39 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/67667168.shtml)
+- 2026-06-30 06:47 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/3744768593.shtml)
+- 2026-06-30 06:51 - [明星大侦探第一季](https://www.share.minike.top/Article/details/253007953918.shtml)
+- 2026-06-30 06:29 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/768969192740.shtml)
+- 2026-06-30 06:35 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/816265205.shtml)
+- 2026-06-30 06:50 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/40444383.shtml)
+- 2026-06-30 06:38 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/0132939939.shtml)
+- 2026-06-30 06:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/73372022.shtml)

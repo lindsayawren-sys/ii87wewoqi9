@@ -1,60 +1,46 @@
-# 中证协：一季度券商主承销科创债逾1900亿元
+# 习语丨“牢牢守住18亿亩耕地红线”
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新社北京5月6日电 (记者 陈康亮)据中国证券业协会(下称中证协)6日披露的数据，2026年一季度作为科技创新债券主承销商的证券公司共61家，承销232只债券，合计金额1985.28亿元(人民币，下同)。 上述数据来自中证协当天发布的2026年一季度证券公司债券(含企业债券)承销业务专项统计。 统计显示，一季度作为民营企业债券主承销商(或资产证券化产品管理人)的证券公司共46
+发布时间：2026年06月25日 15:38 来源：人民日报客户端 责任编辑：【韦俊龙】
 
 ## 正文
 
-中新社北京5月6日电 (记者 陈康亮)据中国证券业协会(下称中证协)6日披露的数据，2026年一季度作为科技创新债券主承销商的证券公司共61家，承销232只债券，合计金额1985.28亿元(人民币，下同)。
-
-上述数据来自中证协当天发布的2026年一季度证券公司债券(含企业债券)承销业务专项统计。
-
-统计显示，一季度作为民营企业债券主承销商(或资产证券化产品管理人)的证券公司共46家，承销(或管理)94只债券(或产品)，合计金额1288.06亿元。
-
-作为绿色债券主承销商(或资产证券化产品管理人)的证券公司共37家，承销(或管理)49只债券(或产品)，合计金额504.79亿元。
-
-作为中小微企业支持债券主承销商的证券公司共35家，承销37只债券，合计金额312.12亿元。
-
-作为乡村振兴债券主承销商(或资产证券化产品管理人)的证券公司共34家，承销(或管理)38只债券(或产品)，合计金额222.27亿元。
-
-作为低碳转型债券主承销商的证券公司共26家，承销25只债券，合计金额125.43亿元。
-
-作为“一带一路”债券主承销商的证券公司共8家，承销5只债券，合计金额26.8亿元。
+发布时间：2026年06月25日 15:38 来源：人民日报客户端 责任编辑：【韦俊龙】
 
 ## 相关推荐
 
-- 2026-06-30 06:25 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 06:41 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 06:25 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 06:43 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 06:19 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 06:25 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 06:28 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 06:35 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 06:34 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-30 06:36 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 06:33 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 06:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 06:38 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 06:28 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 06:42 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 06:32 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 06:49 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 06:43 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 06:31 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 06:35 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 06:52 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 06:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 06:30 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 06:25 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 06:49 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 06:31 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 06:51 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 06:51 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:29 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/0660673740.shtml)
-- 2026-06-30 06:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/011585208.shtml)
-- 2026-06-30 06:36 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/4952301.shtml)
-- 2026-06-30 06:18 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/2801123.shtml)
-- 2026-06-30 06:40 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/0510867082.shtml)
-- 2026-06-30 06:35 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/3950251.shtml)
-- 2026-06-30 06:20 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/91143.shtml)
-- 2026-06-30 06:46 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/89595679271.shtml)
-- 2026-06-30 06:31 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/589857983821.shtml)
-- 2026-06-30 06:23 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/16962.shtml)
-- 2026-06-30 06:26 - [小娘惹](http://www.share.minike.top/Article/details/7298126074.shtml)
-- 2026-06-30 06:26 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/425800.shtml)
-- 2026-06-30 06:38 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/744638.shtml)
-- 2026-06-30 06:24 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/035436222.shtml)
-- 2026-06-30 06:25 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/306898462032.shtml)
+- 2026-06-30 06:27 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/548734994.shtml)
+- 2026-06-30 06:24 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/8428457.shtml)
+- 2026-06-30 06:43 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/53969887.shtml)
+- 2026-06-30 06:33 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/848260393090.shtml)
+- 2026-06-30 06:47 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/814208259445.shtml)
+- 2026-06-30 06:49 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/00248.shtml)
+- 2026-06-30 06:31 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/464674545.shtml)
+- 2026-06-30 06:46 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/530678265413.shtml)
+- 2026-06-30 06:25 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/582251.shtml)
+- 2026-06-30 06:49 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/23755067547.shtml)
+- 2026-06-30 06:51 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/83222369972.shtml)
+- 2026-06-30 06:50 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/21586504.shtml)
+- 2026-06-30 06:34 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/55683.shtml)
+- 2026-06-30 06:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/89446016.shtml)
+- 2026-06-30 06:28 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/76302847.shtml)

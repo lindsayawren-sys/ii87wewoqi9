@@ -1,57 +1,58 @@
-# 从蚕桑剥茧到机器人互动 外国游客“一程多站”感受多彩中国
+# 17家商业银行共计发行“二永债”9800亿元
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-今年“五一”假期，入境游也持续升温，越来越多外国游客感受到中国的多彩魅力。 在线旅游平台数据显示，这个“五一”假期，上海、北京、广州、深圳等核心城市仍是外国游客的首选目的地，同时三亚、揭阳等城市外国游客量同比增长1.1倍，太原、常州、昆明等城市同比增幅均超过三成。 越来越多外国游客的足迹向“小城深度游”延伸。在浙江绍兴上虞区，多国游客深入乡村观摩蚕桑剥茧工艺，体验传统竹编、叶雕
+原标题：17家商业银行，共计发行9800亿元！ 来源：金融时报客户端 记者：张冰洁 在经历了整整一个季度的“空窗期”后，二季度以来，商业银行二级资本债与永续债（以下简称“二永债”）的发行节奏明显加快。 《金融时报》记者梳理Wind数据时发现，截至6月24日，17家商业银行共计发行33只“二永债”，合计金额高达9800亿元。从发行主体看，国有大行成为“二永债”发行的绝对主力，六家
 
 ## 正文
 
-今年“五一”假期，入境游也持续升温，越来越多外国游客感受到中国的多彩魅力。
+原标题：17家商业银行，共计发行9800亿元！
 
-在线旅游平台数据显示，这个“五一”假期，上海、北京、广州、深圳等核心城市仍是外国游客的首选目的地，同时三亚、揭阳等城市外国游客量同比增长1.1倍，太原、常州、昆明等城市同比增幅均超过三成。
+来源：金融时报客户端 记者：张冰洁 在经历了整整一个季度的“空窗期”后，二季度以来，商业银行二级资本债与永续债（以下简称“二永债”）的发行节奏明显加快。
 
-越来越多外国游客的足迹向“小城深度游”延伸。
+《金融时报》记者梳理Wind数据时发现，截至6月24日，17家商业银行共计发行33只“二永债”，合计金额高达9800亿元。
 
-在浙江绍兴上虞区，多国游客深入乡村观摩蚕桑剥茧工艺，体验传统竹编、叶雕等非遗技艺，走进科技创新基地，与具身智能机器人互动，“一程多站”体验中国传统韵味与前沿科技。
+从发行主体看，国有大行成为“二永债”发行的绝对主力，六家国有大行年内共发行16只“二永债”，合计金额高达6150亿元，占全市场发行总量的60%以上。
 
-秘鲁游客 艾利克斯：这种感觉就像置身未来世界，中国的科技发展实在太快了，我都不知道接下来还会有什么新惊喜。
+近日，中国建设银行完成2026年第一期无固定期限资本债券（以下简称“永续债”）发行工作。
 
-政策与服务升级 入境旅游产品持续丰富 这个“五一”假期，入境旅游产品持续丰富，工业游、研学游等特色旅游产品也不断涌现，加上政策与服务升级，让外国游客“中国游”“中国购”愈发顺畅。
+本期永续债发行规模为300亿元，基础发行规模200亿元，超额增发100亿元，期限为5+N年期，票面利率1.92%，全场倍数2.4倍。
 
-在海南，环岛高铁串联起12个主要市县，铁路部门主动对接旅行社，优化入境团队票务办理流程，并增设多语种翻译服务，外籍旅客出行量显著增加。
+“本次永续债在成本可控前提下合理平衡发行规模与价格，精准匹配市场投资需求。
 
-自今年4月起，广东、福建实现离境退税“即买即退”跨区域互认，在两省，境外旅客不再受购物地点限制，可选择任一离境退税口岸办理业务。
+”建设银行发布的消息显示，本次募集资金将用于补充其他一级资本，有助于该行持续巩固多层次资本实力、夯实发展底盘。
 
 ## 相关推荐
 
-- 2026-06-30 06:44 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 06:18 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 06:36 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 06:36 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 06:34 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 06:33 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-30 06:22 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 06:42 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 06:19 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 06:35 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 06:39 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 06:42 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 06:48 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 06:28 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 06:24 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-30 06:32 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 06:29 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 06:29 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 06:50 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 06:32 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 06:28 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 06:45 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 06:29 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:37 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/7153670097.shtml)
-- 2026-06-30 06:22 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/332010899.shtml)
-- 2026-06-30 06:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/7833226185.shtml)
-- 2026-06-30 06:27 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/24150868.shtml)
-- 2026-06-30 06:46 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/8080865180.shtml)
-- 2026-06-30 06:28 - [巴西扳平比分](https://www.blog.minike.top/Article/details/017284040.shtml)
-- 2026-06-30 06:32 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/4428988.shtml)
-- 2026-06-30 06:25 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/87871471.shtml)
-- 2026-06-30 06:30 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/82647912840.shtml)
-- 2026-06-30 06:18 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/6960074.shtml)
-- 2026-06-30 06:43 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/15180927.shtml)
-- 2026-06-30 06:25 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/00360.shtml)
-- 2026-06-30 06:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/943781013.shtml)
-- 2026-06-30 06:34 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/5822752.shtml)
-- 2026-06-30 06:40 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/102399356.shtml)
+- 2026-06-30 06:51 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/5425713758.shtml)
+- 2026-06-30 06:51 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/543398381.shtml)
+- 2026-06-30 06:25 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/4326411.shtml)
+- 2026-06-30 06:45 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/686159586.shtml)
+- 2026-06-30 06:47 - [我们的少年时代2](https://www.share.minike.top/Article/details/11387119419.shtml)
+- 2026-06-30 06:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/46136287.shtml)
+- 2026-06-30 06:24 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/61374.shtml)
+- 2026-06-30 06:46 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/37202937.shtml)
+- 2026-06-30 06:44 - [森保一 保守](https://www.share.kurohicncr.top/Article/details/516476427472.shtml)
+- 2026-06-30 06:45 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/247604443738.shtml)
+- 2026-06-30 06:29 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/2704375.shtml)
+- 2026-06-30 06:27 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/32859261954.shtml)
+- 2026-06-30 06:27 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/56628.shtml)
+- 2026-06-30 06:48 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/624361882.shtml)
+- 2026-06-30 06:50 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/515228415293.shtml)

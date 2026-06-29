@@ -1,58 +1,57 @@
-# 中国电影2026年五一档总票房超去年
+# “智链全球”创新全流程服务计划启动
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新社北京5月5日电 (记者 高凯)据灯塔专业版数据，截至北京时间5月5日19时24分，2026年中国电影五一档总票房已突破7.48亿元(人民币，下同)，超过2025年五一档最终票房(7.47亿元)。 影片《消失的人》《寒战1994》《穿普拉达的女王2》《10间敢死队》《给阿嬷的情书》分列档期票房前五名，这五部影片累计票房均突破5000万元，其中《消失的人》《寒战1994》合计
+中新网北京6月24日电 (记者 尹倩芸)6月24日，“智链无界·AI赋能科技创新与成果转化”活动在第四届中国国际供应链促进博览会期间举行。 活动围绕人工智能赋能研发创新、科技成果转化和企业出海知识产权安全展开，现场发布《AI赋能科技创新全流程与出海知识产权生态共建服务倡议》，并启动“智链全球”创新全流程服务计划。 创新发布环节集中呈现了一批面向实际需求的平台与产品。面向研发创新
 
 ## 正文
 
-中新社北京5月5日电 (记者 高凯)据灯塔专业版数据，截至北京时间5月5日19时24分，2026年中国电影五一档总票房已突破7.48亿元(人民币，下同)，超过2025年五一档最终票房(7.47亿元)。
+中新网北京6月24日电 (记者 尹倩芸)6月24日，“智链无界·AI赋能科技创新与成果转化”活动在第四届中国国际供应链促进博览会期间举行。
 
-影片《消失的人》《寒战1994》《穿普拉达的女王2》《10间敢死队》《给阿嬷的情书》分列档期票房前五名，这五部影片累计票房均突破5000万元，其中《消失的人》《寒战1994》合计贡献五一档大盘票房的60%以上，档期头部虹吸效应依旧显著。
+活动围绕人工智能赋能研发创新、科技成果转化和企业出海知识产权安全展开，现场发布《AI赋能科技创新全流程与出海知识产权生态共建服务倡议》，并启动“智链全球”创新全流程服务计划。
 
-相较往年，今年五一档新片档期平均票价明显走低。
+创新发布环节集中呈现了一批面向实际需求的平台与产品。
 
-2026年五一档平均票价36.4元，去年同期为39.6元，同比减少3.2元、降幅达8%。
+面向研发创新全链条服务的NOVADA智能体平台发布；中国工业互联网研究院介绍国家级人工智能供需对接服务平台建设与应用情况；出海语言服务包等科技服务产品同步亮相，为研发创新、供需对接和国际化服务提供支撑。
 
-观众结构层面，2026年五一档男女观众分布较去年更为均衡。
+“智链全球”创新全流程服务计划在现场启动，将人工智能工具、知识产权数据、专业服务、产业资源和海外合作网络进一步贯通，为研发创新、科技成果转化、企业出海知识产权安全和海外落地提供协同支持。
 
-《消失的人》《穿普拉达的女王2》《10间敢死队》《给阿嬷的情书》女性观众占比偏高；《寒战1994》《迈克尔·杰克逊：巨星之路》则男性观众占比更突出。
+现场还就高校科技成果转化、产业知识产权运营、中澳科技创新合作及园区AI服务平台建设等事项完成签约，推动有关合作进入实施阶段。
 
-此外，今年五一档双人观影占比高达48.5%，较去年五一档的44.6%有明显提升，票房领跑的《消失的人》拉动效应最强，这部悬疑惊悚片双人观影占比达65.4%。
+活动由中国国际商会科技创新与智能化工作委员会、澳大利亚教育管理协会联合主办。
 
-区域表现上，今年五一档一线城市走势亮眼，票房占比20.14%，较去年五一档的17.22%明显提升。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:21 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-30 06:34 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 06:31 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 06:47 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-30 06:19 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 06:28 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 06:30 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 06:24 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 06:19 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 06:37 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 06:33 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 06:23 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 06:26 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 06:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-30 06:40 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 06:39 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 06:32 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 06:35 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 06:45 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 06:41 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 06:34 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 06:44 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 06:41 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:25 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/0086892237.shtml)
-- 2026-06-30 06:32 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/112449.shtml)
-- 2026-06-30 06:38 - [巴西绝杀日本](http://www.share.minike.top/Article/details/85110.shtml)
-- 2026-06-30 06:23 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/333581.shtml)
-- 2026-06-30 06:23 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/7416280.shtml)
-- 2026-06-30 06:42 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/001104.shtml)
-- 2026-06-30 06:46 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/11671512237.shtml)
-- 2026-06-30 06:40 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/01216528.shtml)
-- 2026-06-30 06:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/573597904.shtml)
-- 2026-06-30 06:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/29741802991.shtml)
-- 2026-06-30 06:46 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/60498.shtml)
-- 2026-06-30 06:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/877656569999.shtml)
-- 2026-06-30 06:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/042912316528.shtml)
-- 2026-06-30 06:21 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/798421.shtml)
-- 2026-06-30 06:23 - [世界杯](https://www.share.kurohicncr.top/Article/details/8523970871.shtml)
+- 2026-06-30 06:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/852212294644.shtml)
+- 2026-06-30 06:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/7534106.shtml)
+- 2026-06-30 06:43 - [一生一世](https://www.blog.minike.top/Article/details/6678157.shtml)
+- 2026-06-30 06:43 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/58685309856.shtml)
+- 2026-06-30 06:52 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/366356376870.shtml)
+- 2026-06-30 06:25 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/3277569661.shtml)
+- 2026-06-30 06:51 - [明星大侦探第四季](http://www.share.minike.top/Article/details/51712029582.shtml)
+- 2026-06-30 06:53 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/76699.shtml)
+- 2026-06-30 06:50 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/801044342669.shtml)
+- 2026-06-30 06:39 - [毒液2](http://www.share.minike.top/Article/details/44152.shtml)
+- 2026-06-30 06:51 - [一生一世](https://www.blog.kurohicncr.top/Article/details/794082812.shtml)
+- 2026-06-30 06:31 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/29098562735.shtml)
+- 2026-06-30 06:40 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/75559028712.shtml)
+- 2026-06-30 06:40 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/3437802.shtml)
+- 2026-06-30 06:47 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/482848251621.shtml)

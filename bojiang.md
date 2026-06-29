@@ -1,54 +1,60 @@
-# 欧洲债市：英国30年期国债收益率创1998年以来新高
+# 策略师担忧高市早苗2.3万亿美元的投资计划恐给日债市场带来新压力
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-英国市场在公共假期后重新开市，英国国债大跌，追随周一全球债券市场的跌势，推动长期国债收益率升至1998年以来最高水平。 30年期国债收益率一度上升13个基点至5.78%，为1998年以来最高，随后涨幅有所收窄；10年期收益率也重新升至5%以上。 美国长期收益率同样处于高位，30年期收益率在周一于今年以来首次突破关键的5%水平后，目前徘徊在该水平附近。 交易员上调了对英国央行今年
+债券策略师警告称，日本首相高市早苗提出的2.3万亿美元投资计划，可能给日本国债市场带来新的压力。 这项周三公布的战略提出，未来14年公共和民间投资总额将超过370万亿日元。但该计划将如何融资、以及能否实现所承诺的增长，存在不确定性。 日本政府尚未说明还需要增加多少财政支出。SMBC日兴证券和大和证券集团等券商的策略师表示，政府借款可能增加的前景，存在推高长期国债收益率的风险。
 
 ## 正文
 
-英国市场在公共假期后重新开市，英国国债大跌，追随周一全球债券市场的跌势，推动长期国债收益率升至1998年以来最高水平。
+债券策略师警告称，日本首相高市早苗提出的2.3万亿美元投资计划，可能给日本国债市场带来新的压力。
 
-30年期国债收益率一度上升13个基点至5.78%，为1998年以来最高，随后涨幅有所收窄；10年期收益率也重新升至5%以上。
+这项周三公布的战略提出，未来14年公共和民间投资总额将超过370万亿日元。
 
-美国长期收益率同样处于高位，30年期收益率在周一于今年以来首次突破关键的5%水平后，目前徘徊在该水平附近。
+但该计划将如何融资、以及能否实现所承诺的增长，存在不确定性。
 
-交易员上调了对英国央行今年加息的预期，利率互换显示年底前将累计加息约70个基点，其中6月会议已计入15个基点。
+日本政府尚未说明还需要增加多少财政支出。
 
-欧元区债券上涨，主要由短端领涨，此前布伦特原油价格在周一剧烈波动后回落至约111美元。
+SMBC日兴证券和大和证券集团等券商的策略师表示，政府借款可能增加的前景，存在推高长期国债收益率的风险。
 
-市场： 德国债券收益率下降2个基点，至3.06%； 意大利10年期国债收益率跌8个基点，至3.86%； 意大利与德国国债利差收窄6个基点，至80个基点； 法国10年期国债收益率下降5个基点，至3.71%； 10年期英国国债收益率上涨10个基点，至5.06%。
+三菱UFJ资产管理执行基金经理Masayuki Koguchi表示，投资者将关注这项投资计划的融资方式。
 
-责任编辑：丁文武
+他说：“归根结底，资金很可能将通过发行国债或其他方式筹集。
+
+”他还补充称，如果结果如此，债券市场将“难以买入”。
 
 ## 相关推荐
 
-- 2026-06-30 06:44 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 06:21 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 06:22 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 06:29 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 06:21 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 06:26 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 06:40 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 06:27 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 06:19 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 06:20 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 06:25 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 06:32 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 06:48 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 06:29 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 06:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 06:27 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 06:31 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 06:29 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 06:40 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 06:49 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 06:45 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 06:29 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 06:31 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 06:33 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:28 - [日本领先巴西](https://www.share.minike.top/Article/details/007668920.shtml)
-- 2026-06-30 06:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/8923664.shtml)
-- 2026-06-30 06:38 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/5125110657.shtml)
-- 2026-06-30 06:47 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/642700155.shtml)
-- 2026-06-30 06:21 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/77659.shtml)
-- 2026-06-30 06:30 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/64916.shtml)
-- 2026-06-30 06:37 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/53897.shtml)
-- 2026-06-30 06:20 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/424683488.shtml)
-- 2026-06-30 06:34 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/2671754.shtml)
-- 2026-06-30 06:37 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/947114267.shtml)
-- 2026-06-30 06:36 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/86041617.shtml)
-- 2026-06-30 06:40 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/8094084.shtml)
-- 2026-06-30 06:27 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/275926070.shtml)
-- 2026-06-30 06:18 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/192354.shtml)
-- 2026-06-30 06:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/5329973.shtml)
+- 2026-06-30 06:53 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/5382889270.shtml)
+- 2026-06-30 06:28 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/957409.shtml)
+- 2026-06-30 06:30 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/797130.shtml)
+- 2026-06-30 06:33 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/81026186568.shtml)
+- 2026-06-30 06:29 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/691878968214.shtml)
+- 2026-06-30 06:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/556496.shtml)
+- 2026-06-30 06:47 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/32108926.shtml)
+- 2026-06-30 06:27 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/793513523028.shtml)
+- 2026-06-30 06:46 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/5309420055.shtml)
+- 2026-06-30 06:52 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/663796.shtml)
+- 2026-06-30 06:35 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/133174.shtml)
+- 2026-06-30 06:40 - [苗族银饰](http://www.blog.minike.top/Article/details/1105341040.shtml)
+- 2026-06-30 06:31 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/538884096.shtml)
+- 2026-06-30 06:36 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/7086466657.shtml)
+- 2026-06-30 06:37 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/5889965760.shtml)

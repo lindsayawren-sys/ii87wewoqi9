@@ -1,61 +1,61 @@
-# 2026年美加墨世界杯临近 带火“清远制造”运动鞋
+# “全球最大连片荔枝种植基地”广东高州荔枝采摘收尾
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-中新网清远5月6日电 (张璐 关清)据广州海关所属清远海关(简称“清远海关”)6日消息，随着2026年美加墨世界杯开幕临近，世界杯经济持续升温，企业体育用品订单迎来出口高峰。在广东省清远市，相关生产企业积极抢抓市场机遇，在产品设计创新、知识产权保护等方面发力，不断提升产品国际市场竞争力，出口订单稳步增加。在万邦(清新)鞋业有限公司生产车间，工人们正在各自岗位上全力“备战”世界杯
+中新社广东茂名6月25日电 (梁盛 梁晶晶)记者25日从“中国荔乡”广东茂名高州市农业农村局获悉，目前该市荔枝采收已进入尾期，今年荔枝总产量约21万吨。 据了解，高州拥有全球规模最大的连片荔枝种植基地，也是中国荔枝生产第一大县，全市荔枝种植面积近60万亩。在今年荔枝采摘季，高州除了常态化开展城市推介、产地节庆、产销签约、古树荔枝定制等活动外，还举办了系列主题活动，荔枝全产业链热
 
 ## 正文
 
-中新网清远5月6日电 (张璐 关清)据广州海关所属清远海关(简称“清远海关”)6日消息，随着2026年美加墨世界杯开幕临近，世界杯经济持续升温，企业体育用品订单迎来出口高峰。
+中新社广东茂名6月25日电 (梁盛 梁晶晶)记者25日从“中国荔乡”广东茂名高州市农业农村局获悉，目前该市荔枝采收已进入尾期，今年荔枝总产量约21万吨。
 
-在广东省清远市，相关生产企业积极抢抓市场机遇，在产品设计创新、知识产权保护等方面发力，不断提升产品国际市场竞争力，出口订单稳步增加。
+据了解，高州拥有全球规模最大的连片荔枝种植基地，也是中国荔枝生产第一大县，全市荔枝种植面积近60万亩。
 
-在万邦(清新)鞋业有限公司生产车间，工人们正在各自岗位上全力“备战”世界杯出口订单。
+在今年荔枝采摘季，高州除了常态化开展城市推介、产地节庆、产销签约、古树荔枝定制等活动外，还举办了系列主题活动，荔枝全产业链热度持续升温。
 
-一双双运动鞋经过拉帮、套楦、画线、打磨、刷胶等工序，经质量检查合格后，最终完成生产。
+茂名荔枝采购商吴国告诉记者，由于今年荔枝减产，自上市以来价格持续高企，即使遭遇上市高峰，价格也不降反升，整体荔枝的收购价比去年高出三成，同一品种的荔枝也按其果品质量、个头大小拉开明显的价格差距。
 
-近日，一批运动鞋经广州海关所属清远海关监管，出口至德国。
+据介绍，今年高州荔枝采收创新应用机器人采摘、无人机运输，大幅提升采收转运效率，全链条采用低温高湿雾化锁鲜技术，有效抑制荔枝失水褐变，并创新推行纳米保鲜袋、冰袋、铝箔袋三层隔热包装工艺，全程依托冷链特快物流，实现现摘现发、不浸泡保鲜剂，让荔枝最大程度保留枝头的“头啖鲜”。
 
-该公司是一家专注于运动鞋研发和生产的企业，同时也是国际知名体育品牌的生产供应商，产品远销日韩、欧美等多个国家和地区。
+高州市农业农村局党组成员邬飞儒称，今年高州通过跨镇果园协作、海关通关便利化、外贸企业对接等举措，打通荔枝出口通道，让优质荔枝陆续销往美国、法国、瑞士、澳大利亚等国。
 
-“眼下是我们公司世界杯系列订单的生产交付高峰期，生产、运输、报关等流程必须争分夺秒完成。
+截至6月初，全市荔枝出口约2600吨。
 
-清远海关主动对接我们的出口计划，指导我们通关，及时协调解决通关过程中遇到的疑难问题，让我们充分享受到通关便利。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:21 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 06:40 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 06:41 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 06:44 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 06:19 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 06:38 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 06:24 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 06:27 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-30 06:31 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 06:25 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 06:26 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 06:43 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 06:32 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 06:35 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 06:31 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 06:39 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 06:47 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 06:45 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 06:25 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 06:29 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 06:32 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 06:48 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 06:51 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 06:35 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 06:47 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 06:24 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 06:47 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-30 06:39 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 06:28 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 06:34 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/302453684844.shtml)
-- 2026-06-30 06:22 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/904006112444.shtml)
-- 2026-06-30 06:47 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/872497.shtml)
-- 2026-06-30 06:33 - [一生一世](http://www.blog.minike.top/Article/details/27759.shtml)
-- 2026-06-30 06:32 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/91587729.shtml)
-- 2026-06-30 06:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/060377547004.shtml)
-- 2026-06-30 06:42 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/229234862894.shtml)
-- 2026-06-30 06:30 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/6598710815.shtml)
-- 2026-06-30 06:44 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/846273.shtml)
-- 2026-06-30 06:25 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/859444801.shtml)
-- 2026-06-30 06:24 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/58222606813.shtml)
-- 2026-06-30 06:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/7789040.shtml)
-- 2026-06-30 06:39 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/2422661168.shtml)
-- 2026-06-30 06:33 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/77101491.shtml)
-- 2026-06-30 06:45 - [沙丘](http://www.share.kurohicncr.top/Article/details/04084809878.shtml)
+- 2026-06-30 06:51 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/108595.shtml)
+- 2026-06-30 06:36 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/784105343496.shtml)
+- 2026-06-30 06:52 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/9344904897.shtml)
+- 2026-06-30 06:32 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/955474149712.shtml)
+- 2026-06-30 06:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/465454.shtml)
+- 2026-06-30 06:39 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/7846082.shtml)
+- 2026-06-30 06:41 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/02023612.shtml)
+- 2026-06-30 06:41 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/2021547115.shtml)
+- 2026-06-30 06:53 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/94973382035.shtml)
+- 2026-06-30 06:32 - [起风了](https://www.blog.minike.top/Article/details/1220604176.shtml)
+- 2026-06-30 06:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/38825.shtml)
+- 2026-06-30 06:43 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/6753606.shtml)
+- 2026-06-30 06:27 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/777334855.shtml)
+- 2026-06-30 06:34 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/938241156.shtml)
+- 2026-06-30 06:53 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/947795.shtml)

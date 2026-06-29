@@ -1,52 +1,58 @@
-# 内塔尼亚胡称以色列在伊朗问题上与美国全面协调
+# TCL李东生：在供应链体系建设当中，AI技术是未来
 
-> 更新时间：2026-06-30 06:48:02 UTC+8
+> 更新时间：2026-06-30 06:54:02 UTC+8
 
 ## 摘要
 
-以色列总理内塔尼亚胡在声明中表示，以色列与美国在伊朗问题上保持全面协调，两国之间没有任何意外。 内塔尼亚胡补充说，以色列和美国拥有共同目标，其中最重要的目标是从伊朗移除所有浓缩铀材料并摧毁该国的浓缩铀能力。 内塔尼亚胡表示，他将于今天晚些时候与特朗普通话。责任编辑：李桐
+专题：2026第十七届夏季达沃斯论坛 2026年6月23日至25日，2026大连夏季达沃斯论坛，即世界经济论坛第十七届新领军者年会在中国辽宁省大连市举办。TCL创始人、董事长李东生出席“重构供应链？”论坛并演讲。 谈及AI在供应链领域的应用时，李东生表示，AI是一个热门概念，全球股市一大半的价值来自AI企业，但在供应链体系中，AI未来能在哪些方面实现革命性突破，仍在探索中。 李
 
 ## 正文
 
-以色列总理内塔尼亚胡在声明中表示，以色列与美国在伊朗问题上保持全面协调，两国之间没有任何意外。
+专题：2026第十七届夏季达沃斯论坛 2026年6月23日至25日，2026大连夏季达沃斯论坛，即世界经济论坛第十七届新领军者年会在中国辽宁省大连市举办。
 
-内塔尼亚胡补充说，以色列和美国拥有共同目标，其中最重要的目标是从伊朗移除所有浓缩铀材料并摧毁该国的浓缩铀能力。
+TCL创始人、董事长李东生出席“重构供应链？
 
-内塔尼亚胡表示，他将于今天晚些时候与特朗普通话。
+”论坛并演讲。
 
-责任编辑：李桐
+谈及AI在供应链领域的应用时，李东生表示，AI是一个热门概念，全球股市一大半的价值来自AI企业，但在供应链体系中，AI未来能在哪些方面实现革命性突破，仍在探索中。
+
+李东生回顾到，过去十多年，TCL从自动化到智能化，企业建立数字化管理系统的工作一直在持续推进。
+
+但他也坦诚，当下人们谈论AI时，往往会把智能化要做的事情都套到AI概念上。
+
+“这样讲也没有错，但真正基于大模型的AI应用，在供应链环节目前还没有太多实质的应用落地。
+
+” 不过他认为，这确实是一个方向。
 
 ## 相关推荐
 
-- 2026-06-30 06:19 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 06:45 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-30 06:46 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 06:39 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 06:26 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 06:35 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 06:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 06:38 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 06:24 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 06:31 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 06:18 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 06:30 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-30 06:33 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 06:36 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 06:26 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 06:32 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 06:49 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 06:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 06:28 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 06:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 06:53 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 06:29 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 06:35 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 06:24 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 06:43 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 06:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:36 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/825208.shtml)
-- 2026-06-30 06:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/033770219.shtml)
-- 2026-06-30 06:27 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/7608722866.shtml)
-- 2026-06-30 06:32 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/73936828599.shtml)
-- 2026-06-30 06:20 - [急先锋](https://www.blog.minike.top/Article/details/43076892925.shtml)
-- 2026-06-30 06:20 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/94449.shtml)
-- 2026-06-30 06:25 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/58443579505.shtml)
-- 2026-06-30 06:40 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/617825772645.shtml)
-- 2026-06-30 06:24 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/1686638.shtml)
-- 2026-06-30 06:32 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/95972646014.shtml)
-- 2026-06-30 06:24 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/6690411275.shtml)
-- 2026-06-30 06:35 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/104092419.shtml)
-- 2026-06-30 06:32 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/11280491.shtml)
-- 2026-06-30 06:20 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/935090389304.shtml)
-- 2026-06-30 06:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/58426052695.shtml)
+- 2026-06-30 06:36 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/670178147165.shtml)
+- 2026-06-30 06:30 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/88217751168.shtml)
+- 2026-06-30 06:28 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/38487982.shtml)
+- 2026-06-30 06:38 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/58977415785.shtml)
+- 2026-06-30 06:40 - [巴西扳平比分](https://www.blog.minike.top/Article/details/05102473223.shtml)
+- 2026-06-30 06:47 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/768961079772.shtml)
+- 2026-06-30 06:47 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/26224.shtml)
+- 2026-06-30 06:34 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/889238127160.shtml)
+- 2026-06-30 06:48 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/8656271.shtml)
+- 2026-06-30 06:38 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/4248268.shtml)
+- 2026-06-30 06:36 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/28370352924.shtml)
+- 2026-06-30 06:47 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/807107518.shtml)
+- 2026-06-30 06:51 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/32498780.shtml)
+- 2026-06-30 06:32 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/143352867.shtml)
+- 2026-06-30 06:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/520336526549.shtml)
