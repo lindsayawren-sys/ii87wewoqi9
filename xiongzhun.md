@@ -1,57 +1,57 @@
-# 【银华基金】交易日报2026-04-15
+# 《飞常日志2》广州路演 香港艺人点赞湾区便利出行
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-今日资金面整体偏松。早盘，银行及非银融出积极，隔夜利率1.33-1.35%，存单1.35%-1.37%，信用在1.40%附近；7d 信用 1.41-1.42%，14d 信用 1.42-1.43%。OMO后，隔夜资金利率继续下行，7-14d价格变化不大。午后，隔夜利率1.30%-1.32%，存单1.35%-1.36%，信用1.40%附近，7-14d供需两淡。临近尾盘，银行融出相对
+中新社广州6月13日电 (记者 蔡敏婕)TVB航空职业剧《飞常日志2》主创团队13日在广州举办粉丝见面会，一众演员现场分享拍摄故事，展现粤港澳大湾区空陆海多式联运的便捷优势。 《飞常日志2》讲述杨尚伟(马国明饰)、吕芷珊(高海宁饰)、陈杰(洪永城饰)、李胜祥(徐荣饰)四位机场骨干迎来职涯新阶段，刻画了香港国际机场不同岗位从业者的工作日常与职业成长，也呈现大湾区互联互通的发展成果
 
 ## 正文
 
-今日资金面整体偏松。
+中新社广州6月13日电 (记者 蔡敏婕)TVB航空职业剧《飞常日志2》主创团队13日在广州举办粉丝见面会，一众演员现场分享拍摄故事，展现粤港澳大湾区空陆海多式联运的便捷优势。
 
-早盘，银行及非银融出积极，隔夜利率1.33-1.35%，存单1.35%-1.37%，信用在1.40%附近；7d 信用 1.41-1.42%，14d 信用 1.42-1.43%。
+《飞常日志2》讲述杨尚伟(马国明饰)、吕芷珊(高海宁饰)、陈杰(洪永城饰)、李胜祥(徐荣饰)四位机场骨干迎来职涯新阶段，刻画了香港国际机场不同岗位从业者的工作日常与职业成长，也呈现大湾区互联互通的发展成果。
 
-OMO后，隔夜资金利率继续下行，7-14d价格变化不大。
+出行便利化是湾区融通最直观的体现。
 
-午后，隔夜利率1.30%-1.32%，存单1.35%-1.36%，信用1.40%附近，7-14d供需两淡。
+TVB艺人高海宁结合自身出行体验表示，香港国际机场联动湾区城市构建的立体交通体系完善，旅客一下飞机即可换乘各类交通工具通达湾区多个城市，缩减出行耗时，日常往返便捷高效。
 
-临近尾盘，银行融出相对较少，资金面维持均衡态势直至收盘。
+TVB艺人洪永城说：“我在拍电视剧时发现，有不少来自珠海、东莞等地的居民选择前往香港国际机场就业，湾区人才融合持续加深。
 
-央行公开市场开展5亿元7天期逆回购操作，操作利率1.40%；今日5亿元逆回购到期。
+” 针对跨境中转出行的便民服务，TVB艺人刘颖镟重点介绍“经珠港飞”联程服务，旅客飞抵广东珠海后，乘坐接驳巴士经港珠澳大桥可达香港国际机场，免去香港方面的出入境查验环节，“这项服务支持双向通行，无论是内地居民出境环游世界，还是海外旅客经香港进入内地城市，都能实现高效中转”。
 
-此外，今日5000亿元6M买断式逆回购操作以及6000亿元到期。
+据介绍，6月15日起，《飞常日志2》将逢周一至周五20时30分在翡翠台及埋堆堆App播放。
 
-一级市场（今日结果）（一级组）【4月15日利率债结果】【国债结果】28D 269923 加权利率:0.9523% 边际利率:1.0176% 全场倍数:3.47倍 边际倍数:7.59倍 91D 269924 加权利率:1.0174% 边际利率:1.0536% 全场倍数:3.48倍 边际倍数:1.97倍 1M需求尚可，费后低老券15.2BP发1.0176，倒挂偏强；3M需求尚可，费后低老券12.1BP发1.0536，倒挂偏强。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 22:49 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 22:53 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 22:56 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 23:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 22:49 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 22:54 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 22:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 22:42 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 22:43 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 23:02 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 23:06 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 23:04 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 22:50 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 22:46 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 22:58 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 23:04 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 22:59 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 22:55 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 22:50 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 22:49 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 22:56 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:42 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/3672480.shtml)
-- 2026-06-29 22:36 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/702810461534.shtml)
-- 2026-06-29 22:46 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/503533561476.shtml)
-- 2026-06-29 22:38 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/22405.shtml)
-- 2026-06-29 22:58 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/7587761.shtml)
-- 2026-06-29 22:36 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/88465742572.shtml)
-- 2026-06-29 23:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/15342445.shtml)
-- 2026-06-29 22:57 - [送你一朵小红花](http://www.share.minike.top/Article/details/821624558378.shtml)
-- 2026-06-29 22:48 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/771371034.shtml)
-- 2026-06-29 22:44 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/4164743723.shtml)
-- 2026-06-29 22:56 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/346676960511.shtml)
-- 2026-06-29 23:02 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/99011338.shtml)
-- 2026-06-29 22:53 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/0918931.shtml)
-- 2026-06-29 22:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/63574.shtml)
-- 2026-06-29 22:48 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/490312742.shtml)
+- 2026-06-29 23:09 - [乌克兰发广告全球征兵](http://www.share.minike.top/Article/details/6783408.shtml)
+- 2026-06-29 23:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/614875680.shtml)
+- 2026-06-29 22:44 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/69283088754.shtml)
+- 2026-06-29 22:53 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/6303332.shtml)
+- 2026-06-29 23:12 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/711073837.shtml)
+- 2026-06-29 22:45 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/39793.shtml)
+- 2026-06-29 22:58 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/308033621.shtml)
+- 2026-06-29 23:06 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.minike.top/Article/details/5758624.shtml)
+- 2026-06-29 22:54 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/45761790.shtml)
+- 2026-06-29 22:48 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/861886716257.shtml)
+- 2026-06-29 22:43 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/838771.shtml)
+- 2026-06-29 23:03 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/95045524115.shtml)
+- 2026-06-29 22:51 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/61337514.shtml)
+- 2026-06-29 22:45 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/04709.shtml)
+- 2026-06-29 22:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/032520083.shtml)

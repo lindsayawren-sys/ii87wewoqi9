@@ -1,61 +1,56 @@
-# 王毅同伊朗外长阿拉格齐通电话
+# ATFX前瞻:美联储及四家央行决议 日本央行加息概率高
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社北京4月15日电中共中央政治局委员、外交部长王毅15日同伊朗外长阿拉格齐通电话。 阿拉格齐通报了伊美谈判最新情况及伊方下步考虑，表示伊方愿通过和平谈判方式，继续寻求理性、现实的解决方案。伊方高度赞赏中方一直以来为推动局势缓和降温所作努力，期待中方为促和止战发挥积极作用。 王毅表示，中方一如既往支持伊朗
+专题：ATFX外汇专栏投稿 美联储利率决议 6月15日，本周四2：00，美联储将公布利率决议结果，主流预期认为，维持3.75%的基准利率不变。2：30，美联储主席沃什召开货币政策新闻发布会，这是沃什首次公开以美联储主席身份露面，市场关注度极高。重点关注沃什对未来利率路径、经济数据的看法。 ATFX图▲ 决定美联储货币政策的核心经济数据是通胀率。上图是美国CPI年率和核心CPI年
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：ATFX外汇专栏投稿 美联储利率决议 6月15日，本周四2：00，美联储将公布利率决议结果，主流预期认为，维持3.75%的基准利率不变。
 
-新华社北京4月15日电中共中央政治局委员、外交部长王毅15日同伊朗外长阿拉格齐通电话。
+2：30，美联储主席沃什召开货币政策新闻发布会，这是沃什首次公开以美联储主席身份露面，市场关注度极高。
 
-阿拉格齐通报了伊美谈判最新情况及伊方下步考虑，表示伊方愿通过和平谈判方式，继续寻求理性、现实的解决方案。
+重点关注沃什对未来利率路径、经济数据的看法。
 
-伊方高度赞赏中方一直以来为推动局势缓和降温所作努力，期待中方为促和止战发挥积极作用。
+ATFX图▲ 决定美联储货币政策的核心经济数据是通胀率。
 
-王毅表示，中方一如既往支持伊朗维护自身主权安全和民族尊严。
+上图是美国CPI年率和核心CPI年率曲线叠加图。
 
-习近平主席郑重提出关于维护和促进中东和平稳定的四点主张，为化解危机贡献了中国方案。
+因为美国和伊朗的冲突，导致国际油价持续高位运行，美国的CPI数据自3月份之后明显升高，绝对值已经达到4.2%，远超2%的温和通胀标准。
 
-当前局势来到战和转换的关键阶段，和平窗口正在打开。
+美联储为了遏制高通胀风险，有可能采取加息政策。
 
-中方支持保持停火和谈判势头，这符合伊朗人民根本利益，也是地区国家和国际社会共同期盼。
+消息面，美国和伊朗已经就协议备忘录达成一致，本周五大概率签署停火协议。
 
 ## 相关推荐
 
-- 2026-06-29 23:02 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 22:50 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 22:50 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 23:03 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 22:39 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 22:40 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 22:48 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 22:49 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 22:50 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 23:01 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 22:51 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 23:03 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 23:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 22:58 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 22:57 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 23:00 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 23:03 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 22:42 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 22:51 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-29 23:08 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 22:44 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 23:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 22:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 22:44 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 23:01 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:47 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/41882986368.shtml)
-- 2026-06-29 22:39 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/369920.shtml)
-- 2026-06-29 23:05 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/5351121.shtml)
-- 2026-06-29 22:54 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/924613669984.shtml)
-- 2026-06-29 22:41 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/31056.shtml)
-- 2026-06-29 22:52 - [一生一世](https://www.share.kurohicncr.top/Article/details/4583047.shtml)
-- 2026-06-29 22:40 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/5085244272.shtml)
-- 2026-06-29 23:05 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/077037.shtml)
-- 2026-06-29 22:59 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/19283528691.shtml)
-- 2026-06-29 22:40 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/533160615245.shtml)
-- 2026-06-29 23:00 - [斗破苍穹](https://www.blog.minike.top/Article/details/44155991.shtml)
-- 2026-06-29 22:49 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/43584456475.shtml)
-- 2026-06-29 23:05 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/52013407864.shtml)
-- 2026-06-29 22:46 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/844061.shtml)
-- 2026-06-29 23:03 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/85351450.shtml)
+- 2026-06-29 23:05 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/16934.shtml)
+- 2026-06-29 23:00 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/104628739.shtml)
+- 2026-06-29 23:08 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/417812.shtml)
+- 2026-06-29 22:46 - [记者乘坐无人驾驶汽车去采访](https://www.blog.minike.top/Article/details/2517856518.shtml)
+- 2026-06-29 22:57 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.kurohicncr.top/Article/details/430174738.shtml)
+- 2026-06-29 23:06 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/454230.shtml)
+- 2026-06-29 23:08 - [张凌赫 客串](https://www.share.minike.top/Article/details/35681.shtml)
+- 2026-06-29 22:45 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/942402.shtml)
+- 2026-06-29 23:01 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/94164098138.shtml)
+- 2026-06-29 22:57 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/327448761215.shtml)
+- 2026-06-29 23:08 - [金牌调解](https://www.share.kurohicncr.top/Article/details/29444144749.shtml)
+- 2026-06-29 22:56 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/86133919.shtml)
+- 2026-06-29 22:52 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/38519520161.shtml)
+- 2026-06-29 23:05 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/737410459.shtml)
+- 2026-06-29 22:46 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/540349927.shtml)

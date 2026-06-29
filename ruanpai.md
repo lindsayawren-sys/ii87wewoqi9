@@ -1,49 +1,51 @@
-# 第十五届中国国际园林博览会开幕
+# 三花智控获Schroders PLC增持345.52万股 每股作价约29.05港元
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 21:35 来源：中国新闻网 4月15日，第十五届中国国际园林博览会在浙江省温州市开幕。本届园博会以“诗画山海·共享绿色生活”为主题，聚力打造“百姓园博、国际园博、先锋园博、文化园博、全城园博”五大特色。据悉，本届园博会展期100天。(孙杨洋 周健） 责任编辑：【罗攀】
+香港联交所最新数据显示，6月10日，Schroders PLC增持三花智控（02050）345.52万股，每股作价29.0475港元，总金额约为1亿港元。增持后最新持股数目为6514.43万股，最新持股比例为13.67%。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年04月15日 21:35 来源：中国新闻网 4月15日，第十五届中国国际园林博览会在浙江省温州市开幕。
+香港联交所最新数据显示，6月10日，Schroders PLC增持三花智控（02050）345.52万股，每股作价29.0475港元，总金额约为1亿港元。
 
-本届园博会以“诗画山海·共享绿色生活”为主题，聚力打造“百姓园博、国际园博、先锋园博、文化园博、全城园博”五大特色。
+增持后最新持股数目为6514.43万股，最新持股比例为13.67%。
 
-据悉，本届园博会展期100天。
-
-(孙杨洋 周健） 责任编辑：【罗攀】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:46 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 23:01 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 22:38 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 23:03 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 22:54 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 22:54 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 22:52 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 22:58 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 22:45 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 22:51 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 22:49 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 22:53 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 23:10 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 22:49 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 22:47 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 22:53 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 22:54 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 22:48 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 22:46 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 22:59 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 23:05 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 22:55 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 22:57 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 23:00 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 23:04 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 23:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/37661710.shtml)
-- 2026-06-29 22:47 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/095117.shtml)
-- 2026-06-29 22:46 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/1433676.shtml)
-- 2026-06-29 22:36 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/390330232.shtml)
-- 2026-06-29 23:03 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/40067091836.shtml)
-- 2026-06-29 22:38 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/661249675926.shtml)
-- 2026-06-29 22:39 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/510950385481.shtml)
-- 2026-06-29 22:57 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/3328223656.shtml)
-- 2026-06-29 22:49 - [扫黑风暴](http://www.blog.minike.top/Article/details/8867929.shtml)
-- 2026-06-29 22:52 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/42820883.shtml)
-- 2026-06-29 22:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/159713063.shtml)
-- 2026-06-29 22:54 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/18450704.shtml)
-- 2026-06-29 22:42 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/566473533528.shtml)
-- 2026-06-29 22:52 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/30928.shtml)
-- 2026-06-29 22:50 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/923554785.shtml)
+- 2026-06-29 23:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/999473.shtml)
+- 2026-06-29 22:45 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/57048.shtml)
+- 2026-06-29 22:58 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/509453074574.shtml)
+- 2026-06-29 23:08 - [美股](https://www.blog.minike.top/Article/details/1413124566.shtml)
+- 2026-06-29 22:42 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/585552.shtml)
+- 2026-06-29 22:50 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/5115296.shtml)
+- 2026-06-29 23:07 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/288040415499.shtml)
+- 2026-06-29 23:05 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/53627325.shtml)
+- 2026-06-29 23:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/96891.shtml)
+- 2026-06-29 22:48 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/70563840.shtml)
+- 2026-06-29 22:43 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/0561993995.shtml)
+- 2026-06-29 22:42 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/02319274922.shtml)
+- 2026-06-29 23:09 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/74963.shtml)
+- 2026-06-29 22:57 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/52255608732.shtml)
+- 2026-06-29 22:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/968793868.shtml)

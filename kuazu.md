@@ -1,60 +1,58 @@
-# 白宫：对美伊达成协议持乐观态度
+# 国际社会多方欢迎美国和伊朗达成谅解备忘录
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-中新社华盛顿4月15日电 (记者 陈孟统)美国白宫新闻秘书莱维特15日表示，美方对美伊达成协议的前景持乐观态度。下一轮谈判很可能仍在巴基斯坦首都伊斯兰堡举行。 莱维特在白宫例行记者会上说，关于美方已正式要求延长停火的报道不实。“目前，我们仍在非常积极地参与谈判。这些对话是富有成效且持续进行的，这就是目前的情况。” 对于美伊再次举行面对面会谈的可能性，莱维特表示，相关讨论确实在进
+中新社北京6月15日电 综合消息：针对美国和伊朗达成谅解备忘录一事，当地时间14日以来，国际社会多方发声表示欢迎，称其有助于和平解决冲突、恢复地区稳定。 综合联合国新闻网、路透社、卡塔尔半岛电视台、土耳其阿纳多卢通讯社等报道，联合国秘书长发言人14日发表声明称，秘书长古特雷斯对美伊双方就和平协议达成一致表示欢迎，并称其为解决冲突的“关键一步”。声明同时赞赏巴基斯坦、卡塔尔、埃及
 
 ## 正文
 
-中新社华盛顿4月15日电 (记者 陈孟统)美国白宫新闻秘书莱维特15日表示，美方对美伊达成协议的前景持乐观态度。
+中新社北京6月15日电 综合消息：针对美国和伊朗达成谅解备忘录一事，当地时间14日以来，国际社会多方发声表示欢迎，称其有助于和平解决冲突、恢复地区稳定。
 
-下一轮谈判很可能仍在巴基斯坦首都伊斯兰堡举行。
+综合联合国新闻网、路透社、卡塔尔半岛电视台、土耳其阿纳多卢通讯社等报道，联合国秘书长发言人14日发表声明称，秘书长古特雷斯对美伊双方就和平协议达成一致表示欢迎，并称其为解决冲突的“关键一步”。
 
-莱维特在白宫例行记者会上说，关于美方已正式要求延长停火的报道不实。
+声明同时赞赏巴基斯坦、卡塔尔、埃及、沙特阿拉伯、土耳其和其他地区国家在支持谈判方面发挥的作用，并呼吁各方乘势而上，加倍努力，争取最终达成解决方案。
 
-“目前，我们仍在非常积极地参与谈判。
+英国、法国、德国、意大利15日发表联合声明，欢迎美伊双方达成谅解备忘录。
 
-这些对话是富有成效且持续进行的，这就是目前的情况。
+声明称，该谅解备忘录为恢复地区稳定及促进全球经济稳定提供了机遇，相关方应予以全面落实。
 
-” 对于美伊再次举行面对面会谈的可能性，莱维特表示，相关讨论确实在进行，但一切尚无定论。
+四国将与美国、伊朗和地区伙伴密切合作，“保持这一势头，达成长期的外交解决方案”。
 
-“不过，我们对达成协议的前景持乐观态度。
+声明同时呼吁重新开放霍尔木兹海峡，并强调不可让伊朗获得核武器。
 
-” 莱维特同时表示，美伊下一轮谈判的地点很可能仍在伊斯兰堡。
+英国首相斯塔默在社交媒体上发表声明称，当前的重点是全面落实这份谅解备忘录，确保霍尔木兹海峡重新开放并保持全面、永久畅通。
 
 ## 相关推荐
 
-- 2026-06-29 22:48 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 22:39 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 22:37 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 22:37 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 22:49 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 22:54 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 22:39 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 22:37 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 22:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 22:55 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 22:53 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 22:58 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 23:05 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 22:45 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 22:59 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 23:02 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 22:44 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 23:06 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 23:02 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 22:44 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 22:51 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 22:55 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 22:53 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 23:02 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 22:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 22:58 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:46 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/2398812165.shtml)
-- 2026-06-29 23:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/51969.shtml)
-- 2026-06-29 22:38 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/3995197410.shtml)
-- 2026-06-29 22:54 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/69022994.shtml)
-- 2026-06-29 22:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/37206.shtml)
-- 2026-06-29 22:39 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/68328537.shtml)
-- 2026-06-29 22:52 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/18855848.shtml)
-- 2026-06-29 22:48 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/757004332.shtml)
-- 2026-06-29 22:52 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/1085583500.shtml)
-- 2026-06-29 22:41 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/8554221424.shtml)
-- 2026-06-29 22:51 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/08592.shtml)
-- 2026-06-29 22:46 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/274119568320.shtml)
-- 2026-06-29 23:04 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/89937803.shtml)
-- 2026-06-29 22:42 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/478526116.shtml)
-- 2026-06-29 23:03 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/755014157.shtml)
+- 2026-06-29 22:42 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/8180911801.shtml)
+- 2026-06-29 23:08 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/74688.shtml)
+- 2026-06-29 22:42 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/447590831769.shtml)
+- 2026-06-29 23:03 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/575842529.shtml)
+- 2026-06-29 23:08 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/570472422.shtml)
+- 2026-06-29 22:46 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/09684817.shtml)
+- 2026-06-29 23:10 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/89671541.shtml)
+- 2026-06-29 22:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/8467783094.shtml)
+- 2026-06-29 23:09 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/817627859.shtml)
+- 2026-06-29 22:51 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/35756.shtml)
+- 2026-06-29 22:58 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/80001004.shtml)
+- 2026-06-29 22:43 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/3001020629.shtml)
+- 2026-06-29 23:03 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/1857200.shtml)
+- 2026-06-29 22:48 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/10104684240.shtml)
+- 2026-06-29 22:47 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/79275.shtml)

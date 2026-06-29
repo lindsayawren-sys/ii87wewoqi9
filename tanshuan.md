@@ -1,60 +1,61 @@
-# 中国官方：对药品领域垄断行为坚持露头就打、严处重罚
+# 亚足联球队四场不败，欧洲球队该慌了？
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-中新社北京4月15日电 (记者 李纯)谈及如何加强药品反垄断执法，中国国家市场监管总局价格监督检查和反不正当竞争局局长姚雷15日在北京表示，该局将打击药品领域垄断行为始终作为重中之重，坚持露头就打、严处重罚。当天，中国国务院新闻办公室在北京举行政策例行吹风会，介绍健全全周期全渠道药品价格形成机制有关情况。关于严厉打击药品领域价格和垄断违法行为，姚雷介绍了两方面工作。 在加强药品
+中新网北京6月15日电(刘梦青 邢翀)当地时间14日，随着日本队在美加墨世界杯首轮以2:2绝平荷兰，目前已出场的四支亚足联球队交出2胜2平，且对手全部出自欧足联，这还是亚足联球队史上首次在世界杯前四场比赛保持不败，亚足联也成为目前唯一未尝败绩的洲际足联。有数据统计，2022年之前的两届世界杯上，欧足联球队在对阵亚足联球队的15场比赛中仅输一场，即2018年小组赛末轮卫冕冠军德国
 
 ## 正文
 
-中新社北京4月15日电 (记者 李纯)谈及如何加强药品反垄断执法，中国国家市场监管总局价格监督检查和反不正当竞争局局长姚雷15日在北京表示，该局将打击药品领域垄断行为始终作为重中之重，坚持露头就打、严处重罚。
+中新网北京6月15日电(刘梦青 邢翀)当地时间14日，随着日本队在美加墨世界杯首轮以2:2绝平荷兰，目前已出场的四支亚足联球队交出2胜2平，且对手全部出自欧足联，这还是亚足联球队史上首次在世界杯前四场比赛保持不败，亚足联也成为目前唯一未尝败绩的洲际足联。
 
-当天，中国国务院新闻办公室在北京举行政策例行吹风会，介绍健全全周期全渠道药品价格形成机制有关情况。
+有数据统计，2022年之前的两届世界杯上，欧足联球队在对阵亚足联球队的15场比赛中仅输一场，即2018年小组赛末轮卫冕冠军德国队0:2不敌韩国队，直接导致小组出局。
 
-关于严厉打击药品领域价格和垄断违法行为，姚雷介绍了两方面工作。
+四年前，日本队在小组赛后发制人，连续逆转击败德国和西班牙，德国队连续两届杯赛止步小组赛。
 
-在加强药品价格监管方面，姚雷表示，国家市场监管总局构建了“全链条价格监管体系”，覆盖原料药流通、成品药生产销售、医疗机构和药店购销等各个环节。
+如今又一个四年过去，借助扩军利好，在“亚欧交锋”中集体低迷的欧足联球队，或许是时候重新评估亚足联对手的实力了，而曾被视为世界杯“陪跑者”的亚足联球队，则有望进一步打破偏见。
 
-他进一步介绍说，在原料药流通、成品药生产销售环节，针对串通操纵市场价格行为，依法查处了一批跨省域、跨生产销售环节操纵药品价格案件。
+在与欧洲“无冕之王”荷兰队对决中，尽管两度陷入落后困境，日本队顽强扳平比分，用全场不足40%的控球率，打出了碾压对手的进攻效率。
 
-在药品购销环节，将公立医疗机构违反“药品零加成”和“中药饮片限定加价率”政策行为，纳入市场监管领域深化民众身边不正之风和腐败问题集中整治工作，并部署地方市场监管部门加大对违规加价行为的查处力度。
+这一回，曾三度闯入世界杯决赛的荷兰队也在日本队栽了跟头。
 
-在零售药店和网上药房药品销售环节，强化线上线下一体化监管，重点查处不按规定明码标价、价格欺诈等不正当价格行为。
+这场比赛让不少球迷想到了童年经典《足球小将》。
 
-此外，在加强药品反垄断执法方面，姚雷表示，国家市场监管总局将打击药品领域垄断行为始终作为重中之重，保持高压态势。
+动漫里荷兰队始终是日本队的常年对手，大空翼和加尔富特斗得天昏地暗，大比分和名场面频出。
 
 ## 相关推荐
 
-- 2026-06-29 22:59 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 22:45 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 22:45 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 22:47 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 22:47 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 22:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 22:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 22:42 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 22:40 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 22:58 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 22:53 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 22:45 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 22:37 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 22:57 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 22:47 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 22:59 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 23:06 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 23:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 22:47 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 22:51 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 22:59 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 23:04 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 23:10 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 22:45 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 23:06 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 22:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 22:57 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 23:10 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 22:48 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:41 - [杨紫有3部作品入围金鹰奖](http://www.blog.kurohicncr.top/Article/details/3361148847.shtml)
-- 2026-06-29 22:38 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/284048.shtml)
-- 2026-06-29 22:54 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/6283496.shtml)
-- 2026-06-29 23:02 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/17034783599.shtml)
-- 2026-06-29 22:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/907781392.shtml)
-- 2026-06-29 22:47 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/40600476.shtml)
-- 2026-06-29 22:37 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/152362736.shtml)
-- 2026-06-29 23:02 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/54017485.shtml)
-- 2026-06-29 22:43 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/569403493.shtml)
-- 2026-06-29 22:50 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/36804024.shtml)
-- 2026-06-29 22:57 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/7992145.shtml)
-- 2026-06-29 22:46 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/556997.shtml)
-- 2026-06-29 22:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/5306949968.shtml)
-- 2026-06-29 23:05 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/84419.shtml)
-- 2026-06-29 23:05 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/7968162.shtml)
+- 2026-06-29 22:45 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/98658628548.shtml)
+- 2026-06-29 22:46 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/43405917.shtml)
+- 2026-06-29 23:10 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/70434.shtml)
+- 2026-06-29 23:01 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/59571.shtml)
+- 2026-06-29 23:01 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/2682411993.shtml)
+- 2026-06-29 23:04 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/56143.shtml)
+- 2026-06-29 23:09 - [扬名立万](https://www.blog.minike.top/Article/details/04986518074.shtml)
+- 2026-06-29 22:59 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/94263.shtml)
+- 2026-06-29 23:11 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/78381548122.shtml)
+- 2026-06-29 22:48 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/8858084394.shtml)
+- 2026-06-29 22:52 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/135321.shtml)
+- 2026-06-29 23:07 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/291983.shtml)
+- 2026-06-29 23:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/12687368.shtml)
+- 2026-06-29 22:50 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/0277740127.shtml)
+- 2026-06-29 22:42 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/911875934950.shtml)

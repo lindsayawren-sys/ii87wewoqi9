@@ -1,58 +1,60 @@
-# 4月15日热门中概股多数上涨 台积电涨2.83%，微牛涨10.23%
+# 一线调研丨织密全域物流网 畅通经济大动脉
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-4月15日热门中概股多数上涨，纳斯达克中国金龙指数（HXC）收高2.35%。 上涨股（按市值从高到低）：台积电涨2.83%，阿里巴巴涨2.63%，拼多多涨1.29%，网易涨0.17%，日月光半导体涨1.22%，京东涨7.98%，百度涨5.55%，携程涨1.55%，中华电信涨1.07%，富途控股涨3.47%，贝壳涨4.43%，小鹏汽车涨2.35%，蔚来涨1.62%，腾讯音乐涨3.
+我国物流市场规模连续10年全球第一，但运输环节衔接不畅、物流成本偏高，成为制约经济发展的瓶颈。眼下，国家正在加速建设物流网，这张网将如何破解难题？来看记者的一线调研。 当记者来到宜兴市新材料产业园时，运输车正络绎不绝驶入厂区，但红火背后，企业的运输负责人给记者算了笔成本账。 江苏省宜兴市三木运输有限公司负责人 蒋新良：如果我们是水路，一次可以装一千吨到两千吨，陆路现在一次只能装
 
 ## 正文
 
-4月15日热门中概股多数上涨，纳斯达克中国金龙指数（HXC）收高2.35%。
+我国物流市场规模连续10年全球第一，但运输环节衔接不畅、物流成本偏高，成为制约经济发展的瓶颈。
 
-上涨股（按市值从高到低）：台积电涨2.83%，阿里巴巴涨2.63%，拼多多涨1.29%，网易涨0.17%，日月光半导体涨1.22%，京东涨7.98%，百度涨5.55%，携程涨1.55%，中华电信涨1.07%，富途控股涨3.47%，贝壳涨4.43%，小鹏汽车涨2.35%，蔚来涨1.62%，腾讯音乐涨3.13%，哔哩哔哩涨2.17%，万国数据涨3.47%，唯品会涨0.40%，WSP控股涨1.72%，BOSS直聘涨2.51%，拓臻生物涨0.13%，亚朵集团涨1.03%，名创优品涨1.17%，金山云涨6.53%，小马智行涨3.19%，慧荣科技涨3.29%，禾赛科技涨5.15%，欢聚涨2.68%，微牛涨10.23%。
+眼下，国家正在加速建设物流网，这张网将如何破解难题？
 
-下跌股（按市值从高到低）：联电跌1.03%，中通跌0.62%，理想汽车跌0.21%，华住酒店集团跌0.66%，中国新城农村跌2.31%，新东方跌0.43%，满帮跌0.12%。
+来看记者的一线调研。
 
-美股周二收高。
+当记者来到宜兴市新材料产业园时，运输车正络绎不绝驶入厂区，但红火背后，企业的运输负责人给记者算了笔成本账。
 
-交易员们对美伊首轮和平谈判破裂不以为意，同时对两国仍可能达成协议持乐观态度。
+江苏省宜兴市三木运输有限公司负责人 蒋新良：如果我们是水路，一次可以装一千吨到两千吨，陆路现在一次只能装30吨，我们算过一笔账，陆路运输的成本要比水路运输贵一半以上。
 
-白宫周二称可能进行第二轮和谈。
+事实上宜兴水网密布，明明有运量大成本低的水路可选，为什么这些企业非得通过公路运输呢？
 
-原油价格大幅下跌。
+江苏三木化工股份有限公司副总经理 殷康：我们在周边像长江、运河，走大船都没问题，就是要到我进厂的这一段，现在满足不了。
 
-道指涨317.74点，涨幅为0.66%，报48535.99点；纳指涨455.35点，涨幅为1.96%，报23639.08点；标普500指数涨81.14点，涨幅为1.18%，报6967.38点。
+总台央视记者 盛洁：其实园区的西侧就是南干河，这里离通往京杭大运河的常溧线航道只有不到8公里距离，但就是因为部分河道太窄太浅没有办法行船，让这里的企业守着水，却用不了低成本的水运。
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 22:46 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 22:55 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 22:36 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 23:05 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 22:37 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 23:05 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 22:50 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 22:41 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 22:47 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 22:39 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 22:42 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 22:49 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 22:49 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 23:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 22:44 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 22:57 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 23:09 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 23:11 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 23:07 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 23:06 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 22:51 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 23:05 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 22:45 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 22:53 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 22:58 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:05 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/510436.shtml)
-- 2026-06-29 23:05 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/51923015532.shtml)
-- 2026-06-29 22:46 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/708793425021.shtml)
-- 2026-06-29 22:54 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/55409912716.shtml)
-- 2026-06-29 22:50 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/68513.shtml)
-- 2026-06-29 22:54 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.kurohicncr.top/Article/details/721237124317.shtml)
-- 2026-06-29 22:59 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/65650.shtml)
-- 2026-06-29 23:00 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/9699509.shtml)
-- 2026-06-29 23:04 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/649954048.shtml)
-- 2026-06-29 23:01 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/593869494164.shtml)
-- 2026-06-29 22:45 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/160888596.shtml)
-- 2026-06-29 22:43 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/4404796.shtml)
-- 2026-06-29 22:54 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/9364379804.shtml)
-- 2026-06-29 22:45 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/81672134.shtml)
-- 2026-06-29 22:50 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/18469.shtml)
+- 2026-06-29 23:02 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/3202643.shtml)
+- 2026-06-29 22:49 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/2091223022.shtml)
+- 2026-06-29 23:08 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/843126.shtml)
+- 2026-06-29 22:44 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/30222.shtml)
+- 2026-06-29 22:59 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/16598743.shtml)
+- 2026-06-29 22:48 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/37530059.shtml)
+- 2026-06-29 23:04 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/382447.shtml)
+- 2026-06-29 22:54 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/01691572.shtml)
+- 2026-06-29 22:48 - [男子称在京东买到“同仁堂”假药](https://www.share.minike.top/Article/details/20245196.shtml)
+- 2026-06-29 22:50 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/8500227747.shtml)
+- 2026-06-29 23:10 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/809066.shtml)
+- 2026-06-29 23:05 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/46645223310.shtml)
+- 2026-06-29 23:04 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/05315182.shtml)
+- 2026-06-29 22:54 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/695442084.shtml)
+- 2026-06-29 22:43 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/454442.shtml)

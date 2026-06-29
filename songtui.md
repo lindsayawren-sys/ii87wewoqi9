@@ -1,57 +1,59 @@
-# 棕榈油3月MPOB报告解读：库存及产量高于预期 价格有下调压
+# 比利时队1-1战平埃及队 佛得角队爆冷逼平西班牙队
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-卓创资讯棕榈油分析师张兰兰 【导语】4月10日，马来西亚棕榈油局（MPOB）发布2026年3月棕榈油供需数据。数据显示，当月马棕产量环比增加，且高于市场预期；库存环比下降，但高于市场预期。供需面数据整体偏空，给予棕榈油回落压力，当前因处在增产期且因价格高出口前景有压力，预计4月后半月棕榈油现货价格或呈现高位回落走势。 3月MPOB报告产量及库存高于预期，价格有回落压力 马来西亚
+世界杯早知道丨比利时队1-1战平埃及队 佛得角队爆冷逼平西班牙队 北京时间6月16日，2026年美加墨世界杯进行G组首轮角逐，比利时队对阵埃及队。最终，比利时队1-1战平埃及队。 第19分钟，埃及队萨拉赫送出助攻，阿舒尔禁区外打出贴地斩，埃及1-0领先比利时。 第66分钟，比利时队卢卡库替补登场，第一脚触球就造成埃及队后卫哈尼乌龙球，比利时1-1埃及。H组比赛 佛得角队爆冷逼平
 
 ## 正文
 
-卓创资讯棕榈油分析师张兰兰 【导语】4月10日，马来西亚棕榈油局（MPOB）发布2026年3月棕榈油供需数据。
+世界杯早知道丨比利时队1-1战平埃及队 佛得角队爆冷逼平西班牙队 北京时间6月16日，2026年美加墨世界杯进行G组首轮角逐，比利时队对阵埃及队。
 
-数据显示，当月马棕产量环比增加，且高于市场预期；库存环比下降，但高于市场预期。
+最终，比利时队1-1战平埃及队。
 
-供需面数据整体偏空，给予棕榈油回落压力，当前因处在增产期且因价格高出口前景有压力，预计4月后半月棕榈油现货价格或呈现高位回落走势。
+第19分钟，埃及队萨拉赫送出助攻，阿舒尔禁区外打出贴地斩，埃及1-0领先比利时。
 
-3月MPOB报告产量及库存高于预期，价格有回落压力 马来西亚棕榈油总署（MPOB）发布的3月供需报告整体偏空影响。
+第66分钟，比利时队卢卡库替补登场，第一脚触球就造成埃及队后卫哈尼乌龙球，比利时1-1埃及。
 
-数据显示，当月产量为138万吨（环比+7.8%），出口量为155万吨（环比+38.39%），月末库存为227万吨（环比-15.93%）。
+H组比赛 佛得角队爆冷逼平西班牙队 在稍早前结束的H组比赛中，西班牙队0-0战平佛得角队。
 
-从产量看，3月棕榈油产量138万吨，环比有所提高7.8%，同比略回落0.58%，略高于市场预期值134万吨。
+本场比赛两队均无进球，成为本届世界杯开赛以来首场0-0的比赛。
 
-产区处在增产期，产量环比增加符合市场预期，但略高于市场预期值，该数据中性偏空，不利于价格持续走高。
+佛得角门将沃西尼亚屡次救险，高接低挡，力保球门不失。
 
-从出口量看，3月棕榈油出口量为155万吨，环比增加38.39%，同比增加54.00%，基本符合市场预期值155-156万吨。
+比赛预告 今天，世界杯赛场还将迎来两场激烈角逐。
 
 ## 相关推荐
 
-- 2026-06-29 22:43 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 23:02 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 23:00 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 22:36 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 22:40 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 22:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 23:01 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 22:36 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 22:50 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 22:45 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 23:00 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 22:46 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 22:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 23:04 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 23:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 23:07 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 23:11 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 22:50 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 22:56 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 23:00 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 23:09 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 22:47 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 23:10 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 22:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:02 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/338569.shtml)
-- 2026-06-29 23:03 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/83055500.shtml)
-- 2026-06-29 22:46 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/3112573.shtml)
-- 2026-06-29 23:01 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/2571382.shtml)
-- 2026-06-29 22:45 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/38818559.shtml)
-- 2026-06-29 22:44 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/551235730.shtml)
-- 2026-06-29 22:50 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/556938175771.shtml)
-- 2026-06-29 22:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/610258094.shtml)
-- 2026-06-29 22:41 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/1566107.shtml)
-- 2026-06-29 22:47 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/13958810.shtml)
-- 2026-06-29 23:02 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/53528893445.shtml)
-- 2026-06-29 22:51 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/67341364.shtml)
-- 2026-06-29 22:58 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/841635828256.shtml)
-- 2026-06-29 22:52 - [天气热脾气都变差了](http://www.share.kurohicncr.top/Article/details/3220376607.shtml)
-- 2026-06-29 22:56 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/82227998.shtml)
+- 2026-06-29 23:03 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/928730331.shtml)
+- 2026-06-29 22:47 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/68208.shtml)
+- 2026-06-29 23:09 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/555643099.shtml)
+- 2026-06-29 22:54 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/84565502.shtml)
+- 2026-06-29 23:09 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/754063382.shtml)
+- 2026-06-29 22:52 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/7759334.shtml)
+- 2026-06-29 23:09 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/456991001894.shtml)
+- 2026-06-29 22:42 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/977224887.shtml)
+- 2026-06-29 23:06 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/0608188.shtml)
+- 2026-06-29 23:08 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/99714.shtml)
+- 2026-06-29 22:49 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/2718390941.shtml)
+- 2026-06-29 22:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/78154181.shtml)
+- 2026-06-29 22:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/09439233557.shtml)
+- 2026-06-29 23:03 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/7351605450.shtml)
+- 2026-06-29 23:04 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/76734292.shtml)

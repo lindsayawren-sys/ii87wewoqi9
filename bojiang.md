@@ -1,60 +1,50 @@
-# 许家印案：从首富到当庭认罪的被告，一个时代的教训有多重？
+# 两岸共潮生|台青天津创办养老机构 以“情感+智能”探索银发经济新蓝海
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 （来源：东方资色）4月13日至14日，深圳市中级人民法院的法庭上，一位曾经的中国首富当庭低下了头。许家印，这位一手缔造恒大的传奇人物，在经历了两年多的司法程序后，一审当庭表示认罪悔罪。随着法庭宣布将择期宣判，一个横跨地产、金融、体育、文旅的庞大商业帝国，在法律面前迎来了它的终审时刻。庭审现场：九项罪名本次庭审中，恒大集团被控非法
+发布时间：2026年06月16日 08:46 来源：中国新闻网 “两岸心连心，共享夕阳红”，台湾创业青年井然把这样一句话挂在他创办的养老院的墙上。在天津，他用十几年的努力践行着这个美好愿景。紧随大陆银发经济发展浪潮，他借鉴台湾养老的精细化服务，自主研发养老管理平台，以科技赋能老年照护，用真心真情书写“两岸一家亲”的温暖时光。 责任编辑：【黄钰涵】
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 （来源：东方资色）4月13日至14日，深圳市中级人民法院的法庭上，一位曾经的中国首富当庭低下了头。
+发布时间：2026年06月16日 08:46 来源：中国新闻网 “两岸心连心，共享夕阳红”，台湾创业青年井然把这样一句话挂在他创办的养老院的墙上。
 
-许家印，这位一手缔造恒大的传奇人物，在经历了两年多的司法程序后，一审当庭表示认罪悔罪。
+在天津，他用十几年的努力践行着这个美好愿景。
 
-随着法庭宣布将择期宣判，一个横跨地产、金融、体育、文旅的庞大商业帝国，在法律面前迎来了它的终审时刻。
+紧随大陆银发经济发展浪潮，他借鉴台湾养老的精细化服务，自主研发养老管理平台，以科技赋能老年照护，用真心真情书写“两岸一家亲”的温暖时光。
 
-庭审现场：九项罪名本次庭审中，恒大集团被控非法吸收公众存款、集资诈骗、违法发放贷款、欺诈发行证券、违规披露重要信息、单位行贿六项罪名；恒大地产被控欺诈发行证券；许家印本人则面临非法吸收公众存款、集资诈骗、违法发放贷款、违法运用资金、欺诈发行证券、违规披露重要信息、职务侵占、单位行贿等九项指控。
-
-庭审持续两天，法庭围绕指控事实进行了调查及辩论，部分人大代表、政协委员、被告人亲属及集资参与人代表旁听了庭审。
-
-有律师分析指出，鉴于涉案金额庞大、受害者众多，以及由此带来的金融风险和社会影响在中国内地几乎前所未有，许家印极有可能面临严厉的刑事处罚。
-
-就在许家印出庭受审前八个月，他一手创立的中国恒大已走完了在资本市场的最后旅程——2025年8月25日，香港联交所正式取消中国恒大的上市地位，结束了其约16年的上市历程。
-
-停牌前，中国恒大股价仅剩0.16港元/股，总市值约21.52亿港元，较历史高峰期的逾3700亿港元蒸发超99%。
+责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 22:40 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 22:38 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 23:00 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 22:40 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 22:44 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 23:01 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 22:53 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 22:40 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 22:44 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 22:43 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 22:51 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 22:38 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 22:58 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 22:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 22:49 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 23:02 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 22:58 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 22:48 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 23:09 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 23:06 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 22:59 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 22:42 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 22:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 23:09 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 23:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:04 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/702708775359.shtml)
-- 2026-06-29 22:43 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/2610333806.shtml)
-- 2026-06-29 23:03 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/59083614.shtml)
-- 2026-06-29 22:44 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/1031508.shtml)
-- 2026-06-29 23:04 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/18720637589.shtml)
-- 2026-06-29 22:37 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/6276371.shtml)
-- 2026-06-29 22:45 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/43085934429.shtml)
-- 2026-06-29 22:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/892054373.shtml)
-- 2026-06-29 23:02 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/7046493.shtml)
-- 2026-06-29 22:47 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/613102978.shtml)
-- 2026-06-29 22:59 - [高考1357分的同学如何报志愿？](https://www.share.kurohicncr.top/Article/details/46735423.shtml)
-- 2026-06-29 23:00 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.kurohicncr.top/Article/details/050399437402.shtml)
-- 2026-06-29 22:53 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/48015223.shtml)
-- 2026-06-29 22:53 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/888389078654.shtml)
-- 2026-06-29 22:38 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/904320663.shtml)
+- 2026-06-29 22:45 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/70619.shtml)
+- 2026-06-29 22:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/6354774613.shtml)
+- 2026-06-29 22:48 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/37597.shtml)
+- 2026-06-29 22:55 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/394420145.shtml)
+- 2026-06-29 23:10 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/267354056.shtml)
+- 2026-06-29 22:48 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/760060894.shtml)
+- 2026-06-29 23:07 - [金刚川](http://www.blog.minike.top/Article/details/134335961.shtml)
+- 2026-06-29 23:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/368323501.shtml)
+- 2026-06-29 22:49 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/660449938.shtml)
+- 2026-06-29 22:53 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/1638023852.shtml)
+- 2026-06-29 22:45 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/411321.shtml)
+- 2026-06-29 22:52 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/05199353.shtml)
+- 2026-06-29 23:04 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/99398.shtml)
+- 2026-06-29 23:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/940070.shtml)
+- 2026-06-29 23:04 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/057774916.shtml)

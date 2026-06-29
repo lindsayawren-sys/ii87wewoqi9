@@ -1,52 +1,61 @@
-# 吉林大学热水钻探为极地科研打通“无污染通道”
+# 马斯克预测SpaceX将在2031年前实现万亿美元营收 或涉嫌违反美股“静默期”规定
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 18:37 来源：中国新闻网 4月14日，记者从吉林大学建设工程学院获悉，中国第42次南极考察队依托该校自主研发的 “极地冰盖快速热水钻探系统”，成功完成中国首次南极冰层热水钻探试验，钻深达3413米，一举突破国际极地热水钻探2540米的最深纪录。这标志着中国具备了在90%以上南极冰盖和全部北极冰盖开展钻探研究的能力。 热水钻探是目前国际公认最
+SpaceX首席执行官埃隆·马斯克日前在社交媒体上预测，该公司有望在2031年前实现年营收超过1万亿美元。由于SpaceX刚刚完成首次公开募股（IPO）上市，该言论引发市场高度关注，并因涉嫌违反美国证券交易委员会（SEC）关于IPO后“静默期”的法律规定而引发合规争议。 在这项引起争议的预测中，马斯克声称，如果SpaceX在2031年的营收未能突破1万亿美元，他将感到“意外”。
 
 ## 正文
 
-发布时间：2026年04月15日 18:37 来源：中国新闻网 4月14日，记者从吉林大学建设工程学院获悉，中国第42次南极考察队依托该校自主研发的 “极地冰盖快速热水钻探系统”，成功完成中国首次南极冰层热水钻探试验，钻深达3413米，一举突破国际极地热水钻探2540米的最深纪录。
+SpaceX首席执行官埃隆·马斯克日前在社交媒体上预测，该公司有望在2031年前实现年营收超过1万亿美元。
 
-这标志着中国具备了在90%以上南极冰盖和全部北极冰盖开展钻探研究的能力。
+由于SpaceX刚刚完成首次公开募股（IPO）上市，该言论引发市场高度关注，并因涉嫌违反美国证券交易委员会（SEC）关于IPO后“静默期”的法律规定而引发合规争议。
 
-热水钻探是目前国际公认最有效、且能实现最高程度清洁环保的钻探方式。
+在这项引起争议的预测中，马斯克声称，如果SpaceX在2031年的营收未能突破1万亿美元，他将感到“意外”。
 
-此次钻探任务于今年1-2月在东南极麒麟冰下湖区域实施，为后续开展冰下湖原位观测、水体和湖底样品采集提供了无污染通道和关键技术支撑。
+此前他还曾表示，该公司最早可能在2030年接近这一营收目标。
 
-(记者 吕盛楠 长春报道） 责任编辑：【罗攀】
+官方财报数据显示，SpaceX去年的总营收仅为187亿美元。
+
+马斯克的万亿美元远景规划，不仅远超公司当前实际业绩，也显著高于上市主承销商的预期。
+
+据媒体披露的测算数据，承销商高盛集团与摩根士丹利对SpaceX在2030年的营收预测分别仅为4740亿美元和3300亿美元。
+
+分析人士指出，马斯克在此敏感时间点发表前瞻性业绩预测，正面临潜在的法律风险。
 
 ## 相关推荐
 
-- 2026-06-29 23:04 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 22:47 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 22:49 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 22:41 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 22:38 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 23:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 23:03 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 22:56 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 23:00 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 22:47 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 23:02 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 22:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 23:03 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 22:59 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 22:46 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 23:08 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 22:53 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 22:49 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 22:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 22:59 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 23:07 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 23:07 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 23:07 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 22:50 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 22:51 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 23:06 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 22:44 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:52 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/228306339291.shtml)
-- 2026-06-29 22:49 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/5728699.shtml)
-- 2026-06-29 23:00 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/943067.shtml)
-- 2026-06-29 23:02 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/731105519706.shtml)
-- 2026-06-29 22:37 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/816970.shtml)
-- 2026-06-29 22:36 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/2059957.shtml)
-- 2026-06-29 23:04 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/52467.shtml)
-- 2026-06-29 22:49 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/2809725663.shtml)
-- 2026-06-29 22:53 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/476841248.shtml)
-- 2026-06-29 22:41 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/35463769.shtml)
-- 2026-06-29 22:51 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/328693763387.shtml)
-- 2026-06-29 22:40 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/67843229.shtml)
-- 2026-06-29 23:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/2340003.shtml)
-- 2026-06-29 22:55 - [青春环游记第三季](https://www.blog.minike.top/Article/details/83428.shtml)
-- 2026-06-29 22:53 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/172832000.shtml)
+- 2026-06-29 22:52 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/40908634595.shtml)
+- 2026-06-29 22:52 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/53800.shtml)
+- 2026-06-29 22:45 - [月亮](http://www.blog.kurohicncr.top/Article/details/0169977452.shtml)
+- 2026-06-29 22:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/20076019.shtml)
+- 2026-06-29 23:05 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/811911763.shtml)
+- 2026-06-29 23:00 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/71880999.shtml)
+- 2026-06-29 23:11 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/347708324.shtml)
+- 2026-06-29 23:08 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/93637.shtml)
+- 2026-06-29 23:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/145501.shtml)
+- 2026-06-29 23:11 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/31331.shtml)
+- 2026-06-29 23:03 - [我们的少年时代2](http://www.blog.minike.top/Article/details/742796204.shtml)
+- 2026-06-29 23:01 - [一见倾心](http://www.share.minike.top/Article/details/4664737.shtml)
+- 2026-06-29 22:56 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/36864082.shtml)
+- 2026-06-29 22:47 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/463367.shtml)
+- 2026-06-29 22:54 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/9749416.shtml)

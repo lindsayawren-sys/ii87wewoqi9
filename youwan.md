@@ -1,56 +1,57 @@
-# 日联科技，停牌！拟购上海菲莱控股权
+# 桂东北小城产业“跃迁记”：黄金珠宝“无中生有” 新兴产业聚变提速
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：资本秘闻 4月14日晚间，日联科技（688531）披露公告称，公司拟以发行股份、可转债及支付现金的方式购买上海菲莱测试技术有限公司（以下简称“上海菲莱”）的控股权并募集配套资金。公司股票4月15日起停牌，预计停牌时间不超过10个交易日。 公告显示，根据相关数据初步测算，本次交易预计未达到重大资产重组标
+中新网贺州6月15日电 题：桂东北小城产业“跃迁记”：黄金珠宝“无中生有” 新兴产业聚变提速 作者 张广权 陶胜平 陈观姐 夏季，走进广西贺州市平桂区黄金珠宝产业园，车间里的黄金饰品在灯光下熠熠生辉。园区内物流车辆穿梭，操着粤语的客商往来不绝。 广东人陈合楚在珠宝行业打拼二十余年。两年前随企业从粤港澳大湾区迁至平桂时，心里并非没有疑虑：“这边能行吗？” 如今，他的顾虑已烟消云散
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网贺州6月15日电 题：桂东北小城产业“跃迁记”：黄金珠宝“无中生有” 新兴产业聚变提速 作者 张广权 陶胜平 陈观姐 夏季，走进广西贺州市平桂区黄金珠宝产业园，车间里的黄金饰品在灯光下熠熠生辉。
 
-来源：资本秘闻 4月14日晚间，日联科技（688531）披露公告称，公司拟以发行股份、可转债及支付现金的方式购买上海菲莱测试技术有限公司（以下简称“上海菲莱”）的控股权并募集配套资金。
+园区内物流车辆穿梭，操着粤语的客商往来不绝。
 
-公司股票4月15日起停牌，预计停牌时间不超过10个交易日。
+广东人陈合楚在珠宝行业打拼二十余年。
 
-公告显示，根据相关数据初步测算，本次交易预计未达到重大资产重组标准。
+两年前随企业从粤港澳大湾区迁至平桂时，心里并非没有疑虑：“这边能行吗？
 
-对于本次交易是否构成重大资产重组的具体认定，公司将在重组报告书中予以详细分析和披露。
+” 如今，他的顾虑已烟消云散。
 
-上海菲莱官网显示，公司专注于半导体芯片测试可靠性解决方案，在Si基芯片，化合物芯片（GaAs，InP，SiC）等领域都有量产经验，提供芯片从晶圆到器件的全形态解决方案。
+公司生产的黄金首饰每日发往粤港澳大湾区，订单已排至下月。
 
-日联科技表示，目前本次交易正处于筹划阶段，交易各方尚未签署正式的交易协议，具体交易方案仍在商讨论证中，尚存在不确定性。
+“这里到深圳物流方便，人工成本更低，关键是政府说话算话，补贴和手续从不拖泥带水。
 
-责任编辑：杨红卜
+”他说。
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-29 22:56 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 22:38 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 22:57 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 22:52 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 22:53 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 22:53 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 22:40 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 22:37 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 22:59 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 23:05 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 23:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 22:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 23:10 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 23:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 22:53 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 23:03 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 23:07 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 22:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 22:44 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 22:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:42 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/119578768853.shtml)
-- 2026-06-29 23:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/211124.shtml)
-- 2026-06-29 22:39 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.minike.top/Article/details/4434954015.shtml)
-- 2026-06-29 22:41 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/3279558788.shtml)
-- 2026-06-29 22:58 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/97498.shtml)
-- 2026-06-29 22:53 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/68243293.shtml)
-- 2026-06-29 23:04 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/985798.shtml)
-- 2026-06-29 23:01 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/76128256.shtml)
-- 2026-06-29 22:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/48674362093.shtml)
-- 2026-06-29 22:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/1077386.shtml)
-- 2026-06-29 22:41 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/70396367.shtml)
-- 2026-06-29 23:00 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/2587950.shtml)
-- 2026-06-29 22:50 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/152053056.shtml)
-- 2026-06-29 23:03 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/29376.shtml)
-- 2026-06-29 22:41 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/860780094.shtml)
+- 2026-06-29 23:09 - [东方风云榜直播](http://www.blog.minike.top/Article/details/26424.shtml)
+- 2026-06-29 23:09 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/62515979727.shtml)
+- 2026-06-29 22:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/0998425.shtml)
+- 2026-06-29 23:02 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/84116.shtml)
+- 2026-06-29 23:08 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/41969820.shtml)
+- 2026-06-29 22:59 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/92590854.shtml)
+- 2026-06-29 22:53 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/208747.shtml)
+- 2026-06-29 22:59 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/22386.shtml)
+- 2026-06-29 22:54 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/66506.shtml)
+- 2026-06-29 22:47 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/727626452.shtml)
+- 2026-06-29 23:11 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/8394822147.shtml)
+- 2026-06-29 23:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/653506029715.shtml)
+- 2026-06-29 22:56 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/75721.shtml)
+- 2026-06-29 23:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/5638963438.shtml)
+- 2026-06-29 22:57 - [肝不好身体这几处会“说话”](https://www.blog.minike.top/Article/details/48125723809.shtml)

@@ -1,61 +1,59 @@
-# 海口海关高效监管助力第六届消博会顺利举办
+# 大熊猫“香香”家族生日会在东京举办
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-四月的海口综合保税区，货车往来穿梭，一片繁忙。近日，海口海关所属马村港海关关员正对一批来自西班牙、法国、韩国等多个国家的消博会展品进行快速验放监装。这批涵盖香化、精品及酒类等多品类的进境展品，被装车运往海南国际会展中心，在第六届中国国际消费品博览会(以下简称“消博会”)上精彩亮相。据海口海关统计，海口海关共监管放行第六届消博会进境展品16批次、总货值约558万元，主要为游艇、化
+中新网东京6月16日电 (记者 朱晨曦)由中国驻东京旅游办事处主办的“大熊猫‘香香’家族生日会”近日在东京举办。中国驻东京旅游办事处主任欧阳安、东京都上野动物园副园长金子美香子、日本大熊猫保护协会会长土居利光、知名熊猫摄影师高氏贵博、知名艺人HANA，中日文旅及航空业界代表，通过抽签获得入场资格的大熊猫“香香”家族的日本粉丝以及中日媒体代表等近300名各界人士齐聚一堂，共同为可
 
 ## 正文
 
-四月的海口综合保税区，货车往来穿梭，一片繁忙。
+中新网东京6月16日电 (记者 朱晨曦)由中国驻东京旅游办事处主办的“大熊猫‘香香’家族生日会”近日在东京举办。
 
-近日，海口海关所属马村港海关关员正对一批来自西班牙、法国、韩国等多个国家的消博会展品进行快速验放监装。
+中国驻东京旅游办事处主任欧阳安、东京都上野动物园副园长金子美香子、日本大熊猫保护协会会长土居利光、知名熊猫摄影师高氏贵博、知名艺人HANA，中日文旅及航空业界代表，通过抽签获得入场资格的大熊猫“香香”家族的日本粉丝以及中日媒体代表等近300名各界人士齐聚一堂，共同为可爱的大熊猫“香香”家族庆生。
 
-这批涵盖香化、精品及酒类等多品类的进境展品，被装车运往海南国际会展中心，在第六届中国国际消费品博览会(以下简称“消博会”)上精彩亮相。
+中国驻东京旅游办事处主任欧阳安在致辞中表示，大熊猫作为中国的国宝，深受包括日本在内的世界各国人民的喜爱，并长期以来担任中日友好交流的使者。
 
-据海口海关统计，海口海关共监管放行第六届消博会进境展品16批次、总货值约558万元，主要为游艇、化妆品、食品，主要来自泰国、俄罗斯、意大利等国。
+从2023年“香香”顺利归国，到2024年“比力”(“香香”的父亲)和“仙女”(“香香”的母亲)返回中国，再到今年“晓晓”(“香香”的弟弟)和“蕾蕾”(“香香”的妹妹)回到它们的故乡——中国。
 
-2026年4月13日，第六届消博会盛大开幕。
+每一次送别，日本民众都温情相送，场面十分令人动容。
 
-作为海南自贸港全岛封关运作后的重大国际展会，本届消博会吸引了来自全球的头部品牌参展。
+他指出，目前在日本无法看到大熊猫的这一时期，希望广大日本民众能够利用30天免签政策，亲自到中国看望“香香”一家和其他大熊猫，亲身感受和领略中国悠久的历史、灿烂的文化和壮美的风光。
 
-连日来，来自意大利的时尚配饰、英国的优质酒类、法国的奢华香化、美国的游艇快艇等境外展品陆续抵琼，海关通关保障工作全面铺开。
+东京都上野动物园副园长金子美香子介绍了上野动物园在大熊猫保护研究领域开展的探索与取得的成果。
 
-为保障消博会顺利举办，海口海关围绕“通关更快、手续更简、政策更优”，推出16条服务保障便利措施，并配套发布通关指南。
+她强调，大熊猫保护是一项复杂且长期的系统工程，既需要科学的饲养管理，也离不开持续推进的栖息地保护工作。
 
 ## 相关推荐
 
-- 2026-06-29 22:37 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 22:46 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 23:04 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 22:36 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 22:41 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 22:36 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 22:59 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 22:39 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 22:59 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 22:42 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 22:50 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 23:05 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 22:39 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 22:41 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 22:45 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 22:43 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 23:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 23:00 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 22:45 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 23:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 22:50 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 22:55 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 23:00 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 23:00 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 23:07 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 22:56 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 22:46 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 22:43 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/671222328113.shtml)
-- 2026-06-29 22:39 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/157779558556.shtml)
-- 2026-06-29 22:51 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/8554567816.shtml)
-- 2026-06-29 22:55 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/83229298.shtml)
-- 2026-06-29 22:47 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/27137837.shtml)
-- 2026-06-29 22:44 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/657638762458.shtml)
-- 2026-06-29 23:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/1501280877.shtml)
-- 2026-06-29 23:03 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/982721.shtml)
-- 2026-06-29 22:58 - [急先锋](https://www.blog.minike.top/Article/details/627041759.shtml)
-- 2026-06-29 23:03 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/576524.shtml)
-- 2026-06-29 22:42 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/16260657.shtml)
-- 2026-06-29 22:47 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/207483750270.shtml)
-- 2026-06-29 22:54 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/059468904658.shtml)
-- 2026-06-29 22:43 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/96705.shtml)
-- 2026-06-29 23:03 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/999451.shtml)
+- 2026-06-29 22:47 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/24412596134.shtml)
+- 2026-06-29 22:57 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/7353586.shtml)
+- 2026-06-29 23:07 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/24931952688.shtml)
+- 2026-06-29 22:51 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/091488229.shtml)
+- 2026-06-29 23:10 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/453029.shtml)
+- 2026-06-29 22:57 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/64934620.shtml)
+- 2026-06-29 22:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/964117701.shtml)
+- 2026-06-29 23:00 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/6403084760.shtml)
+- 2026-06-29 22:43 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/827623.shtml)
+- 2026-06-29 23:03 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/23117543426.shtml)
+- 2026-06-29 23:01 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/861373302.shtml)
+- 2026-06-29 23:08 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/6120077713.shtml)
+- 2026-06-29 22:49 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/63453785723.shtml)
+- 2026-06-29 22:44 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/17657678190.shtml)
+- 2026-06-29 23:10 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/743508170779.shtml)

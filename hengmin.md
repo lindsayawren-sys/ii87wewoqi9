@@ -1,53 +1,56 @@
-# 视频 | 厦大学生近10年免费米饭怎么来的?厦门大学深圳校友会发起「笔食瓢饮衔环涌泉」项目
+# 康耐特光学完成2026年4月H股回购方案
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：厦大厦门校友会青创分会 厦大学生近10年免费米饭怎么来的？厦门大学深圳校友会发起的‘笔食瓢饮 衔环涌泉’项目，承诺在2021-2030十年间，全额承担全校在校生的免费米饭与矿泉水费用。 责任编辑：宋雅芳
+康耐特光学（02276）发布公告，于2026年4月7日，董事会批准2026年4月H股回购方案，据此，本公司可于联交所购回总额不超过4亿港元的H股，惟须受该公告所载列条款规限并须根据该等条款进行。2026年4月8日发布的2026年4月H股回购方案已于2026年6月5日完成。 于2026年4月H股回购方案期间内，本公司已于联交所购回合共865.52万股H股，总代价为约3.98亿港元
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+康耐特光学（02276）发布公告，于2026年4月7日，董事会批准2026年4月H股回购方案，据此，本公司可于联交所购回总额不超过4亿港元的H股，惟须受该公告所载列条款规限并须根据该等条款进行。
 
-来源：厦大厦门校友会青创分会 厦大学生近10年免费米饭怎么来的？
+2026年4月8日发布的2026年4月H股回购方案已于2026年6月5日完成。
 
-厦门大学深圳校友会发起的‘笔食瓢饮 衔环涌泉’项目，承诺在2021-2030十年间，全额承担全校在校生的免费米饭与矿泉水费用。
+于2026年4月H股回购方案期间内，本公司已于联交所购回合共865.52万股H股，总代价为约3.98亿港元（不包括交易成本）。
 
-责任编辑：宋雅芳
+截至2026年5月4日至2026年6月5日期间，本公司根据2026年4月H股回购方案于联交所继续进行一系列H股回购，合共购回602.67万股H股（5至6月股份回购），占本公司截至本公告日期的已发行H股总数约1.195%。
+
+根据董事会于2026年6月15日通过的决议案，本公司根据5至6月股份回购所购回的602.67万股H股均于2026年6月15日悉数注销。
+
+用于5至6月股份回购的资金总额为约2.68亿港元（不包括交易成本）。
+
+待上述602.67万股H股注销后，本公司的已发行H股总数将由5.04亿股H股削减至4.98亿股H股。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:59 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 22:52 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 22:43 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 22:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 22:48 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 23:01 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 22:48 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 22:43 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 22:59 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 22:58 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 22:41 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 22:52 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 22:58 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 22:55 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 22:59 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 22:49 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 22:55 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 22:42 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 22:50 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 22:54 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 22:58 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 23:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 23:04 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 22:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 23:07 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:55 - [恋与深空致歉](http://www.blog.minike.top/Article/details/95505237.shtml)
-- 2026-06-29 22:59 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/080323.shtml)
-- 2026-06-29 22:55 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/40502.shtml)
-- 2026-06-29 22:52 - [我们的少年时代2](http://www.share.minike.top/Article/details/409353935.shtml)
-- 2026-06-29 23:00 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/91340.shtml)
-- 2026-06-29 22:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/17289478.shtml)
-- 2026-06-29 22:38 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/7823683206.shtml)
-- 2026-06-29 22:52 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/586765.shtml)
-- 2026-06-29 22:58 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/928733.shtml)
-- 2026-06-29 22:59 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/96967580.shtml)
-- 2026-06-29 23:02 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/73198426323.shtml)
-- 2026-06-29 22:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/866711768553.shtml)
-- 2026-06-29 23:04 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/047349228.shtml)
-- 2026-06-29 23:01 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/91710324.shtml)
-- 2026-06-29 22:45 - [巴西10号球衣是天才传承史](http://www.share.minike.top/Article/details/090749016.shtml)
+- 2026-06-29 22:44 - [欧洲缘何成为变暖最快的大洲](https://www.share.kurohicncr.top/Article/details/755606345499.shtml)
+- 2026-06-29 22:42 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/568569442507.shtml)
+- 2026-06-29 22:42 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/3536377446.shtml)
+- 2026-06-29 23:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/64125344.shtml)
+- 2026-06-29 23:08 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/26460847370.shtml)
+- 2026-06-29 22:47 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/90802.shtml)
+- 2026-06-29 22:49 - [世界杯](https://www.blog.kurohicncr.top/Article/details/566569.shtml)
+- 2026-06-29 23:03 - [委内瑞拉发生余震](https://www.share.minike.top/Article/details/6825300.shtml)
+- 2026-06-29 23:07 - [流金岁月](http://www.blog.minike.top/Article/details/946252389.shtml)
+- 2026-06-29 22:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/60280963875.shtml)
+- 2026-06-29 22:51 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/309669126106.shtml)
+- 2026-06-29 23:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/46240685.shtml)
+- 2026-06-29 23:02 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/93790918065.shtml)
+- 2026-06-29 22:45 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/148362.shtml)
+- 2026-06-29 22:44 - [世界杯](https://www.blog.minike.top/Article/details/7641594205.shtml)

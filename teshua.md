@@ -1,58 +1,56 @@
-# 年化利率曾高达87%的欢太金融停止借钱服务 手机钱包仍存入口
+# 英国央行利率决议前夕 人们对通胀的担忧正日益上升
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-来源：腾讯财经 文|陈昭宇 OPPO生态旗下的欢太金融APP，于2026年4月1日正式停止提供所有借钱服务（含新申请、再次借款）。目前，欢太金融APP已停止受理一切新增借款申请，仅保留还款和记录查询功能。 但腾讯财经发现，在OPPO手机自带的“钱包”APP中，依然保留了借钱业务的入口。 资料显示，欢太金融是OPPO旗下的助贷平台。其实际运营主体欢太数字科技有限公司，是OPPO控
+新华财经北京6月15日电 英国央行将于周四举行利率决议，会议或将以多数票决定维持利率不变，但此次会议预计将反映出货币政策委员会对长期能源危机带来的通胀风险日益增长的担忧。 在英国央行行长贝利和副行长布里登等高级官员呼吁央行在应对通胀上升风险前应保持谨慎后，市场普遍预期该行将把关键利率维持在3.75%不变。 “劳动力市场的势头已显著降温，”St James’s Place的经济学
 
 ## 正文
 
-来源：腾讯财经 文|陈昭宇 OPPO生态旗下的欢太金融APP，于2026年4月1日正式停止提供所有借钱服务（含新申请、再次借款）。
+新华财经北京6月15日电 英国央行将于周四举行利率决议，会议或将以多数票决定维持利率不变，但此次会议预计将反映出货币政策委员会对长期能源危机带来的通胀风险日益增长的担忧。
 
-目前，欢太金融APP已停止受理一切新增借款申请，仅保留还款和记录查询功能。
+在英国央行行长贝利和副行长布里登等高级官员呼吁央行在应对通胀上升风险前应保持谨慎后，市场普遍预期该行将把关键利率维持在3.75%不变。
 
-但腾讯财经发现，在OPPO手机自带的“钱包”APP中，依然保留了借钱业务的入口。
+“劳动力市场的势头已显著降温，”St James’s Place的经济学家Hetal Mehta表示，“我认为目前尚无足够动力支持加息。
 
-资料显示，欢太金融是OPPO旗下的助贷平台。
+” 但至少两位利率制定者——英国央行首席经济学家皮尔和货币政策委员格林——已暗示将要求立即加息。
 
-其实际运营主体欢太数字科技有限公司，是OPPO控股股东广东欧加控股的全资子公司，两家公司高管也存在重叠。
+另一位货币政策委员曼恩则表示，如果能源危机恶化，不排除在某个时间点上调利率的可能性。
 
-“套娃式”授权陷阱 年化利率高至87% 尽管欢太金融APP关停了新增借贷服务，其存量业务的历史遗留问题仍在持续发。
-
-黑猫投诉 【下载黑猫投诉客户端】平台上，相关投诉已累计达4433条。
-
-用户投诉主要集中在两类问题上：一是“套娃式”授权引流，二是高利率。
+编辑：马萌伟 责任编辑：郭建
 
 ## 相关推荐
 
-- 2026-06-29 22:41 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 22:47 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 22:55 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 22:57 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 23:04 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 23:00 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 22:40 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 23:00 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 23:01 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 23:03 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 22:48 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 22:54 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 23:09 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 23:02 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 22:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 22:52 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 22:50 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 23:05 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 23:06 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 23:11 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 22:47 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 22:48 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 22:51 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 23:09 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 22:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 22:59 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:01 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/39857594.shtml)
-- 2026-06-29 22:58 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/73236695.shtml)
-- 2026-06-29 22:46 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/017117.shtml)
-- 2026-06-29 22:43 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/123761429584.shtml)
-- 2026-06-29 22:38 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/7303481.shtml)
-- 2026-06-29 22:52 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/74878756.shtml)
-- 2026-06-29 22:46 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/688574111410.shtml)
-- 2026-06-29 22:36 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/617751038.shtml)
-- 2026-06-29 22:51 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/606933.shtml)
-- 2026-06-29 22:54 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/70662162254.shtml)
-- 2026-06-29 22:48 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/78226.shtml)
-- 2026-06-29 22:43 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/933297575227.shtml)
-- 2026-06-29 22:39 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/8989159.shtml)
-- 2026-06-29 22:59 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/43557335.shtml)
-- 2026-06-29 22:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/5691734028.shtml)
+- 2026-06-29 22:49 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/728618874735.shtml)
+- 2026-06-29 23:09 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/85891.shtml)
+- 2026-06-29 22:54 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/1377693390.shtml)
+- 2026-06-29 22:57 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/3680241.shtml)
+- 2026-06-29 23:01 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/17351838.shtml)
+- 2026-06-29 23:00 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/04458073774.shtml)
+- 2026-06-29 23:07 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/133861763976.shtml)
+- 2026-06-29 22:55 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/02840726.shtml)
+- 2026-06-29 22:42 - [斗破苍穹](https://www.blog.minike.top/Article/details/78251706761.shtml)
+- 2026-06-29 22:51 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/327818388.shtml)
+- 2026-06-29 22:55 - [恋与深空 日服](http://www.share.minike.top/Article/details/6966333.shtml)
+- 2026-06-29 22:56 - [山东发布山洪灾害气象预警](http://www.share.minike.top/Article/details/7755581.shtml)
+- 2026-06-29 23:04 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/769705746.shtml)
+- 2026-06-29 22:50 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/1609169.shtml)
+- 2026-06-29 22:53 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/321580202.shtml)

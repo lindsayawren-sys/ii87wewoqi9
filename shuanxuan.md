@@ -1,57 +1,60 @@
-# 外交部谈中东局势：当务之急是全力避免战端重启
+# 俄称对乌克兰多地涉军设施实施大规模打击
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-4月15日，外交部发言人郭嘉昆主持例行记者会。有记者问，据报道美方表示，与伊朗的会谈可能在未来两天内在巴基斯坦举行，中方对此有何评论？对下一轮的谈判持何看法？中方是否将继续发挥斡旋作用？ 对此，郭嘉昆表示，中方欢迎一切有助于停火止战的努力，赞赏巴基斯坦促成美伊临时停火，并发挥了公正平衡的斡旋作用。当务之急是全力避免战端重启，保持来之不易的停火势头，坚持通过政治外交途径解决争端。
+中新社莫斯科6月15日电 俄罗斯国防部15日通报称，俄军使用远程高精度武器对乌克兰多个军工设施、军用机场和地方征兵中心发动大规模打击。 俄国防部当日在社交媒体上表示，为回应乌方袭击，俄武装力量使用空基、陆基和海基多型远程精确制导武器以及攻击型无人机，对基辅、哈尔科夫和第聂伯罗彼得罗夫斯克市的军工综合体目标，以及军用机场和地方征兵中心实施了大规模打击。所有既定目标均被击中。俄国防
 
 ## 正文
 
-4月15日，外交部发言人郭嘉昆主持例行记者会。
+中新社莫斯科6月15日电 俄罗斯国防部15日通报称，俄军使用远程高精度武器对乌克兰多个军工设施、军用机场和地方征兵中心发动大规模打击。
 
-有记者问，据报道美方表示，与伊朗的会谈可能在未来两天内在巴基斯坦举行，中方对此有何评论？
+俄国防部当日在社交媒体上表示，为回应乌方袭击，俄武装力量使用空基、陆基和海基多型远程精确制导武器以及攻击型无人机，对基辅、哈尔科夫和第聂伯罗彼得罗夫斯克市的军工综合体目标，以及军用机场和地方征兵中心实施了大规模打击。
 
-对下一轮的谈判持何看法？
+所有既定目标均被击中。
 
-中方是否将继续发挥斡旋作用？
+俄国防部强调称，俄军无意也没有对乌民用基础设施进行打击。
 
-对此，郭嘉昆表示，中方欢迎一切有助于停火止战的努力，赞赏巴基斯坦促成美伊临时停火，并发挥了公正平衡的斡旋作用。
+此外，俄国防部表示，俄防空部队在过去一夜间拦截并摧毁了123架乌克兰固定翼无人机。
 
-当务之急是全力避免战端重启，保持来之不易的停火势头，坚持通过政治外交途径解决争端。
+无人机被击落地点包括别尔哥罗德州、布良斯克州、卡卢加州、库尔斯克州、奥廖尔州、罗斯托夫州、梁赞州、斯摩棱斯克州、特维尔州、图拉州、莫斯科地区、克拉斯诺达尔边疆区，以及克里米亚、亚速海和黑海区域上空。
 
-郭嘉昆指出，中方愿同国际社会一道，继续为早日恢复中东和海湾地区和平稳定作出贡献。
+图拉州州长米利亚耶夫当日在社交媒体上发文称，当天凌晨图拉市多处民宅遭无人机袭击。
 
-（总台央视记者 黄惠馨）责任编辑：刘万里 SF014
+初步信息显示，袭击造成3人死亡、3人受伤。
 
 ## 相关推荐
 
-- 2026-06-29 22:40 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 22:53 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 22:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 22:43 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 22:55 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 22:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 22:36 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 22:43 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 23:04 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 22:40 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 22:36 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 23:05 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 22:59 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 22:52 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 22:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 22:59 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 23:00 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 23:01 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 22:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 22:49 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 23:03 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 23:04 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 23:05 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 22:47 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 22:58 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/07949278.shtml)
-- 2026-06-29 22:53 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/403596063712.shtml)
-- 2026-06-29 22:55 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/625141546.shtml)
-- 2026-06-29 22:52 - [东方风云榜](https://www.share.minike.top/Article/details/39195238.shtml)
-- 2026-06-29 22:47 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/359323.shtml)
-- 2026-06-29 22:46 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/00533428.shtml)
-- 2026-06-29 22:38 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/68521.shtml)
-- 2026-06-29 23:00 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/49900.shtml)
-- 2026-06-29 22:43 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/11686822.shtml)
-- 2026-06-29 23:01 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/2213683286.shtml)
-- 2026-06-29 22:58 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/8797220788.shtml)
-- 2026-06-29 23:00 - [金刚川](https://www.share.minike.top/Article/details/014307411513.shtml)
-- 2026-06-29 23:03 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/73082617249.shtml)
-- 2026-06-29 22:36 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/10584317994.shtml)
-- 2026-06-29 22:45 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/6764148.shtml)
+- 2026-06-29 22:53 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/4510679045.shtml)
+- 2026-06-29 23:10 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/5366974.shtml)
+- 2026-06-29 22:54 - [沙丘](http://www.blog.minike.top/Article/details/58183978088.shtml)
+- 2026-06-29 23:06 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/02669479.shtml)
+- 2026-06-29 23:11 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/88530537.shtml)
+- 2026-06-29 22:45 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/475962951.shtml)
+- 2026-06-29 22:59 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/951927843.shtml)
+- 2026-06-29 22:45 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/14550.shtml)
+- 2026-06-29 23:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/7521279548.shtml)
+- 2026-06-29 22:43 - [乔家的儿女](http://www.share.minike.top/Article/details/55182397441.shtml)
+- 2026-06-29 23:06 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/517876941.shtml)
+- 2026-06-29 22:49 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/55232059145.shtml)
+- 2026-06-29 22:58 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/699721012.shtml)
+- 2026-06-29 22:43 - [乔家的儿女](https://www.blog.minike.top/Article/details/07992776488.shtml)
+- 2026-06-29 22:52 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/1498152.shtml)

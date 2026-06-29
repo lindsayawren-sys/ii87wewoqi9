@@ -1,51 +1,45 @@
-# 日本财务大臣：与美国财长密切讨论了外汇问题
+# 华亿金控公布于今日上午起停牌 以待发布内幕消息
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-日本财务大臣片山皋月表示，她与美国财政部长斯科特·贝森特周三就外汇问题进行了密切讨论。 片山皋月在国际货币基金组织和世界银行春季会议间隙与贝森特会晤后对记者表示，日本当局将根据需要采取大胆行动。 片山皋月表示，两人已确认将保持更加密切的沟通。 片山皋月表示，贝森特途中将经停日本，届时两人将再次举行会谈。责任编辑：丁文武
+华亿金控（08123）公布，公司股份已于2026年6月16日（星期二）上午九时正起暂停于香港联合交易所有限公司买卖，以待发出一则有关根据GEM证券上市规则第 17.10条及根据香港证券及期货事务监察委员会颁布的香港公司收购及合并守则的公司内幕消息公告。责任编辑：卢昱君
 
 ## 正文
 
-日本财务大臣片山皋月表示，她与美国财政部长斯科特·贝森特周三就外汇问题进行了密切讨论。
+华亿金控（08123）公布，公司股份已于2026年6月16日（星期二）上午九时正起暂停于香港联合交易所有限公司买卖，以待发出一则有关根据GEM证券上市规则第 17.10条及根据香港证券及期货事务监察委员会颁布的香港公司收购及合并守则的公司内幕消息公告。
 
-片山皋月在国际货币基金组织和世界银行春季会议间隙与贝森特会晤后对记者表示，日本当局将根据需要采取大胆行动。
-
-片山皋月表示，两人已确认将保持更加密切的沟通。
-
-片山皋月表示，贝森特途中将经停日本，届时两人将再次举行会谈。
-
-责任编辑：丁文武
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:38 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 23:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 22:56 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 22:49 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 22:37 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 22:40 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 23:04 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 22:52 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 22:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 22:45 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 22:38 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 22:51 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 22:45 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 22:59 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 23:08 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 23:06 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 23:08 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 22:49 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 23:04 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 23:09 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 22:42 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 23:09 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/787441946.shtml)
-- 2026-06-29 22:38 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/131678279662.shtml)
-- 2026-06-29 22:39 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/27794889.shtml)
-- 2026-06-29 22:42 - [记者暗访养老机构消防安全](http://www.blog.minike.top/Article/details/400830095.shtml)
-- 2026-06-29 22:36 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/1513070.shtml)
-- 2026-06-29 22:40 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/433756072185.shtml)
-- 2026-06-29 22:47 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/54425.shtml)
-- 2026-06-29 22:51 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/2810067.shtml)
-- 2026-06-29 22:54 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/59650383.shtml)
-- 2026-06-29 23:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/5148250501.shtml)
-- 2026-06-29 23:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/57839.shtml)
-- 2026-06-29 22:50 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/896468452329.shtml)
-- 2026-06-29 23:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/34690979.shtml)
-- 2026-06-29 22:46 - [英法德葡存在什么隐患](https://www.blog.minike.top/Article/details/82347.shtml)
-- 2026-06-29 22:40 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/037556.shtml)
+- 2026-06-29 22:48 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/9701486.shtml)
+- 2026-06-29 22:58 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/1000138.shtml)
+- 2026-06-29 23:04 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/1537784.shtml)
+- 2026-06-29 23:09 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/51304700.shtml)
+- 2026-06-29 22:55 - [被裁员后30岁儿子被抓去戒网瘾](http://www.share.minike.top/Article/details/58025098882.shtml)
+- 2026-06-29 23:11 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/30990652.shtml)
+- 2026-06-29 22:55 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/6198715941.shtml)
+- 2026-06-29 22:57 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/329438840.shtml)
+- 2026-06-29 23:04 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/592121.shtml)
+- 2026-06-29 22:45 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/81211417377.shtml)
+- 2026-06-29 22:59 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/30697.shtml)
+- 2026-06-29 22:59 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/915988877.shtml)
+- 2026-06-29 23:03 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/284117.shtml)
+- 2026-06-29 22:55 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/286301114.shtml)
+- 2026-06-29 22:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/63287.shtml)

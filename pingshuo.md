@@ -1,61 +1,59 @@
-# 我国新增的两处世界地质公园 有怎样的地质科学意义？
+# 广东省总工会：今年将带动培训产业工人500万人次
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-昨天(15日)，在法国巴黎召开的联合国教科文组织执行局第224届会议上，我国浙江常山和四川四姑娘山顺利通过会议审议，正式成为世界地质公园。至此，我国世界地质公园增至51处。我国新增的两处世界地质公园美在哪、奇在哪？具有怎样的地质科学意义？此次通过审议的常山世界地质公园，位于浙江省衢州市常山县。公园保存着新元古代至新生代的连续地层，是亚洲东部近10亿年地质演化历史中地层序列最连续
+中新网广州6月15日电 (张璐 王贯军)6月15日，广东省总工会发布全新升级的8条省级产业工人技能提升实训路线，着力打造“粤工实训”特色品牌，通过构建“1+30+60+N”三位一体产业工人培训体系，将技能培训课堂延伸至生产一线。据了解，2026年，广东省总工会将在30条省级实训路线上直接组织开展5万人次实训，开展1万人次的人工智能+、新业态劳动者转型升级、助推“百千万工程”专项
 
 ## 正文
 
-昨天(15日)，在法国巴黎召开的联合国教科文组织执行局第224届会议上，我国浙江常山和四川四姑娘山顺利通过会议审议，正式成为世界地质公园。
+中新网广州6月15日电 (张璐 王贯军)6月15日，广东省总工会发布全新升级的8条省级产业工人技能提升实训路线，着力打造“粤工实训”特色品牌，通过构建“1+30+60+N”三位一体产业工人培训体系，将技能培训课堂延伸至生产一线。
 
-至此，我国世界地质公园增至51处。
+据了解，2026年，广东省总工会将在30条省级实训路线上直接组织开展5万人次实训，开展1万人次的人工智能+、新业态劳动者转型升级、助推“百千万工程”专项技能培训，带动全省各级工会培训产业工人500万人次。
 
-我国新增的两处世界地质公园美在哪、奇在哪？
+2025年6月，广东省总工会启动实训路线试点建设，选择广州市黄埔区作为首个试点，打造8条省级示范性产业工人实训路线，带动广东省建设60条左右实训路线。
 
-具有怎样的地质科学意义？
+一年来，在广州市黄埔区试点推进实训阵地数字化升级等数字应用场景，建设实景课堂，将技能培训的课堂直接搬到产业链上、设在生产一线，让职工在生产场景中学习、在实际操作中提升。
 
-此次通过审议的常山世界地质公园，位于浙江省衢州市常山县。
+日前，聚焦人工智能等重点领域的“智造先锋、芯创未来、低空领航、广货匠造”等8条路线全新升级，面向广东省产业工人全面开放。
 
-公园保存着新元古代至新生代的连续地层，是亚洲东部近10亿年地质演化历史中地层序列最连续的地区之一，拥有中国首枚“金钉子”及大量笔石、三叶虫、牙形类等古生物化石。
+广东省总工会今年将组织2万人次在广州黄埔区开展专项实训，让产业工人置身智能产线、跟随工匠大师攻克生产难题，在真实产线中迭代实战技能，掌握硬核能力。
 
-究竟什么是“金钉子”？
+据介绍，今年，广东省总工会将重点支持指导地市开展“一市一品牌”实训路线建设，依托各地产业优势，吸纳专精特新“小巨人”、制造业单项冠军等优质企业资源，紧扣“百千万工程”“人工智能+”等重点领域需求，全年培育30条左右省级产业工人实训路线。
 
-常山地质公园管理中心党组成员、副主任秦海浪解释，地质学上的“金钉子”实际上是全球年代地层单位界线层型剖面和点位(GSSP)的俗称。
+同时，按照广东省统一品牌定位、视觉体系、IP形象及传播规范推进建设，塑造“广东实训路线”统一品牌形象，打造具有全国示范性的“粤工实训”赋能品牌。
 
 ## 相关推荐
 
-- 2026-06-29 22:39 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 22:47 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 22:49 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 23:00 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 22:43 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 22:52 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 22:47 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 22:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 22:48 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 22:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 22:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 22:57 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 22:46 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 22:51 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 22:47 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 23:03 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 22:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 22:48 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 22:56 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 23:05 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 22:42 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 22:44 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 22:47 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 22:56 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 23:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 23:03 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 23:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 22:48 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:54 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/30273.shtml)
-- 2026-06-29 22:58 - [我和我的家乡](https://www.blog.minike.top/Article/details/934008.shtml)
-- 2026-06-29 22:42 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/79360964.shtml)
-- 2026-06-29 22:42 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/00581088.shtml)
-- 2026-06-29 22:55 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/47911629.shtml)
-- 2026-06-29 23:03 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/0692802949.shtml)
-- 2026-06-29 22:53 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/5048370.shtml)
-- 2026-06-29 22:52 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/6518836627.shtml)
-- 2026-06-29 22:48 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/1894021.shtml)
-- 2026-06-29 22:48 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/60329.shtml)
-- 2026-06-29 22:39 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/571481.shtml)
-- 2026-06-29 22:48 - [被裁员后30岁儿子被抓去戒网瘾](http://www.share.minike.top/Article/details/30241.shtml)
-- 2026-06-29 22:50 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/388955.shtml)
-- 2026-06-29 22:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/5610110.shtml)
-- 2026-06-29 23:05 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/46309.shtml)
+- 2026-06-29 22:57 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/70716791.shtml)
+- 2026-06-29 22:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/2317110634.shtml)
+- 2026-06-29 22:49 - [一生一世](https://www.blog.minike.top/Article/details/4020940354.shtml)
+- 2026-06-29 23:03 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/964588531.shtml)
+- 2026-06-29 22:57 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/88844620741.shtml)
+- 2026-06-29 22:48 - [第一炉香](https://www.share.kurohicncr.top/Article/details/316902576509.shtml)
+- 2026-06-29 23:01 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/50515.shtml)
+- 2026-06-29 22:45 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/18556635.shtml)
+- 2026-06-29 22:54 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/2922269559.shtml)
+- 2026-06-29 23:00 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/664622.shtml)
+- 2026-06-29 23:09 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/002659.shtml)
+- 2026-06-29 22:59 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/901398025.shtml)
+- 2026-06-29 22:57 - [巴西10号球衣是天才传承史](http://www.blog.minike.top/Article/details/26164803062.shtml)
+- 2026-06-29 22:51 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/3683967.shtml)
+- 2026-06-29 23:10 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/20009.shtml)

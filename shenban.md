@@ -1,54 +1,46 @@
-# 国家医保局：累计将199种创新药纳入到医保报销范围
+# 台湾时事评论员黎建南：民族的力量挡不掉 文化的力量撼动不了
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-4月15日金融一线消息，国新办今日上午举行国务院政策例行吹风会，国家医保局医药价格和招标采购司司长王小宁表示，国家医保局始终旗帜鲜明支持医药创新，连续8年开展了医保目录谈判，累计将199种创新药纳入到医保报销范围。医保基金战略性购买为促进创新药发展发挥了关键性作用，截至今年2月份，医保基金累计为协议期内谈判药品支出5048亿元，带动销售7400亿元，惠及11.7亿人次。这是对创
+发布时间：2026年06月14日 20:43 来源：中国新闻网 以“俗同源”为主题的第十四届“同名村·心连心”联谊活动6月13日在福建厦门拉开帷幕。台湾时事评论员黎建南出席活动，在接受记者采访时，黎建南表示，民族的DNA先天性血缘你动摇不了的，民族的力量是挡不掉的，文化的力量是撼动不了的。(记者 吴晟炜) 责任编辑：【周驰】
 
 ## 正文
 
-4月15日金融一线消息，国新办今日上午举行国务院政策例行吹风会，国家医保局医药价格和招标采购司司长王小宁表示，国家医保局始终旗帜鲜明支持医药创新，连续8年开展了医保目录谈判，累计将199种创新药纳入到医保报销范围。
+发布时间：2026年06月14日 20:43 来源：中国新闻网 以“俗同源”为主题的第十四届“同名村·心连心”联谊活动6月13日在福建厦门拉开帷幕。
 
-医保基金战略性购买为促进创新药发展发挥了关键性作用，截至今年2月份，医保基金累计为协议期内谈判药品支出5048亿元，带动销售7400亿元，惠及11.7亿人次。
+台湾时事评论员黎建南出席活动，在接受记者采访时，黎建南表示，民族的DNA先天性血缘你动摇不了的，民族的力量是挡不掉的，文化的力量是撼动不了的。
 
-这是对创新药真金白银的支持。
-
-同时，我们增设商保创新药目录，引入了多元化的支付机制，推动医药产业走上重创新、强研发的发展道路。
-
-可以说，这几年不管是从医药行业的利润水平，还是研发投入，都保持了高速增长，医药工业利润总额年均增长11.3%，研发投入年均增长23%，医药创新已经成为新质生产力加快发展的前沿赛道。
-
-责任编辑：王馨茹
+(记者 吴晟炜) 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 22:40 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 22:37 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 22:43 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 22:48 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 23:04 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-29 22:36 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 23:02 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 23:03 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 22:59 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 22:51 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-29 22:46 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 22:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 23:01 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 22:50 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 23:02 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 23:07 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 23:05 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 22:44 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 23:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 22:44 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 22:48 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 23:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:53 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/678771.shtml)
-- 2026-06-29 22:36 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/516537782.shtml)
-- 2026-06-29 22:56 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/975254064552.shtml)
-- 2026-06-29 23:03 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/42292.shtml)
-- 2026-06-29 22:53 - [第一炉香](http://www.blog.minike.top/Article/details/8100644.shtml)
-- 2026-06-29 23:02 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/60359085357.shtml)
-- 2026-06-29 22:52 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.minike.top/Article/details/624985.shtml)
-- 2026-06-29 23:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/48724545295.shtml)
-- 2026-06-29 22:55 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/04020153442.shtml)
-- 2026-06-29 22:39 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/135429602.shtml)
-- 2026-06-29 22:48 - [福建海警位金门附近海域常态执法巡查](https://www.blog.minike.top/Article/details/359476399420.shtml)
-- 2026-06-29 22:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/301642137414.shtml)
-- 2026-06-29 22:43 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/58369.shtml)
-- 2026-06-29 22:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/544394125072.shtml)
-- 2026-06-29 22:40 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/6942535860.shtml)
+- 2026-06-29 22:46 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/79050843811.shtml)
+- 2026-06-29 23:10 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/424586026.shtml)
+- 2026-06-29 22:49 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/052190849486.shtml)
+- 2026-06-29 22:45 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/201968144672.shtml)
+- 2026-06-29 22:49 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/49780519474.shtml)
+- 2026-06-29 22:58 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/63194303119.shtml)
+- 2026-06-29 23:08 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/426996.shtml)
+- 2026-06-29 22:58 - [电影后室值得看吗](https://www.share.minike.top/Article/details/111783421432.shtml)
+- 2026-06-29 23:06 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/28888000.shtml)
+- 2026-06-29 22:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/972487602196.shtml)
+- 2026-06-29 23:06 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/165711.shtml)
+- 2026-06-29 22:44 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/3261807046.shtml)
+- 2026-06-29 22:55 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/790425.shtml)
+- 2026-06-29 23:11 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/88136.shtml)
+- 2026-06-29 22:54 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/9506636796.shtml)

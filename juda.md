@@ -1,56 +1,61 @@
-# 拉加德称经济处于欧洲央行的基准与不利情景之间
+# 调仓信号？“公募一哥”张坤，持续新动作！
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-欧洲央行行长克里斯蒂娜·拉加德表示，能源成本上升已使欧元区经济偏离央行的基准情景，但尚不足以构成倾向于加息的理由。 对于伊朗战争的影响，“我们目前介于基准和不利”情景之间，拉加德周二在华盛顿出席国际货币基金组织春季会议期间接受采访时表示。当被问及这是否意味着欧洲央行偏向于收紧货币政策时，她表示并非如此。 在这场持续逾六周的战争推动油价飙升并打击经济信心后，欧洲央行正评估需要采取
+文章来源：中新经纬 近日，广深铁路发布公告，易方达基金经理张坤在管规模最大的易方达蓝筹精选，成为该公司的第五大股东。根据过往公告，这是易方达蓝筹精选首次买入这只个股，并首次成为其前十大股东。 易方达蓝筹精选5月底增聘的基金经理杨思亮曾经持续重仓广深铁路。在业绩承压的情况下，易方达蓝筹精选的调仓幅度依然较小，此番买入广深铁路并增聘基金经理，是否意味着会发生改变？ 新搭档曾重仓广深
 
 ## 正文
 
-欧洲央行行长克里斯蒂娜·拉加德表示，能源成本上升已使欧元区经济偏离央行的基准情景，但尚不足以构成倾向于加息的理由。
+文章来源：中新经纬 近日，广深铁路发布公告，易方达基金经理张坤在管规模最大的易方达蓝筹精选，成为该公司的第五大股东。
 
-对于伊朗战争的影响，“我们目前介于基准和不利”情景之间，拉加德周二在华盛顿出席国际货币基金组织春季会议期间接受采访时表示。
+根据过往公告，这是易方达蓝筹精选首次买入这只个股，并首次成为其前十大股东。
 
-当被问及这是否意味着欧洲央行偏向于收紧货币政策时，她表示并非如此。
+易方达蓝筹精选5月底增聘的基金经理杨思亮曾经持续重仓广深铁路。
 
-在这场持续逾六周的战争推动油价飙升并打击经济信心后，欧洲央行正评估需要采取的行动。
+在业绩承压的情况下，易方达蓝筹精选的调仓幅度依然较小，此番买入广深铁路并增聘基金经理，是否意味着会发生改变？
 
-欧洲整体通胀跃升至2%的目标水平上方。
+新搭档曾重仓广深铁路 6月8日，广深铁路发布的公司前十大股东持股情况的公告显示，易方达蓝筹精选持有公司5000万股股票，持股比例约0.71%。
 
-关键问题在于这一涨势将持续多久。
+这份持股数据的股权登记日为2026年6月5日。
 
-市场普遍认为加息只是时间问题，但由于美伊和平谈判前景不明的，市场并不预计欧洲央行将在4月29日至30日的下一次会议上加息。
+今年5月初，广深铁路公布过2026年4月29日登记在册的前十大股东，当时还没有易方达蓝筹精选的身影。
 
-“我们必须保持完全灵活，准备好向需要的方向行动，”拉加德表示。
+易方达蓝筹精选2025年年报中披露的全部持股明细、2026年一季报中披露的前十大重仓股，均没有广深铁路。
 
 ## 相关推荐
 
-- 2026-06-29 22:57 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 22:37 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 22:38 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 22:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 22:45 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 22:56 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 22:41 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 23:02 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 22:45 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 22:39 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 23:11 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 23:02 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 22:48 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 23:07 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 22:57 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 23:09 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 22:46 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 22:46 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 22:52 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 23:03 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 23:06 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 23:03 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 23:04 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 23:07 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 23:10 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:41 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/371946537364.shtml)
-- 2026-06-29 22:51 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/426364.shtml)
-- 2026-06-29 22:46 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/62180086.shtml)
-- 2026-06-29 22:53 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/466435.shtml)
-- 2026-06-29 22:38 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/6326476926.shtml)
-- 2026-06-29 22:50 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/238507535.shtml)
-- 2026-06-29 22:45 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/423263483569.shtml)
-- 2026-06-29 22:52 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/33725931.shtml)
-- 2026-06-29 22:41 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/23975014.shtml)
-- 2026-06-29 23:03 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/614996840.shtml)
-- 2026-06-29 22:42 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/427328.shtml)
-- 2026-06-29 22:39 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/773567.shtml)
-- 2026-06-29 22:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/4969413.shtml)
-- 2026-06-29 23:00 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/8043916543.shtml)
-- 2026-06-29 23:00 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/24776530.shtml)
+- 2026-06-29 22:47 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/3995899321.shtml)
+- 2026-06-29 22:56 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/0570554.shtml)
+- 2026-06-29 22:50 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/23981.shtml)
+- 2026-06-29 22:42 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.minike.top/Article/details/34038627.shtml)
+- 2026-06-29 22:59 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/23296810.shtml)
+- 2026-06-29 23:08 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/229518912215.shtml)
+- 2026-06-29 22:55 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/2936802.shtml)
+- 2026-06-29 23:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/255415708.shtml)
+- 2026-06-29 22:58 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/2414155.shtml)
+- 2026-06-29 23:06 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/36429.shtml)
+- 2026-06-29 22:54 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.minike.top/Article/details/740634.shtml)
+- 2026-06-29 23:04 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/14299258.shtml)
+- 2026-06-29 22:50 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/929922083664.shtml)
+- 2026-06-29 23:03 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/850462115453.shtml)
+- 2026-06-29 23:07 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/197455506.shtml)

@@ -1,48 +1,57 @@
-# 04月15日丙二醇11466.67元/吨 10天上涨8.86%
+# 抢收、抢种、收购……从“三夏”麦收地图看夏粮收获好“丰”光
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-丙二醇04月15日最新价格11466.67元/吨，最近10天上涨8.86%，20天上涨23.74%，30天上涨57.80%，60天上涨92.72%。相关生产商有：石大胜华(603026)海科新源(301292)维远股份(600955)万华化学(600309)等。
+央视网消息：农业农村部最新小麦机收进度显示，麦收地区大部持续晴热天气，局地有短时阵雨，山东、河北、山西、陕西等省组织机具紧盯成熟麦田推进抢收，已有联合收割机向西北麦区转移。目前，全国小麦收获进度85%。据农业农村部最新小麦机收进度，截至6月13日17时，全国已收获夏粮小麦2.88亿亩，收获进度85%。江苏麦收基本结束，山东麦收进度过八成，河北麦收进度近七成，陕西麦收进度过六成半
 
 ## 正文
 
-丙二醇04月15日最新价格11466.67元/吨，最近10天上涨8.86%，20天上涨23.74%，30天上涨57.80%，60天上涨92.72%。
+央视网消息：农业农村部最新小麦机收进度显示，麦收地区大部持续晴热天气，局地有短时阵雨，山东、河北、山西、陕西等省组织机具紧盯成熟麦田推进抢收，已有联合收割机向西北麦区转移。
 
-相关生产商有：石大胜华(603026)海科新源(301292)维远股份(600955)万华化学(600309)等。
+目前，全国小麦收获进度85%。
+
+据农业农村部最新小麦机收进度，截至6月13日17时，全国已收获夏粮小麦2.88亿亩，收获进度85%。
+
+江苏麦收基本结束，山东麦收进度过八成，河北麦收进度近七成，陕西麦收进度过六成半，山西麦收进度过五成，新疆、甘肃小麦零星收获。
+
+气象部门预计，6月14—16日，麦收地区大部天气晴好，山东、山西及华北北部局地有阵雨，麦收地区应加强机具调度和服务保障，利用晴好天气推进麦收进度，同时压茬推进秋粮机播，为全年粮食丰收夯实基础。
+
+河北望都：麦田连夜抢收应对强降雨 据气象部门预报，近期河北将迎来大范围强降雨、强对流天气，局部还会出现冰雹。
+
+面对天气考验，河北依托科技手段昼夜奋战抢收小麦，目前麦收进度已过半。
+
+眼下，保定市望都县29.8万亩小麦迎来集中收割期。
 
 ## 相关推荐
 
-- 2026-06-29 22:39 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 23:03 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 22:47 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 22:51 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 22:50 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 22:49 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 22:37 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 22:59 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 22:42 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 22:38 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 22:38 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 22:45 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 23:00 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 22:59 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 22:52 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 22:54 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 23:04 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 22:56 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 22:54 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 23:04 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 22:54 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 23:09 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 22:43 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 23:07 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 23:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:59 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/8502251354.shtml)
-- 2026-06-29 22:42 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/22940035.shtml)
-- 2026-06-29 23:01 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/84102814.shtml)
-- 2026-06-29 22:47 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/599780505.shtml)
-- 2026-06-29 22:57 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/453516.shtml)
-- 2026-06-29 23:03 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/034289.shtml)
-- 2026-06-29 23:02 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/47139.shtml)
-- 2026-06-29 23:00 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/44464177295.shtml)
-- 2026-06-29 22:43 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.kurohicncr.top/Article/details/238421830494.shtml)
-- 2026-06-29 22:50 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/59465.shtml)
-- 2026-06-29 22:54 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/15834.shtml)
-- 2026-06-29 22:52 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/95582350.shtml)
-- 2026-06-29 23:00 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/70604466.shtml)
-- 2026-06-29 22:50 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/7367364775.shtml)
-- 2026-06-29 22:36 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/5738407.shtml)
+- 2026-06-29 23:11 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/73573046920.shtml)
+- 2026-06-29 22:59 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/01226.shtml)
+- 2026-06-29 22:52 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/78045.shtml)
+- 2026-06-29 23:11 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/586066.shtml)
+- 2026-06-29 22:57 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/4977694470.shtml)
+- 2026-06-29 23:08 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/9671103193.shtml)
+- 2026-06-29 22:55 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/454869880350.shtml)
+- 2026-06-29 22:52 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/39596044518.shtml)
+- 2026-06-29 22:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/200471906720.shtml)
+- 2026-06-29 23:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/73847.shtml)
+- 2026-06-29 23:06 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/6116967777.shtml)
+- 2026-06-29 22:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/49766.shtml)
+- 2026-06-29 22:57 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/9050156.shtml)
+- 2026-06-29 22:58 - [沙丘](https://www.blog.minike.top/Article/details/8146073639.shtml)
+- 2026-06-29 22:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/061056199406.shtml)

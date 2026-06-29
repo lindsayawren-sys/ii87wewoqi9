@@ -1,50 +1,55 @@
-# 2026上海市民艺术夜校春季班开班 外籍人士定制课搭起文化交融桥
+# 美军一架B-52战略轰炸机坠毁，机上8人恐无人生还
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 10:43 来源：中国新闻网 4月14日，2026年上海市民艺术夜校春季班国潮非遗手作外籍人士专属课程在位于上海的华漕国际社区中心正式开课。首期10名学员中，外籍学员占5人，通过系统学习非遗制作流程，直观感受中华优秀传统文化的独特魅力。 据介绍，课程聚焦国潮与非遗融合，精选掐丝珐琅、彩绘葫芦、海派绣球、非遗刻制等代表性项目，将传统技艺与现代国潮
+中新网6月16日电 据英国《卫报》报道，美国军方称，美军一架B-52轰炸机当地时间15日在加利福尼亚州莫哈韦沙漠的一处基地起飞后不久坠毁，机上8人被推定死亡。 报道称 ，美军在社交平台X上表示：“一架载有8人的空军B-52轰炸机今天上午11点20分起飞后不久坠毁。初步迹象表明，此次事故无人生还。应急救援人员已抵达现场，相关部门正在核实所有人员的情况。” 现场视频显示，沙漠中升起
 
 ## 正文
 
-发布时间：2026年04月15日 10:43 来源：中国新闻网 4月14日，2026年上海市民艺术夜校春季班国潮非遗手作外籍人士专属课程在位于上海的华漕国际社区中心正式开课。
+中新网6月16日电 据英国《卫报》报道，美国军方称，美军一架B-52轰炸机当地时间15日在加利福尼亚州莫哈韦沙漠的一处基地起飞后不久坠毁，机上8人被推定死亡。
 
-首期10名学员中，外籍学员占5人，通过系统学习非遗制作流程，直观感受中华优秀传统文化的独特魅力。
+报道称 ，美军在社交平台X上表示：“一架载有8人的空军B-52轰炸机今天上午11点20分起飞后不久坠毁。
 
-据介绍，课程聚焦国潮与非遗融合，精选掐丝珐琅、彩绘葫芦、海派绣球、非遗刻制等代表性项目，将传统技艺与现代国潮审美相结合。
+初步迹象表明，此次事故无人生还。
 
-记者 徐银 康玉湛 上海报道 责任编辑：【周驰】
+应急救援人员已抵达现场，相关部门正在核实所有人员的情况。
+
+” 现场视频显示，沙漠中升起一股巨大的黑色浓烟。
+
+B-52战略轰炸机绰号“同温层堡垒”，通常由5名机组人员驾驶，可搭载核武器以及多种精确制导武器，自1955年起服役至今。
 
 ## 相关推荐
 
-- 2026-06-29 22:38 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 22:56 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 22:36 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 22:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 22:58 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 22:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 22:52 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 22:40 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 22:41 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 22:49 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 22:50 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 22:42 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 23:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 22:55 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 22:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 22:48 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 22:52 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 23:05 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 22:44 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 22:48 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 22:48 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 23:04 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 23:04 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 23:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 22:44 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:50 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/64326141.shtml)
-- 2026-06-29 22:44 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/620388904.shtml)
-- 2026-06-29 23:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/670760971.shtml)
-- 2026-06-29 22:42 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/55291540.shtml)
-- 2026-06-29 23:02 - [美人鱼](http://www.blog.minike.top/Article/details/65722019724.shtml)
-- 2026-06-29 22:53 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/5037796087.shtml)
-- 2026-06-29 22:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/36475042436.shtml)
-- 2026-06-29 22:56 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/3694076446.shtml)
-- 2026-06-29 22:52 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/972363994.shtml)
-- 2026-06-29 22:51 - [欧洲缘何成为变暖最快的大洲](https://www.blog.minike.top/Article/details/219598.shtml)
-- 2026-06-29 22:44 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/6290777042.shtml)
-- 2026-06-29 23:01 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/80092171382.shtml)
-- 2026-06-29 23:04 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/411405.shtml)
-- 2026-06-29 22:50 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/616820069.shtml)
-- 2026-06-29 22:53 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/4728997.shtml)
+- 2026-06-29 23:06 - [速度与激情9](https://www.blog.minike.top/Article/details/13645667015.shtml)
+- 2026-06-29 22:48 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/08240480.shtml)
+- 2026-06-29 22:44 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/0423805928.shtml)
+- 2026-06-29 22:54 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/969318.shtml)
+- 2026-06-29 23:00 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/74021716.shtml)
+- 2026-06-29 22:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/506773.shtml)
+- 2026-06-29 23:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/32229229724.shtml)
+- 2026-06-29 22:53 - [法拉利车主已自行承担修理费近3万](http://www.share.minike.top/Article/details/68153925.shtml)
+- 2026-06-29 23:05 - [日防卫省正考虑引进美企人工智能系统](https://www.share.minike.top/Article/details/440583455.shtml)
+- 2026-06-29 22:49 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/712421847.shtml)
+- 2026-06-29 22:45 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/48304.shtml)
+- 2026-06-29 23:10 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/8103421747.shtml)
+- 2026-06-29 22:57 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/57641534701.shtml)
+- 2026-06-29 23:06 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/1658487390.shtml)
+- 2026-06-29 22:56 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/64126856.shtml)

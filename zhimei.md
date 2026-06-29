@@ -1,56 +1,59 @@
-# 中信建投期货：4月16日能化早报
+# （聚焦海峡论坛）第二届海峡慈善论坛在福州开幕
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-橡胶：风险仍存 周三，国产全乳胶16600/吨，环比上日持平；泰国20号混合胶15950元/吨，环比上日上涨50元/吨。 原料端：泰国宋干节假期，原料市场休市；云南胶水报收15.9元/公斤，环比上日持平；海南胶水报收15.8元/公斤，环比上日持平。 截至2026年4月12日，中国天然橡胶社会库存135.1万吨，环比增加0.53万吨，增幅0.4%。中国深色胶社会总库存为93万吨，
+中新社福州6月15日电 (叶秋云)第十八届海峡论坛·第二届海峡慈善论坛15日在福建福州开幕。来自海峡两岸及港澳地区的慈善领域专家学者、公益慈善组织负责人等近500人与会。 台湾旺旺集团副董事长周锡玮在开幕式致辞中分享了他与福建的渊源及参与公益慈善的故事。他在接受中新社采访时表示，大陆始终以善意对待两岸同胞，尤其关心台湾农民、渔民等群体的需求，每当台湾农产品滞销或遭遇灾害、困境时
 
 ## 正文
 
-橡胶：风险仍存 周三，国产全乳胶16600/吨，环比上日持平；泰国20号混合胶15950元/吨，环比上日上涨50元/吨。
+中新社福州6月15日电 (叶秋云)第十八届海峡论坛·第二届海峡慈善论坛15日在福建福州开幕。
 
-原料端：泰国宋干节假期，原料市场休市；云南胶水报收15.9元/公斤，环比上日持平；海南胶水报收15.8元/公斤，环比上日持平。
+来自海峡两岸及港澳地区的慈善领域专家学者、公益慈善组织负责人等近500人与会。
 
-截至2026年4月12日，中国天然橡胶社会库存135.1万吨，环比增加0.53万吨，增幅0.4%。
+台湾旺旺集团副董事长周锡玮在开幕式致辞中分享了他与福建的渊源及参与公益慈善的故事。
 
-中国深色胶社会总库存为93万吨，增0.9%。
+他在接受中新社采访时表示，大陆始终以善意对待两岸同胞，尤其关心台湾农民、渔民等群体的需求，每当台湾农产品滞销或遭遇灾害、困境时，大陆都会主动伸出援手。
 
-其中青岛现货库存增2%；云南降2.3%；越南10降18.9%；NR库存小计降0.45%。
+论坛上，7位来自海峡两岸及港澳地区的专家学者、慈善业界代表围绕“公益慈善与人心融合”等议题，就慈善事业创新、两岸公益协作、基层社会治理等内容发表主题演讲。
 
-中国浅色胶社会总库存为42.1万吨，环比降0.7%。
+台胞杨文山回忆了其在2009年汶川大地震一周年之际赴汶川大地震灾区捐赠台商台企物资的经历。
 
-其中老全乳胶环比降0.86%，3L环比降4.6%，RU库存小计增1.4%。
+他说，慈善是心与心、生命对生命的碰触，“我体会到公益带来的温暖，也真切感受到与大陆土地、同胞紧密相连的归属感”。
 
-观点：近期偏北产区（泰国东北部、越南、国内云南海南）迎来持续的高温天气，国内产区暂停开割，科特迪瓦与印尼南部未出现明显少雨天气，目前出现比较明显干旱的产区占比全球产量的比例大约30%（泰国东北15%，越南9%，国内6%），集中在主产浅色胶与乳胶的产区。
+福建省海峡两岸助残志愿者协会会长王永澄介绍，协会成立近一年来，聚焦两岸残疾人群体实际需求，在福建推动设立两岸残疾人养老示范点与盲人按摩医院，联动福建本地院校推进盲人特色科教班落地，推动两岸残疾人证件互通、职业技能联合培训等，在扶危济困中增进两岸同胞情谊，在守望相助中凝聚融合共识。
 
 ## 相关推荐
 
-- 2026-06-29 22:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 23:03 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 22:37 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 22:58 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 22:38 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 22:37 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 23:01 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 22:56 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 22:46 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 22:54 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 22:50 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 22:51 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 23:08 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 22:52 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 22:51 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 22:50 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 22:43 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 22:57 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 23:09 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 22:48 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 22:49 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 22:50 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 22:49 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:43 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/195603100.shtml)
-- 2026-06-29 22:51 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/893955.shtml)
-- 2026-06-29 22:58 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/50549.shtml)
-- 2026-06-29 22:56 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/971186879860.shtml)
-- 2026-06-29 22:51 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/7212972961.shtml)
-- 2026-06-29 22:58 - [刘念回应](http://www.share.kurohicncr.top/Article/details/998764256.shtml)
-- 2026-06-29 22:36 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/851402008.shtml)
-- 2026-06-29 22:52 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/28288.shtml)
-- 2026-06-29 22:39 - [炽夏](https://www.share.kurohicncr.top/Article/details/6072456.shtml)
-- 2026-06-29 23:03 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/202886.shtml)
-- 2026-06-29 22:37 - [恋与深空 日服](https://www.blog.minike.top/Article/details/88955.shtml)
-- 2026-06-29 23:05 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/7218026466.shtml)
-- 2026-06-29 22:41 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/94958735.shtml)
-- 2026-06-29 22:53 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/44792953806.shtml)
-- 2026-06-29 22:57 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/347359151.shtml)
+- 2026-06-29 22:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/67320373123.shtml)
+- 2026-06-29 22:43 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/472371.shtml)
+- 2026-06-29 22:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/18211.shtml)
+- 2026-06-29 22:48 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/1495676952.shtml)
+- 2026-06-29 23:01 - [青春环游记第三季](http://www.blog.minike.top/Article/details/212619.shtml)
+- 2026-06-29 22:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/857683.shtml)
+- 2026-06-29 22:48 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/611761673540.shtml)
+- 2026-06-29 22:48 - [存储三巨头被告了](https://www.share.minike.top/Article/details/028748730407.shtml)
+- 2026-06-29 23:10 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/359280864197.shtml)
+- 2026-06-29 22:48 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/446464.shtml)
+- 2026-06-29 23:02 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/54123642676.shtml)
+- 2026-06-29 23:09 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/216667252.shtml)
+- 2026-06-29 22:42 - [乌克兰发广告全球征兵](https://www.share.minike.top/Article/details/4327078.shtml)
+- 2026-06-29 23:09 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/78982.shtml)
+- 2026-06-29 22:46 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/582647.shtml)

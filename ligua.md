@@ -1,60 +1,60 @@
-# 伦敦铜价抹去伊朗冲突以来跌幅 交易员关注和平谈判和需求
+# 瑞威资管拟合计4000万元收购两只智能驾驶主题基金合伙份额
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-得益于进一步进行和平谈判的计划以及电气化项目的需求，铜价上涨，抹去了六周前中东冲突爆发以后所遭受的损失。 伦敦铜价周三上涨0.8%，价格超过了伊朗冲突爆发前一天，即2月27日每吨13，343.50美元的收盘价。 自冲突爆发以来，大多数基本金属价格剧烈波动，最初价格下跌是由于市场担忧经济增长放缓。上周达成临时停火协议后，市场风险偏好回升，而有关华盛顿和德黑兰正寻求安排第二轮谈判的
+瑞威资管（01835）公布，于2026年6月15日（交易时段前），该公司拟分别向刘坤先生及刘冬梅女士收购宁波辰韬基金的资本承担总额约16.99%、嘉兴实诺基金的资本承担总额约44.12%，代价分别为2500万元、1500万元。 宁波辰韬基金为一间于2018年8月10日在中国成立的有限合伙企业，其投资目标为通过对专注于智能驾驶及具身智能领域的公司进行私募股权投资，以实现长期资本增
 
 ## 正文
 
-得益于进一步进行和平谈判的计划以及电气化项目的需求，铜价上涨，抹去了六周前中东冲突爆发以后所遭受的损失。
+瑞威资管（01835）公布，于2026年6月15日（交易时段前），该公司拟分别向刘坤先生及刘冬梅女士收购宁波辰韬基金的资本承担总额约16.99%、嘉兴实诺基金的资本承担总额约44.12%，代价分别为2500万元、1500万元。
 
-伦敦铜价周三上涨0.8%，价格超过了伊朗冲突爆发前一天，即2月27日每吨13，343.50美元的收盘价。
+宁波辰韬基金为一间于2018年8月10日在中国成立的有限合伙企业，其投资目标为通过对专注于智能驾驶及具身智能领域的公司进行私募股权投资，以实现长期资本增值。
 
-自冲突爆发以来，大多数基本金属价格剧烈波动，最初价格下跌是由于市场担忧经济增长放缓。
+于本公告日期，所有合伙人对宁波辰韬基金的资本承担总额为人民币5亿元。
 
-上周达成临时停火协议后，市场风险偏好回升，而有关华盛顿和德黑兰正寻求安排第二轮谈判的报道，进一步增强了这种情绪。
+普通合伙人负责宁波辰韬基金的管理、控制及营运，包括作出投资及撤资决策。
 
-“所有推动铜价上涨的大趋势现在都将得到极大加强。
+嘉兴实诺基金为一间于2022年2月22日在中国成立的有限合伙企业，其投资目标为通过对专注于智能驾驶领域的公司进行私募股权投资，以实现长期资本增值。
 
-”托克分析师Henry Van说，“现在比以往任何时候都更有动力推进电气化，并使能源消耗免受地缘政治冲击的影响。
+于本公告日期，所有合伙人对嘉兴实诺基金的资本承担总额为人民6200万元。
 
-” 截至北京时间10：32，伦敦金属交易所（LME）铜价上涨0.3%，至每吨13，319美元。
+普通合伙人负责嘉兴实诺基金的管理、控制及营运，包括作出投资及撤资决策。
 
-铝价上涨0.6%，至每吨3，583.50美元。
+公司认为，收购事项将为公司提供机会，通过收购目标基金的有限合伙权益投资于智能驾驶及具身智能领域的一系列项目，从而进入高增长科技领域的基金管理业务。
 
 ## 相关推荐
 
-- 2026-06-29 22:57 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 22:53 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 22:59 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 22:51 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 22:50 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 22:49 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 22:39 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 22:43 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 23:02 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 22:56 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 22:52 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 22:45 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 22:48 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 22:41 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 22:50 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 23:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 22:49 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 22:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 23:03 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 22:49 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 22:44 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 22:54 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 22:59 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 23:03 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 22:55 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 22:57 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 22:59 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 22:59 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [任泽平：AI浪潮刚刚开始](https://www.share.kurohicncr.top/Article/details/70809612731.shtml)
-- 2026-06-29 22:40 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/92781455.shtml)
-- 2026-06-29 22:54 - [千与千寻](https://www.share.minike.top/Article/details/690123451.shtml)
-- 2026-06-29 23:00 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/228272036.shtml)
-- 2026-06-29 22:54 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/364042.shtml)
-- 2026-06-29 23:04 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/503276.shtml)
-- 2026-06-29 22:47 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/344320940.shtml)
-- 2026-06-29 22:37 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/76713960.shtml)
-- 2026-06-29 22:45 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/975962085817.shtml)
-- 2026-06-29 22:56 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/93388.shtml)
-- 2026-06-29 22:59 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/229565618889.shtml)
-- 2026-06-29 23:03 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/36633426.shtml)
-- 2026-06-29 23:03 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/834711.shtml)
-- 2026-06-29 22:42 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/9960883810.shtml)
-- 2026-06-29 22:37 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/13701691.shtml)
+- 2026-06-29 23:08 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/39984917.shtml)
+- 2026-06-29 22:47 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/835406816843.shtml)
+- 2026-06-29 22:42 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/367958439.shtml)
+- 2026-06-29 22:43 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/72877.shtml)
+- 2026-06-29 23:00 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/9836202.shtml)
+- 2026-06-29 23:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/7510203993.shtml)
+- 2026-06-29 22:52 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/0731167.shtml)
+- 2026-06-29 23:10 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/83598126209.shtml)
+- 2026-06-29 23:04 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/270431.shtml)
+- 2026-06-29 22:48 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/54980233714.shtml)
+- 2026-06-29 23:02 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/7782903.shtml)
+- 2026-06-29 22:43 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/362509893618.shtml)
+- 2026-06-29 23:02 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/7037396.shtml)
+- 2026-06-29 23:08 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/4736383592.shtml)
+- 2026-06-29 23:00 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/54864881300.shtml)

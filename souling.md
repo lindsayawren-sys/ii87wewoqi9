@@ -1,59 +1,60 @@
-# 国晟科技，浑身是谜
+# 绿电点亮南博会 更连通澜湄万家灯火
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：达观商评 过去24小时，A股最大的瓜恐怕非国晟科技（维权）莫属了。 昨天晚上，光伏电池赛道超级黑马国晟科技突发公告，原定2.4亿收购铜陵孚悦科技100%股权的事项泡汤了，原因是作为收购款项来源的并购贷款泡汤了。 一句话，没筹够钱，这媳妇没法娶了。公告发布后，今天股价一字跌停，众多追高的小散一夜无眠。
+中新网昆明6月14日电 (记者 韩帅南)灵活舞动的机器人、闪耀的灯光、震撼的音响……14日，在第10届中国—南亚博览会(南博会)场馆中，这些设备都由绿色能源驱动。中国华能集团有限公司已连续4年为南博会提供全量绿电保障。 绿色电力不止点亮南博会，中国企业也将绿电带到老挝、柬埔寨、缅甸等周边国家。在柬埔寨，中国华能建成装机40万千瓦的桑河二级水电站，极大缓解当地供电不足。今年4月，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网昆明6月14日电 (记者 韩帅南)灵活舞动的机器人、闪耀的灯光、震撼的音响……14日，在第10届中国—南亚博览会(南博会)场馆中，这些设备都由绿色能源驱动。
 
-来源：达观商评 过去24小时，A股最大的瓜恐怕非国晟科技（维权）莫属了。
+中国华能集团有限公司已连续4年为南博会提供全量绿电保障。
 
-昨天晚上，光伏电池赛道超级黑马国晟科技突发公告，原定2.4亿收购铜陵孚悦科技100%股权的事项泡汤了，原因是作为收购款项来源的并购贷款泡汤了。
+绿色电力不止点亮南博会，中国企业也将绿电带到老挝、柬埔寨、缅甸等周边国家。
 
-一句话，没筹够钱，这媳妇没法娶了。
+在柬埔寨，中国华能建成装机40万千瓦的桑河二级水电站，极大缓解当地供电不足。
 
-公告发布后，今天股价一字跌停，众多追高的小散一夜无眠。
+今年4月，中广核老挝北部清洁能源基地一期100万千瓦光伏项目并网，不仅保障当地用电，更支撑起产业升级。
 
-事实上，对总市值逼近200亿元的国晟科技而言，这并非多大的一次收购。
+“过去我的工厂经常用柴油发电，成本高，排烟也不环保。
 
-区区2.4亿，国晟科技真的拿不出来吗？
+”南博会参展商黄文强来自越南南部，他对中国的绿色能源合作项目感触颇深。
 
-先算一笔账。
+黄文强说，他的家乡风力资源丰富，但几年前却是“缺电重灾区”。
 
 ## 相关推荐
 
-- 2026-06-29 22:38 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 22:39 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 22:59 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 22:50 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 22:42 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 22:45 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 23:05 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 23:05 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 22:54 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 22:54 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 23:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 22:53 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 22:40 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 23:08 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 22:55 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 22:50 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 23:00 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 23:00 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 22:54 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 22:49 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 22:44 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 23:05 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 22:44 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 22:59 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 23:00 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 22:48 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 22:59 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:56 - [刘念回应](https://www.share.minike.top/Article/details/508219417.shtml)
-- 2026-06-29 22:50 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/39539.shtml)
-- 2026-06-29 22:51 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/253131579.shtml)
-- 2026-06-29 22:41 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/73092.shtml)
-- 2026-06-29 22:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/86988511.shtml)
-- 2026-06-29 22:50 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/70342909.shtml)
-- 2026-06-29 23:00 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/39702184921.shtml)
-- 2026-06-29 23:02 - [一生一世](https://www.blog.kurohicncr.top/Article/details/5238613.shtml)
-- 2026-06-29 22:44 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/79853189.shtml)
-- 2026-06-29 22:48 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/43839644.shtml)
-- 2026-06-29 22:48 - [月亮](http://www.share.kurohicncr.top/Article/details/34920.shtml)
-- 2026-06-29 22:42 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/7570620072.shtml)
-- 2026-06-29 23:04 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/20154.shtml)
-- 2026-06-29 23:04 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/066323.shtml)
-- 2026-06-29 22:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/14312529222.shtml)
+- 2026-06-29 23:02 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/1648292283.shtml)
+- 2026-06-29 22:55 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/986498848.shtml)
+- 2026-06-29 23:00 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.minike.top/Article/details/6991272.shtml)
+- 2026-06-29 23:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/5558363.shtml)
+- 2026-06-29 22:43 - [演员都来上音综的原因](http://www.share.kurohicncr.top/Article/details/95862294.shtml)
+- 2026-06-29 22:56 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/55741483152.shtml)
+- 2026-06-29 23:11 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/377115631.shtml)
+- 2026-06-29 23:07 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/111861.shtml)
+- 2026-06-29 22:43 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/774948179104.shtml)
+- 2026-06-29 23:00 - [起风了](https://www.blog.minike.top/Article/details/48744429.shtml)
+- 2026-06-29 22:42 - [女心理师](http://www.share.minike.top/Article/details/89354362559.shtml)
+- 2026-06-29 22:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/9461607.shtml)
+- 2026-06-29 22:52 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/042734.shtml)
+- 2026-06-29 22:58 - [急先锋](https://www.share.kurohicncr.top/Article/details/638187541226.shtml)
+- 2026-06-29 22:59 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/8851202893.shtml)

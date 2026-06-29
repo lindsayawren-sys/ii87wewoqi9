@@ -1,59 +1,56 @@
-# 美伊寻求进一步和谈 霍尔木兹海峡局势仍高度紧张
+# 3800公里最远西迁 39头江苏大丰麋鹿落户天山
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-尽管围绕霍尔木兹海峡的对峙不断升级，但据报道，美国和伊朗更接近于延长停火，并重启有关长期和平协议的谈判。 媒体援引未具名地区官员报道称，在上周末于巴基斯坦举行、但未取得明确结果的首轮会谈后，双方已“原则上同意”继续推进外交磋商。报道称，在4月7日宣布的停火协议将于下周到期前，斡旋方正推动双方就包括霍尔木兹海峡和伊朗核计划在内的悬而未决问题达成妥协。 美国总统唐纳德·特朗普周二淡
+6月13日晚6:45，经过三天两晚长途跋涉，39头来自江苏大丰麋鹿国家级自然保护区的麋鹿，顺利抵达新疆天山野生动物园，正式开启在天山脚下的迁地保护生活。 这是东西部携手开展野生动物保护丰富区域生物多样性的又一次重要实践，源自黄海之滨的麋鹿种群，在西域大地开启繁衍新生的新征程。 3800公里西迁创下麋鹿迁地保护最远纪录 这批麋鹿从黄海之滨大丰启程，全程3800公里，这也是国内迄今
 
 ## 正文
 
-尽管围绕霍尔木兹海峡的对峙不断升级，但据报道，美国和伊朗更接近于延长停火，并重启有关长期和平协议的谈判。
+6月13日晚6:45，经过三天两晚长途跋涉，39头来自江苏大丰麋鹿国家级自然保护区的麋鹿，顺利抵达新疆天山野生动物园，正式开启在天山脚下的迁地保护生活。
 
-媒体援引未具名地区官员报道称，在上周末于巴基斯坦举行、但未取得明确结果的首轮会谈后，双方已“原则上同意”继续推进外交磋商。
+这是东西部携手开展野生动物保护丰富区域生物多样性的又一次重要实践，源自黄海之滨的麋鹿种群，在西域大地开启繁衍新生的新征程。
 
-报道称，在4月7日宣布的停火协议将于下周到期前，斡旋方正推动双方就包括霍尔木兹海峡和伊朗核计划在内的悬而未决问题达成妥协。
+3800公里西迁创下麋鹿迁地保护最远纪录 这批麋鹿从黄海之滨大丰启程，全程3800公里，这也是国内迄今为止距离最远的一次麋鹿跨区域迁地保护行动，创下我国麋鹿迁地保护最远纪录。
 
-美国总统唐纳德·特朗普周二淡化了战事再起的可能性。
+6月11日清晨7点，江苏大丰麋鹿国家级自然保护区工作人员为鹿群逐一完成疫苗接种，并挑选一头麋鹿佩戴GPS项圈，全时追踪其行进状态。
 
-他在接受福克斯商业台采访时表示，这场持续近七周的战争“接近结束”。
+为最大程度减少惊扰，保护区专门设计“L”字形转运通道，配合挡板实现缓压引导，让麋鹿平稳步入运输车厢。
 
-不过，霍尔木兹海峡局势仍高度紧张。
+“此次远行的39头麋鹿平均年龄为5岁，其中雄性13头、雌性26头，全部通过严格体检，身体状态良好。
 
-美国海军封锁切断了伊朗经由这条战略水道出口石油的通道，而德黑兰则继续禁止其他货运船只通过该海峡。
+”保护区工作人员介绍，考虑到麋鹿生性敏感胆小，极易产生应激反应，车厢内铺设软稻草、备足草料与饮用水，安排兽医全程随行。
 
-据伊朗国家电视台报道，伊朗联合军事总部指挥官Ali Abdollahi表示，若美国延长封锁，伊朗将视之为“破坏停火协议的前奏”。
+长途运输全程，麋鹿得到专业管护。
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 22:58 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 22:39 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 22:45 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 22:48 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 23:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 22:51 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 22:55 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 22:55 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 22:38 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 22:57 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 22:38 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 23:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 23:12 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 22:52 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 23:06 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 22:55 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 23:03 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 22:47 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 22:45 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 23:10 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 23:04 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 23:00 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:52 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/56055660.shtml)
-- 2026-06-29 23:01 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/528694036.shtml)
-- 2026-06-29 22:57 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/24089.shtml)
-- 2026-06-29 22:47 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/4701018290.shtml)
-- 2026-06-29 22:51 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/52177519.shtml)
-- 2026-06-29 23:04 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/3366058.shtml)
-- 2026-06-29 22:55 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/84109.shtml)
-- 2026-06-29 22:53 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/4357531.shtml)
-- 2026-06-29 22:57 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/18439.shtml)
-- 2026-06-29 22:37 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/35897.shtml)
-- 2026-06-29 22:50 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/452266402088.shtml)
-- 2026-06-29 23:02 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/05224.shtml)
-- 2026-06-29 22:46 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/4717958.shtml)
-- 2026-06-29 22:55 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/932636.shtml)
-- 2026-06-29 22:55 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/312193597314.shtml)
+- 2026-06-29 22:50 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/969093843.shtml)
+- 2026-06-29 22:44 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/61724101962.shtml)
+- 2026-06-29 23:10 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/30128762.shtml)
+- 2026-06-29 22:55 - [炽夏](http://www.share.kurohicncr.top/Article/details/454125.shtml)
+- 2026-06-29 22:48 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/162667.shtml)
+- 2026-06-29 23:07 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/6150630677.shtml)
+- 2026-06-29 23:01 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/8732714536.shtml)
+- 2026-06-29 22:59 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.minike.top/Article/details/2285732.shtml)
+- 2026-06-29 22:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/6371723.shtml)
+- 2026-06-29 22:57 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/7333199664.shtml)
+- 2026-06-29 22:59 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/52172185707.shtml)
+- 2026-06-29 22:56 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/12007072200.shtml)
+- 2026-06-29 22:59 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/515137.shtml)
+- 2026-06-29 23:05 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/68303252.shtml)
+- 2026-06-29 23:09 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/68922286.shtml)

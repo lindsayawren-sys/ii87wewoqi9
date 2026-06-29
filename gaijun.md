@@ -1,55 +1,58 @@
-# 日本财务大臣会见美国财长，同意加强汇率沟通
+# 1至5月国家铁路发送货物16.7亿吨 同比增长1.8%
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-日本财务大臣片山皋月周三与美国财长斯科特·贝森特会晤后表示，日美两国同意加强汇率沟通。 片山皋月此次访美是为了出席国际货币基金组织（IMF）年会以及七国集团（G7）和二十国集团（G20）财长会议。她在X账号上发表了上述言论。 日本决策者已多次口头警告，近期日元贬值将推高进口成本，加剧本已不断攀升的通胀压力。 日元疲软也可能加剧油价上涨的影响，因为日本严重依赖能源进口。 片山皋月
+中新网6月14日电 据“中国铁路”微信公众号消息，今年1至5月，国家铁路累计发送货物16.7亿吨，同比增长1.8%；日均装车18.63万车，同比增长2.8%，其中5月2日装车20.24万车，创单日装车历史新高。“中国铁路物流”品牌影响力和市场竞争力持续提升，为降低全社会物流成本、保障国民经济平稳运行注入了新动能。一是铁路物流产品丰富完善。发挥中国多式联运发展联盟作用，以市场需求
 
 ## 正文
 
-日本财务大臣片山皋月周三与美国财长斯科特·贝森特会晤后表示，日美两国同意加强汇率沟通。
+中新网6月14日电 据“中国铁路”微信公众号消息，今年1至5月，国家铁路累计发送货物16.7亿吨，同比增长1.8%；日均装车18.63万车，同比增长2.8%，其中5月2日装车20.24万车，创单日装车历史新高。
 
-片山皋月此次访美是为了出席国际货币基金组织（IMF）年会以及七国集团（G7）和二十国集团（G20）财长会议。
+“中国铁路物流”品牌影响力和市场竞争力持续提升，为降低全社会物流成本、保障国民经济平稳运行注入了新动能。
 
-她在X账号上发表了上述言论。
+一是铁路物流产品丰富完善。
 
-日本决策者已多次口头警告，近期日元贬值将推高进口成本，加剧本已不断攀升的通胀压力。
+发挥中国多式联运发展联盟作用，以市场需求为导向，优化物流产品供给，大力发展铁水多式联运，1至5月份国家铁路铁水联运量完成758万标箱、同比增长11.0%，“一单制”物流产品累计订舱4.7万标箱，受到市场欢迎。
 
-日元疲软也可能加剧油价上涨的影响，因为日本严重依赖能源进口。
+持续优化城市间点对点开行的城际班列和专精特新、冷链定制化班列产品，丰富铁路物流产品体系，为客户提供多样化选择。
 
-片山皋月和贝森特上次会面是在1月份，当时这位日本财务大臣在会谈后发出口头警告，提振了日元汇率，因为市场严阵以待，准备迎接可能的干预。
+进一步完善商品汽车运输服务，有效衔接公路和海运，提供全程物流解决方案，1至5月国家铁路累计发送出口商品车82.4万台，增长55.5%，其中新能源汽车42.2万台，同比增长110.3%，为中国车企搭建了产品出海的“快车道”。
 
-责任编辑：于健 SF069
+二是铁路物流服务提质升级。
+
+大力发展物流总包服务，全面融入企业供应链，为客户提供优质高效的定制化服务，今年累计签订物流总包合同1185个，合同运量达11.5亿吨。
 
 ## 相关推荐
 
-- 2026-06-29 22:39 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 22:47 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 22:41 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 23:01 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 22:43 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-29 22:46 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 22:47 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 23:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 22:58 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 22:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 22:53 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 22:46 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 22:48 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 23:05 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 22:44 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 23:11 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 22:59 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 23:02 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 22:47 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 23:02 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 23:02 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 22:55 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 22:48 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:42 - [时光音乐会](http://www.blog.minike.top/Article/details/81182988.shtml)
-- 2026-06-29 22:57 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/825149608054.shtml)
-- 2026-06-29 22:44 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/386381893685.shtml)
-- 2026-06-29 22:59 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/815744.shtml)
-- 2026-06-29 23:03 - [TOP Prada](http://www.share.minike.top/Article/details/903760161.shtml)
-- 2026-06-29 23:02 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/84365.shtml)
-- 2026-06-29 22:50 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/705176717.shtml)
-- 2026-06-29 22:49 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/57587853102.shtml)
-- 2026-06-29 22:46 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/0639929032.shtml)
-- 2026-06-29 22:41 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/21840.shtml)
-- 2026-06-29 22:45 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/01907.shtml)
-- 2026-06-29 22:58 - [天道](http://www.share.kurohicncr.top/Article/details/575469.shtml)
-- 2026-06-29 22:39 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/63302089.shtml)
-- 2026-06-29 23:02 - [如何看待乌空军3架米格-29被摧毁](http://www.share.minike.top/Article/details/2996576.shtml)
-- 2026-06-29 22:42 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/65358420.shtml)
+- 2026-06-29 22:50 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/622202064374.shtml)
+- 2026-06-29 23:03 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/8575024.shtml)
+- 2026-06-29 23:01 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/6760323.shtml)
+- 2026-06-29 22:43 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/04497.shtml)
+- 2026-06-29 23:02 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/2755466052.shtml)
+- 2026-06-29 22:48 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/11640028627.shtml)
+- 2026-06-29 22:52 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/011751120.shtml)
+- 2026-06-29 23:08 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/0421060262.shtml)
+- 2026-06-29 23:10 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/30196.shtml)
+- 2026-06-29 22:47 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/947482792874.shtml)
+- 2026-06-29 22:53 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/771217153569.shtml)
+- 2026-06-29 23:11 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/3199088659.shtml)
+- 2026-06-29 22:59 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/53064.shtml)
+- 2026-06-29 23:02 - [委内瑞拉发生余震](https://www.share.minike.top/Article/details/11325.shtml)
+- 2026-06-29 23:01 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/660077117.shtml)

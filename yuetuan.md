@@ -1,56 +1,61 @@
-# 广西南宁加速打造面向东盟人工智能产业高地
+# 鲁比奥回应印度的抗议 为封锁霍尔木兹海峡进行辩护
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-中新网南宁4月16日电(记者 黄艳梅)首届(中国·南宁)人工智能应用创新创业邀请赛颁奖仪式暨2026年南宁市人工智能OPC(一人公司)创业大赛启动仪式15日晚举行。作为中国距离东盟最近的省会城市，南宁正加速汇聚全球人工智能(AI)创新资源，建设面向东盟的人工智能产业高地。 首届(中国·南宁)人工智能应用创新创业邀请赛集结了海内外顶尖选手，逾1200个选手团队报名。参赛项目覆盖“
+面对印度的抗议，美国国务卿马尔科·鲁比奥捍卫了华盛顿在霍尔木兹海峡的立场。此前美国空袭导致三名来自这个南亚国家的船员丧生。 据美国国务院周六发布的声明，鲁比奥与印度外交部长苏杰生交谈，讨论了霍尔木兹海峡的最新动态。鲁比奥强调，所有商船应立即服从美军的命令，以维护这条战略水道的和平与安全。 声明称，鲁比奥表示，任何违反美国主导的封锁以及非法运输伊朗石油的行为都将不被容忍。此前，苏
 
 ## 正文
 
-中新网南宁4月16日电(记者 黄艳梅)首届(中国·南宁)人工智能应用创新创业邀请赛颁奖仪式暨2026年南宁市人工智能OPC(一人公司)创业大赛启动仪式15日晚举行。
+面对印度的抗议，美国国务卿马尔科·鲁比奥捍卫了华盛顿在霍尔木兹海峡的立场。
 
-作为中国距离东盟最近的省会城市，南宁正加速汇聚全球人工智能(AI)创新资源，建设面向东盟的人工智能产业高地。
+此前美国空袭导致三名来自这个南亚国家的船员丧生。
 
-首届(中国·南宁)人工智能应用创新创业邀请赛集结了海内外顶尖选手，逾1200个选手团队报名。
+据美国国务院周六发布的声明，鲁比奥与印度外交部长苏杰生交谈，讨论了霍尔木兹海峡的最新动态。
 
-参赛项目覆盖“AI+”智能制造、数字政务、医疗健康、文化旅游等六大领域，设置“技能大比武”“创新大比拼”“创业大挑战”三大竞赛阶段。
+鲁比奥强调，所有商船应立即服从美军的命令，以维护这条战略水道的和平与安全。
 
-“我们看好南宁的AI产业生态，已初步规划在南宁落地的方案。
+声明称，鲁比奥表示，任何违反美国主导的封锁以及非法运输伊朗石油的行为都将不被容忍。
 
-未来我们将依托南宁‘研发—孵化—落地’的全链条体系，借助政策、算力和产业资源，推动激光机器人项目产业化发展。
+此前，苏杰生就美国海军在海湾的袭击提出抗议。
 
-”江苏一参赛获奖项目团队成员马雪娟说。
+推荐阅读：在美军打击第二艘有印度船员的船只后印度召见美国使节 苏杰生在X上发帖表示，他已直接向鲁比奥转达了印度的关切，并重申了新德里对此次袭击的强烈反对。
 
-仪式现场举行了投资意向、落地意向、合作意向集中签约仪式，一批优质AI参赛项目与南宁投融资机构、创业园区、产业单位达成合作。
+他说：“针对商船的这种致命行动没有道理。
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 22:59 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 22:54 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 22:38 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 22:53 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 22:42 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 22:44 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 22:55 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 22:54 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 22:37 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 22:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 23:10 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 23:01 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 22:54 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 23:05 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 23:02 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 23:05 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 22:47 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 22:44 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 23:07 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 23:00 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 23:04 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 22:54 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 22:45 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 22:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:45 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/65023162825.shtml)
-- 2026-06-29 22:39 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/28508900.shtml)
-- 2026-06-29 22:38 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/94410656.shtml)
-- 2026-06-29 22:43 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/21207.shtml)
-- 2026-06-29 22:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/15194656921.shtml)
-- 2026-06-29 22:45 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/14299303798.shtml)
-- 2026-06-29 23:02 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/443207744192.shtml)
-- 2026-06-29 22:56 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/122375418927.shtml)
-- 2026-06-29 23:02 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/71488293.shtml)
-- 2026-06-29 22:44 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/5483930201.shtml)
-- 2026-06-29 22:46 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/094126.shtml)
-- 2026-06-29 22:39 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/521499.shtml)
-- 2026-06-29 22:47 - [毒液2](https://www.share.minike.top/Article/details/631745585.shtml)
-- 2026-06-29 22:45 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/9824692.shtml)
-- 2026-06-29 22:58 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/888840146980.shtml)
+- 2026-06-29 22:53 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/619092024.shtml)
+- 2026-06-29 23:06 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/512982355661.shtml)
+- 2026-06-29 22:49 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/8603883.shtml)
+- 2026-06-29 23:07 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/75572972340.shtml)
+- 2026-06-29 22:53 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/30694749584.shtml)
+- 2026-06-29 23:10 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/473547.shtml)
+- 2026-06-29 22:58 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/212373636544.shtml)
+- 2026-06-29 22:43 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/0839957.shtml)
+- 2026-06-29 22:53 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.kurohicncr.top/Article/details/53004669.shtml)
+- 2026-06-29 22:43 - [啊啊啊](http://www.share.minike.top/Article/details/75069941.shtml)
+- 2026-06-29 23:01 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/88462263147.shtml)
+- 2026-06-29 23:05 - [啊啊啊](http://www.share.minike.top/Article/details/103734674997.shtml)
+- 2026-06-29 22:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/3949511.shtml)
+- 2026-06-29 22:55 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/68307189.shtml)
+- 2026-06-29 23:11 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/909501.shtml)

@@ -1,56 +1,54 @@
-# Alphabet获催化剂提振，Gemini势头强劲
+# 曝小红书计划本月底秘密提交香港IPO申请，估值曾达310亿美元
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-Alphabet公司受到更多关注，此前花旗将该股列入90天催化剂观察名单，并表示其Gemini人工智能平台应能助力公司实现盈利。 该行将目标价上调至405美元，并维持“买入”评级，称搜索和云业务的表现均好于预期。花旗目前预计，第一季度搜索收入同比增长约16.5%，云业务收入增长57.5%，部分原因是AI需求增加。 Gemini仍是这一前景中最重要的部分。越来越多的谷歌产品正在集
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：三言科技）据彭博消息，小红书计划在本月底前秘密提交香港IPO申请，目前正与顾问机构合作推进相关准备工作。小红书由毛文超和瞿芳于2013年在上海创立，曾获腾讯与金沙江创投投资。2024年融资轮中，小红书估值约为170亿美元。随着业务增长，2025年9月二级市场交易中估值飙升至310亿美元，并向股东预测
 
 ## 正文
 
-Alphabet公司受到更多关注，此前花旗将该股列入90天催化剂观察名单，并表示其Gemini人工智能平台应能助力公司实现盈利。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该行将目标价上调至405美元，并维持“买入”评级，称搜索和云业务的表现均好于预期。
+（来源：三言科技）据彭博消息，小红书计划在本月底前秘密提交香港IPO申请，目前正与顾问机构合作推进相关准备工作。
 
-花旗目前预计，第一季度搜索收入同比增长约16.5%，云业务收入增长57.5%，部分原因是AI需求增加。
+小红书由毛文超和瞿芳于2013年在上海创立，曾获腾讯与金沙江创投投资。
 
-Gemini仍是这一前景中最重要的部分。
+2024年融资轮中，小红书估值约为170亿美元。
 
-越来越多的谷歌产品正在集成这一AI平台，新增了包括更强大的搜索工具和地图功能在内的特性。
+随着业务增长，2025年9月二级市场交易中估值飙升至310亿美元，并向股东预测2025年全年利润将达到约30亿美元。
 
-分析师认为，这种更广泛的分布将吸引更多用户使用谷歌云，并带来更多企业客户。
+尽管今年香港市场对科技企业上市接受度较强，迎来MiniMax和壁仞科技等新兴AI企业的上市热潮，但新兴AI企业估值仍面临压力。
 
-此外，即将举行的多项活动，如谷歌云Next大会、谷歌I/O大会以及其他营销展示会，可能会提供关于AI战略和产品扩展的更多信息。
-
-投资者目前更关注的是执行层面。
+小红书此前曾尝试在美国上市，但2021年因监管环境变化搁置了计划。
 
 ## 相关推荐
 
-- 2026-06-29 23:02 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 22:59 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 23:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 22:59 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 22:59 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 23:05 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 22:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 22:59 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 22:52 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 22:53 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 23:08 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 23:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 23:09 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 22:53 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 22:42 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 23:02 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 22:53 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 22:43 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 23:03 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 22:52 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:37 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/4300302.shtml)
-- 2026-06-29 22:38 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/992918.shtml)
-- 2026-06-29 22:48 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/8700668.shtml)
-- 2026-06-29 22:46 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/9075007296.shtml)
-- 2026-06-29 22:43 - [炽夏](https://www.blog.kurohicncr.top/Article/details/9791512.shtml)
-- 2026-06-29 22:45 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/619933.shtml)
-- 2026-06-29 22:49 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/587304.shtml)
-- 2026-06-29 23:02 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/9465579.shtml)
-- 2026-06-29 22:38 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/019941630.shtml)
-- 2026-06-29 22:54 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/60825213.shtml)
-- 2026-06-29 22:58 - [青春环游记第三季](https://www.blog.minike.top/Article/details/9726741.shtml)
-- 2026-06-29 22:55 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/321069811900.shtml)
-- 2026-06-29 22:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/08796116211.shtml)
-- 2026-06-29 22:40 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/25235167073.shtml)
-- 2026-06-29 23:05 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/11337.shtml)
+- 2026-06-29 22:43 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/09141.shtml)
+- 2026-06-29 22:46 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/04295010.shtml)
+- 2026-06-29 22:50 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/89716925.shtml)
+- 2026-06-29 22:53 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/1712801.shtml)
+- 2026-06-29 23:07 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/0316674864.shtml)
+- 2026-06-29 23:05 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/780391795920.shtml)
+- 2026-06-29 23:09 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/71386.shtml)
+- 2026-06-29 23:08 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/17737.shtml)
+- 2026-06-29 22:51 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/7579335.shtml)
+- 2026-06-29 22:52 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/203448343587.shtml)
+- 2026-06-29 23:08 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/2563669.shtml)
+- 2026-06-29 23:02 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/4794490033.shtml)
+- 2026-06-29 23:00 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/548290.shtml)
+- 2026-06-29 22:58 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/982237871207.shtml)
+- 2026-06-29 22:49 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/65852.shtml)

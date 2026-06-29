@@ -1,51 +1,49 @@
-# 钱七虎：关键技术是买不来、要不来的，要靠我们独立自主的研究
+# 探讨合作与未来 “2026中国与中东欧青年政治家论坛”开幕
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 13:10 来源：中国新闻网 近日，中国新闻网独家对话中国工程院院士、中国人民解放军陆军工程大学教授、国家最高科学技术奖获得者、“八一勋章”获得者钱七虎。他回忆起在苏联的求学经历，在进行“孔口防护”研究时，需要到研究所做实验，但研究所是绝密的，外人连大门都摸不到，这段被“拒之门外”的经历刺痛了钱七虎，让他深刻领悟到：“关键技术是买不来、要不来的
+发布时间：2026年06月15日 13:59 来源：中国新闻网 6月14日，2026中国与中东欧青年政治家论坛在武汉开幕，来自中东欧国家的政党、智库、民间组织青年代表，与中国嘉宾、青年代表开展对话交流，探讨合作与未来发展。 此次论坛由中共中央对外联络部、中共湖北省委共同主办，主题为“新形势下中国与中东欧国家同行现代化之路：青年的行动和贡献”。 记者 郑子颜 湖北武汉报道 责任编
 
 ## 正文
 
-发布时间：2026年04月15日 13:10 来源：中国新闻网 近日，中国新闻网独家对话中国工程院院士、中国人民解放军陆军工程大学教授、国家最高科学技术奖获得者、“八一勋章”获得者钱七虎。
+发布时间：2026年06月15日 13:59 来源：中国新闻网 6月14日，2026中国与中东欧青年政治家论坛在武汉开幕，来自中东欧国家的政党、智库、民间组织青年代表，与中国嘉宾、青年代表开展对话交流，探讨合作与未来发展。
 
-他回忆起在苏联的求学经历，在进行“孔口防护”研究时，需要到研究所做实验，但研究所是绝密的，外人连大门都摸不到，这段被“拒之门外”的经历刺痛了钱七虎，让他深刻领悟到：“关键技术是买不来、要不来的，要靠我们独立自主的研究。
+此次论坛由中共中央对外联络部、中共湖北省委共同主办，主题为“新形势下中国与中东欧国家同行现代化之路：青年的行动和贡献”。
 
-” 责任编辑：【任帅】
+记者 郑子颜 湖北武汉报道 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 22:42 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 22:40 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 22:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 22:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 22:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 22:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 22:40 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 22:37 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 22:57 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 22:39 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 23:04 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 22:58 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 23:03 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 22:44 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 22:36 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 22:45 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 23:06 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 22:43 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 22:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 22:49 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 22:43 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 22:44 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 23:06 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 22:52 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 23:10 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 23:07 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 22:42 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 22:50 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:58 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/75373.shtml)
-- 2026-06-29 22:53 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/99294512325.shtml)
-- 2026-06-29 22:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/879233428097.shtml)
-- 2026-06-29 22:45 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/774728.shtml)
-- 2026-06-29 22:46 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/257476217629.shtml)
-- 2026-06-29 23:05 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/344783454265.shtml)
-- 2026-06-29 22:47 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/1736869.shtml)
-- 2026-06-29 22:51 - [急先锋](https://www.share.kurohicncr.top/Article/details/5983004.shtml)
-- 2026-06-29 22:49 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/45228735.shtml)
-- 2026-06-29 22:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/6989726883.shtml)
-- 2026-06-29 23:04 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/4679842.shtml)
-- 2026-06-29 22:46 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/0005470119.shtml)
-- 2026-06-29 22:41 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/3681857526.shtml)
-- 2026-06-29 22:57 - [乔家的儿女](https://www.blog.minike.top/Article/details/128463216.shtml)
-- 2026-06-29 22:38 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/1514035.shtml)
+- 2026-06-29 22:45 - [美人鱼](https://www.blog.minike.top/Article/details/67419.shtml)
+- 2026-06-29 22:42 - [国际清算银行警告AI投资热潮](https://www.blog.minike.top/Article/details/19807210181.shtml)
+- 2026-06-29 23:11 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/895323369.shtml)
+- 2026-06-29 22:48 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/052098727840.shtml)
+- 2026-06-29 22:58 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/994228908901.shtml)
+- 2026-06-29 22:56 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/49856787165.shtml)
+- 2026-06-29 23:00 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/242819.shtml)
+- 2026-06-29 23:08 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/13786.shtml)
+- 2026-06-29 23:00 - [炽夏](https://www.blog.minike.top/Article/details/268361630045.shtml)
+- 2026-06-29 22:46 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/9289760321.shtml)
+- 2026-06-29 22:51 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/26182825.shtml)
+- 2026-06-29 22:47 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/191427.shtml)
+- 2026-06-29 22:48 - [美人鱼](http://www.share.kurohicncr.top/Article/details/84764223.shtml)
+- 2026-06-29 22:56 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/413154975932.shtml)
+- 2026-06-29 23:11 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/766619.shtml)

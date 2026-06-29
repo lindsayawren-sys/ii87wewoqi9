@@ -1,60 +1,61 @@
-# 身边产业|从“身边物”看懂化工产业：从一件衣服，看懂芳烃产业链
+# 溜溜梅首挂上市 早盘上涨143.23%公司在中国果类零食行业零售额排名第一
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-各位投资者，大家好。 欢迎来到中信保诚基金“身边产业”专栏。在这个系列中，我们希望不做复杂的产能数据堆砌，也不谈晦涩的炼化装置，而是从你的生活开始。 请你环顾四周：你手边的杯子，可能是塑料的；你穿的衣服，可能是化纤的；你开车上班的路上，轮胎是合成橡胶做的，路面是石油沥青铺的。 这些再平常不过的物品，其实都指向同一个源头——石油化工。 很多人觉得化工行业遥远、枯燥、难以理解。但实
+溜溜梅（06658）首挂上市，公告显示，每股定价43.58港元，共发行1146.41万股股份，每手100股，所得款项净额约4.4亿港元。截至发稿，股价上涨143.23%，现报106港元，成交额2.67亿港元。 招股书显示，溜溜梅是一家专注于青梅产品的果类零食公司。在以梅为本的产品开发战略的引领下，公司打造了多元化的青梅产品矩阵，涵盖从采用传统技术的经典系列到融合各种风味的产品，
 
 ## 正文
 
-各位投资者，大家好。
+溜溜梅（06658）首挂上市，公告显示，每股定价43.58港元，共发行1146.41万股股份，每手100股，所得款项净额约4.4亿港元。
 
-欢迎来到中信保诚基金“身边产业”专栏。
+截至发稿，股价上涨143.23%，现报106港元，成交额2.67亿港元。
 
-在这个系列中，我们希望不做复杂的产能数据堆砌，也不谈晦涩的炼化装置，而是从你的生活开始。
+招股书显示，溜溜梅是一家专注于青梅产品的果类零食公司。
 
-请你环顾四周：你手边的杯子，可能是塑料的；你穿的衣服，可能是化纤的；你开车上班的路上，轮胎是合成橡胶做的，路面是石油沥青铺的。
+在以梅为本的产品开发战略的引领下，公司打造了多元化的青梅产品矩阵，涵盖从采用传统技术的经典系列到融合各种风味的产品，以满足不同口味需求。
 
-这些再平常不过的物品，其实都指向同一个源头——石油化工。
+自2001年推出经典品牌“溜溜梅”以来，公司致力于深耕青梅产品行业技术，挖掘青梅酸味的美食潜力。
 
-很多人觉得化工行业遥远、枯燥、难以理解。
+根据弗若斯特沙利文的资料，于2024年，公司在中国果类零食行业的零售额排名第一，市场份额达4.9%。
 
-但实际上，它是现代文明的“材料库”。
+公司的梅冻自2019年推出以来，迅速抓住了消费者群体的注意力。
 
-投资化工，本质上是投资我们生活方式的改变。
+于2024年，公司在中国天然成分果冻行业（按零售额计）排名第一，市场份额为45.7%。
 
 ## 相关推荐
 
-- 2026-06-29 22:52 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 22:38 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 22:56 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 22:57 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 22:57 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 22:47 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 22:41 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 22:37 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 22:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 23:01 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 22:55 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 22:59 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 22:58 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 22:52 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 22:46 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 23:00 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 22:49 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 23:09 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 23:03 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 22:52 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 23:08 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 23:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 23:06 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 22:57 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 22:42 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 22:47 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 23:05 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 22:46 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 23:01 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:01 - [委内瑞拉发生余震](https://www.share.minike.top/Article/details/07116.shtml)
-- 2026-06-29 22:52 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/88509990529.shtml)
-- 2026-06-29 22:49 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/61338259.shtml)
-- 2026-06-29 22:41 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/882602130.shtml)
-- 2026-06-29 22:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/8162104509.shtml)
-- 2026-06-29 22:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/92057.shtml)
-- 2026-06-29 22:39 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/849783099259.shtml)
-- 2026-06-29 22:38 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/234648.shtml)
-- 2026-06-29 22:59 - [急先锋](http://www.blog.kurohicncr.top/Article/details/866812628182.shtml)
-- 2026-06-29 22:39 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/91967514.shtml)
-- 2026-06-29 22:36 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/513929.shtml)
-- 2026-06-29 22:56 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/9412567681.shtml)
-- 2026-06-29 22:48 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/6406107.shtml)
-- 2026-06-29 22:37 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/1323140.shtml)
-- 2026-06-29 22:37 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/1915284756.shtml)
+- 2026-06-29 23:03 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.minike.top/Article/details/82632855077.shtml)
+- 2026-06-29 23:00 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/695416.shtml)
+- 2026-06-29 22:43 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/25892994222.shtml)
+- 2026-06-29 22:43 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/94920.shtml)
+- 2026-06-29 23:03 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/90368.shtml)
+- 2026-06-29 22:51 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/20526918.shtml)
+- 2026-06-29 23:05 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/127630.shtml)
+- 2026-06-29 22:55 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/3893814568.shtml)
+- 2026-06-29 22:58 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/57582654.shtml)
+- 2026-06-29 22:54 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/839898138995.shtml)
+- 2026-06-29 22:52 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/108204.shtml)
+- 2026-06-29 22:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/2769198010.shtml)
+- 2026-06-29 23:07 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/9736467.shtml)
+- 2026-06-29 23:02 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/53864629481.shtml)
+- 2026-06-29 23:05 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/221523939.shtml)

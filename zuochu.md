@@ -1,60 +1,48 @@
-# 从美食到文化对话 中外学子在广西“一站式”体验多彩文化
+# 华勤技术获富国基金增持109.41万股 每股作价约81.07港元
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-中新网南宁4月15日电(黄艳梅 韦佳彤)“能向各国朋友展示柬埔寨文化，让大家了解我们的舞蹈、歌曲与各式各样的美食，真的很开心。”柬埔寨留学生李嘉鑫近日接受中新网记者采访时说。 近日，广西民族大学举办2026年国际文化节活动。该活动融合文化体验、美食品鉴、泼水祈福等环节，中外学子载歌载舞，共同领略多元文化的魅力。 校园内的中国传统文化体验区人头攒动，茶艺、书法、中国画、投壶等项目
+香港联交所最新数据显示，6月9日，富国基金增持华勤技术（03296）109.41万股，每股作价81.0671港元，总金额约为8869.55万港元。增持后最新持股数目约为619.44万股，持股比例为6.57%。责任编辑：卢昱君
 
 ## 正文
 
-中新网南宁4月15日电(黄艳梅 韦佳彤)“能向各国朋友展示柬埔寨文化，让大家了解我们的舞蹈、歌曲与各式各样的美食，真的很开心。
+香港联交所最新数据显示，6月9日，富国基金增持华勤技术（03296）109.41万股，每股作价81.0671港元，总金额约为8869.55万港元。
 
-”柬埔寨留学生李嘉鑫近日接受中新网记者采访时说。
+增持后最新持股数目约为619.44万股，持股比例为6.57%。
 
-近日，广西民族大学举办2026年国际文化节活动。
-
-该活动融合文化体验、美食品鉴、泼水祈福等环节，中外学子载歌载舞，共同领略多元文化的魅力。
-
-校园内的中国传统文化体验区人头攒动，茶艺、书法、中国画、投壶等项目依次排开。
-
-中外学子一同提笔挥毫、动手实践，在沉浸式互动中感受中华优秀传统文化的深厚底蕴。
-
-在东盟各国文化展示区，缅甸青年林德伟现场展示传统黄香楝粉，介绍其防晒、驱蚊、护肤的独特功效与日常礼仪习俗。
-
-“在感受中国文化的同时，也能推介缅甸文化，这非常有意义。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:36 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 22:43 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 22:37 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 22:38 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 22:59 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 23:00 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 22:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 22:54 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 22:48 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 23:00 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 23:01 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 23:01 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 22:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 22:37 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 23:04 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 23:00 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 22:52 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 22:46 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 23:07 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 22:53 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 23:00 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 23:04 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 23:11 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 22:45 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 22:48 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 23:09 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:53 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/082150467865.shtml)
-- 2026-06-29 22:49 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/5482258574.shtml)
-- 2026-06-29 22:37 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/450519869.shtml)
-- 2026-06-29 22:48 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/3932028.shtml)
-- 2026-06-29 22:37 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/4326601.shtml)
-- 2026-06-29 22:50 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/1714796.shtml)
-- 2026-06-29 22:56 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/28983.shtml)
-- 2026-06-29 23:01 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/7144958.shtml)
-- 2026-06-29 22:54 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/658445.shtml)
-- 2026-06-29 22:38 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/335588256488.shtml)
-- 2026-06-29 22:40 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/85522009.shtml)
-- 2026-06-29 22:37 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/2700581087.shtml)
-- 2026-06-29 23:05 - [周生如故](http://www.share.minike.top/Article/details/948262708.shtml)
-- 2026-06-29 22:38 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/397478695326.shtml)
-- 2026-06-29 22:48 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/9851278.shtml)
+- 2026-06-29 22:45 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/111435142.shtml)
+- 2026-06-29 23:02 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/12331.shtml)
+- 2026-06-29 23:03 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/1746415.shtml)
+- 2026-06-29 22:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/6300478722.shtml)
+- 2026-06-29 22:55 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/060604031.shtml)
+- 2026-06-29 23:02 - [王安宇聪明到导演组炸了](https://www.blog.kurohicncr.top/Article/details/643345601.shtml)
+- 2026-06-29 22:48 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/0723461.shtml)
+- 2026-06-29 22:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/27700.shtml)
+- 2026-06-29 22:48 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/66576.shtml)
+- 2026-06-29 22:48 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/915888898.shtml)
+- 2026-06-29 22:49 - [毒液2](http://www.share.kurohicncr.top/Article/details/356576692.shtml)
+- 2026-06-29 22:50 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/6125103.shtml)
+- 2026-06-29 22:59 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/04574098.shtml)
+- 2026-06-29 22:42 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/82781359414.shtml)
+- 2026-06-29 22:53 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/5324077358.shtml)

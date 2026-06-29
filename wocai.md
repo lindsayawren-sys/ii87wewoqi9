@@ -1,60 +1,56 @@
-# 有的营收增速40％，有的盈利为负，锂电池行业为何“冰火两重天”
+# 加盟两年即告别！惠升基金固收副总石伟离任
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-来源：@华夏时报微博华夏时报记者 陶炜 南京报道​即便同是锂电池行业的公司，业绩表现却天差地别。近期，锂电池板块迎来年度财报和一季报的密集披露期，行业内部公司的业绩表现呈现显著分化。其中，主打消费类锂电池的蔚蓝锂芯（002245.SZ）宣布2025年净利润达到7.11亿元，同比大幅增长45.66%，扣非净利润为7.23亿元，更增长了68.40%，他们还披露了2026年营收40%
+6月16日，惠升基金发布基金行业高级管理人员变更公告，副总经理石伟因个人原因离任，离任日期 2026-06-15。公司对石伟先生在任职期间为公司发展所做出的贡献表示衷心感谢。 石伟，学士，曾任职于中国人寿保险公司，中国人寿资产管理公司，兴业全球基金管理有限公司，国寿安保基金管理有限公司。自2024-07-09至2026-06-15担任惠升基金管理有限责任公司副总经理。Wind数
 
 ## 正文
 
-来源：@华夏时报微博华夏时报记者 陶炜 南京报道​即便同是锂电池行业的公司，业绩表现却天差地别。
+6月16日，惠升基金发布基金行业高级管理人员变更公告，副总经理石伟因个人原因离任，离任日期 2026-06-15。
 
-近期，锂电池板块迎来年度财报和一季报的密集披露期，行业内部公司的业绩表现呈现显著分化。
+公司对石伟先生在任职期间为公司发展所做出的贡献表示衷心感谢。
 
-其中，主打消费类锂电池的蔚蓝锂芯（002245.SZ）宣布2025年净利润达到7.11亿元，同比大幅增长45.66%，扣非净利润为7.23亿元，更增长了68.40%，他们还披露了2026年营收40%增长的宏伟目标。
+石伟，学士，曾任职于中国人寿保险公司，中国人寿资产管理公司，兴业全球基金管理有限公司，国寿安保基金管理有限公司。
 
-但与此同时，同样是消费类锂电池的维科技术（600152.SH）却交出了一份2025年亏损的成绩单。
+自2024-07-09至2026-06-15担任惠升基金管理有限责任公司副总经理。
 
-而那些产品线同时包括了动力电池、储能电池的大型综合类电池企业，业绩表现也是千差万别。
+Wind数据显示，石伟任职期间，惠升基金资产管理从516.51亿缩水至486.25亿元，缩水30.26亿元；但基金产品数量由24只增至29只，增加5只产品。
 
-宁德时代（300750.SZ）2025年业绩增长42.28%，亿纬锂能（维权）（300014.SZ）的净利润增长却只有1.44%。
+自2023年1月加入至2025年6月离任，石伟在公司前后任职约两年半，担任副总经理恰满两年。
 
-蔚蓝锂芯提出锂电池业务营收增长40%的目标4月13日晚间，蔚蓝锂芯披露年报，2025年度公司实现营业总收入81.13亿元，同比增长20.09%；净利润7.11亿元，同比增长45.66%；扣非净利润为7.23亿元，增长了68.40%。
+此番离任，意味着这位分管绝对收益与固定收益业务的核心高管正式告别惠升基金。
 
-公司拟每10股转增4.8股并派发现金红利1元（含税）。
+惠升基金管理有限责任公司成立于2018年9月28日，注册资本1.2亿元人民币。
 
 ## 相关推荐
 
-- 2026-06-29 23:00 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 23:01 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 23:05 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 22:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 22:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 22:59 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 22:45 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 22:41 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 22:36 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 22:54 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 22:54 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 22:59 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 22:51 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 22:43 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 22:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 23:03 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 22:54 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 23:06 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 23:08 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 23:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 23:03 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 22:50 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 22:56 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 23:04 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/97842860.shtml)
-- 2026-06-29 22:52 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/828625.shtml)
-- 2026-06-29 22:41 - [记者：预计热火将追求小哈达威和康利](https://www.blog.kurohicncr.top/Article/details/337937.shtml)
-- 2026-06-29 23:05 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/217450236.shtml)
-- 2026-06-29 22:43 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/697946439.shtml)
-- 2026-06-29 22:48 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/7548278968.shtml)
-- 2026-06-29 23:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/51135.shtml)
-- 2026-06-29 23:00 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/4899957.shtml)
-- 2026-06-29 22:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/9994215.shtml)
-- 2026-06-29 22:43 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/128395.shtml)
-- 2026-06-29 22:48 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/185193.shtml)
-- 2026-06-29 23:05 - [田曦薇没招了](https://www.blog.minike.top/Article/details/7953173431.shtml)
-- 2026-06-29 23:00 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/57377068148.shtml)
-- 2026-06-29 22:45 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/84707472.shtml)
-- 2026-06-29 22:40 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/83399.shtml)
+- 2026-06-29 22:54 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/7237553.shtml)
+- 2026-06-29 23:03 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/81313518.shtml)
+- 2026-06-29 23:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/672639334620.shtml)
+- 2026-06-29 22:54 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/5246912.shtml)
+- 2026-06-29 22:48 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/6534106756.shtml)
+- 2026-06-29 22:50 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/409613.shtml)
+- 2026-06-29 23:09 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/389884480.shtml)
+- 2026-06-29 22:47 - [请回答王牌2019](http://www.share.minike.top/Article/details/87505.shtml)
+- 2026-06-29 23:02 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/276619651.shtml)
+- 2026-06-29 23:04 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/73165.shtml)
+- 2026-06-29 22:56 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/99027.shtml)
+- 2026-06-29 22:56 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/50788743.shtml)
+- 2026-06-29 23:07 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.minike.top/Article/details/66986723.shtml)
+- 2026-06-29 23:03 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/3569307381.shtml)
+- 2026-06-29 23:09 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/791942.shtml)

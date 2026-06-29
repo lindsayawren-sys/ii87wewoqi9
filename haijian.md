@@ -1,58 +1,53 @@
-# 瑞银上调特斯拉评级至中性，看好长期AI机遇
+# 在美上市新兴市场ETF第四周遭撤资 韩国吸金最多
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-瑞银不再看空特斯拉，认为近期需求挑战与长期AI机遇"现在更加平衡"。 该机构周二将特斯拉股票评级上调至中性，并重申其352美元的目标价，该目标价较当前水平仅低约2%。 分析师约瑟夫·斯帕克在一份报告中表示："特斯拉股票的交易更多是基于情绪、叙事和动量，而非基本面。我们认为，近期对电动汽车需求、2026年第一季度能源业务缺口、成本上升、资本支出要求提高，以及机器人出租车和Opti
+上周，投资者连续第四周从美国上市、投资新兴市场股票和债券的交易所交易基金（ETF）撤资，撤资步伐明显加快，韩国吸金规模居首。 数据显示，截至6月12日当周，在美国上市、投资于多个发展中国家以及特定国家的新兴市场ETF资金流出总额为16.4亿美元，而前一周流出4.668亿美元。今年迄今为止，资金流入总额为392亿美元。 韩国连续第二周资金流入规模最大，为1.063亿美元，主要由i
 
 ## 正文
 
-瑞银不再看空特斯拉，认为近期需求挑战与长期AI机遇"现在更加平衡"。
+上周，投资者连续第四周从美国上市、投资新兴市场股票和债券的交易所交易基金（ETF）撤资，撤资步伐明显加快，韩国吸金规模居首。
 
-该机构周二将特斯拉股票评级上调至中性，并重申其352美元的目标价，该目标价较当前水平仅低约2%。
+数据显示，截至6月12日当周，在美国上市、投资于多个发展中国家以及特定国家的新兴市场ETF资金流出总额为16.4亿美元，而前一周流出4.668亿美元。
 
-分析师约瑟夫·斯帕克在一份报告中表示："特斯拉股票的交易更多是基于情绪、叙事和动量，而非基本面。
+今年迄今为止，资金流入总额为392亿美元。
 
-我们认为，近期对电动汽车需求、2026年第一季度能源业务缺口、成本上升、资本支出要求提高，以及机器人出租车和Optimus进展缓慢的担忧，已对股价造成压力。
-
-然而，我们确实预计机器人出租车和Optimus最终将取得进展，并继续将特斯拉视为物理AI领域的领导者。
-
-" 特斯拉股价最新上涨逾3%。
-
-责任编辑：张俊 SF065
+韩国连续第二周资金流入规模最大，为1.063亿美元，主要由iShares Inc．旗下iShares MSCI Emerging Markets ex China带动；流入规模大于前一周的8560万美元，责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 22:43 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 23:04 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 22:43 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 22:46 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 22:51 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 22:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 23:02 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-29 22:51 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 22:36 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 23:01 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 22:37 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 22:59 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 22:48 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 22:48 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 23:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 22:42 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 23:02 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 22:45 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 22:43 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 22:52 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 23:08 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 22:50 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 22:52 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 22:47 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 22:44 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 22:45 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 22:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 22:43 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 23:11 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/534600314924.shtml)
-- 2026-06-29 23:03 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/619086.shtml)
-- 2026-06-29 23:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/198416.shtml)
-- 2026-06-29 22:45 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/6274385.shtml)
-- 2026-06-29 22:39 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/9102423558.shtml)
-- 2026-06-29 22:44 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/97010370.shtml)
-- 2026-06-29 22:44 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/37613279316.shtml)
-- 2026-06-29 23:03 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/86017724605.shtml)
-- 2026-06-29 22:41 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/42576755.shtml)
-- 2026-06-29 23:01 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/72387967426.shtml)
-- 2026-06-29 23:03 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/6535172939.shtml)
-- 2026-06-29 22:55 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/4826338604.shtml)
-- 2026-06-29 22:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/05397293.shtml)
-- 2026-06-29 22:54 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/70720910878.shtml)
-- 2026-06-29 22:42 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/04385766145.shtml)
+- 2026-06-29 22:57 - [爱很美味](http://www.blog.minike.top/Article/details/863369189.shtml)
+- 2026-06-29 22:52 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/359914578109.shtml)
+- 2026-06-29 22:48 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/882151.shtml)
+- 2026-06-29 22:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/092980279511.shtml)
+- 2026-06-29 22:59 - [一见倾心](http://www.share.kurohicncr.top/Article/details/96215.shtml)
+- 2026-06-29 22:51 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/3750871397.shtml)
+- 2026-06-29 22:55 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/4032772.shtml)
+- 2026-06-29 23:05 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/037111.shtml)
+- 2026-06-29 22:48 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/62972.shtml)
+- 2026-06-29 23:08 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/4496133.shtml)
+- 2026-06-29 22:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/8307204.shtml)
+- 2026-06-29 23:03 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/999014221097.shtml)
+- 2026-06-29 22:53 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/54392165280.shtml)
+- 2026-06-29 23:03 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/4442726.shtml)
+- 2026-06-29 22:48 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/276874.shtml)

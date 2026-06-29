@@ -1,52 +1,58 @@
-# A股午评：超3800只个股飘红，三大指数集体收涨
+# 受高油价影响，5月份全球纯电和插电式混动汽车销量连续三个月增长
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-A股午评：超3800只个股飘红，三大指数集体收涨，锂矿、算力租赁板块大涨 16日，A股三大指数高开高走，创业板指盘中涨近3%，突破3600点。截至午间收盘，沪指涨0.53%，深证成指涨1.69%，创业板指涨2.66%。全市半日成交额1.47万亿，超3800只个股上涨。 板块方面，锂矿、云计算、固态电池、算力硬件、AI应用、半导体、人形机器人概念股活跃。SPD、创新药题材回调。
+咨询公司Benchmark Mineral Intelligence（BMI）周二公布的数据显示，受补贴政策与高油价持续推动燃油车向新能源车转型影响，5 月全球电动汽车需求量连续第三个月实现增长。 BMI表示，5月份新注册的纯电动汽车和插电式混合动力汽车数量同比增长3%，达到约180万辆，使得今年前五个月的总销量比去年同期增长0.9%。 BMI数据经理查尔斯·莱斯特表示：“目前
 
 ## 正文
 
-A股午评：超3800只个股飘红，三大指数集体收涨，锂矿、算力租赁板块大涨 16日，A股三大指数高开高走，创业板指盘中涨近3%，突破3600点。
+咨询公司Benchmark Mineral Intelligence（BMI）周二公布的数据显示，受补贴政策与高油价持续推动燃油车向新能源车转型影响，5 月全球电动汽车需求量连续第三个月实现增长。
 
-截至午间收盘，沪指涨0.53%，深证成指涨1.69%，创业板指涨2.66%。
+BMI表示，5月份新注册的纯电动汽车和插电式混合动力汽车数量同比增长3%，达到约180万辆，使得今年前五个月的总销量比去年同期增长0.9%。
 
-全市半日成交额1.47万亿，超3800只个股上涨。
+BMI数据经理查尔斯·莱斯特表示：“目前，欧洲确实是推动这一增长的主要因素。
 
-板块方面，锂矿、云计算、固态电池、算力硬件、AI应用、半导体、人形机器人概念股活跃。
+” 莱斯特表示，受政府补贴和高油价刺激提前购车的影响，5月份欧洲地区的纯电和插电式混动汽车注册量增长了23%，达到约41.5万辆。
 
-SPD、创新药题材回调。
+BMI的数据显示，中国市场5 月份的纯电和插电式混动汽车注册量同比下降 9% 至约98.7万辆。
+
+BMI 指出，继今年迄今为止国内销售疲软之后，越来越多的中国原始设备制造商希望进一步拓展全球市场。
+
+受美国税收抵免计划结束以及特朗普政府提议进一步放宽二氧化碳排放规则的影响，5月份北美地区的销量下降了26%，至约12.3万辆。
+
+莱斯特表示，美国的重心已经转向生产内燃机和混合动力电动汽车。
 
 ## 相关推荐
 
-- 2026-06-29 22:44 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 23:05 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 22:38 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 22:47 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 23:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 22:42 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 23:05 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 22:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 22:52 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 22:41 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 22:58 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 22:42 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 22:57 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 23:06 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 22:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 23:01 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 23:08 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 23:11 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 22:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 22:57 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 22:46 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 22:56 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 22:57 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 22:57 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:42 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/0405965541.shtml)
-- 2026-06-29 22:48 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/100149406931.shtml)
-- 2026-06-29 22:40 - [美以这对亲密盟友要掰了吗](http://www.blog.kurohicncr.top/Article/details/94346.shtml)
-- 2026-06-29 22:52 - [我和我的家乡](http://www.blog.minike.top/Article/details/442349.shtml)
-- 2026-06-29 22:54 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/54808.shtml)
-- 2026-06-29 23:00 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/3251471.shtml)
-- 2026-06-29 22:48 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/2932928.shtml)
-- 2026-06-29 22:47 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/1135664417.shtml)
-- 2026-06-29 22:44 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/03804777.shtml)
-- 2026-06-29 22:50 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/76869.shtml)
-- 2026-06-29 22:55 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/327888551192.shtml)
-- 2026-06-29 23:04 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/4922298.shtml)
-- 2026-06-29 22:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/930780825.shtml)
-- 2026-06-29 23:04 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/36812139939.shtml)
-- 2026-06-29 22:50 - [世界杯](http://www.share.minike.top/Article/details/898047823162.shtml)
+- 2026-06-29 23:06 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/6315221216.shtml)
+- 2026-06-29 22:50 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.kurohicncr.top/Article/details/726257.shtml)
+- 2026-06-29 22:46 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/1302737003.shtml)
+- 2026-06-29 23:03 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.kurohicncr.top/Article/details/8817408031.shtml)
+- 2026-06-29 22:45 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/516685.shtml)
+- 2026-06-29 23:01 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/395225132009.shtml)
+- 2026-06-29 22:57 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/837364552862.shtml)
+- 2026-06-29 22:44 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/68173106455.shtml)
+- 2026-06-29 23:07 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/51316.shtml)
+- 2026-06-29 22:51 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/89277428.shtml)
+- 2026-06-29 22:56 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/557474.shtml)
+- 2026-06-29 22:53 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/31997242212.shtml)
+- 2026-06-29 22:57 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/189134669839.shtml)
+- 2026-06-29 22:54 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/898494.shtml)
+- 2026-06-29 22:51 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/4266635807.shtml)

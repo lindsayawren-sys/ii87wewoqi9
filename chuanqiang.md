@@ -1,61 +1,60 @@
-# 中方敦促推动刚果（金）东部停火
+# 新疆卡拉麦里国家公园候选区发现虎鼬踪迹
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-中国常驻联合国副代表孙磊15日在安理会大湖地区问题公开会上发言，敦促国际社会推动刚果(金)东部停火。 孙磊说，大湖地区处于非洲大陆心脏地带，自然资源丰富，发展潜力巨大。但令人遗憾的是，该地区战火冲突数次重燃，和平进程屡受波折，大批民众流离失所甚至失去生命。刚果(金)东部冲突始终是地区动荡的“震中”。国际社会必须敦促冲突各方落实安理会相关决议，将停火承诺落实到位，避免采取加剧紧张
+中新网乌鲁木齐6月15日电 (史玉江 张赫凡)记者15日从新疆卡拉麦里国家公园候选区获悉，近日，当地在乔木希拜管护站附近拍摄到“有重要生态、科学、社会价值的陆生野生动物”虎鼬的珍贵影像。 作为戈壁滩上的“猎手”，虎鼬体型小巧，体长约30厘米，昼伏夜出的它们总在夜幕降临时，凭借敏锐的嗅觉穿梭于荒漠沙地之间，精准锁定沙鼠、跳鼠等啮齿类动物的踪迹。相关研究显示，单只虎鼬一年捕食量可超
 
 ## 正文
 
-中国常驻联合国副代表孙磊15日在安理会大湖地区问题公开会上发言，敦促国际社会推动刚果(金)东部停火。
+中新网乌鲁木齐6月15日电 (史玉江 张赫凡)记者15日从新疆卡拉麦里国家公园候选区获悉，近日，当地在乔木希拜管护站附近拍摄到“有重要生态、科学、社会价值的陆生野生动物”虎鼬的珍贵影像。
 
-孙磊说，大湖地区处于非洲大陆心脏地带，自然资源丰富，发展潜力巨大。
+作为戈壁滩上的“猎手”，虎鼬体型小巧，体长约30厘米，昼伏夜出的它们总在夜幕降临时，凭借敏锐的嗅觉穿梭于荒漠沙地之间，精准锁定沙鼠、跳鼠等啮齿类动物的踪迹。
 
-但令人遗憾的是，该地区战火冲突数次重燃，和平进程屡受波折，大批民众流离失所甚至失去生命。
+相关研究显示，单只虎鼬一年捕食量可超过千只啮齿类动物，因此被形象地称为“鼠害克星”。
 
-刚果(金)东部冲突始终是地区动荡的“震中”。
+在荒漠生态链中，虎鼬堪称荒漠生态系统健康的“晴雨表”。
 
-国际社会必须敦促冲突各方落实安理会相关决议，将停火承诺落实到位，避免采取加剧紧张局势的行动。
+“虎鼬作为荒漠、半荒漠生态系统的捕食者之一，对栖息地完整性要求极高。
 
-他敦促地区国家秉持共同、综合、合作、可持续的安全观，通过对话协商解决分歧。
+它的出现，不仅仅是一个物种的新记录，更标志着保护区内的食物链正趋于完整，从植被、啮齿类到虎鼬、狼等捕食者之间的能量流动已恢复正常。
 
-他说，大湖地区长期动荡，不仅源于现实安全挑战，也同地区发展与治理赤字密切相关。
+这是生物多样性提升的鲜活证明。
 
-国际社会要支持地区国家加强矿产资源的互利合作，斩断矿产资源非法开采和走私的链条。
+”中国林科院自然保护地研究所所长金崑表示。
 
 ## 相关推荐
 
-- 2026-06-29 22:42 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 23:03 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 22:50 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 22:50 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 22:40 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 22:46 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 22:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 22:38 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 22:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 22:39 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 22:53 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 22:47 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 22:40 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 22:41 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 22:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 23:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 22:44 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 22:53 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 22:55 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 22:51 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 22:51 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 22:43 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 23:08 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 22:46 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 22:59 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 23:08 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 22:56 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 23:09 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 22:50 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:47 - [天道](https://www.blog.kurohicncr.top/Article/details/163205619717.shtml)
-- 2026-06-29 22:47 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/66434372518.shtml)
-- 2026-06-29 22:59 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/820390974.shtml)
-- 2026-06-29 23:00 - [网约车出事故平台拒赔称只是中介](http://www.share.kurohicncr.top/Article/details/55803.shtml)
-- 2026-06-29 22:42 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/376737194054.shtml)
-- 2026-06-29 22:44 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/29451.shtml)
-- 2026-06-29 23:00 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/1734520.shtml)
-- 2026-06-29 22:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/33670.shtml)
-- 2026-06-29 22:58 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/511749.shtml)
-- 2026-06-29 23:03 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.kurohicncr.top/Article/details/586033789961.shtml)
-- 2026-06-29 22:42 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/54013028268.shtml)
-- 2026-06-29 22:51 - [85花告别古偶](https://www.share.minike.top/Article/details/4525023.shtml)
-- 2026-06-29 23:03 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/773554.shtml)
-- 2026-06-29 22:44 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/63457362.shtml)
-- 2026-06-29 22:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/1376318.shtml)
+- 2026-06-29 22:58 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/12966.shtml)
+- 2026-06-29 23:00 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/682600199.shtml)
+- 2026-06-29 22:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/0396650.shtml)
+- 2026-06-29 23:01 - [恋与深空7天掉粉超50万](https://www.share.minike.top/Article/details/11895336151.shtml)
+- 2026-06-29 22:49 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/228842190707.shtml)
+- 2026-06-29 22:43 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/20684084427.shtml)
+- 2026-06-29 23:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/832450.shtml)
+- 2026-06-29 22:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/430991329.shtml)
+- 2026-06-29 22:45 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/428531970777.shtml)
+- 2026-06-29 23:06 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/0175425.shtml)
+- 2026-06-29 22:56 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/128906.shtml)
+- 2026-06-29 22:47 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/846940624395.shtml)
+- 2026-06-29 22:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/521246547.shtml)
+- 2026-06-29 22:45 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/296728883.shtml)
+- 2026-06-29 23:12 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/928771898051.shtml)

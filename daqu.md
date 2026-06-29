@@ -1,60 +1,57 @@
-# 美联储，重磅报告！
+# “存款搬家”最新进展？业内人士：真实存在但并非大规模迁移
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-来源：中国基金报 【导读】美联储《褐皮书》称，中东冲突是经济不确定性的主要来源。特斯拉狂飙近8% 中国基金报记者 郭玟君 大家早上好！昨夜今晨又有很多大事发生。 美国三大股指收盘涨跌不一，标普500指数、纳指创收盘新高。大型科技股多数上涨，中概股多数上涨，特斯拉狂飙近8%。 美联储发布《褐皮书》称，中东冲突是经济不确定性的主要来源。 标普500指数、纳指创收盘新高 美国三大股指
+21世纪经济报道记者 曹媛 2026年，市场对“存款搬家”的讨论热度依旧不减，多家机构判断今年将迎来大量长期定期存款的集中“到期潮”，年内到期定存规模可达30万亿元至70余万亿元，资金是否会大规模“撤离”银行体系？ 近日，多位一线人士给出了不同判断：“存款搬家”真实存在，但并非大规模迁移。那么，几十万亿元居民存款究竟流向何方？低利率时代，低风险偏好的居民储蓄又该如何安放？ “存
 
 ## 正文
 
-来源：中国基金报 【导读】美联储《褐皮书》称，中东冲突是经济不确定性的主要来源。
+21世纪经济报道记者 曹媛 2026年，市场对“存款搬家”的讨论热度依旧不减，多家机构判断今年将迎来大量长期定期存款的集中“到期潮”，年内到期定存规模可达30万亿元至70余万亿元，资金是否会大规模“撤离”银行体系？
 
-特斯拉狂飙近8% 中国基金报记者 郭玟君 大家早上好！
+近日，多位一线人士给出了不同判断：“存款搬家”真实存在，但并非大规模迁移。
 
-昨夜今晨又有很多大事发生。
+那么，几十万亿元居民存款究竟流向何方？
 
-美国三大股指收盘涨跌不一，标普500指数、纳指创收盘新高。
+低利率时代，低风险偏好的居民储蓄又该如何安放？
 
-大型科技股多数上涨，中概股多数上涨，特斯拉狂飙近8%。
+“存款搬家”真实存在，但并非大规模迁移 回顾银行存款市场，2023-2024年大量城商行、农商行及民营银行发行的三年期、五年期长期定存利率普遍处于3%-4%的高位，国有大行、头部股份行利率相对偏低但也处在相对高点，而当前新增定存利率已回落至1.5%-2%区间，悬殊的收益差让市场普遍预判，存款到期后将迎来集中外流，即出现所谓的“存款搬家”现象。
 
-美联储发布《褐皮书》称，中东冲突是经济不确定性的主要来源。
+“‘存款搬家’现象并不明显，这一点和市场年初时的判断不一致。
 
-标普500指数、纳指创收盘新高 美国三大股指收盘涨跌不一，道指跌0.15%，报48463.72点；标普500指数涨0.8%，报7022.95点；纳指涨1.59%，报24016.02点，录得连续11日上涨。
+”在近日由21世纪经济报道、广东粤港澳大湾区研究院主办的2026湾区财富大会上，招银理财业务总监、多资产投资部总经理袁尧表示，“从二季度的数据来看，这个现象没有发生，或者说发生的规模比较小。
 
-标普500指数、纳指创收盘新高。
+” 平安理财混合投资部总经理唐沪军肯定了“存款搬家”现象的存在，他认为这并非突发事件，而是自2025年下半年起行业对该现象的讨论热度持续上升，“2025年7月份居民存款单月减少了1.1万亿元，同期非银机构的存款增加了2.14万亿元，去年10月份和今年4月居民存款更是出现明显回落。
 
 ## 相关推荐
 
-- 2026-06-29 22:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 22:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 22:51 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 22:37 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-29 22:53 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 22:42 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 22:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 22:53 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 22:41 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 23:00 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 23:01 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 22:54 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 22:44 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 22:51 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 22:56 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 22:45 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 22:57 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 22:54 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 23:06 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 22:46 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 22:44 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 22:51 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 22:58 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 23:10 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 22:50 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:58 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/2387654671.shtml)
-- 2026-06-29 22:37 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/86073121928.shtml)
-- 2026-06-29 23:05 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/951825.shtml)
-- 2026-06-29 22:54 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/35452.shtml)
-- 2026-06-29 22:37 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/422508.shtml)
-- 2026-06-29 22:57 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/57711039.shtml)
-- 2026-06-29 22:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/3787061485.shtml)
-- 2026-06-29 22:50 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/0279125299.shtml)
-- 2026-06-29 22:46 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/4487875854.shtml)
-- 2026-06-29 22:55 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/943611.shtml)
-- 2026-06-29 22:45 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/1473504.shtml)
-- 2026-06-29 22:47 - [委内瑞拉发生余震](http://www.blog.minike.top/Article/details/36445940.shtml)
-- 2026-06-29 22:46 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/17985.shtml)
-- 2026-06-29 22:58 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/70695.shtml)
-- 2026-06-29 22:38 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/68967860852.shtml)
+- 2026-06-29 23:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/613569040111.shtml)
+- 2026-06-29 23:06 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/0742253970.shtml)
+- 2026-06-29 22:48 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/49659310100.shtml)
+- 2026-06-29 23:09 - [把邻居裸体发群算维权还是侵权](http://www.blog.minike.top/Article/details/419441061177.shtml)
+- 2026-06-29 22:54 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/4286954724.shtml)
+- 2026-06-29 22:46 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/21689358671.shtml)
+- 2026-06-29 22:59 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/05454.shtml)
+- 2026-06-29 22:59 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/93426.shtml)
+- 2026-06-29 23:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/46847967.shtml)
+- 2026-06-29 22:57 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/79931161.shtml)
+- 2026-06-29 22:52 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/681565684008.shtml)
+- 2026-06-29 23:10 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/772406210444.shtml)
+- 2026-06-29 23:04 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/093109151949.shtml)
+- 2026-06-29 23:04 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/85155295853.shtml)
+- 2026-06-29 23:10 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/83564186.shtml)

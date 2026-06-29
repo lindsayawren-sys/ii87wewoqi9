@@ -1,56 +1,51 @@
-# 80亿元拿下全球顶级铜矿，套保却巨亏49亿元！江西铜业2025年的扩张与失控
+# 多地暴雨大暴雨 交通运输部维持强降雨二级防御响应
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-来源：华夏时报 金属周期上行未能掩盖财务结构的波动，考验的已不再是周期，而是经营质量。 4月13日，江西铜业（600362.SH）2025年年度业绩说明会完成召开。在沪铜、伦铜双双创下历史新高的2025年，这家国内铜业龙头却交出了一份充满争议的年度成绩单。 财报显示，其上市以来首次出现年度经营活动现金流净流出69.14亿元，衍生金融负债同比暴增11倍，公允价值变动与投资收益合计
+中新网6月16日电 据交通运输部微信公众号消息，中央气象台6月16日06时继续发布暴雨橙色预警，交通运输部维持强降雨二级防御响应： 中央气象台预计，6月16日08时至17日08时，广东中南部、广西东南部和西部、海南岛东北部、福建东南部、云南东部和西北部、四川南部、西藏东南部等地有大到暴雨，其中，广东西南部、珠江口及以东沿海、广西东南部、福建东南部、云南东部等地部分地区有大暴雨，
 
 ## 正文
 
-来源：华夏时报 金属周期上行未能掩盖财务结构的波动，考验的已不再是周期，而是经营质量。
+中新网6月16日电 据交通运输部微信公众号消息，中央气象台6月16日06时继续发布暴雨橙色预警，交通运输部维持强降雨二级防御响应： 中央气象台预计，6月16日08时至17日08时，广东中南部、广西东南部和西部、海南岛东北部、福建东南部、云南东部和西北部、四川南部、西藏东南部等地有大到暴雨，其中，广东西南部、珠江口及以东沿海、广西东南部、福建东南部、云南东部等地部分地区有大暴雨，局地特大暴雨(250～300毫米)；此外，北京西部和东北部、天津北部、河北北部、辽宁西部和北部、吉林中部等地部分地区也有大到暴雨，局地大暴雨。
 
-4月13日，江西铜业（600362.SH）2025年年度业绩说明会完成召开。
+上述部分地区伴有短时强降水(最大小时降雨量30～50毫米，华南局地可超过90毫米)，局地有雷暴大风等强对流天气。
 
-在沪铜、伦铜双双创下历史新高的2025年，这家国内铜业龙头却交出了一份充满争议的年度成绩单。
+16日，交通运输部视频调度北京、天津、河北、山西、内蒙古、辽宁、吉林、福建、广东、广西、海南、四川、西藏、云南省(区、市)交通运输厅(委)，广西、广东、福建海事局，要求保持高度警惕，紧盯强降雨密集地区和连续降雨高风险区域，加强调度，完善工作机制，压实各方责任，督促“响应、巡查、管控”主动防御措施落实，坚决防范遏制重特大事故发生。
 
-财报显示，其上市以来首次出现年度经营活动现金流净流出69.14亿元，衍生金融负债同比暴增11倍，公允价值变动与投资收益合计亏损近49亿元，直接吞噬近半营业利润；存货规模同比大增52%至681.9亿元，仅备货一项就吞噬超233亿元经营现金流。
+要切实做好连续降雨防范应对工作，落实排查、巡查措施，确保力量预置、主动管控到位。
 
-与此同时，江西铜业刚完成对索尔黄金的收购，斥资约80亿元锁定厄瓜多尔Cascabel全球顶级铜矿项目，海外资源扩张动作持续加码。
-
-业绩会上，投资者们围绕债务结构短期化、套保亏损合理性、现金流承压、存货跌价风险等核心问题接连发问，管理层虽逐一回应，却未能完全消解市场对其激进扩张背后盈利质量与风控边界的普遍质疑。
-
-激进扩张 1997年的中国有色金属工业，正站在市场化与全球化的十字路口。
-
-彼时，国内铜矿资源禀赋先天不足，高品位矿山稀缺，冶炼技术与国际巨头差距显著，而随着中国工业化进程提速，对铜这一“工业金属”的需求正以每年两位数的速度攀升。
+各地针对强降雨红色、橙色预警地区，非关停路段白天和夜间巡查不少于2小时1次，关停路段恢复通行前开展一次全面巡查。
 
 ## 相关推荐
 
-- 2026-06-29 22:58 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 22:53 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 22:51 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 22:54 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 22:40 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 23:05 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 22:56 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 22:44 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 23:01 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 22:47 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 23:07 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 22:57 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 22:51 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 22:45 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 22:55 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 23:05 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 22:55 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 22:47 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 23:03 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 23:01 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 22:43 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:01 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/63492.shtml)
-- 2026-06-29 22:49 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/1666964.shtml)
-- 2026-06-29 22:45 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/13120.shtml)
-- 2026-06-29 22:47 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/50456262.shtml)
-- 2026-06-29 22:56 - [绿营污蔑大陆“海上袭扰”被批](https://www.blog.minike.top/Article/details/252854133513.shtml)
-- 2026-06-29 22:41 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/217499227.shtml)
-- 2026-06-29 22:55 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/025330.shtml)
-- 2026-06-29 23:02 - [爱很美味](https://www.share.minike.top/Article/details/1543533571.shtml)
-- 2026-06-29 22:41 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/4444699.shtml)
-- 2026-06-29 22:37 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/038783163650.shtml)
-- 2026-06-29 22:38 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/945551342851.shtml)
-- 2026-06-29 23:00 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/262030.shtml)
-- 2026-06-29 23:05 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/561100.shtml)
-- 2026-06-29 22:44 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/227211.shtml)
-- 2026-06-29 22:49 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/7490713.shtml)
+- 2026-06-29 23:00 - [时光音乐会](https://www.blog.minike.top/Article/details/11944.shtml)
+- 2026-06-29 23:03 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/9600582.shtml)
+- 2026-06-29 23:06 - [记者乘坐无人驾驶汽车去采访](http://www.blog.kurohicncr.top/Article/details/98366567572.shtml)
+- 2026-06-29 22:52 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/988568914004.shtml)
+- 2026-06-29 23:03 - [速度与激情9](https://www.blog.minike.top/Article/details/476407940.shtml)
+- 2026-06-29 23:05 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/1310847.shtml)
+- 2026-06-29 22:57 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/577239450390.shtml)
+- 2026-06-29 22:59 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/514201046.shtml)
+- 2026-06-29 22:45 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/41564801097.shtml)
+- 2026-06-29 22:56 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/043427376.shtml)
+- 2026-06-29 22:49 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/7882132481.shtml)
+- 2026-06-29 22:56 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/92856702612.shtml)
+- 2026-06-29 22:58 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/993006045837.shtml)
+- 2026-06-29 23:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/5580784.shtml)
+- 2026-06-29 22:52 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/050575.shtml)

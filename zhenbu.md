@@ -1,61 +1,50 @@
-# 菲律宾寻求美国延长购买俄罗斯石油的豁免
+# 船舶追踪数据显示：载有卡塔尔货物的液化天然气运输船“迪沙”号穿越霍尔木兹海峡
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-菲律宾能源部长莎伦·加林周二表示，该国已请求美国延长购买俄罗斯石油及石油产品的豁免许可。 加林表示，政府对延长已于4月11日到期的豁免持乐观态度，但也在准备替代供应方案，以防请求被拒。 “我们正在等待美方回应，但对获得这一新窗口期非常乐观，”加林在新闻发布会上表示。 加林说，菲律宾正在实现能源来源多元化，供应选择不限于俄罗斯，政府同时也在关注南美洲的产油国，包括哥伦比亚和阿根廷
+船舶追踪数据显示，在美伊达成和平协议后，印度Petronet公司租用的液化天然气运输船于周一穿越霍尔木兹海峡，向东驶出海峡。 Kpler和LSEG的数据显示，该船于3月1日至2日在卡塔尔的拉夫安港装载货物，此后一直停留在海峡以西。虽然船舶追踪数据未显示该油轮的目的地，但一位知情人士表示，这批货物将运往印度的达赫杰码头。 Petronet尚未立即回应置评请求。责任编辑：刘明亮
 
 ## 正文
 
-菲律宾能源部长莎伦·加林周二表示，该国已请求美国延长购买俄罗斯石油及石油产品的豁免许可。
+船舶追踪数据显示，在美伊达成和平协议后，印度Petronet公司租用的液化天然气运输船于周一穿越霍尔木兹海峡，向东驶出海峡。
 
-加林表示，政府对延长已于4月11日到期的豁免持乐观态度，但也在准备替代供应方案，以防请求被拒。
+Kpler和LSEG的数据显示，该船于3月1日至2日在卡塔尔的拉夫安港装载货物，此后一直停留在海峡以西。
 
-“我们正在等待美方回应，但对获得这一新窗口期非常乐观，”加林在新闻发布会上表示。
+虽然船舶追踪数据未显示该油轮的目的地，但一位知情人士表示，这批货物将运往印度的达赫杰码头。
 
-加林说，菲律宾正在实现能源来源多元化，供应选择不限于俄罗斯，政府同时也在关注南美洲的产油国，包括哥伦比亚和阿根廷，以及加拿大和美国。
+Petronet尚未立即回应置评请求。
 
-“我们希望打开俄罗斯这个窗口，因为我们想要更多选择。
-
-我们需要多元化，”她表示。
-
-菲律宾驻美国大使何塞·曼努埃尔·罗穆亚尔德斯上月表示，马尼拉正在与美国合作，以获得豁免和例外许可，使菲律宾能够从受美国制裁的国家获取石油。
-
-总统费迪南德·马科斯 Jr． 在国会授予其调整燃油税率的紧急权力后，于周一暂停了对煤油和液化石油气的消费税。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 22:51 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 22:51 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 22:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 22:38 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 22:53 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 22:57 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 22:59 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 22:43 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 22:48 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 22:53 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 22:54 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 22:37 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 22:58 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 22:59 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 22:47 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 23:10 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 22:59 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 22:50 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 23:05 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 23:00 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 23:01 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 22:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 23:03 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 22:49 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 22:48 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:49 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/87526.shtml)
-- 2026-06-29 23:01 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/61765285.shtml)
-- 2026-06-29 22:55 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/24798.shtml)
-- 2026-06-29 23:04 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/947726984.shtml)
-- 2026-06-29 23:01 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/477043327.shtml)
-- 2026-06-29 23:03 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/3412768.shtml)
-- 2026-06-29 22:43 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/30962010.shtml)
-- 2026-06-29 22:42 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/86188726687.shtml)
-- 2026-06-29 23:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/0821647.shtml)
-- 2026-06-29 22:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/23157050.shtml)
-- 2026-06-29 22:42 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/03168840436.shtml)
-- 2026-06-29 23:05 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/183180878.shtml)
-- 2026-06-29 22:41 - [一汽大众黄金超混技术来袭](http://www.share.kurohicncr.top/Article/details/48837.shtml)
-- 2026-06-29 23:00 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/92727.shtml)
-- 2026-06-29 22:48 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/51997572809.shtml)
+- 2026-06-29 22:45 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/805952413.shtml)
+- 2026-06-29 22:47 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/3756160205.shtml)
+- 2026-06-29 23:11 - [东方风云榜](http://www.blog.minike.top/Article/details/8014326946.shtml)
+- 2026-06-29 22:49 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/33930564.shtml)
+- 2026-06-29 22:48 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/26516702.shtml)
+- 2026-06-29 22:59 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/2631116463.shtml)
+- 2026-06-29 22:49 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/748434781.shtml)
+- 2026-06-29 23:00 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/959575265.shtml)
+- 2026-06-29 22:59 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/699064.shtml)
+- 2026-06-29 23:02 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/22433188.shtml)
+- 2026-06-29 22:51 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/73561912956.shtml)
+- 2026-06-29 22:49 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/7348409660.shtml)
+- 2026-06-29 22:58 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/07092643.shtml)
+- 2026-06-29 22:59 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/189871630717.shtml)
+- 2026-06-29 23:11 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/77792236.shtml)

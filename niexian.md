@@ -1,56 +1,59 @@
-# 童年回忆“背背佳”要赴港IPO了！可孚医疗通过港交所聆讯，A股股价已较发行价下跌约38%
+# 广西横州茉莉新“智”变 数字种养“点亮”花乡致富路
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-每经记者|李旭馗 每经编辑|陈俊杰 童年记忆里的背背佳，要去港股IPO（首次公开募股）了。 4月10日，背背佳品牌归属方可孚医疗科技股份有限公司（以下简称可孚医疗，SZ301087）的港股IPO申请通过港交所聆讯，华泰国际、法国巴黎银行担任联席保荐人。作为中国最大的家用医疗器械企业之一的可孚医疗，在深交所上市近四年半后，即将实现“A+H”双平台上市。 从湖南一个家用医疗器械夫妻
+中新网南宁6月15日电 (刘海文)“现在‘数字茉莉’全产业链大数据平台集成了AI病虫害识别、AI测产、智能灌溉等功能，农户打开小程序拍照，就能识别茉莉花的病虫害，系统会给出详细的防治方案和用药配比，这给农户的种植和养护提供了极大便利。”广西慧云信息技术有限公司横州市负责人黄荣宁近日接受采访时介绍。 广西横州市素有“世界茉莉花都”的美誉，茉莉花产业历经四十余年发展，现有种植面积超
 
 ## 正文
 
-每经记者|李旭馗 每经编辑|陈俊杰 童年记忆里的背背佳，要去港股IPO（首次公开募股）了。
+中新网南宁6月15日电 (刘海文)“现在‘数字茉莉’全产业链大数据平台集成了AI病虫害识别、AI测产、智能灌溉等功能，农户打开小程序拍照，就能识别茉莉花的病虫害，系统会给出详细的防治方案和用药配比，这给农户的种植和养护提供了极大便利。
 
-4月10日，背背佳品牌归属方可孚医疗科技股份有限公司（以下简称可孚医疗，SZ301087）的港股IPO申请通过港交所聆讯，华泰国际、法国巴黎银行担任联席保荐人。
+”广西慧云信息技术有限公司横州市负责人黄荣宁近日接受采访时介绍。
 
-作为中国最大的家用医疗器械企业之一的可孚医疗，在深交所上市近四年半后，即将实现“A+H”双平台上市。
+广西横州市素有“世界茉莉花都”的美誉，茉莉花产业历经四十余年发展，现有种植面积超12万亩，惠及超33万名花农。
 
-从湖南一个家用医疗器械夫妻店，到如今年营收近34亿元、市值超120亿元的上市公司，张敏与聂娟夫妇用近二十年时间，书写了一个草根逆袭的商业故事，也让“古早”品牌背背佳再度步入大众的视野。
+如今，这座“世界茉莉花都”借力数字技术升级传统产业，赋能乡村振兴，尽显发展新貌。
 
-但《每日经济新闻》记者注意到，为了让背背佳“翻红”并维持热度，公司销售支出逐年走高，研发投入逐年下降。
+为破解产业发展堵点难点，当地搭建“数字茉莉”全产业链大数据平台，运用大数据、信息化技术，贯通种植、生产、流通等产业服务全环节，打造智慧种植、智慧交易、全程监管的产业体系，让传统花田迎来全方位“智”变。
 
-尽管如此，背背佳的功效在网上却仍存在较大争议。
+在中华茉莉园数字化种植基地，物联网传感器、信息素诱捕器等设备分布田间，实时采集光照、温湿度、病虫害等各类数据，实现生产过程数字化、在线化、可视化管理。
 
-公司通过收购加速布局海外渠道，效果尚待市场验证，而其A股股价却仍在发行价之下挣扎。
+“这个诱捕器可利用信息素诱捕成虫，自动统计虫体数量。
 
-公开资料显示，可孚医疗的故事始于2007年。
+再通过结合虫害习性与气象数据，利用系统推算出病虫害防治窗口期，第一时间向花农推送预警提醒。
 
 ## 相关推荐
 
-- 2026-06-29 22:45 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 22:40 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 23:01 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 23:03 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 22:45 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 22:46 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 22:50 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 22:36 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 23:03 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 22:49 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 22:56 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 23:04 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 22:44 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 22:54 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 22:48 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 22:53 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 22:45 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 23:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 23:03 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 22:48 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 22:51 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 22:59 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 22:51 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:48 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/116579762660.shtml)
-- 2026-06-29 22:38 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/201838753092.shtml)
-- 2026-06-29 22:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/163542.shtml)
-- 2026-06-29 22:46 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/891232.shtml)
-- 2026-06-29 22:53 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/5404948561.shtml)
-- 2026-06-29 22:48 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/690935.shtml)
-- 2026-06-29 22:50 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/322432840.shtml)
-- 2026-06-29 23:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/02825.shtml)
-- 2026-06-29 22:55 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/89559567.shtml)
-- 2026-06-29 22:36 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/32390.shtml)
-- 2026-06-29 22:52 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/3600110.shtml)
-- 2026-06-29 22:55 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/004618.shtml)
-- 2026-06-29 22:40 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/671742967693.shtml)
-- 2026-06-29 22:52 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/0959536426.shtml)
-- 2026-06-29 22:58 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/12784074592.shtml)
+- 2026-06-29 22:51 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/4776075386.shtml)
+- 2026-06-29 23:03 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/96758341.shtml)
+- 2026-06-29 23:09 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/09118402.shtml)
+- 2026-06-29 22:51 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/3942286.shtml)
+- 2026-06-29 22:51 - [任泽平：AI浪潮刚刚开始](https://www.share.minike.top/Article/details/608866.shtml)
+- 2026-06-29 23:07 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/20070766.shtml)
+- 2026-06-29 23:00 - [记者乘坐无人驾驶汽车去采访](http://www.share.minike.top/Article/details/520511230603.shtml)
+- 2026-06-29 23:03 - [哈兰德吃饭被镜中自己吓到](https://www.blog.kurohicncr.top/Article/details/02989614.shtml)
+- 2026-06-29 22:47 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/29658407055.shtml)
+- 2026-06-29 23:11 - [起风了](http://www.share.kurohicncr.top/Article/details/38026.shtml)
+- 2026-06-29 22:56 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/2604852262.shtml)
+- 2026-06-29 22:42 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/76416116658.shtml)
+- 2026-06-29 22:42 - [毒液2](http://www.share.kurohicncr.top/Article/details/194367855.shtml)
+- 2026-06-29 22:42 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/58610706148.shtml)
+- 2026-06-29 23:01 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/260090.shtml)

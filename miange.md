@@ -1,58 +1,56 @@
-# 海豚钻探公司为半潜式钻井平台锁定钻井作业合同
+# 【真相】当代“农夫与蛇”：中国为何制裁菲律宾防长？
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-海上钻井承包商海豚钻探公司已签署一份关于“ Borgland Dolphin ”号半潜式钻井平台作业合同的意向书。 该潜在合同价值预计约为2.3亿美元，计划于2027年下半年开始执行，紧随“ Borgland Dolphin ”号完成与雷普索尔现有合同之后直接衔接。 合同固定期限将持续至该钻井平台当前特别定期检验到期之日（2031年10月），包含动员和复员费用，并且预计还有再延
+发布时间：2026年06月14日 10:20 来源：中国新闻网 6月12日，中国外交部宣布：对菲律宾国防部长特奥多罗及其全家实施制裁，禁止入境中国内地、香港、澳门，禁止任何中国机构和个人与他做生意。他的这些言行不是他所标榜的所谓“维护本国尊严”，而是捞取政治私利的作秀表演。 为什么制裁他？因为这是一出现代版的《农夫与蛇》的故事。伊索寓言中的这个故事，常常用来形容那些受了恩惠却反
 
 ## 正文
 
-海上钻井承包商海豚钻探公司已签署一份关于“ Borgland Dolphin ”号半潜式钻井平台作业合同的意向书。
+发布时间：2026年06月14日 10:20 来源：中国新闻网 6月12日，中国外交部宣布：对菲律宾国防部长特奥多罗及其全家实施制裁，禁止入境中国内地、香港、澳门，禁止任何中国机构和个人与他做生意。
 
-该潜在合同价值预计约为2.3亿美元，计划于2027年下半年开始执行，紧随“ Borgland Dolphin ”号完成与雷普索尔现有合同之后直接衔接。
+他的这些言行不是他所标榜的所谓“维护本国尊严”，而是捞取政治私利的作秀表演。
 
-合同固定期限将持续至该钻井平台当前特别定期检验到期之日（2031年10月），包含动员和复员费用，并且预计还有再延长5年的选择权。
+为什么制裁他？
 
-双方打算根据该意向书继续谈判合同条款。
+因为这是一出现代版的《农夫与蛇》的故事。
 
-意向书中包含一笔有利于海豚钻探公司的最高380万美元的终止费。
+伊索寓言中的这个故事，常常用来形容那些受了恩惠却反咬一口的忘恩负义之徒，中国也有《东郭先生与狼》。
 
-最终合同尚需达成协议并经过各自管理层的批准。
+现实中，这位防长就是这样一个活生生的角色。
 
-“ Borgland Dolphin ”号钻井平台于1977年由哈兰德与沃尔夫造船厂建造，并于1998/1999年进行了升级。
+2026年3月，菲律宾深陷能源危机，紧急向中方求援。
 
-该平台最大钻井深度为27，800英尺，可在1，476英尺的水深条件下作业。
+中方秉持邻邦善意，火速驰援，提供了15万吨化肥和26万桶柴油，实实在在解了菲方的燃眉之急。
 
 ## 相关推荐
 
-- 2026-06-29 22:37 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 22:57 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 22:45 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 22:59 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 22:52 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 22:39 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 22:54 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 22:55 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 22:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 22:51 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 22:43 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 22:54 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 23:03 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 22:47 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 22:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 23:07 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 23:07 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 22:54 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 22:46 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 23:08 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 22:56 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 23:08 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:47 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/7373325095.shtml)
-- 2026-06-29 22:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/829157.shtml)
-- 2026-06-29 22:44 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/054680272.shtml)
-- 2026-06-29 22:38 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/89007679.shtml)
-- 2026-06-29 22:58 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/559131296.shtml)
-- 2026-06-29 23:02 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.kurohicncr.top/Article/details/71676303.shtml)
-- 2026-06-29 22:59 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/62168.shtml)
-- 2026-06-29 23:00 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/21453958266.shtml)
-- 2026-06-29 22:50 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/14077239.shtml)
-- 2026-06-29 23:03 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/3769682.shtml)
-- 2026-06-29 22:49 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/34443.shtml)
-- 2026-06-29 22:50 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/65422382713.shtml)
-- 2026-06-29 22:56 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/5523827.shtml)
-- 2026-06-29 23:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/13661548794.shtml)
-- 2026-06-29 23:03 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/60771943.shtml)
+- 2026-06-29 23:08 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/31526392.shtml)
+- 2026-06-29 23:07 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/752415974.shtml)
+- 2026-06-29 23:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/897598269.shtml)
+- 2026-06-29 22:51 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/071260.shtml)
+- 2026-06-29 22:49 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/0037799.shtml)
+- 2026-06-29 22:54 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/690308107084.shtml)
+- 2026-06-29 22:59 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/965941840.shtml)
+- 2026-06-29 22:49 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/3461379.shtml)
+- 2026-06-29 22:58 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/3561280429.shtml)
+- 2026-06-29 22:50 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/27752038.shtml)
+- 2026-06-29 22:59 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/5236951031.shtml)
+- 2026-06-29 23:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/793152.shtml)
+- 2026-06-29 22:51 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/565252711957.shtml)
+- 2026-06-29 22:54 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/83673412854.shtml)
+- 2026-06-29 22:45 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/55580.shtml)

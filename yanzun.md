@@ -1,56 +1,56 @@
-# 广东将携手港澳建设十万卡级智算集群
+# 美银：首予智谱和MINIMAX-W“买入”评级 全球AI市场正在形成双速格局
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-中新社广州4月15日电 (记者 程景伟)广东省发展和改革委员会主任龚桢梽15日在广州称，共建“数字湾区”方面，“十五五”时期广东将携手港澳加强算力供给，建设十万卡级智算集群，争取2030年全省智算规模突破1000E，打造协同创新引擎。在中国国务院新闻办公室当日举行的中外记者见面会上，龚桢梽表示，“十四五”时期，广东人工智能发展综合实力大幅跃升，2025年全省人工智能核心产业规模
+美国银行发布研报称，首次给予智谱（02513）和MINIMAX-W（00100）“买入”的投资评级，目标价分别为1250港元及500港元。美银表示，全球人工智能（AI）市场正在形成双速格局：美国企业可能在前沿能力方面保持领先，而中国模型则凭借其低成本和高性能而获得市场认可。尽管运算能力受限，中国企业仍在优化支出策略——随着前沿模型价格的上涨，这种性价比优势在全球日益重要，尤其是
 
 ## 正文
 
-中新社广州4月15日电 (记者 程景伟)广东省发展和改革委员会主任龚桢梽15日在广州称，共建“数字湾区”方面，“十五五”时期广东将携手港澳加强算力供给，建设十万卡级智算集群，争取2030年全省智算规模突破1000E，打造协同创新引擎。
+美国银行发布研报称，首次给予智谱（02513）和MINIMAX-W（00100）“买入”的投资评级，目标价分别为1250港元及500港元。
 
-在中国国务院新闻办公室当日举行的中外记者见面会上，龚桢梽表示，“十四五”时期，广东人工智能发展综合实力大幅跃升，2025年全省人工智能核心产业规模突破3000亿元人民币，同比实现超40%的高速增长，稳居全国第一方阵。
+美银表示，全球人工智能（AI）市场正在形成双速格局：美国企业可能在前沿能力方面保持领先，而中国模型则凭借其低成本和高性能而获得市场认可。
 
-他提到，“十五五”时期，广东将率先建成全国领先、具有全球竞争力的人工智能创新发展高地。
+尽管运算能力受限，中国企业仍在优化支出策略——随着前沿模型价格的上涨，这种性价比优势在全球日益重要，尤其是在大批量、非关键应用场景中。
 
-具体来看，该省主要具有全球三方面基础优势，其中，“深圳—香港—广州”创新集群(在全球百强创新集群中)跃居全球第一，汇聚世界级科研机构、人才和企业，为人工智能发展提供创新土壤。
+美银指，凭借更强劲的资产负债表和整合的云平台，现有企业能够更好地承受模型层利润率较低的情况，从而推动运算资源的交叉销售。
 
-同时，广东是中国制造业大省和“世界工厂”，拥有10个万亿级产业集群，为包括人工智能在内的产业提供广阔而丰富的应用场景。
+同时，DeepSeek 不断提升的能力和有限的商业化策略正在将行业标杆重新定义为“高性能、低成本”，从而压缩了独立模型提供者的利润空间。
 
-此外，该省率先对接国际高标准经贸规则，在数据跨境流动等领域先行一步，可为人工智能“出海”探索制度创新经验。
+AI 的商业化仍然以企业为主导，云和模型即服务（MaaS）是最清晰的途径。
 
-龚桢梽表示，广东近期将印发推进人工智能全域全时全行业应用行动方案，围绕科技、产业、民生等7大类60多个细分领域制定应用方案，广邀港澳共同举办应用对接大会，充分释放市场活力。
+在消费级AI领域，并非所有用户都能平等地盈利。
 
-据悉，广东将打造广州琶洲、深圳南山、东莞滨海湾等人工智能产业集聚区，支持佛山、珠海等地建设一批“人工智能+”“机器人+”示范园区和中试基地，从而推动形成全域推进的良好态势。
+价值正向高意图的“产消者”转移，而通过订阅实现的大众普及型商业化仍处于起步阶段。
 
 ## 相关推荐
 
-- 2026-06-29 22:44 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 22:52 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 23:00 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 22:38 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 22:44 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 22:52 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 22:50 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 22:54 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 23:01 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 22:45 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 23:04 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 23:05 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 22:56 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 23:11 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 23:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 22:59 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 22:46 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 23:06 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 22:50 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 22:50 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:48 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/8489731.shtml)
-- 2026-06-29 22:58 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/8505268016.shtml)
-- 2026-06-29 22:43 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/6379743368.shtml)
-- 2026-06-29 22:43 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/048072645.shtml)
-- 2026-06-29 22:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/07170400.shtml)
-- 2026-06-29 22:49 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/518424594.shtml)
-- 2026-06-29 22:38 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/82813834673.shtml)
-- 2026-06-29 22:56 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/603514644130.shtml)
-- 2026-06-29 23:04 - [田曦薇没招了](http://www.blog.minike.top/Article/details/7318205.shtml)
-- 2026-06-29 23:00 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/0766929244.shtml)
-- 2026-06-29 22:51 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/392009.shtml)
-- 2026-06-29 22:53 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/321224938.shtml)
-- 2026-06-29 22:40 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/4853076.shtml)
-- 2026-06-29 22:45 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/1529068.shtml)
-- 2026-06-29 22:38 - [起风了](https://www.share.minike.top/Article/details/552678953874.shtml)
+- 2026-06-29 22:44 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/3008913416.shtml)
+- 2026-06-29 23:02 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/42061.shtml)
+- 2026-06-29 22:47 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/922429648667.shtml)
+- 2026-06-29 23:11 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/748567113.shtml)
+- 2026-06-29 23:11 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/09616.shtml)
+- 2026-06-29 22:44 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/3782894.shtml)
+- 2026-06-29 22:45 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/1639941.shtml)
+- 2026-06-29 22:56 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/33945551288.shtml)
+- 2026-06-29 23:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/032358.shtml)
+- 2026-06-29 22:50 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/460912.shtml)
+- 2026-06-29 23:04 - [委内瑞拉发生余震](http://www.blog.kurohicncr.top/Article/details/25059378705.shtml)
+- 2026-06-29 23:10 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/34055277283.shtml)
+- 2026-06-29 23:01 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/50137969259.shtml)
+- 2026-06-29 22:58 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/05046.shtml)
+- 2026-06-29 22:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/7162705630.shtml)

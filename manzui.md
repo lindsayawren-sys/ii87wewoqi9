@@ -1,57 +1,46 @@
-# Zillow首席执行官：成功并非靠线性职业路径，更像是一座“攀爬架”
+# 达力普控股于6月12日斥资157.95万港元回购51.8万股
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-作者：阿什顿・杰克逊 Zillow 首席执行官杰里米・瓦克斯曼表示，很少有人能沿着一条笔直的职业道路走向成功。 “职业发展其实不是一条直线或台阶，” 瓦克斯曼对 CNBC Make It 栏目说道，“往往是接受那些能以全新不同方式锻炼你的新任务，才会带来最大的成长。” 在瓦克斯曼看来，大多数人会从接受意料之外的工作或本职以外的项目中获益更多，而非把自己束缚在严格、线性的职业路径
+达力普控股（01921）发布公告，于2026年6月12日斥资157.95万港元回购51.8万股。责任编辑：卢昱君
 
 ## 正文
 
-作者：阿什顿・杰克逊 Zillow 首席执行官杰里米・瓦克斯曼表示，很少有人能沿着一条笔直的职业道路走向成功。
+达力普控股（01921）发布公告，于2026年6月12日斥资157.95万港元回购51.8万股。
 
-“职业发展其实不是一条直线或台阶，” 瓦克斯曼对 CNBC Make It 栏目说道，“往往是接受那些能以全新不同方式锻炼你的新任务，才会带来最大的成长。
-
-” 在瓦克斯曼看来，大多数人会从接受意料之外的工作或本职以外的项目中获益更多，而非把自己束缚在严格、线性的职业路径上、从不偏离。
-
-他说，不妨让自己走一条更接近 “职业攀爬架” 的道路。
-
-不走线性职业路线，并不意味着要离开所在行业，甚至离开所在公司。
-
-瓦克斯曼以自身为例：他最初以营销副总裁的身份加入 Zillow，但就在他入职前后，苹果推出了 iPhone 及其应用商店。
-
-他表示，尽管自己毫无移动应用相关经验，却被委以重任，牵头推动公司的移动端房产购物业务。
-
-“当时 Zillow 完全没有任何移动端业务，” 瓦克斯曼说，“我们只是一个仅限电脑端使用的搜索引擎。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 22:59 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 22:58 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 22:47 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 22:56 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 22:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 22:48 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 23:02 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 22:49 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 22:58 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 23:04 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 22:56 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 22:46 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 23:06 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 22:53 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 22:55 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 22:48 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 22:44 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 23:02 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 22:58 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 22:48 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 22:44 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 23:10 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:43 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/433134689.shtml)
-- 2026-06-29 22:42 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/19349695.shtml)
-- 2026-06-29 22:49 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/34949826.shtml)
-- 2026-06-29 22:43 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/7381869167.shtml)
-- 2026-06-29 22:41 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/125741749.shtml)
-- 2026-06-29 22:55 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/5034658.shtml)
-- 2026-06-29 22:55 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/10953367086.shtml)
-- 2026-06-29 22:44 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/741955169.shtml)
-- 2026-06-29 23:02 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/79142819139.shtml)
-- 2026-06-29 23:01 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/26919.shtml)
-- 2026-06-29 22:48 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.kurohicncr.top/Article/details/2782978.shtml)
-- 2026-06-29 22:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/148708447182.shtml)
-- 2026-06-29 22:47 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/568462.shtml)
-- 2026-06-29 23:05 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/39145.shtml)
-- 2026-06-29 22:40 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/33350.shtml)
+- 2026-06-29 22:42 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/5095027.shtml)
+- 2026-06-29 23:06 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/62383.shtml)
+- 2026-06-29 23:08 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/90966.shtml)
+- 2026-06-29 22:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/806935282.shtml)
+- 2026-06-29 22:54 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/345057867317.shtml)
+- 2026-06-29 23:10 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/736804532.shtml)
+- 2026-06-29 23:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/492383.shtml)
+- 2026-06-29 23:02 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/680441676723.shtml)
+- 2026-06-29 22:50 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/13916102.shtml)
+- 2026-06-29 23:02 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/15395778.shtml)
+- 2026-06-29 22:59 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/2592232.shtml)
+- 2026-06-29 22:42 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/78983704013.shtml)
+- 2026-06-29 23:03 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/08446.shtml)
+- 2026-06-29 23:06 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/06294.shtml)
+- 2026-06-29 22:42 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/639775658484.shtml)

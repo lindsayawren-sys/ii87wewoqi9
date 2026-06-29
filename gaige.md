@@ -1,57 +1,53 @@
-# 从高尔夫球车到宇树机器人，涛涛车业股价报221.74元，一年涨超338% | 长三角资本局
+# 第十七届海峡两岸少儿美术大展厦门展开幕
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 从卖高尔夫球车到牵手宇树，涛涛车业这轮被市场重新认识，表面上看是踩中了人形机器人的风口，真正把公司推上高位的，却是它多年在北美市场织起来的渠道网。过去一年，这种重估已经直接写进了股价里。 公开行情显示，截至2026年4月15日收盘，涛涛车业报221.74元/股，其中从2025年4月至2026年新高位置涨幅已超338%，股价从低位走出了数倍涨幅。 这家公
+发布时间：2026年06月14日 20:50 来源：中国新闻网 以“信”为主题的第十七届海峡两岸少儿美术大展厦门展开幕式6月14日在厦门市美术馆举行。 展览精选600组海峡两岸暨港澳、马来西亚华人地区的青少年作品展出，孩子们用自己的方式，写下一封封特别的“信”——给最爱的故土亲人、给远方素不相识的你、给未来的新世界。 厦门展展期至6月24日，本届大展还将落地台北、北京、高雄等两
 
 ## 正文
 
-文|新浪财经上海站 十里 从卖高尔夫球车到牵手宇树，涛涛车业这轮被市场重新认识，表面上看是踩中了人形机器人的风口，真正把公司推上高位的，却是它多年在北美市场织起来的渠道网。
+发布时间：2026年06月14日 20:50 来源：中国新闻网 以“信”为主题的第十七届海峡两岸少儿美术大展厦门展开幕式6月14日在厦门市美术馆举行。
 
-过去一年，这种重估已经直接写进了股价里。
+展览精选600组海峡两岸暨港澳、马来西亚华人地区的青少年作品展出，孩子们用自己的方式，写下一封封特别的“信”——给最爱的故土亲人、给远方素不相识的你、给未来的新世界。
 
-公开行情显示，截至2026年4月15日收盘，涛涛车业报221.74元/股，其中从2025年4月至2026年新高位置涨幅已超338%，股价从低位走出了数倍涨幅。
+厦门展展期至6月24日，本届大展还将落地台北、北京、高雄等两岸城市举办巡展，延续这场跨越海峡的艺术之旅。
 
-这家公司的热度并非凭空而来。
+记者了解到，海峡两岸少儿美术大展是国台办对台重点交流项目，由两岸多家机构、单位共同发起并推动，自2009年至今已成功举办至十七届，是两岸覆盖面广、影响力大、水平高、持续时间长的少儿美术大展。
 
-2025年7月，涛涛车业与宇树科技签署战略合作协议，合作方向包括机器人在北美等海外市场开拓、C端场景探索、产品二次开发销售和商业化落地。
-
-几个月后，公司又向香港联交所递交H股发行上市申请。
-
-到2026年3月披露年报时，涛涛车业2025年实现营业收入39.41亿元，同比增长32.41%，归母净利润8.16亿元，同比增长89.29%，并拟每10股派现15元。
-
-宇树合作、赴港融资、业绩高增几条线索集中叠加，也让涛涛车业迅速从一家低速出行产品出口商，变成资本市场眼中的“渠道+机器人”双重概念股。
+(记者 吴晟炜) 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 23:05 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 22:53 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 23:03 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 22:41 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 23:01 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 23:05 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 23:05 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 22:37 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 22:37 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 22:40 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 22:51 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 22:52 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 23:06 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 23:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 22:43 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 23:00 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 23:02 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 23:01 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 23:05 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 22:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 22:47 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 23:05 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 23:02 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 22:42 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:37 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/735170.shtml)
-- 2026-06-29 22:42 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/96887.shtml)
-- 2026-06-29 22:46 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/4868154.shtml)
-- 2026-06-29 23:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/51106117578.shtml)
-- 2026-06-29 22:49 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/132473.shtml)
-- 2026-06-29 22:55 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/458803.shtml)
-- 2026-06-29 22:38 - [一生一世](https://www.share.kurohicncr.top/Article/details/73986489765.shtml)
-- 2026-06-29 22:55 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/5559930.shtml)
-- 2026-06-29 22:44 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/37497.shtml)
-- 2026-06-29 22:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/33688668698.shtml)
-- 2026-06-29 22:44 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.minike.top/Article/details/72873332030.shtml)
-- 2026-06-29 23:01 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/46705.shtml)
-- 2026-06-29 22:53 - [扫黑风暴](http://www.share.minike.top/Article/details/77728838.shtml)
-- 2026-06-29 22:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/04146907.shtml)
-- 2026-06-29 22:41 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/3830358136.shtml)
+- 2026-06-29 22:59 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/879537397348.shtml)
+- 2026-06-29 23:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/0160864.shtml)
+- 2026-06-29 22:59 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/241574.shtml)
+- 2026-06-29 22:51 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/9614548194.shtml)
+- 2026-06-29 23:01 - [记者乘坐无人驾驶汽车去采访](https://www.share.minike.top/Article/details/06191595.shtml)
+- 2026-06-29 22:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/247398449.shtml)
+- 2026-06-29 22:49 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/8748352.shtml)
+- 2026-06-29 22:54 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/38759626.shtml)
+- 2026-06-29 22:51 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/10462.shtml)
+- 2026-06-29 22:56 - [金刚川](https://www.share.kurohicncr.top/Article/details/40118319.shtml)
+- 2026-06-29 23:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/9534174.shtml)
+- 2026-06-29 23:10 - [急先锋](https://www.blog.kurohicncr.top/Article/details/461272488.shtml)
+- 2026-06-29 23:01 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/6711429.shtml)
+- 2026-06-29 23:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/8481105.shtml)
+- 2026-06-29 22:44 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/962820.shtml)

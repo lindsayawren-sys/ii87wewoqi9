@@ -1,58 +1,58 @@
-# 小雨伞母公司手回集团：百亿保费背后的盈利隐忧
+# 向投资者承诺SpaceX的IPO股份却落空 韩国未来资产遭监管机构调查
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-日前，知名保险平台小雨伞的母公司——手回集团有限公司（以下简称：手回集团）发布上市后首份完整年度财报：总保费突破112亿元，同比大涨37%，首年保费增速近五成，规模扩张势头强劲。 然而，这份看似亮眼的成绩单背后，却暗藏净利润“缩水”、毛利率下滑、业务结构单一等多重隐忧，折射出保险中介行业在严监管与去中介化趋势下的集体困境。 财报显示，手回集团2025年净利润达7.94亿元，同比
+据知情人士透露，韩国金融监管机构扩大对未来资产证券的检查范围，以调查该经纪公司未能获得分配SpaceX首次公开招股(IPO)股份的原因。 未来资产是此次IPO的承销商之一，曾向部分投资者提供认购股票的机会，但最终并未获得任何股份。 知情人士透露，韩国金融监督院上周已开始对该券商进行检查，以确定认购SpaceX股票的投资者是否符合注册专业投资者的资格要求。由于此事尚未公开，知情人
 
 ## 正文
 
-日前，知名保险平台小雨伞的母公司——手回集团有限公司（以下简称：手回集团）发布上市后首份完整年度财报：总保费突破112亿元，同比大涨37%，首年保费增速近五成，规模扩张势头强劲。
+据知情人士透露，韩国金融监管机构扩大对未来资产证券的检查范围，以调查该经纪公司未能获得分配SpaceX首次公开招股(IPO)股份的原因。
 
-然而，这份看似亮眼的成绩单背后，却暗藏净利润“缩水”、毛利率下滑、业务结构单一等多重隐忧，折射出保险中介行业在严监管与去中介化趋势下的集体困境。
+未来资产是此次IPO的承销商之一，曾向部分投资者提供认购股票的机会，但最终并未获得任何股份。
 
-财报显示，手回集团2025年净利润达7.94亿元，同比暴增685.2%，一举扭转2024年1.36亿元亏损的局面。
+知情人士透露，韩国金融监督院上周已开始对该券商进行检查，以确定认购SpaceX股票的投资者是否符合注册专业投资者的资格要求。
 
-但深入分析发现，这一数字的“含金量”存疑：6.19亿元利润来自金融工具公允价值变动，本质是上市前优先股转普通股产生的账面收益，与主营业务无关。
+由于此事尚未公开，知情人士要求匿名。
 
-剔除一次性会计收益后，经调整净利润仅2亿元，同比下滑17.1%，真实盈利能力持续承压。
+与大多数亚洲市场一样，韩国的散户投资者也被排除在SpaceX大型上市交易之外。
 
-毛利率的下滑进一步印证了盈利质量的恶化。
+未来资产选择以非公开配售的形式向注册为专业人士的客户而非散户投资者提供股票。
 
-2025年，手回集团整体毛利率从38.1%骤降至32.9%，核心业务保险交易服务毛利率亦从38.0%降至32.5%。
+据知情人士说，尽管未来资产已接受投资者的保证金，但在SpaceX的IPO中却未能获得任何股份分配，因此监管机构扩大了调查范围。
 
-公司解释称，这主要受“报行合一”政策影响，行业佣金费率承压，同时为抢占长期重疾险市场，公司主动加大了对持牌经纪合作方及自媒体流量渠道的佣金与推广投入。
+未来资产提供的机会吸引旺盛需求。
 
 ## 相关推荐
 
-- 2026-06-29 22:47 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 22:42 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 22:57 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 22:55 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 23:04 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 23:03 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 23:01 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 22:57 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 22:36 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 23:02 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 22:36 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 23:04 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 22:53 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 22:57 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 23:11 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 23:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 22:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 22:55 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 22:44 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 22:44 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 22:57 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 22:57 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 23:00 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 23:08 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:47 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/61598891.shtml)
-- 2026-06-29 22:46 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/76899951.shtml)
-- 2026-06-29 22:56 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/944117470564.shtml)
-- 2026-06-29 22:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/236728.shtml)
-- 2026-06-29 22:42 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/77440.shtml)
-- 2026-06-29 23:05 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/35983.shtml)
-- 2026-06-29 22:44 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/2395179.shtml)
-- 2026-06-29 22:51 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/28569.shtml)
-- 2026-06-29 22:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/44804.shtml)
-- 2026-06-29 22:43 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/4794541.shtml)
-- 2026-06-29 22:39 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/48720655.shtml)
-- 2026-06-29 22:36 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/85331895.shtml)
-- 2026-06-29 23:01 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/71361.shtml)
-- 2026-06-29 22:43 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/192763770408.shtml)
-- 2026-06-29 22:44 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/778739904.shtml)
+- 2026-06-29 23:01 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/0300222.shtml)
+- 2026-06-29 23:05 - [逃狱兄弟](https://www.share.minike.top/Article/details/90146761553.shtml)
+- 2026-06-29 22:49 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/881876993545.shtml)
+- 2026-06-29 22:54 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/99910110267.shtml)
+- 2026-06-29 22:52 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/2561535837.shtml)
+- 2026-06-29 23:04 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/2761848.shtml)
+- 2026-06-29 23:01 - [金牌调解](https://www.share.kurohicncr.top/Article/details/36810332947.shtml)
+- 2026-06-29 22:55 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/171332.shtml)
+- 2026-06-29 23:05 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/45099.shtml)
+- 2026-06-29 23:06 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/8516734026.shtml)
+- 2026-06-29 22:53 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/924170.shtml)
+- 2026-06-29 22:51 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/26285936892.shtml)
+- 2026-06-29 22:53 - [杨德龙：创新药迎来新的发展机遇](https://www.share.kurohicncr.top/Article/details/53301.shtml)
+- 2026-06-29 22:54 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/65561.shtml)
+- 2026-06-29 22:55 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/17350236.shtml)

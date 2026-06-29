@@ -1,49 +1,50 @@
-# 乌军对克里米亚发动大规模袭击
+# 中国成功发射吉星高分07C04星等8颗卫星
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-乌克兰国防部长顾问谢尔盖·斯捷尔年科14日在社交媒体上说，乌克兰军队夜间对克里米亚发动了大规模袭击，克里米亚的辛菲罗波尔、费奥多西亚和刻赤地区响起爆炸声。 此外，乌军还袭击了扎波罗热地区梅利托波尔的一个变电站。 (央视新闻客户端)
+发布时间：2026年06月15日 13:18 来源：中国新闻网 北京时间6月15日11时44分，中国在东风商业航天创新试验区使用力箭一号遥十四运载火箭，成功将吉星高分07C04等8颗卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。 此次任务是力箭一号运载火箭的第14次飞行。(马帅莎 李欣媛 制作 王嘉怡 视频来源 酒泉卫星发射中心） 责任编辑：【罗攀】
 
 ## 正文
 
-乌克兰国防部长顾问谢尔盖·斯捷尔年科14日在社交媒体上说，乌克兰军队夜间对克里米亚发动了大规模袭击，克里米亚的辛菲罗波尔、费奥多西亚和刻赤地区响起爆炸声。
+发布时间：2026年06月15日 13:18 来源：中国新闻网 北京时间6月15日11时44分，中国在东风商业航天创新试验区使用力箭一号遥十四运载火箭，成功将吉星高分07C04等8颗卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
 
-此外，乌军还袭击了扎波罗热地区梅利托波尔的一个变电站。
+此次任务是力箭一号运载火箭的第14次飞行。
 
-(央视新闻客户端)
+(马帅莎 李欣媛 制作 王嘉怡 视频来源 酒泉卫星发射中心） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 22:40 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 22:38 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 22:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 23:04 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 22:52 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 22:49 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 22:52 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 22:49 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 22:42 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 22:36 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 22:50 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 22:46 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 22:56 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 22:47 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 23:05 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 23:02 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 22:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 23:05 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 22:48 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 22:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 22:55 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 23:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 23:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 22:54 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 23:07 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 22:57 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 23:09 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:58 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/7552184.shtml)
-- 2026-06-29 22:48 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/512681.shtml)
-- 2026-06-29 22:44 - [佛得角队长门德斯被控强奸](https://www.blog.minike.top/Article/details/9995912.shtml)
-- 2026-06-29 22:52 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/8354191.shtml)
-- 2026-06-29 22:50 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/2431289.shtml)
-- 2026-06-29 22:55 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/80362.shtml)
-- 2026-06-29 22:56 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/421370042.shtml)
-- 2026-06-29 22:45 - [一生一世](https://www.blog.kurohicncr.top/Article/details/88540288275.shtml)
-- 2026-06-29 22:55 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/85961732.shtml)
-- 2026-06-29 22:43 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/36033017.shtml)
-- 2026-06-29 22:43 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/2107252257.shtml)
-- 2026-06-29 23:02 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/3195959.shtml)
-- 2026-06-29 22:39 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/8200242849.shtml)
-- 2026-06-29 22:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/026796194903.shtml)
-- 2026-06-29 23:01 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/8371267.shtml)
+- 2026-06-29 23:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/99003173.shtml)
+- 2026-06-29 22:58 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/1383912.shtml)
+- 2026-06-29 22:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/4067327474.shtml)
+- 2026-06-29 22:45 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/98362.shtml)
+- 2026-06-29 23:01 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/73935351.shtml)
+- 2026-06-29 23:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/92070.shtml)
+- 2026-06-29 22:54 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/37631855.shtml)
+- 2026-06-29 22:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/098134.shtml)
+- 2026-06-29 22:51 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/31311732245.shtml)
+- 2026-06-29 23:10 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/2949815565.shtml)
+- 2026-06-29 23:00 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/894041410361.shtml)
+- 2026-06-29 23:00 - [东方风云榜直播](http://www.share.minike.top/Article/details/4804629.shtml)
+- 2026-06-29 22:48 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/056121.shtml)
+- 2026-06-29 22:42 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/58145130.shtml)
+- 2026-06-29 23:07 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/9892948433.shtml)

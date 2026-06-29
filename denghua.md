@@ -1,60 +1,47 @@
-# 微软下月推新功能，限制企业"影子AI"使用风险
+# 刚果（金）埃博拉确诊病例超过700例
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：IT之家）IT之家 4 月 16 日消息，科技媒体 NeoWin 昨日（4 月 15 日）发布博文，基于 Microsoft 365 路线图，微软计划支持 IT 管理员配置 Edge 浏览器，限制员工使用 Qwen、Gemini、Grok 等 AI 工具，并引导员工使用合规的 Copilot 服务。
+发布时间：2026年06月15日 10:51 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-（来源：IT之家）IT之家 4 月 16 日消息，科技媒体 NeoWin 昨日（4 月 15 日）发布博文，基于 Microsoft 365 路线图，微软计划支持 IT 管理员配置 Edge 浏览器，限制员工使用 Qwen、Gemini、Grok 等 AI 工具，并引导员工使用合规的 Copilot 服务。
-
-根据 Microsoft 365 公开路线图，微软计划限制 Edge 浏览器内的“影子 AI”（shadow AI）。
-
-IT之家注：指员工在未经组织批准或 IT 部门授权的情况下，擅自使用的 AI 工具和服务。
-
-微软为了简化这一流程，正在构建全新的管理界面，在拦截页面上让 IT 管理员直接显示引导选项，将用户重定向至已打开的 Microsoft 365 Copilot 新标签页。
-
-根据官方公告内容，IT 管理员可以配置 Edge for Business 浏览器，阻止访问以下 AI 工具：实际应用场景中，当员工尝试在 Edge 中访问 ChatGPT 等未授权 AI 工具处理办公事务后，策略将强制拦截该访问请求。
-
-浏览器不会仅显示简单的拦截提示，而是提供一个按钮，引导用户转向微软官方的 Microsoft 365 Copilot。
-
-Microsoft 365 Copilot 支持企业数据保护，通过合规边界、租户隔离以及排除数据用于模型训练等机制，确保敏感信息不会外泄。
+发布时间：2026年06月15日 10:51 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 22:41 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 22:42 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 22:38 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 22:57 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 23:00 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 23:03 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 22:58 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 22:37 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 23:01 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 22:44 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 22:57 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 23:05 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 22:42 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 22:53 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 23:06 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 23:05 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 22:58 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 23:02 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 23:03 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 22:56 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 23:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 22:46 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 23:05 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 23:01 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 23:02 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 22:49 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 23:01 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 22:43 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 22:43 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/81013.shtml)
-- 2026-06-29 22:39 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/037443411.shtml)
-- 2026-06-29 22:55 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/5327929.shtml)
-- 2026-06-29 22:51 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/09926952.shtml)
-- 2026-06-29 22:42 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/588113776318.shtml)
-- 2026-06-29 22:43 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/353904786.shtml)
-- 2026-06-29 22:41 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/38266117586.shtml)
-- 2026-06-29 23:00 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/673775670.shtml)
-- 2026-06-29 22:44 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/185321.shtml)
-- 2026-06-29 22:50 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/5925058971.shtml)
-- 2026-06-29 22:36 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/401700776542.shtml)
-- 2026-06-29 22:51 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/19237670.shtml)
-- 2026-06-29 22:51 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/340329.shtml)
-- 2026-06-29 22:39 - [网约车出事故平台拒赔称只是中介](http://www.share.minike.top/Article/details/71291774.shtml)
-- 2026-06-29 23:00 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/955177573069.shtml)
+- 2026-06-29 22:53 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/107811.shtml)
+- 2026-06-29 23:04 - [极限挑战第一季](http://www.blog.minike.top/Article/details/2467939.shtml)
+- 2026-06-29 23:11 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/45682407116.shtml)
+- 2026-06-29 22:59 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/31248.shtml)
+- 2026-06-29 22:53 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/225212502149.shtml)
+- 2026-06-29 22:50 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/57502.shtml)
+- 2026-06-29 22:45 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/54809.shtml)
+- 2026-06-29 22:52 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/2731058.shtml)
+- 2026-06-29 22:51 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/7793173677.shtml)
+- 2026-06-29 22:44 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/94289.shtml)
+- 2026-06-29 23:01 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/1281318252.shtml)
+- 2026-06-29 23:08 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/85252555.shtml)
+- 2026-06-29 22:48 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/37707494.shtml)
+- 2026-06-29 23:06 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/084066061567.shtml)
+- 2026-06-29 23:10 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/9410649.shtml)

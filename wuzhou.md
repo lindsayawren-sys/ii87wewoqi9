@@ -1,60 +1,59 @@
-# 谷歌被指在安卓应用分发领域实施垄断控制
+# 青春华章 丝路逐光｜祁连山下育出国产“蘑菇芯”
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-Alphabet Inc．（GOOG）正面临一起新的反垄断诉讼，竞争对手应用商店Aptoide S.A．指控该公司在安卓应用分发和计费系统领域实行垄断。 Aptoide表示，谷歌利用其权力，通过使开发者更难进入其自家的Google Play生态系统来阻碍竞争。该公司认为，谷歌的“限制性做法”使其无法提供更优的价格和服务。 该诉讼已提交至美国联邦法院，要求赔偿损失并请求法院责令谷
+一颗蘑菇，能有多大能量？在河西学院甘肃省食用菌遗传育种重点实验室，梁倩倩教授用七年时间给出了答案：它足以打破一个产业面临的“卡脖子”困局。 近日，由中央网信办网络传播局指导，甘肃省委网信办、省教育厅、团甘肃省委联合主办的“青春华章·丝路逐光”网络主题活动采访团走进河西学院，追寻科技兴农的青年科研工作者足迹。 “这是甘肃首个自主选育的双孢菇品种，也是甘肃食用菌产业第一次有了自己的
 
 ## 正文
 
-Alphabet Inc．（GOOG）正面临一起新的反垄断诉讼，竞争对手应用商店Aptoide S.A．指控该公司在安卓应用分发和计费系统领域实行垄断。
+一颗蘑菇，能有多大能量？
 
-Aptoide表示，谷歌利用其权力，通过使开发者更难进入其自家的Google Play生态系统来阻碍竞争。
+在河西学院甘肃省食用菌遗传育种重点实验室，梁倩倩教授用七年时间给出了答案：它足以打破一个产业面临的“卡脖子”困局。
 
-该公司认为，谷歌的“限制性做法”使其无法提供更优的价格和服务。
+近日，由中央网信办网络传播局指导，甘肃省委网信办、省教育厅、团甘肃省委联合主办的“青春华章·丝路逐光”网络主题活动采访团走进河西学院，追寻科技兴农的青年科研工作者足迹。
 
-该诉讼已提交至美国联邦法院，要求赔偿损失并请求法院责令谷歌停止相关行为。
+“这是甘肃首个自主选育的双孢菇品种，也是甘肃食用菌产业第一次有了自己的‘种子芯片’”。
 
-Aptoide还提到了包括无法获取关键应用和开发者资源在内的诸多问题，其认为这些问题加剧了其竞争难度。
+在实验室的培养皿前，梁倩倩拿起一颗浅棕色的双孢菇——“陇菇1号”。
 
-此案是谷歌面临的又一法律难题。
+2019年，国内双孢菇工厂化栽培的主流菌种80%依赖进口，甘肃本土选育品种长期空白。
 
-此前，法院已因谷歌在搜索领域的主导地位及其应用商店策略，判定其违反反垄断法，并责令其重组部分业务。
+“要让甘肃人种上自己的蘑菇。
 
-对投资者而言，这一进展表明大型科技公司仍面临监管风险。
+”梁倩倩将目光投向了祁连山。
 
 ## 相关推荐
 
-- 2026-06-29 22:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 22:39 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 22:39 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 22:59 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 22:38 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 22:37 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 22:44 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 22:50 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 22:57 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 22:44 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 22:43 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 22:50 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 22:40 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 22:40 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 22:59 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 22:50 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 23:10 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 23:09 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 23:06 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 22:51 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 22:44 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 22:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 23:10 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 23:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 22:59 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 23:00 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 22:58 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:41 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/034662635.shtml)
-- 2026-06-29 22:55 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/118689432797.shtml)
-- 2026-06-29 22:53 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/4363760.shtml)
-- 2026-06-29 22:57 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/4155979.shtml)
-- 2026-06-29 22:58 - [女心理师](http://www.share.minike.top/Article/details/00900015.shtml)
-- 2026-06-29 22:40 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/8160175.shtml)
-- 2026-06-29 22:58 - [东方风云榜](http://www.share.minike.top/Article/details/134509258402.shtml)
-- 2026-06-29 23:00 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/109549778600.shtml)
-- 2026-06-29 22:44 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/760302.shtml)
-- 2026-06-29 22:57 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/2517892.shtml)
-- 2026-06-29 22:54 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/58318781889.shtml)
-- 2026-06-29 22:44 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/239698868.shtml)
-- 2026-06-29 23:02 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/154338776.shtml)
-- 2026-06-29 22:52 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/574810.shtml)
-- 2026-06-29 22:49 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/566190419.shtml)
+- 2026-06-29 22:59 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/06920901730.shtml)
+- 2026-06-29 22:48 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/2912741.shtml)
+- 2026-06-29 22:58 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/049439768.shtml)
+- 2026-06-29 22:56 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/7691939204.shtml)
+- 2026-06-29 22:50 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/588214791.shtml)
+- 2026-06-29 22:50 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/7071116.shtml)
+- 2026-06-29 22:55 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/36739781.shtml)
+- 2026-06-29 22:51 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/2522260165.shtml)
+- 2026-06-29 22:47 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/49594.shtml)
+- 2026-06-29 22:46 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/077524065.shtml)
+- 2026-06-29 22:49 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/29823.shtml)
+- 2026-06-29 22:49 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/5643989.shtml)
+- 2026-06-29 22:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/24982.shtml)
+- 2026-06-29 23:11 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/01848.shtml)
+- 2026-06-29 23:06 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/99636.shtml)

@@ -1,59 +1,51 @@
-# 高盛首申比特币溢价收益ETF 从持币大户迈向主动管理加密策略新阶段
+# 大和：新奥能源给予“跑赢大市”评级 惟新奥股份增持料下行空间有限
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-文章来源：智通财经 据美国证券交易委员会（SEC）最新披露的监管文件显示，高盛（GS.US）已于4月14日正式提交了名为“高盛比特币溢价收益ETF”（Goldman Sachs Bitcoin Premium Income ETF）的注册申请。这是该投行历史上首次申请以比特币为核心资产的自主品牌ETF产品，标志着高盛在数字资产领域的竞争策略已从单纯的经纪业务和资产持有，升级为主
+大和发布研报称，新奥股份（600803.SH）确认，对新奥能源（02688）的120亿美元私有化要约已告吹。该行表示，目前关键在于新奥天然气股份同时表示计划在公开市场累计买入新奥能源股份。鉴于其股息收益率约为6%，且年初至今股价已下跌约35%，虽然短期市场情绪受挫，但从当前水平来看，相信基本面下行空间有限，对该股评级为“跑赢大市”。责任编辑：卢昱君
 
 ## 正文
 
-文章来源：智通财经 据美国证券交易委员会（SEC）最新披露的监管文件显示，高盛（GS.US）已于4月14日正式提交了名为“高盛比特币溢价收益ETF”（Goldman Sachs Bitcoin Premium Income ETF）的注册申请。
+大和发布研报称，新奥股份（600803.SH）确认，对新奥能源（02688）的120亿美元私有化要约已告吹。
 
-这是该投行历史上首次申请以比特币为核心资产的自主品牌ETF产品，标志着高盛在数字资产领域的竞争策略已从单纯的经纪业务和资产持有，升级为主动管理与结构化产品的开发。
+该行表示，目前关键在于新奥天然气股份同时表示计划在公开市场累计买入新奥能源股份。
 
-与目前市场上主流的纯现货比特币ETF不同，高盛此次布局的产品采用了更为复杂的收益增强策略。
+鉴于其股息收益率约为6%，且年初至今股价已下跌约35%，虽然短期市场情绪受挫，但从当前水平来看，相信基本面下行空间有限，对该股评级为“跑赢大市”。
 
-该基金计划将其至少80%的资产投资于提供比特币敞口的工具，主要通过持有市场上现有的现货比特币ETF份额来实现。
-
-其核心投资逻辑在于引入“备兑看涨期权”（Covered Call）策略，即在持有比特币资产的同时，通过卖出对应的看涨期权来赚取期权权利金。
-
-这种结构设计旨在为投资者提供每月的现金分红，在市场震荡或温和上涨的环境中能够提供优于底层资产的收益，但在比特币价格大幅暴涨时，基金的潜在涨幅将会受到期权的限制。
-
-“产品中加入（期权）收益固然不错，但考虑到波动性以及该产品仍将使投资者面临下行风险，这可能很难推销出去，”晨星公司 ETF 分析师布莱恩·阿默尔在谈及高盛产品时说道。
-
-据了解，该文件未披露这只可能在 6 月底推出的新 ETF 的拟议费用。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:38 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 22:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 23:01 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 22:53 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 23:00 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 23:05 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 22:59 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 23:05 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 22:46 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 23:00 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 23:01 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 22:51 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 22:53 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 22:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 23:07 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 23:11 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 23:07 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 23:10 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 22:46 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 22:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 22:42 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 22:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 22:46 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 23:10 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 22:43 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 22:47 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:47 - [蔚来车主罚站](http://www.share.minike.top/Article/details/134313469294.shtml)
-- 2026-06-29 22:38 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/69439922766.shtml)
-- 2026-06-29 22:43 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/2289949506.shtml)
-- 2026-06-29 22:54 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/22234158101.shtml)
-- 2026-06-29 22:51 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/724575.shtml)
-- 2026-06-29 22:55 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/498087210.shtml)
-- 2026-06-29 22:41 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/4487371.shtml)
-- 2026-06-29 23:04 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/849941494502.shtml)
-- 2026-06-29 22:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/8312613700.shtml)
-- 2026-06-29 22:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/680633181.shtml)
-- 2026-06-29 22:43 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/23634956582.shtml)
-- 2026-06-29 23:04 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/0939496.shtml)
-- 2026-06-29 22:37 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/86662568.shtml)
-- 2026-06-29 22:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/839169.shtml)
-- 2026-06-29 22:36 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/192973598.shtml)
+- 2026-06-29 23:01 - [美股](https://www.share.minike.top/Article/details/041832.shtml)
+- 2026-06-29 22:42 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/5514335.shtml)
+- 2026-06-29 22:47 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.kurohicncr.top/Article/details/7276345947.shtml)
+- 2026-06-29 22:54 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/754785958366.shtml)
+- 2026-06-29 23:07 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/2765401.shtml)
+- 2026-06-29 22:55 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/0235472.shtml)
+- 2026-06-29 22:49 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/531328.shtml)
+- 2026-06-29 23:01 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/989815.shtml)
+- 2026-06-29 22:47 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/36592493580.shtml)
+- 2026-06-29 23:11 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/8732829410.shtml)
+- 2026-06-29 23:04 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/09767.shtml)
+- 2026-06-29 23:00 - [委内瑞拉发生余震](http://www.share.minike.top/Article/details/38013894.shtml)
+- 2026-06-29 22:58 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/765732.shtml)
+- 2026-06-29 22:58 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/0339731.shtml)
+- 2026-06-29 22:50 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/4454563.shtml)

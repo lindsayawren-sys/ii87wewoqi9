@@ -1,57 +1,47 @@
-# 301189，突然大涨，发生了什么？创新药迎来价值回归，业绩高增长股揭秘
+# 第一太平获Brandes Investment Partners, L.P.增持约176.01万股 每股作价4.89港元
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-在多重利好刺激下，中国创新药商业天花板将显著抬升。 奥尼电子股价创历史新高 市值突破100亿元 4月15日，奥尼电子（301189）收盘时录得“20cm”涨停板，最新收盘价创历史新高，最新A股市值首次突破100亿元。 奥尼电子是国内规模较大的智能硬件综合服务商，核心业务覆盖消费物联网音视频智能终端的研发制造与高性能计算整机全链条业务。近年来受行业竞争加剧、下游需求波动等因素影响
+香港联交所最新资料显示，6月10日，Brandes Investment Partners， L.P．增持第一太平（00142）176.011万股，每股作价4.89港元，总金额约为860.69万港元。增持后最新持股数目约为3.84亿股，最新持股比例为9.01%。责任编辑：卢昱君
 
 ## 正文
 
-在多重利好刺激下，中国创新药商业天花板将显著抬升。
+香港联交所最新资料显示，6月10日，Brandes Investment Partners， L.P．增持第一太平（00142）176.011万股，每股作价4.89港元，总金额约为860.69万港元。
 
-奥尼电子股价创历史新高 市值突破100亿元 4月15日，奥尼电子（301189）收盘时录得“20cm”涨停板，最新收盘价创历史新高，最新A股市值首次突破100亿元。
+增持后最新持股数目约为3.84亿股，最新持股比例为9.01%。
 
-奥尼电子是国内规模较大的智能硬件综合服务商，核心业务覆盖消费物联网音视频智能终端的研发制造与高性能计算整机全链条业务。
-
-近年来受行业竞争加剧、下游需求波动等因素影响，公司经营业绩持续下滑。
-
-2023年、2024年净利润连续亏损，公司还预计2025年净利润亏损1.45亿元至1.62亿元。
-
-在业绩承压的背景下，公司近期消息面频频释放积极信号。
-
-据人民财讯报道，企查查APP显示，近日，奥尼算力科技（中山）有限公司成立，法定代表人为林荣玉，注册资本为1000万元，经营范围包含：通用设备修理；云计算设备制造；云计算装备技术服务；数据处理和存储支持服务等。
-
-企查查股权穿透显示，该公司由奥尼电子间接全资持股。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 22:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 22:38 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 22:57 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 23:05 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 22:43 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 22:39 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 22:56 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 22:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 22:51 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 22:48 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 23:10 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 22:42 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 23:07 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 22:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 22:47 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 23:02 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 23:03 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 22:48 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 23:02 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 22:48 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 23:05 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:53 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/8486728.shtml)
-- 2026-06-29 22:59 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/8334652337.shtml)
-- 2026-06-29 22:55 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/837837411177.shtml)
-- 2026-06-29 22:45 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/086705518101.shtml)
-- 2026-06-29 22:47 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/300390020.shtml)
-- 2026-06-29 23:02 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/7051759.shtml)
-- 2026-06-29 22:50 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/152282092.shtml)
-- 2026-06-29 23:03 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/433215074.shtml)
-- 2026-06-29 22:55 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/352430974.shtml)
-- 2026-06-29 22:55 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/77648.shtml)
-- 2026-06-29 23:01 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/00456794162.shtml)
-- 2026-06-29 22:45 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/985623240741.shtml)
-- 2026-06-29 23:05 - [金牌调解](http://www.share.minike.top/Article/details/484054.shtml)
-- 2026-06-29 22:51 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/247047974239.shtml)
-- 2026-06-29 22:59 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/02118119.shtml)
+- 2026-06-29 22:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/30022.shtml)
+- 2026-06-29 23:01 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/9726073600.shtml)
+- 2026-06-29 22:45 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/855665.shtml)
+- 2026-06-29 22:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/09341991805.shtml)
+- 2026-06-29 22:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/46715.shtml)
+- 2026-06-29 23:01 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/745772246280.shtml)
+- 2026-06-29 23:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/59697418.shtml)
+- 2026-06-29 23:04 - [世界杯](http://www.share.minike.top/Article/details/4437956316.shtml)
+- 2026-06-29 23:05 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/2284983.shtml)
+- 2026-06-29 22:59 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/28798240.shtml)
+- 2026-06-29 23:11 - [巴西10号球衣是天才传承史](https://www.share.minike.top/Article/details/16143781386.shtml)
+- 2026-06-29 22:49 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/2076543.shtml)
+- 2026-06-29 22:56 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/49574903596.shtml)
+- 2026-06-29 22:42 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/583498674.shtml)
+- 2026-06-29 23:10 - [孙俪开QQ的蛮好生活](https://www.blog.minike.top/Article/details/4831147541.shtml)

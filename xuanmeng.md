@@ -1,50 +1,61 @@
-# 多国政要排队访华 为何而来？
+# 广东广西等地仍有强降雨 东北华北等地多雷阵雨
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月14日 21:50 来源：中国新闻网 进入4月以来，中国再迎外交热潮，而就在4月11日至14日，来自西班牙、阿联酋阿布扎比、越南、俄罗斯的四国政要接连访华，让北京再一次成为令人瞩目的世界“会客厅”。 面对世界经济复苏乏力、地区局势动荡、不确定性上升，各国政要密集来华，核心诉求高度一致——在变局中寻找确定性，而中国坚持开放合作、互利共赢，坚持多边主义，成
+中新网6月15日电 据中央气象台网站消息，昨日，广东、广西、福建等地出现暴雨或大暴雨，局地特大暴雨。预计未来三天，广西、广东、福建、云南等地部分地区有持续性强降雨，暴雨灾害风险高，关注可能引发的山洪、地质灾害，以及对交通运输、农业生产、户外活动等的影响。东北、华北等地多雷阵雨，局地伴有雷暴大风、冰雹等强对流天气，关注对交通、城市运行等影响。 广东广西等地仍有强降雨 6月15日至
 
 ## 正文
 
-发布时间：2026年04月14日 21:50 来源：中国新闻网 进入4月以来，中国再迎外交热潮，而就在4月11日至14日，来自西班牙、阿联酋阿布扎比、越南、俄罗斯的四国政要接连访华，让北京再一次成为令人瞩目的世界“会客厅”。
+中新网6月15日电 据中央气象台网站消息，昨日，广东、广西、福建等地出现暴雨或大暴雨，局地特大暴雨。
 
-面对世界经济复苏乏力、地区局势动荡、不确定性上升，各国政要密集来华，核心诉求高度一致——在变局中寻找确定性，而中国坚持开放合作、互利共赢，坚持多边主义，成为动荡世界中的稳定锚点。
+预计未来三天，广西、广东、福建、云南等地部分地区有持续性强降雨，暴雨灾害风险高，关注可能引发的山洪、地质灾害，以及对交通运输、农业生产、户外活动等的影响。
 
-西班牙首相四年四访中国，看重的是中欧合作的韧性与市场机遇；阿联酋阿布扎比王储远道而来，看中的是能源、经贸与共建“一带一路”的务实空间；越共中央总书记苏林两次就任后首访中国，延续的是“同志加兄弟”的深厚情谊与周边稳定的共同利益；俄罗斯外长拉夫罗夫同期到访，强化的是新时代背靠背战略协作，共同维护国际公平正义。
+东北、华北等地多雷阵雨，局地伴有雷暴大风、冰雹等强对流天气，关注对交通、城市运行等影响。
 
-多国政要密集访华，背后折射出的是单边主义不得人心、多边合作大势所趋，世界越来越需要以对话破局、以合作共赢应对不确定性。
+广东广西等地仍有强降雨 6月15日至17日，广东大部、广西大部、福建中南部、江西南部以及云南西部和东部、四川南部、贵州西南部等地有大到暴雨，部分地区有大暴雨，华南沿海局地特大暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气。
 
-(记者 刘世炯） 责任编辑：【罗攀】
+中央气象台6月15日6时继续发布暴雨黄色预警：预计，6月15日8时至16日8时，广西中南部、广东大部、福建东部和南部、台湾岛西部、云南东南部和西部以及黑龙江南部、吉林中部、辽宁西部和北部、河北北部、北京北部、天津北部等地部分地区有大到暴雨，其中，广西中东部和南部沿海、广东珠江口及以东沿海、台湾岛西部等地部分地区有大暴雨，广东东南部沿海等地局地特大暴雨(250～350毫米)。
+
+上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过90毫米)，局地有雷暴大风等强对流天气。
+
+东北华北等地多雷阵雨 未来三天，内蒙古东部、东北地区、华北、黄淮东部等地多阵雨或雷阵雨天气，雨量分布不均，一般有小到中雨，局地有大雨或暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气。
+
+中央气象台6月15日6时继续发布强对流天气蓝色预警：预计6月15日8时至16日8时，华北中北部、东北地区西南部、华南中南部、西南地区北部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，山西北部、河北北部等地的部分地区将有10级以上雷暴大风。
 
 ## 相关推荐
 
-- 2026-06-29 22:55 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 22:46 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 22:42 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 22:50 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 22:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 22:43 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 22:51 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 22:44 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 22:59 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 23:03 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 22:53 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 23:09 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 23:05 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 22:52 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 22:44 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 22:42 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 23:07 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 22:59 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 22:45 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 22:47 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 22:43 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 22:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 23:01 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 23:11 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 22:55 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:54 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/055904.shtml)
-- 2026-06-29 23:05 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/393171.shtml)
-- 2026-06-29 22:38 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/767469123.shtml)
-- 2026-06-29 23:04 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/4783149136.shtml)
-- 2026-06-29 22:38 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/573138.shtml)
-- 2026-06-29 23:00 - [85花告别古偶](https://www.blog.minike.top/Article/details/04968.shtml)
-- 2026-06-29 23:05 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/91843104.shtml)
-- 2026-06-29 22:50 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/87372070.shtml)
-- 2026-06-29 22:54 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/963724357426.shtml)
-- 2026-06-29 22:54 - [巴西10号球衣是天才传承史](https://www.share.minike.top/Article/details/730567.shtml)
-- 2026-06-29 22:46 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/760069936609.shtml)
-- 2026-06-29 23:04 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/8358505.shtml)
-- 2026-06-29 22:47 - [恋与深空7天掉粉超50万](https://www.share.minike.top/Article/details/22370.shtml)
-- 2026-06-29 22:36 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/77915.shtml)
-- 2026-06-29 22:46 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/0624658.shtml)
+- 2026-06-29 22:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/226396648508.shtml)
+- 2026-06-29 22:55 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/116264.shtml)
+- 2026-06-29 23:10 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/3508219175.shtml)
+- 2026-06-29 23:03 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/7317053343.shtml)
+- 2026-06-29 22:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/2986647957.shtml)
+- 2026-06-29 22:56 - [第一炉香](https://www.share.minike.top/Article/details/919426205414.shtml)
+- 2026-06-29 22:56 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/653979.shtml)
+- 2026-06-29 22:42 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/18469869.shtml)
+- 2026-06-29 22:44 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/15864207270.shtml)
+- 2026-06-29 23:01 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/075740364.shtml)
+- 2026-06-29 22:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/788511.shtml)
+- 2026-06-29 22:48 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/53656.shtml)
+- 2026-06-29 22:59 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/9979468.shtml)
+- 2026-06-29 22:54 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/8489466.shtml)
+- 2026-06-29 22:48 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.kurohicncr.top/Article/details/629494528898.shtml)

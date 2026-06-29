@@ -1,58 +1,61 @@
-# 媒体：调停方接近延长美伊停火协议
+# 江苏泰州一恐龙科普乐园开园 解锁亲子微度假新场景
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-北京时间4月15日下午消息，调停方周三接近达成延长美国与伊朗停火、并重启谈判的协议，以挽救这项将于下周到期的脆弱停火协议。 美国对伊朗港口的封锁，以及伊朗方面重新发出的威胁，已危及这项生效仅一周的协议。但多名地区官员周三表示，谈判正取得进展。他们透露，美国与伊朗已就延长停火达成“原则性同意”，以便开展更多外交斡旋。 据一名参与调停的地区官员透露，在为期两周的停火于4月22日到期
+发布时间：2026年06月15日 08:23 来源：中国新闻网 今年以来，亲子游、研学游市场热度持续攀升，车程短、体验丰富、兼具游乐与教育属性的亲子微度假，成为民众出游主流选择。6月14日，由泰州市交通运输局、中交二航局携手共建，集史前科普、沉浸式互动、田园休闲于一体的暴龙庄园在江苏泰州姜堰对外开放。这座恐龙科普主题亲子乐园，为亲子家庭带来科普与游乐相融的短途出游新选择，进一步
 
 ## 正文
 
-北京时间4月15日下午消息，调停方周三接近达成延长美国与伊朗停火、并重启谈判的协议，以挽救这项将于下周到期的脆弱停火协议。
+发布时间：2026年06月15日 08:23 来源：中国新闻网 今年以来，亲子游、研学游市场热度持续攀升，车程短、体验丰富、兼具游乐与教育属性的亲子微度假，成为民众出游主流选择。
 
-美国对伊朗港口的封锁，以及伊朗方面重新发出的威胁，已危及这项生效仅一周的协议。
+6月14日，由泰州市交通运输局、中交二航局携手共建，集史前科普、沉浸式互动、田园休闲于一体的暴龙庄园在江苏泰州姜堰对外开放。
 
-但多名地区官员周三表示，谈判正取得进展。
+这座恐龙科普主题亲子乐园，为亲子家庭带来科普与游乐相融的短途出游新选择，进一步丰富当地文旅产品供给。
 
-他们透露，美国与伊朗已就延长停火达成“原则性同意”，以便开展更多外交斡旋。
+不同于常规亲子乐园偏重单一游乐的模式，园区主打“科普为本、沉浸赋能、游乐为辅”的差异化体验。
 
-据一名参与调停的地区官员透露，在为期两周的停火于4月22日到期前，调停方正推动就上周末直接谈判破裂的三大核心分歧达成妥协：伊朗核计划、霍尔木兹海峡问题，以及战争损失赔偿。
+乐园依托原创恐龙IP搭建全场景游玩空间，规划无动力游乐设施、原生态田园休闲区及专属亲子互动演艺，同时推出恐龙玩偶情景互动、IP人偶主题巡游、沉浸式实景剧情互动等环节，让不同年龄段的孩子都能深度参与。
 
-包括美国总统唐纳德・特朗普与联合国秘书长安东尼奥・古特雷斯在内的多国领导人周二均表示，未来数日有望重启谈判。
+此外，园区增设科普研学板块，打造恐龙化石标本、岩石专题静态展区。
 
-此次冲突已造成伊朗至少3000人死亡、黎巴嫩超2100人死亡、以色列23人死亡，海湾阿拉伯国家十余人死亡。
+展区以实物展品搭配通俗讲解，直观展现史前恐龙生存环境，普及生物演化知识，满足游客探秘史前生物、开展研学实践的需求。
 
-另有13名美军人员丧生。
+(记者 葛勇） 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-29 22:59 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 22:44 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 22:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 22:39 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 22:58 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 23:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 22:40 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 22:45 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 22:54 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 22:54 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 22:55 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 22:47 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 22:59 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 22:44 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 22:47 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 22:51 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 22:57 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 22:54 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 23:11 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 22:53 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 22:54 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 22:59 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 22:46 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 23:08 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 22:57 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 23:10 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 23:09 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:04 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/7024892693.shtml)
-- 2026-06-29 22:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/8267286356.shtml)
-- 2026-06-29 22:59 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/986151.shtml)
-- 2026-06-29 22:38 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/744839347.shtml)
-- 2026-06-29 23:00 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/12409.shtml)
-- 2026-06-29 22:50 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/57486313975.shtml)
-- 2026-06-29 22:45 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/01291649.shtml)
-- 2026-06-29 22:47 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/2329747694.shtml)
-- 2026-06-29 22:39 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/810330.shtml)
-- 2026-06-29 22:47 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/878775.shtml)
-- 2026-06-29 23:03 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/601302.shtml)
-- 2026-06-29 22:58 - [乔家的儿女](http://www.blog.minike.top/Article/details/0916539.shtml)
-- 2026-06-29 22:40 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/749096580.shtml)
-- 2026-06-29 22:36 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/1016377.shtml)
-- 2026-06-29 23:01 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/66914.shtml)
+- 2026-06-29 22:50 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/599574762.shtml)
+- 2026-06-29 22:44 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/12837782849.shtml)
+- 2026-06-29 23:02 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/11565.shtml)
+- 2026-06-29 23:01 - [急先锋](https://www.blog.minike.top/Article/details/566474307.shtml)
+- 2026-06-29 23:11 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/2078008533.shtml)
+- 2026-06-29 23:03 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/2263007.shtml)
+- 2026-06-29 22:46 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/04469962.shtml)
+- 2026-06-29 23:02 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/62724178.shtml)
+- 2026-06-29 22:44 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/51284985.shtml)
+- 2026-06-29 22:58 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/2839917088.shtml)
+- 2026-06-29 22:43 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/5024982850.shtml)
+- 2026-06-29 23:10 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/8085302644.shtml)
+- 2026-06-29 22:49 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/02205.shtml)
+- 2026-06-29 22:55 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/97684.shtml)
+- 2026-06-29 23:06 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/93231433.shtml)

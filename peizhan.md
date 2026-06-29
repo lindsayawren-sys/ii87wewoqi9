@@ -1,56 +1,59 @@
-# 大叶股份业绩预告 “变脸” 收监管函，符合条件投资者可发起索赔
+# 尾盘，惊人一幕上演！117万直线20cm涨停......手一抖，“乌龙指”就来了？
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-近日，宁波大叶园林设备股份有限公司（以下简称“大叶股份（维权）”）收到深交所下发的《监管函》 ，上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2026年1月31日-2026年3月27日期间买入且有持仓，无论在2026年3月28日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿登记索赔。（赵敬国律师专栏） 回顾本案，2026年1月30
+来源：中国基金报 【导读】A股大涨，踏空更痛苦？ETF“乌龙指”再现 中国基金报记者 闫军 还是熟悉的配方，熟悉的味道，科技股涨回来了。 6月15日收盘，创业板指大涨超5%，深成指涨3.79%；AI板块持续爆发，全市场百股涨停，PCB、CPO等板块集体走强。 不少投资者基于本周美联储6月决议“放鹰”的担忧，在此前的调整中下调了仓位，面对今天的大涨，直言“踏空更痛苦！” 市场行情
 
 ## 正文
 
-近日，宁波大叶园林设备股份有限公司（以下简称“大叶股份（维权）”）收到深交所下发的《监管函》 ，上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2026年1月31日-2026年3月27日期间买入且有持仓，无论在2026年3月28日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿登记索赔。
+来源：中国基金报 【导读】A股大涨，踏空更痛苦？
 
-（赵敬国律师专栏） 回顾本案，2026年1月30日盘后，大叶股份披露《2025年度业绩预告》，预计2025年度归属于上市公司股东的净利润（以下简称“净利润”）亏损1000万元至2000万元。
+ETF“乌龙指”再现 中国基金报记者 闫军 还是熟悉的配方，熟悉的味道，科技股涨回来了。
 
-2026年3月27日盘后，大叶股份披露《2025年度业绩预告修正公告》称，因所得税费用核算等原因，对2025年度业绩预告情况作出修正，预计2025年度的净利润为亏损4000万元至6000万元。
+6月15日收盘，创业板指大涨超5%，深成指涨3.79%；AI板块持续爆发，全市场百股涨停，PCB、CPO等板块集体走强。
 
-2026年4月10日，深交所因上述两次业绩预告披露事项对大叶股份下发《监管函》。
+不少投资者基于本周美联储6月决议“放鹰”的担忧，在此前的调整中下调了仓位，面对今天的大涨，直言“踏空更痛苦！
 
-信本股民索赔团队提醒，大叶股份两次业绩预告披露的净利润存在较大差异，因此受损投资者可通过“新浪股民维权平台”自愿登记索赔。
+” 市场行情火爆，“冲动”的投资者可能就出现了，今天两只ETF均在盘中疑似出现“乌龙指”。
 
-索赔条件： 大叶股份：于2026年1月31日-2026年3月27日期间买入且有持仓，无论在2026年3月28日及之后是否卖出的投资者（具体赔付范围由法院确定）（大叶股份维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
+什么情况？
 
-赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
+两只ETF异常拉升 先是上午9点31分，开盘不久，华夏沪深300价值ETF突然拉升，大涨7.78%。
 
-2004年起开始律师执业，承办过千余起各类诉讼案件，积累了十分丰富的争议处理经验，尤其擅长处理证券纠纷、金融、不良资产等方面的业务。
+这明显与ETF跟踪指数涨幅不符。
 
 ## 相关推荐
 
-- 2026-06-29 22:44 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 22:44 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 22:46 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 22:59 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 22:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 23:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 22:46 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 22:59 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 22:40 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 22:50 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 23:09 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 23:02 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 23:10 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 22:50 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 23:03 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 22:50 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 23:01 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 22:42 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 23:03 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 23:10 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 22:56 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 22:46 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 23:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [85花告别古偶](http://www.blog.minike.top/Article/details/1607391440.shtml)
-- 2026-06-29 23:01 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/567919.shtml)
-- 2026-06-29 22:37 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/08625199119.shtml)
-- 2026-06-29 23:04 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/18228881049.shtml)
-- 2026-06-29 22:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/2367810.shtml)
-- 2026-06-29 23:03 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/956607524980.shtml)
-- 2026-06-29 22:50 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/23717357518.shtml)
-- 2026-06-29 22:44 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/55635.shtml)
-- 2026-06-29 23:02 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/404847190853.shtml)
-- 2026-06-29 22:50 - [炽夏](https://www.share.minike.top/Article/details/517628.shtml)
-- 2026-06-29 22:39 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/5909002786.shtml)
-- 2026-06-29 22:40 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/5676756.shtml)
-- 2026-06-29 22:43 - [记者乘坐无人驾驶汽车去采访](https://www.share.minike.top/Article/details/16901.shtml)
-- 2026-06-29 23:02 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/2884415.shtml)
-- 2026-06-29 23:03 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/319071.shtml)
+- 2026-06-29 22:51 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/233141242.shtml)
+- 2026-06-29 23:06 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/365499272949.shtml)
+- 2026-06-29 23:02 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/365163825233.shtml)
+- 2026-06-29 22:53 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/386520562.shtml)
+- 2026-06-29 23:08 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/536619.shtml)
+- 2026-06-29 22:50 - [国际清算银行警告AI投资热潮](http://www.share.kurohicncr.top/Article/details/34335.shtml)
+- 2026-06-29 23:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/07855106659.shtml)
+- 2026-06-29 22:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/776190.shtml)
+- 2026-06-29 23:09 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/461622978882.shtml)
+- 2026-06-29 22:53 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/9557344265.shtml)
+- 2026-06-29 22:55 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/8223109826.shtml)
+- 2026-06-29 23:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/5898317.shtml)
+- 2026-06-29 22:55 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/3590111445.shtml)
+- 2026-06-29 22:46 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/772030726.shtml)
+- 2026-06-29 22:54 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/9720900.shtml)

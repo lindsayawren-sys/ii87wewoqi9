@@ -1,58 +1,61 @@
-# 电影元素融入城乡街巷 “电影+”新场景提升消费新体验
+# 中英人民币国际使用研讨会举行
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-“电影+”新场景提升消费新体验 今年2月，国家电影局启动“2026电影经济促进年”，并联合各地推出“跟着电影去旅游”“跟着电影品美食”“跟着电影赏非遗”“跟着电影逛市集”等系列活动，推动“电影+”消费场景在全国落地，让电影流量转化为消费增量。在这场以电影为媒、以文化为核的消费升级中，各地将电影元素融入城乡街巷、植入日常生活，“电影+”成为拉动消费新动能。 升级硬件设施 在南京市
+中新网伦敦6月16日电 (记者 欧阳开宇)中英人民币国际使用研讨会6月15日在中国银行总行举行。本次活动由中国银行与伦敦金融城联合举办，预发布《伦敦人民币业务2026年度报告》，来自中英两国政府机关、企业、金融机构等近50人参加。与会代表围绕人民币跨境使用最新进展、伦敦离岸人民币市场发展成果、人民币清算与支付基础设施建设、金融机构服务企业跨境经营实践等内容进行了深入交流。中国人
 
 ## 正文
 
-“电影+”新场景提升消费新体验 今年2月，国家电影局启动“2026电影经济促进年”，并联合各地推出“跟着电影去旅游”“跟着电影品美食”“跟着电影赏非遗”“跟着电影逛市集”等系列活动，推动“电影+”消费场景在全国落地，让电影流量转化为消费增量。
+中新网伦敦6月16日电 (记者 欧阳开宇)中英人民币国际使用研讨会6月15日在中国银行总行举行。
 
-在这场以电影为媒、以文化为核的消费升级中，各地将电影元素融入城乡街巷、植入日常生活，“电影+”成为拉动消费新动能。
+本次活动由中国银行与伦敦金融城联合举办，预发布《伦敦人民币业务2026年度报告》，来自中英两国政府机关、企业、金融机构等近50人参加。
 
-升级硬件设施 在南京市江北新区泰山街道桥北商圈，“电影+”的生动实践正焕发出蓬勃活力。
+与会代表围绕人民币跨境使用最新进展、伦敦离岸人民币市场发展成果、人民币清算与支付基础设施建设、金融机构服务企业跨境经营实践等内容进行了深入交流。
 
-作为中国全VIP主题影城开创运营商，至潮影城不久前在江北印象汇新装亮相，以先进的视听设备与全电动沙发座椅，为观众带来“坐躺自由”的观影体验。
+中国人民银行、跨境银行间支付清算有限责任公司、中国银行、汇丰银行等机构代表分别分享了相关成果和案例，展现人民币国际使用在促进贸易投资便利化、提升跨境金融服务效率、服务中英企业高质量发展等方面的积极作用。
 
-这不仅提升了影院自身的服务品质，更将电影院从单一的观影场所升级为集IP观影厅设计、游戏娱乐设施运营于一体的复合文化空间，成为区域文化消费升级的重要引擎。
+活动现场，伦敦金融城介绍并预发布《伦敦人民币业务2026年度报告》。
 
-成都市简阳市引入了配备全国最大CINITY LED杜比全景声银幕的太平洋影城东来印象旗舰店。
+该报告由伦敦金融城和中国人民银行欧洲代表处牵头，中国银行作为伦敦人民币市场监测工作小组核心成员参与撰写。
 
-该影城2025年推出的《阿凡达3》点映活动吸引全国多地游客前来观影。
+报告系统梳理了伦敦离岸人民币市场的发展成果、面临挑战和未来展望。
 
-“点映活动当天，对屏幕质感、环境音响等硬件有着更高期待的资深影迷专程从北京、上海、厦门等地前来，CINITY LED影厅座无虚席。
+作为最早在英国设立机构的中资银行，中国银行深耕英国市场近百年，坚持做好两国经贸投资的金融桥梁。
 
 ## 相关推荐
 
-- 2026-06-29 22:41 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 22:46 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 22:48 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 22:41 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 23:00 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 22:41 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 22:45 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 22:42 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 22:43 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 23:01 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 23:02 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 23:04 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 23:02 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 22:59 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 23:08 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 22:46 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 22:47 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 23:03 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 23:07 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 22:47 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 22:52 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 23:03 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 23:00 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 23:11 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 22:44 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 22:56 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 23:05 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/8242194786.shtml)
-- 2026-06-29 22:39 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.minike.top/Article/details/91503487181.shtml)
-- 2026-06-29 22:41 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/0888194168.shtml)
-- 2026-06-29 22:40 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/922569211628.shtml)
-- 2026-06-29 23:00 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/8857411.shtml)
-- 2026-06-29 23:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/14647038.shtml)
-- 2026-06-29 23:01 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/13107.shtml)
-- 2026-06-29 23:05 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/7882453147.shtml)
-- 2026-06-29 22:50 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/789869933.shtml)
-- 2026-06-29 22:52 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/22607.shtml)
-- 2026-06-29 22:56 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/5366887.shtml)
-- 2026-06-29 23:04 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/007367005450.shtml)
-- 2026-06-29 23:04 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/561703.shtml)
-- 2026-06-29 22:40 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/11295.shtml)
-- 2026-06-29 22:58 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/31086447.shtml)
+- 2026-06-29 23:08 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/78115.shtml)
+- 2026-06-29 22:44 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/8456436858.shtml)
+- 2026-06-29 22:44 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/35316393733.shtml)
+- 2026-06-29 23:00 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/5567502563.shtml)
+- 2026-06-29 22:42 - [金刚川](http://www.blog.kurohicncr.top/Article/details/911259160.shtml)
+- 2026-06-29 23:02 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/3985237677.shtml)
+- 2026-06-29 23:00 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/2333960.shtml)
+- 2026-06-29 22:57 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/0729003883.shtml)
+- 2026-06-29 23:03 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/530306036939.shtml)
+- 2026-06-29 23:11 - [天道](https://www.share.minike.top/Article/details/8775943800.shtml)
+- 2026-06-29 22:48 - [乔家的儿女](http://www.blog.minike.top/Article/details/87356700146.shtml)
+- 2026-06-29 22:59 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/86840.shtml)
+- 2026-06-29 23:06 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/865890596872.shtml)
+- 2026-06-29 23:05 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/071828012667.shtml)
+- 2026-06-29 23:00 - [上世纪90年代玩具成新宠](https://www.blog.kurohicncr.top/Article/details/571409601342.shtml)

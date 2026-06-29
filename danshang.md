@@ -1,60 +1,60 @@
-# 花旗：降普拉达目标价至41.6港元 评级“中性”
+# 独家｜洋河百亿大单品系列新动态：第六代海之蓝已停产，第七代向全国有序铺货
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-花旗发布研报称，在普拉达（01913）公布2025财年业绩后更新预测模型，并纳入对Versace的预测，同时预测今年首季销售表现。花旗基于更新后的SOTP及DCF估值，将普拉达目标价由52港元下调至41.6港元，评级为“中性”。 该行将集团今明两年列账销售预测分别上调8%及6%，以反映Versace带来高单位数的范围贡献，但同时将有机增长假设下调，由原先增长8%、7%下调至增长
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日，新浪财经《酒业内参》独家获悉，洋河旗下百亿大单品海之蓝系列出现新动态：第六代海之蓝已正式停产，目前正处于去库存阶段。 而第七代海之蓝作为海之蓝系列的焕新迭代产品，是洋河今年省外将重点推广的新品，正在包括河南、山东等全国多个市场有序推进上市。 对于上述情况，洋河内部人士表示属实。 公开信息显示，洋
 
 ## 正文
 
-花旗发布研报称，在普拉达（01913）公布2025财年业绩后更新预测模型，并纳入对Versace的预测，同时预测今年首季销售表现。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-花旗基于更新后的SOTP及DCF估值，将普拉达目标价由52港元下调至41.6港元，评级为“中性”。
+6月15日，新浪财经《酒业内参》独家获悉，洋河旗下百亿大单品海之蓝系列出现新动态：第六代海之蓝已正式停产，目前正处于去库存阶段。
 
-该行将集团今明两年列账销售预测分别上调8%及6%，以反映Versace带来高单位数的范围贡献，但同时将有机增长假设下调，由原先增长8%、7%下调至增长5%、6%，并降低外汇逆风影响。
+而第七代海之蓝作为海之蓝系列的焕新迭代产品，是洋河今年省外将重点推广的新品，正在包括河南、山东等全国多个市场有序推进上市。
 
-但因毛利率预测下降以及与Versace整合相关的营运开支增长假设上调，花旗对集团今明两年EBIT预测分别下调5%、5%。
+对于上述情况，洋河内部人士表示属实。
 
-花旗预测，普拉达今年首季有机集团销售同比增长2%，其中零售增1%、批发增2%； 列账销售料同比增8%至14.5亿欧元。
+公开信息显示，洋河海之蓝系列诞生于2003年，截至目前先后历经多次迭代。
 
-按品牌划分零售销售，Prada同比增长1%，Miu Miu同比增长3%。
+2022年，第六代海之蓝正式上市，同年海之蓝系列年销售额突破百亿，成为白酒行业百元价格带中首个迈入百亿阵营的大单品系列。
 
-按地区划分有机零售销售，欧洲同比跌4%，美洲同比增长14%，亚太区同比增长6%，日本同比跌1%，中东同比跌25%。
+据悉，第七代海之蓝被洋河寄予厚望，目标推动海之蓝系列达成150亿-200亿的销售收入规模。
 
-责任编辑：史丽君
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 22:45 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 22:54 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 22:46 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 22:47 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 22:47 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 22:55 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 22:37 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 22:36 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 22:41 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 22:54 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 23:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 22:44 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 23:03 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 22:57 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 23:01 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 22:49 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 22:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 23:10 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 23:05 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 23:03 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 22:44 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 22:58 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 23:00 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 23:06 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 23:04 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 23:09 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 22:46 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 23:06 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:49 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/72883.shtml)
-- 2026-06-29 23:02 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/756071667937.shtml)
-- 2026-06-29 22:41 - [金刚川](http://www.blog.kurohicncr.top/Article/details/93837.shtml)
-- 2026-06-29 22:52 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/1801242094.shtml)
-- 2026-06-29 22:39 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/5421992.shtml)
-- 2026-06-29 22:44 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/99420325289.shtml)
-- 2026-06-29 22:59 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/9914496.shtml)
-- 2026-06-29 22:54 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/611351142.shtml)
-- 2026-06-29 23:00 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/57105998.shtml)
-- 2026-06-29 23:02 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/7157721.shtml)
-- 2026-06-29 22:39 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/866800198877.shtml)
-- 2026-06-29 22:56 - [扬名立万](https://www.blog.minike.top/Article/details/00706.shtml)
-- 2026-06-29 23:01 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/38443.shtml)
-- 2026-06-29 22:59 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/637534993445.shtml)
-- 2026-06-29 23:04 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/539073136.shtml)
+- 2026-06-29 22:42 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/670977274269.shtml)
+- 2026-06-29 23:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/153115873882.shtml)
+- 2026-06-29 22:43 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/505735420995.shtml)
+- 2026-06-29 23:03 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/84445072200.shtml)
+- 2026-06-29 22:52 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/731191.shtml)
+- 2026-06-29 22:59 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/818901204.shtml)
+- 2026-06-29 22:54 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/970851484017.shtml)
+- 2026-06-29 23:05 - [返利科技盘中上演“天地板”](http://www.blog.minike.top/Article/details/4251559561.shtml)
+- 2026-06-29 22:58 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/891619.shtml)
+- 2026-06-29 22:51 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/804987562.shtml)
+- 2026-06-29 23:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/8539990.shtml)
+- 2026-06-29 22:52 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/026950523730.shtml)
+- 2026-06-29 23:06 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/57450.shtml)
+- 2026-06-29 22:44 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/06406437.shtml)
+- 2026-06-29 22:43 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.kurohicncr.top/Article/details/6096331076.shtml)

@@ -1,60 +1,57 @@
-# 操盘必读：影响股市利好或利空消息_2026年4月16日_财经新闻
+# 长春54年老牌赛事“春城杯”足球超级联赛开幕
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-影响股市利好与利空消息 宏观新闻 1、国务院办公厅发布关于深化投资审批制度改革的意见。意见指出，对无序竞争问题突出的产业领域，经国务院同意可实行暂停核准、备案等临时性调控措施，并明确具体要求、时限、操作方式等。 2、中国人民银行、国家外汇管理局发布关于调整银行业金融机构境外贷款业务有关事宜的通知，将境内外商独资银行、境内中外合资银行、外国银行境内分行的境外贷款杠杆率由0.5上调
+中新网长春6月14日电 (谭伟旗 金乔)14日，“春城杯”2026年长春市足球超级联赛正式开赛。这项拥有54年历史的老牌赛事全新升级，为“北国春城”点燃火热的足球氛围。 本届联赛由长春市人民政府主办，长春市体育局统筹牵头，各县(市)区政府、开发区管委会联合长春市教育局、长春市总工会等单位共同承办，搭建起“政府主导、部门协同、社会参与”的赛事组织体系。 “春城杯”始创于1972年
 
 ## 正文
 
-影响股市利好与利空消息 宏观新闻 1、国务院办公厅发布关于深化投资审批制度改革的意见。
+中新网长春6月14日电 (谭伟旗 金乔)14日，“春城杯”2026年长春市足球超级联赛正式开赛。
 
-意见指出，对无序竞争问题突出的产业领域，经国务院同意可实行暂停核准、备案等临时性调控措施，并明确具体要求、时限、操作方式等。
+这项拥有54年历史的老牌赛事全新升级，为“北国春城”点燃火热的足球氛围。
 
-2、中国人民银行、国家外汇管理局发布关于调整银行业金融机构境外贷款业务有关事宜的通知，将境内外商独资银行、境内中外合资银行、外国银行境内分行的境外贷款杠杆率由0.5上调至1.5；将进出口银行的境外贷款杠杆率由3上调至3.5。
+本届联赛由长春市人民政府主办，长春市体育局统筹牵头，各县(市)区政府、开发区管委会联合长春市教育局、长春市总工会等单位共同承办，搭建起“政府主导、部门协同、社会参与”的赛事组织体系。
 
-如计算的境外贷款余额上限小于100亿元，核定该银行境外贷款余额上限为100亿元。
+“春城杯”始创于1972年，承载着几代人的绿茵情怀，也见证了当地社会足球从起步到繁荣的发展历程。
 
-3、外交部发言人郭嘉昆昨日主持例行记者会。
+今年赛事通过优化办赛架构、更新竞赛赛制、扩充参赛队伍等方式，让经典赛事焕发新活力。
 
-有记者就美国财长贝森特近期相关涉华言论提问。
+开幕式现场，2027长春大冬会吉祥物“吉冰”“吉雪”登场，并为联赛开球，活泼可爱的形象瞬间点燃全场热情。
 
-对此，郭嘉昆表示，关于伊朗局势，中方已经多次表明了严正立场。
+揭幕战由双阳区队迎战南关区队。
 
-关于美国总统特朗普访华，双方就此事保持着沟通。
+90分钟的比赛里，双方球员全力拼抢，攻防转换节奏紧凑。
 
 ## 相关推荐
 
-- 2026-06-29 22:54 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 22:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 22:50 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 23:02 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 22:55 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 23:03 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 22:36 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 23:02 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 22:40 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 22:55 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 22:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 22:38 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 23:00 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-29 22:48 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 22:43 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 22:44 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 23:00 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 23:04 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 22:57 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 23:09 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 23:11 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 22:59 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 22:54 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 22:54 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 22:56 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/420038.shtml)
-- 2026-06-29 23:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/178718814.shtml)
-- 2026-06-29 22:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/66160.shtml)
-- 2026-06-29 22:50 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/19024100.shtml)
-- 2026-06-29 22:48 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/93259399.shtml)
-- 2026-06-29 23:02 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/053665.shtml)
-- 2026-06-29 22:57 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/12310.shtml)
-- 2026-06-29 22:42 - [网约车出事故平台拒赔称只是中介](http://www.share.minike.top/Article/details/84538340.shtml)
-- 2026-06-29 22:43 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/25789983.shtml)
-- 2026-06-29 22:40 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/45992307070.shtml)
-- 2026-06-29 23:02 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/05358994.shtml)
-- 2026-06-29 22:44 - [谁在推动“成都造”影视持续出圈](http://www.share.minike.top/Article/details/385606.shtml)
-- 2026-06-29 22:38 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/506577.shtml)
-- 2026-06-29 22:55 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/397476925.shtml)
-- 2026-06-29 22:55 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/49365.shtml)
+- 2026-06-29 22:52 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/30396796.shtml)
+- 2026-06-29 23:03 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/57357.shtml)
+- 2026-06-29 23:03 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/57807480.shtml)
+- 2026-06-29 22:49 - [速度与激情9](http://www.blog.minike.top/Article/details/05908.shtml)
+- 2026-06-29 22:47 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/68284538.shtml)
+- 2026-06-29 23:11 - [毒液2](http://www.blog.minike.top/Article/details/084066547.shtml)
+- 2026-06-29 23:03 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/0564741042.shtml)
+- 2026-06-29 22:55 - [第一炉香](https://www.blog.minike.top/Article/details/789641463.shtml)
+- 2026-06-29 22:55 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/7188061389.shtml)
+- 2026-06-29 22:53 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/2871831605.shtml)
+- 2026-06-29 22:51 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/27140579.shtml)
+- 2026-06-29 22:49 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/3056315.shtml)
+- 2026-06-29 22:49 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/37376395.shtml)
+- 2026-06-29 23:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/794530159.shtml)
+- 2026-06-29 22:42 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/286549405765.shtml)

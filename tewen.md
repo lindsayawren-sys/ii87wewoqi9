@@ -1,58 +1,61 @@
-# IMF报告认为中东战事延宕或导致全球经济衰退 中方回应
+# 特朗普称美伊14日将签谅解备忘录 伊方称不排除未来几天内签署
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-中新社北京4月15日电 (记者 黄钰钦 曾玥)针对国际货币基金组织(IMF)报告称中东战事延宕或导致全球经济衰退，中国外交部发言人郭嘉昆15日在例行记者会上表示，这场战争本就不应发生，更不能让国际社会尤其是最不发达国家承担代价。有记者提问，据报道，IMF最新报告认为，中东战事延宕可能导致全球经济衰退。报告将今年世界经济增长预期下调0.2个百分点。据联合国机构估算，战事预计导致全
+中新社北京6月14日电 综合消息：美国总统特朗普当地时间13日在社交媒体上发文说，美伊将在14日签署谅解备忘录。伊朗外交部发言人巴加埃曾在当天早些时候说签署时间不会是14日，但不排除在未来几天。 特朗普在社交媒体上说，美伊将在14日签署谅解备忘录，一经签署，霍尔木兹海峡将立即向所有国家开放。 特朗普表示，当一切恢复平静后，美国将进入伊朗存放核材料的地点，取出核材料，并将其进行稀
 
 ## 正文
 
-中新社北京4月15日电 (记者 黄钰钦 曾玥)针对国际货币基金组织(IMF)报告称中东战事延宕或导致全球经济衰退，中国外交部发言人郭嘉昆15日在例行记者会上表示，这场战争本就不应发生，更不能让国际社会尤其是最不发达国家承担代价。
+中新社北京6月14日电 综合消息：美国总统特朗普当地时间13日在社交媒体上发文说，美伊将在14日签署谅解备忘录。
 
-有记者提问，据报道，IMF最新报告认为，中东战事延宕可能导致全球经济衰退。
+伊朗外交部发言人巴加埃曾在当天早些时候说签署时间不会是14日，但不排除在未来几天。
 
-报告将今年世界经济增长预期下调0.2个百分点。
+特朗普在社交媒体上说，美伊将在14日签署谅解备忘录，一经签署，霍尔木兹海峡将立即向所有国家开放。
 
-据联合国机构估算，战事预计导致全球饥饿人口新增4500万，多达3200万人可能陷入贫困。
+特朗普表示，当一切恢复平静后，美国将进入伊朗存放核材料的地点，取出核材料，并将其进行稀释处理和彻底销毁，这一行为可能在伊朗境内也可能在美国完成。
 
-部分太平洋岛国因能源危机已宣布紧急状态。
+据路透社报道，当天早些时候，伊朗外交部发言人巴加埃说，“对于备忘录签署时间，我们还要拭目以待，但肯定不是明天。
 
-发言人对此有何评论？
+”他还说，不排除在未来几天内签署的可能性。
 
-郭嘉昆表示，IMF报告再次证明这场战事不仅造成巨大人员伤亡和损失，而且产生严重外溢影响，拖累全球经济增长和民生改善。
+伊通社援引巴加埃的话说，这一备忘录现阶段聚焦于结束地区冲突，不涉及伊朗核问题，相关核议题将在后续60天内单独讨论。
 
-这场战争本就不应发生，更不能让国际社会尤其是最不发达国家承担代价，为战争埋单。
+谈及霍尔木兹海峡，巴加埃说，保障海峡安全通行符合伊朗国家利益和国际社会共同利益。
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 22:46 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 22:41 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 22:56 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 22:39 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 22:51 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 22:40 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 22:46 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 22:37 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 22:58 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 22:38 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 22:51 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 23:08 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 23:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 22:53 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 23:11 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 22:53 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 22:45 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 22:43 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 22:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 23:02 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 23:03 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 22:53 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 22:43 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 22:53 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 22:57 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 22:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:58 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/4944045809.shtml)
-- 2026-06-29 22:54 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/2722963574.shtml)
-- 2026-06-29 22:40 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/43636792.shtml)
-- 2026-06-29 22:59 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.minike.top/Article/details/5233733765.shtml)
-- 2026-06-29 22:57 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/75464959349.shtml)
-- 2026-06-29 22:52 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/1633419234.shtml)
-- 2026-06-29 22:51 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/93210.shtml)
-- 2026-06-29 22:53 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/03249996.shtml)
-- 2026-06-29 23:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/4356454.shtml)
-- 2026-06-29 22:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/0424133270.shtml)
-- 2026-06-29 22:49 - [肝不好身体这几处会“说话”](https://www.blog.minike.top/Article/details/37700.shtml)
-- 2026-06-29 22:43 - [肝不好身体这几处会“说话”](https://www.blog.kurohicncr.top/Article/details/65008.shtml)
-- 2026-06-29 23:05 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/906424944.shtml)
-- 2026-06-29 22:52 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/04425589438.shtml)
-- 2026-06-29 23:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/563199167971.shtml)
+- 2026-06-29 23:07 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/730864.shtml)
+- 2026-06-29 23:00 - [张凌赫 客串](http://www.share.minike.top/Article/details/4150595916.shtml)
+- 2026-06-29 23:03 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/8826976599.shtml)
+- 2026-06-29 22:57 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/75530571798.shtml)
+- 2026-06-29 23:06 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/5253298.shtml)
+- 2026-06-29 23:10 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/4544244.shtml)
+- 2026-06-29 22:59 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/7396846.shtml)
+- 2026-06-29 22:46 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/86532447.shtml)
+- 2026-06-29 23:11 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/93630360.shtml)
+- 2026-06-29 23:10 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/333197.shtml)
+- 2026-06-29 22:56 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/21603803.shtml)
+- 2026-06-29 23:04 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/07337.shtml)
+- 2026-06-29 22:53 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/68712667.shtml)
+- 2026-06-29 22:51 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/3123418.shtml)
+- 2026-06-29 22:45 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/2983092494.shtml)

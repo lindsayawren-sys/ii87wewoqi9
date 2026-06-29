@@ -1,60 +1,56 @@
-# 大涨日，“落袋为安”！
+# 长江有色：资金观望情绪浓厚镍价谨慎追涨 16日镍价或涨跌不大
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】昨日股票ETF市场净流出资金近110亿元 中国基金报记者 李树超 昨日A股三大指数直线暴力拉升，沪指重回4000点，创业板指创阶段新高。其中，算力产业链集体走强，存储芯片板块延续强势，光伏板块下挫。 股市大涨中，部分资金选择“落袋为安”，昨日股票ETF市场净流出资金接近110亿元。
+长江有色金属网 镍期货市场：美指下跌提振工业金属行情修复，隔夜伦镍收涨0.14%；伦镍最新收盘报17815美元/吨，上涨25美元，涨幅为0.14%，成交量7561手，国内市场，夜盘沪镍最新收报135560元/吨，上涨230元，涨幅为0.17%。 伦敦金属交易所（LME）6月15日伦镍库存报274932吨，较前一日减少6吨。 长江镍业网讯：今日沪镍期货全线高开为主；主力月2607
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+长江有色金属网 镍期货市场：美指下跌提振工业金属行情修复，隔夜伦镍收涨0.14%；伦镍最新收盘报17815美元/吨，上涨25美元，涨幅为0.14%，成交量7561手，国内市场，夜盘沪镍最新收报135560元/吨，上涨230元，涨幅为0.17%。
 
-来源：中国基金报 【导读】昨日股票ETF市场净流出资金近110亿元 中国基金报记者 李树超 昨日A股三大指数直线暴力拉升，沪指重回4000点，创业板指创阶段新高。
+伦敦金属交易所（LME）6月15日伦镍库存报274932吨，较前一日减少6吨。
 
-其中，算力产业链集体走强，存储芯片板块延续强势，光伏板块下挫。
+长江镍业网讯：今日沪镍期货全线高开为主；主力月2607合约开盘报136860元/吨较此前收盘上涨1530元/吨，9：15分沪镍主力2607合约报135160元/吨，下跌170元，沪期镍高开后窄幅震荡；宏观面：海外宏观面迎来关键转向，美伊和平协议落地大幅缓和中东地缘局势，能源供应尾部风险消退，原油回落带动全球通胀预期降温。
 
-股市大涨中，部分资金选择“落袋为安”，昨日股票ETF市场净流出资金接近110亿元。
+美元指数走弱刷新阶段低点，美股集体走强，市场风险偏好全面修复，恐慌情绪快速退潮。
 
-其中，跟踪中证500指数的宽基ETF净流出居前；跟踪港股通创新药指数的ETF、策略风格ETF等净流入较多。
+美联储 6 月议息按兵不动的预期持续升温，美元计价工业金属迎来估值修复，伦镍终结连续弱势整理态势，叠加国内稳增长政策预期发酵，内外宏观合力筑牢镍价下方支撑。
 
-昨日股票ETF市场净流出近110亿元 Wind数据显示，截至4月14日，全市场1382只股票ETF（含跨境ETF）总规模达3.88万亿元。
+镍产业链供需呈现五大品类结构性分化。
 
-在股市上涨行情中，股票ETF市场净流出资金达109.29亿元。
+原料端，印尼开采配额削减加剧红土高品位镍矿供给收紧，全球硫化镍优质资源稀缺、增产周期漫长，一级镍原料维持紧平衡。
 
-从大类型来看，昨日债券ETF与策略风格ETF净流入居前，分别达23.63亿元与11.66亿元；规模变化方面，受益于股市普涨，行业主题ETF规模增加144.15亿元。
+中间品端，高冰镍流通货源稳步增加但下游产线适配不足，氢氧化镍钴受成本挤压降负荷运行，现货持续偏紧。
 
 ## 相关推荐
 
-- 2026-06-29 22:39 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 22:36 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 23:00 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 22:44 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-29 22:46 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 22:56 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 22:41 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 22:56 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 22:44 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 22:38 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 22:59 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 22:57 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 22:48 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 22:39 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 23:01 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 23:02 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 22:42 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 22:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 23:11 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 22:45 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 22:52 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 22:49 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 22:51 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 22:52 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:03 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/75216993.shtml)
-- 2026-06-29 22:50 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/12197.shtml)
-- 2026-06-29 22:40 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/716018.shtml)
-- 2026-06-29 22:38 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/28886.shtml)
-- 2026-06-29 22:45 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/1908206783.shtml)
-- 2026-06-29 23:03 - [速度与激情9](http://www.blog.minike.top/Article/details/66682875.shtml)
-- 2026-06-29 22:39 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/6703851445.shtml)
-- 2026-06-29 23:03 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/594661682885.shtml)
-- 2026-06-29 22:48 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/1984741377.shtml)
-- 2026-06-29 22:44 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/842694279826.shtml)
-- 2026-06-29 22:53 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/834557337451.shtml)
-- 2026-06-29 22:57 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/061454398.shtml)
-- 2026-06-29 22:47 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/64388911839.shtml)
-- 2026-06-29 22:56 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/12511.shtml)
-- 2026-06-29 22:42 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/14009649.shtml)
+- 2026-06-29 22:56 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/61666491.shtml)
+- 2026-06-29 22:53 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/43521335798.shtml)
+- 2026-06-29 23:06 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/468403656.shtml)
+- 2026-06-29 22:52 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/125993309.shtml)
+- 2026-06-29 22:59 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/2686945561.shtml)
+- 2026-06-29 23:09 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/429119924.shtml)
+- 2026-06-29 22:54 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/99204174199.shtml)
+- 2026-06-29 22:58 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/44207.shtml)
+- 2026-06-29 23:02 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/66932631929.shtml)
+- 2026-06-29 23:07 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.kurohicncr.top/Article/details/59661501104.shtml)
+- 2026-06-29 22:56 - [国际清算银行警告AI投资热潮](http://www.share.kurohicncr.top/Article/details/7914449125.shtml)
+- 2026-06-29 22:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/05461.shtml)
+- 2026-06-29 23:04 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/73570642190.shtml)
+- 2026-06-29 23:10 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/75811165.shtml)
+- 2026-06-29 22:55 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/13894.shtml)

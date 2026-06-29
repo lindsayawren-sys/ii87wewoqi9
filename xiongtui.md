@@ -1,57 +1,46 @@
-# “童爱同行”项目启动 为长期住院患儿及其家长提供公益支持
+# 曹景泉获批出任马上消费金融首席合规官
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-中新网北京4月15日电 题：“童爱同行”项目启动 为长期住院患儿及其家长提供公益支持 作者 张素 刘丹 聚焦长期住院患儿身心发展核心需求，联动医疗、高校、社会多方力量，通过专业社工服务、趣味陪伴活动、家庭赋能等多样化形式，为长期住院患儿及其家长提供温暖、专业的公益支持…… “童爱同行——医疗情景下儿童陪伴与健康成长服务”项目近日在北京正式启动。专业公益力量走进病房、走近患儿，“
+6月15日金融一线消息，重庆金融监管局发布关于曹景泉马上消费金融股份有限公司首席合规官任职资格的批复，核准曹景泉马上消费金融股份有限公司首席合规官的任职资格。 责任编辑：王馨茹
 
 ## 正文
 
-中新网北京4月15日电 题：“童爱同行”项目启动 为长期住院患儿及其家长提供公益支持 作者 张素 刘丹 聚焦长期住院患儿身心发展核心需求，联动医疗、高校、社会多方力量，通过专业社工服务、趣味陪伴活动、家庭赋能等多样化形式，为长期住院患儿及其家长提供温暖、专业的公益支持…… “童爱同行——医疗情景下儿童陪伴与健康成长服务”项目近日在北京正式启动。
+6月15日金融一线消息，重庆金融监管局发布关于曹景泉马上消费金融股份有限公司首席合规官任职资格的批复，核准曹景泉马上消费金融股份有限公司首席合规官的任职资格。
 
-专业公益力量走进病房、走近患儿，“陪伴，让温暖不缺席，让童心有力量。
-
-” 共筑关爱之路 “童爱同行”项目由北京白求恩公益基金会发起，携手中华女子学院社工专业服务团队，在首都医科大学附属首都儿童医学中心落地。
-
-专家称，众多患儿因各类疾病需长期住院治疗，不仅承受身体病痛的折磨，还易出现焦虑、孤独、恐惧等心理应激反应。
-
-与此同时，患儿家庭也普遍面临经济、照护与心理等多重压力。
-
-“长期住院的孩子，不仅需要身体上的治疗，更需要心理上的慰藉。
-
-”中华女子学院社会工作学院副教授王献蜜在调研后说，读懂孩子的心声，才能真正走进他们的世界。
-
-据介绍，项目围绕患儿身心健康、家庭赋能、服务标准化、社会影响力四个目标，旨在缓解患儿负面情绪、提升治疗依从性，保障住院期间儿童社会性与认知发展不间断，为家庭提供照护支持与互助平台，探索可复制、可推广的儿童医疗陪伴服务模式。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 22:48 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 22:54 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 23:03 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 23:04 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 23:05 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 23:03 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 22:59 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 22:51 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 23:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 22:52 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 22:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 22:51 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 22:55 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 22:53 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 22:56 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 22:52 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 22:43 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 23:03 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 23:00 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 22:43 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 22:57 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 22:51 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 22:50 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:55 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/2185909628.shtml)
-- 2026-06-29 22:36 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/121031850635.shtml)
-- 2026-06-29 23:05 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/370357626393.shtml)
-- 2026-06-29 22:51 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/7280880.shtml)
-- 2026-06-29 22:54 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/006886763.shtml)
-- 2026-06-29 22:50 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/678326.shtml)
-- 2026-06-29 22:50 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/0493064477.shtml)
-- 2026-06-29 22:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/3281000.shtml)
-- 2026-06-29 22:52 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/24852.shtml)
-- 2026-06-29 22:45 - [乌克兰发广告全球征兵](https://www.share.kurohicncr.top/Article/details/349196.shtml)
-- 2026-06-29 22:45 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/17366.shtml)
-- 2026-06-29 22:49 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/2245249.shtml)
-- 2026-06-29 22:49 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/609506.shtml)
-- 2026-06-29 22:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/55302250.shtml)
-- 2026-06-29 22:45 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/1949134990.shtml)
+- 2026-06-29 22:55 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/33721860393.shtml)
+- 2026-06-29 23:03 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/920521592794.shtml)
+- 2026-06-29 22:52 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/749937.shtml)
+- 2026-06-29 23:03 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/55172388.shtml)
+- 2026-06-29 23:09 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/49488217175.shtml)
+- 2026-06-29 22:57 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/313136075.shtml)
+- 2026-06-29 22:44 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/54487.shtml)
+- 2026-06-29 22:44 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/2777871.shtml)
+- 2026-06-29 22:53 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/97555859676.shtml)
+- 2026-06-29 22:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/600810879.shtml)
+- 2026-06-29 23:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/3575986872.shtml)
+- 2026-06-29 22:49 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/85441.shtml)
+- 2026-06-29 22:52 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/510210790251.shtml)
+- 2026-06-29 22:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/18031144.shtml)
+- 2026-06-29 23:07 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/8136504.shtml)

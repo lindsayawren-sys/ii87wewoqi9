@@ -1,46 +1,58 @@
-# 习近平会见阿联酋阿布扎比王储
+# 六网织就新未来丨特高压、配网、微电网三重布局释放经济新动能
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月14日 21:06 来源：央视新闻客户端 责任编辑：【韦俊龙】
+作为清洁能源大国，我国能源结构正经历着历史性转折，风电、光伏装机已超过火电，这也对电网的发展提出了全新的挑战。“十五五”时期，我国将投资超5万亿元建设新型电网。那么这笔投资究竟要建出一张什么样的网？一起来看。五万亿投出什么样的新电网？ 从“十五五”规划《纲要》部署的十大清洁能源基地出发，多条特高压直流通道正在加紧建设，“十五五”期间，这样的通道还将投产15条。它们跨越山海，把戈
 
 ## 正文
 
-发布时间：2026年04月14日 21:06 来源：央视新闻客户端 责任编辑：【韦俊龙】
+作为清洁能源大国，我国能源结构正经历着历史性转折，风电、光伏装机已超过火电，这也对电网的发展提出了全新的挑战。
+
+“十五五”时期，我国将投资超5万亿元建设新型电网。
+
+那么这笔投资究竟要建出一张什么样的网？
+
+一起来看。
+
+五万亿投出什么样的新电网？
+
+从“十五五”规划《纲要》部署的十大清洁能源基地出发，多条特高压直流通道正在加紧建设，“十五五”期间，这样的通道还将投产15条。
+
+它们跨越山海，把戈壁的光伏光热、草原的大风、西南峡谷的激流，送往用电需求巨大的东中部地区。
+
+如果说特高压是“主动脉”，那配电网就是遍布城乡的“毛细血管”。
 
 ## 相关推荐
 
-- 2026-06-29 22:48 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 22:54 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 22:50 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 23:04 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 22:59 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 22:58 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 22:37 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 22:37 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 22:43 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 22:38 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 23:03 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 22:40 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 22:59 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 22:47 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 22:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 23:06 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 22:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 23:10 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 22:44 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 22:47 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 23:11 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 22:51 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 22:54 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 23:09 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 23:08 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 23:10 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/5989367.shtml)
-- 2026-06-29 23:04 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/172891.shtml)
-- 2026-06-29 22:49 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/319965356119.shtml)
-- 2026-06-29 23:03 - [起风了](https://www.share.minike.top/Article/details/3257897.shtml)
-- 2026-06-29 22:59 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/78018.shtml)
-- 2026-06-29 22:50 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/88365126.shtml)
-- 2026-06-29 22:55 - [女心理师](http://www.blog.minike.top/Article/details/577580.shtml)
-- 2026-06-29 23:04 - [金牌调解](http://www.blog.minike.top/Article/details/574052019344.shtml)
-- 2026-06-29 22:53 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/939637.shtml)
-- 2026-06-29 23:03 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/426395800733.shtml)
-- 2026-06-29 22:55 - [小娘惹](http://www.share.kurohicncr.top/Article/details/730840374.shtml)
-- 2026-06-29 22:48 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/947754.shtml)
-- 2026-06-29 22:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/70245.shtml)
-- 2026-06-29 22:42 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/4656589.shtml)
-- 2026-06-29 23:01 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/02404455339.shtml)
+- 2026-06-29 22:45 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/141360506.shtml)
+- 2026-06-29 23:00 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/194031.shtml)
+- 2026-06-29 23:08 - [起风了](https://www.blog.kurohicncr.top/Article/details/86208550261.shtml)
+- 2026-06-29 22:44 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/7429671606.shtml)
+- 2026-06-29 23:04 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/2926058306.shtml)
+- 2026-06-29 23:11 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/81269.shtml)
+- 2026-06-29 22:57 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/26357.shtml)
+- 2026-06-29 22:52 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/38942.shtml)
+- 2026-06-29 23:02 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/79238184.shtml)
+- 2026-06-29 22:56 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/028645407682.shtml)
+- 2026-06-29 23:11 - [起风了](http://www.share.kurohicncr.top/Article/details/3746797813.shtml)
+- 2026-06-29 22:46 - [85花告别古偶](http://www.share.minike.top/Article/details/61284573673.shtml)
+- 2026-06-29 23:03 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/27119.shtml)
+- 2026-06-29 23:04 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/289480170707.shtml)
+- 2026-06-29 23:09 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/354785632.shtml)

@@ -1,57 +1,59 @@
-# 我国科学家在鼻咽癌精准治疗研究领域取得重要进展
+# 特朗普在生日当天与普京和泽连斯基通话 尽管俄乌和谈已陷入停滞
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-中新网广州4月15日电 (记者 王坚)国家蛋白质科学中心(北京)，广东智慧医学国际研究院、中国科学院院士贺福初团队，以及中山大学肿瘤防治中心、中国科学院院士马骏团队，在鼻咽癌精准治疗的蛋白质组学机制方面取得突破，相关成果15日在国际顶级肿瘤学期刊《自然·癌症》(Nature Cancer)发表。据介绍，该研究成功绘制鼻咽癌GP诱导化疗联合同步放化疗(GP+CCRT)与单纯同步放
+克里姆林宫表示，俄罗斯总统普京和美国总统特朗普在后者生日当天进行了一次“友好而坦诚”的通话。此外，乌克兰总统泽连斯基也与特朗普进行了通话。 克里姆林宫外交政策助理Yuri Ushakov周日表示：“通话气氛友好而坦诚，持续了约一个小时。”两人讨论了国际问题、美国与伊朗之间的谈判以及华盛顿与莫斯科之间的接触。 Ushakov表示，美国特使史蒂夫·威特科夫和特朗普的女婿贾里德·库什
 
 ## 正文
 
-中新网广州4月15日电 (记者 王坚)国家蛋白质科学中心(北京)，广东智慧医学国际研究院、中国科学院院士贺福初团队，以及中山大学肿瘤防治中心、中国科学院院士马骏团队，在鼻咽癌精准治疗的蛋白质组学机制方面取得突破，相关成果15日在国际顶级肿瘤学期刊《自然·癌症》(Nature Cancer)发表。
+克里姆林宫表示，俄罗斯总统普京和美国总统特朗普在后者生日当天进行了一次“友好而坦诚”的通话。
 
-据介绍，该研究成功绘制鼻咽癌GP诱导化疗联合同步放化疗(GP+CCRT)与单纯同步放化疗(CCRT)双队列多组学全景图谱，并构建了一套全新蛋白质组分型体系，为鼻咽癌患者开展以蛋白质组学为核心的个体化精准治疗提供了科学依据。
+此外，乌克兰总统泽连斯基也与特朗普进行了通话。
 
-据了解，该成果标志着“蛋白质组驱动的精准医学(PDPM)”理念进一步获得实践验证。
+克里姆林宫外交政策助理Yuri Ushakov周日表示：“通话气氛友好而坦诚，持续了约一个小时。
 
-早在2019年2月，我国科学家在《自然》杂志上发表了早期肝细胞癌蛋白质组研究成果，由此开启了蛋白质组驱动的精准医学新时代。
+”两人讨论了国际问题、美国与伊朗之间的谈判以及华盛顿与莫斯科之间的接触。
 
-自贺福初院士团队提出 PDPM理念以来，相关研究已在肝癌、肺癌、胃癌、胰腺癌等重大疾病领域连续取得系列标志性进展，为构建新一代精准医疗体系奠定了重要理论与技术基础。
+Ushakov表示，美国特使史蒂夫·威特科夫和特朗普的女婿贾里德·库什纳计划很快返回俄罗斯，但没有提供更多细节。
 
-鼻咽癌是我国高发的头颈部恶性肿瘤，全球每年新发病例近半数来自中国，其中华南地区尤为高发。
+这次通话发生之际，由美国斡旋的基辅与莫斯科之间关于结束冲突的谈判陷入停滞，而特朗普正专注于与伊朗的冲突。
 
-该病早期症状隐匿，约70%患者确诊时已发展至中晚期，临床以放疗联合化疗为主要治疗模式。
+Ushakov表示，普京和特朗普谈到了近期针对俄罗斯民用目标的袭击。
 
-马骏院士团队研究表明，在同步放化疗(CCRT)前采用吉西他滨+顺铂(GP)方案进行诱导化疗，可有效提升生存率，但仍有20%—30%的患者疗效不佳，“相同方案，预后各异”始终是临床上面临的现实难题。
+乌克兰军队隔夜袭击了俄罗斯图拉州的一家化工厂、雅罗斯拉夫尔地区的一处储油设施，以及其他地点，乌克兰称这是正在持续推进的行动的一部分，目的是削弱俄罗斯的石油收入和供应。
 
 ## 相关推荐
 
-- 2026-06-29 22:49 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 22:55 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 23:01 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 22:54 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 22:37 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 22:37 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 22:57 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 22:50 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 22:58 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 23:04 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 22:41 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 23:03 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 23:11 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 22:42 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 23:05 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 23:03 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 22:44 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 22:45 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 22:57 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 23:01 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 22:47 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 22:51 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 22:56 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 22:52 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:42 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/19362176947.shtml)
-- 2026-06-29 22:40 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/145067217900.shtml)
-- 2026-06-29 22:48 - [18岁高二体育生训练晕倒后离世](https://www.share.kurohicncr.top/Article/details/49459596528.shtml)
-- 2026-06-29 22:37 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/20043.shtml)
-- 2026-06-29 22:44 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/28048788.shtml)
-- 2026-06-29 22:54 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/2628485844.shtml)
-- 2026-06-29 23:00 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/6512172.shtml)
-- 2026-06-29 22:44 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/10519.shtml)
-- 2026-06-29 23:05 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/280395858540.shtml)
-- 2026-06-29 22:55 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/076905.shtml)
-- 2026-06-29 22:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/695334201835.shtml)
-- 2026-06-29 22:49 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/276720.shtml)
-- 2026-06-29 22:57 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/302949.shtml)
-- 2026-06-29 22:37 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/050112.shtml)
-- 2026-06-29 23:00 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/057890.shtml)
+- 2026-06-29 22:54 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/201646715.shtml)
+- 2026-06-29 23:09 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/3582335834.shtml)
+- 2026-06-29 22:43 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/243893621.shtml)
+- 2026-06-29 23:01 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/06439.shtml)
+- 2026-06-29 22:47 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/03605114072.shtml)
+- 2026-06-29 22:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/70299.shtml)
+- 2026-06-29 22:43 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/059886842034.shtml)
+- 2026-06-29 23:04 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/1746254917.shtml)
+- 2026-06-29 23:00 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/376795818595.shtml)
+- 2026-06-29 22:43 - [金刚川](https://www.blog.minike.top/Article/details/741650568.shtml)
+- 2026-06-29 23:08 - [勇敢的心第二部](http://www.share.minike.top/Article/details/91982787304.shtml)
+- 2026-06-29 23:09 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/271254986398.shtml)
+- 2026-06-29 22:47 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/52439596.shtml)
+- 2026-06-29 23:04 - [第一炉香](https://www.share.kurohicncr.top/Article/details/4831411.shtml)
+- 2026-06-29 22:50 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/99187.shtml)

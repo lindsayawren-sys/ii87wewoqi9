@@ -1,61 +1,59 @@
-# 意大利天然气公司Edison称卡塔尔可能延长天然气不可抗力，预计美国LNG填补缺口
+# 新加坡将推出黄金清算系统，致力打造贵金属交易中心
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-意大利天然气进口商Edison周三表示，卡塔尔可能会将其天然气供应的不可抗力状态延长至6月中旬之后，同时预计这一缺口将由美国供应而非俄罗斯天然气来填补。 供应中断背景 Edison与卡塔尔能源公司签有长期合同，每年接收64亿立方米液化天然气，约占意大利年消费量的10%。 该合同自2009年开始，为期25年。上个月，由于中东冲突及霍尔木兹海峡的持续敌对行动，卡塔尔能源公司通知Ed
+新加坡将于今年推出场外（OTC）黄金清算系统，并同步为各国央行提供金库托管服务，力图将自身打造为全球贵金属交易枢纽。 新加坡副总理颜金勇周一上午表示，摩根大通、德意志银行、星展银行等多家国际大行将参与该系统。 他说：“我们无意取代现有成熟的黄金交易与流动性中心。相反，新加坡可成为全球黄金生态中一个值得信赖的节点 —— 衔接区域需求与全球流动性，并在亚洲交易时段为市场提供支撑。”
 
 ## 正文
 
-意大利天然气进口商Edison周三表示，卡塔尔可能会将其天然气供应的不可抗力状态延长至6月中旬之后，同时预计这一缺口将由美国供应而非俄罗斯天然气来填补。
+新加坡将于今年推出场外（OTC）黄金清算系统，并同步为各国央行提供金库托管服务，力图将自身打造为全球贵金属交易枢纽。
 
-供应中断背景 Edison与卡塔尔能源公司签有长期合同，每年接收64亿立方米液化天然气，约占意大利年消费量的10%。
+新加坡副总理颜金勇周一上午表示，摩根大通、德意志银行、星展银行等多家国际大行将参与该系统。
 
-该合同自2009年开始，为期25年。
+他说：“我们无意取代现有成熟的黄金交易与流动性中心。
 
-上个月，由于中东冲突及霍尔木兹海峡的持续敌对行动，卡塔尔能源公司通知Edison，在4月至6月中旬期间将无法履行10船货物（相当于14亿立方米天然气）的合同义务。
+相反，新加坡可成为全球黄金生态中一个值得信赖的节点 —— 衔接区域需求与全球流动性，并在亚洲交易时段为市场提供支撑。
 
-据卡塔尔能源公司首席执行官称，上个月伊朗的袭击导致该公司17%的LNG出口能力瘫痪。
+” 随着亚洲在全球贵金属贸易中占比提升，新加坡与竞争对手香港正竞相争做亚洲首要黄金市场。
 
-美国LNG填补缺口 Edison首席执行官Nicola Monti在媒体简报会上表示，在卡塔尔能源公司因中东战争取消了4月至6月中旬的10船LNG货物后，该意大利集团已从美国购买了7船LNG。
+这两大金融中心正试图改变数十年来黄金交易集中于伦敦、纽约和瑞士的格局。
 
-Monti对美国LNG供应能力表示信心，他提到了今年美国两座LNG工厂的投产——Venture Global的Plaquemines项目和Golden Pass项目（后者部分由卡塔尔能源公司和埃克森美孚持有）。
+新加坡的这一规划已酝酿十余年，近两年地缘政治不确定性重新提振黄金投资需求，进一步推动了相关进程。
 
-他指出，其他工厂也在建设中。
+此前多项举措 —— 如推出实物黄金合约、兴建大型仓储设施 —— 主要由私营部门主导。
 
 ## 相关推荐
 
-- 2026-06-29 22:43 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 22:37 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 22:38 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 23:05 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 22:47 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 23:02 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 22:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 22:49 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 22:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-29 22:46 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 22:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 23:02 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 22:56 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 22:52 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 23:01 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 22:52 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 22:56 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 22:57 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 22:54 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 22:50 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 23:06 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 23:04 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 22:55 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 22:58 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 23:10 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 22:47 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 22:44 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 22:55 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:58 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/66704.shtml)
-- 2026-06-29 23:02 - [勇敢的心第二部](https://www.share.minike.top/Article/details/21206674695.shtml)
-- 2026-06-29 22:56 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/085421.shtml)
-- 2026-06-29 22:53 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/778007499284.shtml)
-- 2026-06-29 22:55 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/98723288.shtml)
-- 2026-06-29 22:52 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/50421816.shtml)
-- 2026-06-29 22:42 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/049448.shtml)
-- 2026-06-29 23:00 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/0794983.shtml)
-- 2026-06-29 22:37 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/406055314.shtml)
-- 2026-06-29 23:03 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/2603099879.shtml)
-- 2026-06-29 22:41 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/56184.shtml)
-- 2026-06-29 22:36 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/776337.shtml)
-- 2026-06-29 22:40 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.minike.top/Article/details/30449319430.shtml)
-- 2026-06-29 22:54 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/6757929966.shtml)
-- 2026-06-29 23:01 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/143245678.shtml)
+- 2026-06-29 23:08 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/857844.shtml)
+- 2026-06-29 22:54 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/704628.shtml)
+- 2026-06-29 22:44 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/22131.shtml)
+- 2026-06-29 23:08 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/42370067087.shtml)
+- 2026-06-29 23:08 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/4947931.shtml)
+- 2026-06-29 23:03 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/962987.shtml)
+- 2026-06-29 23:04 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/64804112142.shtml)
+- 2026-06-29 23:08 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/667235.shtml)
+- 2026-06-29 23:11 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/73919724.shtml)
+- 2026-06-29 22:50 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/978447396.shtml)
+- 2026-06-29 23:06 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/22070656.shtml)
+- 2026-06-29 22:43 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/32158.shtml)
+- 2026-06-29 23:11 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/13972838.shtml)
+- 2026-06-29 23:03 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/476517.shtml)
+- 2026-06-29 23:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/0098182307.shtml)

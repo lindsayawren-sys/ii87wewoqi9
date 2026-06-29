@@ -1,50 +1,61 @@
-# 张雪冠军机车亮相广交会 突尼斯参展商：久仰大名 太喜欢了
+# 高考之后，心理“着陆”比分数更重要
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月16日 11:56 来源：中国新闻网 4月15日，第139届广交会开幕首日，张雪机车带着冠军车型820RR，以及500RR等5款“拳头车型”首次参展，吸引了许多境外采购商轮流合影打卡体验。 张雪机车工作人员告诉记者，夺冠以后，国内外对公司品牌的认知度大大提升，国内订单在10天左右涨到2万多台。 而在国际上，张雪机车也声名鹊起，突尼斯参展商告诉记者，她此
+高考之后，心理“着陆”比分数更重要 专家提醒：警惕考后身心后遗症，但放松身心不等于走向混乱 当最后一张高考试卷交上去，录取通知书拿到手里，很多人都觉得“一切终于结束了”。但对于一部分孩子来说，考场的铃声并没有在心里停下。高压、紧张、失眠……这些本该随夏天结束的感受，却悄悄跟着他们走进了大学，甚至走到更远。南京大学医学院附属泰康仙林鼓楼医院心理科罗国帅主任提醒，高考只是人生一站，
 
 ## 正文
 
-发布时间：2026年04月16日 11:56 来源：中国新闻网 4月15日，第139届广交会开幕首日，张雪机车带着冠军车型820RR，以及500RR等5款“拳头车型”首次参展，吸引了许多境外采购商轮流合影打卡体验。
+高考之后，心理“着陆”比分数更重要 专家提醒：警惕考后身心后遗症，但放松身心不等于走向混乱 当最后一张高考试卷交上去，录取通知书拿到手里，很多人都觉得“一切终于结束了”。
 
-张雪机车工作人员告诉记者，夺冠以后，国内外对公司品牌的认知度大大提升，国内订单在10天左右涨到2万多台。
+但对于一部分孩子来说，考场的铃声并没有在心里停下。
 
-而在国际上，张雪机车也声名鹊起，突尼斯参展商告诉记者，她此前就知道这个品牌，知道它在国际上有名，而最近在中国名声大噪。
+高压、紧张、失眠……这些本该随夏天结束的感受，却悄悄跟着他们走进了大学，甚至走到更远。
 
-她个人对张雪机车非常喜爱。
+南京大学医学院附属泰康仙林鼓楼医院心理科罗国帅主任提醒，高考只是人生一站，高考后学会心理“着陆”，比考了多少分更重要。
 
-(记者 王庆然 制作 王嘉怡) 责任编辑：【苏亦瑜】
+上大学两年了，怎么还是放松不下来前段时间，一位大二男生来到心理科的诊室。
+
+他看起来安静、礼貌，有些拘谨，但眼里的疲惫和脸上的沉重怎么也藏不住。
+
+他告诉罗国帅：“我其实考上这所学校已经两年了，但我还是放松不下来。
+
+” 晚上躺在床上，脑子不停地想“有没有什么没做完”；明明没考试，却总觉得心里压着什么；白天上课老走神，晚上又睡不踏实，入睡困难、早醒、多梦……这让他的大学生活变得很苦，不是学业有多难，而是内心的“战场”一直没有撤去，只剩下持续的警觉、疲惫和莫名的恐慌。
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 22:59 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 22:49 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 23:02 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 22:47 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 23:05 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 22:41 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 22:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 22:44 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 22:57 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 22:54 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 22:49 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 22:53 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 23:03 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 22:50 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 22:46 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 22:52 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 22:42 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 23:11 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 23:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 22:50 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 22:52 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 23:11 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-29 22:56 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 22:48 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:45 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/401829892863.shtml)
-- 2026-06-29 22:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/43712.shtml)
-- 2026-06-29 23:02 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/4204833.shtml)
-- 2026-06-29 22:40 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/550353.shtml)
-- 2026-06-29 23:01 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/2084055.shtml)
-- 2026-06-29 22:54 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/524885965913.shtml)
-- 2026-06-29 22:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/84867.shtml)
-- 2026-06-29 22:42 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/9479526714.shtml)
-- 2026-06-29 22:39 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/345522.shtml)
-- 2026-06-29 22:36 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/08178.shtml)
-- 2026-06-29 23:03 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/056901.shtml)
-- 2026-06-29 22:56 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/108601800058.shtml)
-- 2026-06-29 22:44 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/01681.shtml)
-- 2026-06-29 22:37 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/641036.shtml)
-- 2026-06-29 22:37 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/1922250.shtml)
+- 2026-06-29 23:08 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/790139919043.shtml)
+- 2026-06-29 22:57 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/7581002360.shtml)
+- 2026-06-29 22:55 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.minike.top/Article/details/6097393.shtml)
+- 2026-06-29 22:59 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/09814.shtml)
+- 2026-06-29 22:58 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/1459703630.shtml)
+- 2026-06-29 23:08 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/07873715460.shtml)
+- 2026-06-29 23:02 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/396607.shtml)
+- 2026-06-29 23:02 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/1223160.shtml)
+- 2026-06-29 23:08 - [韩国队回国欢迎仪式取消](https://www.blog.minike.top/Article/details/0939168718.shtml)
+- 2026-06-29 23:11 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/74235709094.shtml)
+- 2026-06-29 23:10 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/29823.shtml)
+- 2026-06-29 22:58 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/358615287.shtml)
+- 2026-06-29 23:04 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/65325.shtml)
+- 2026-06-29 23:03 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/0885648.shtml)
+- 2026-06-29 22:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/3115349759.shtml)

@@ -1,61 +1,58 @@
-# 美军连续两天在东太平洋打击所谓“贩毒船” 致多人死亡
+# 聚丙烯：拉丝排产创年内新低 现货偏紧支撑价格坚挺
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-中新网4月15日电 据美联社报道，当地时间14日，美军南方司令部称，美军在东太平洋对一艘“贩毒船”发动打击，打死船上4人。 美军南方司令部在社交媒体平台上表示，根据美军南方司令部司令弗朗西斯·多诺万的命令，美军“南方之矛”联合特遣部队14日对一艘由“被认定的恐怖组织”运营的船只实施打击，打死船上4名“毒品恐怖分子”。美军未受伤。 据报道，美军南方司令部还发布了一段航拍视频，显示
+卓创资讯聚丙烯分析师 相欣妍 【导语】：6月虽需求负反馈持续，但PP拉丝排产比例降至年内新低水平，供应端持续偏紧驱动拉丝价格表现坚挺，展望后市，在终端需求疲软叠加供应小幅回升的双重作用下，市场或面临一定下行压力。 拉丝排产创年内新低 现货供应持续偏紧 自3月起，国内PP市场受地缘局势扰动影响，在生产成本上行、装置集中停车降负双重因素影响下，整体供应持续缩量。截至6月12日，PP
 
 ## 正文
 
-中新网4月15日电 据美联社报道，当地时间14日，美军南方司令部称，美军在东太平洋对一艘“贩毒船”发动打击，打死船上4人。
+卓创资讯聚丙烯分析师 相欣妍 【导语】：6月虽需求负反馈持续，但PP拉丝排产比例降至年内新低水平，供应端持续偏紧驱动拉丝价格表现坚挺，展望后市，在终端需求疲软叠加供应小幅回升的双重作用下，市场或面临一定下行压力。
 
-美军南方司令部在社交媒体平台上表示，根据美军南方司令部司令弗朗西斯·多诺万的命令，美军“南方之矛”联合特遣部队14日对一艘由“被认定的恐怖组织”运营的船只实施打击，打死船上4名“毒品恐怖分子”。
+拉丝排产创年内新低 现货供应持续偏紧 自3月起，国内PP市场受地缘局势扰动影响，在生产成本上行、装置集中停车降负双重因素影响下，整体供应持续缩量。
 
-美军未受伤。
+截至6月12日，PP 检修装置仍较为集中，行业开工率维持6成附近的低位运行。
 
-据报道，美军南方司令部还发布了一段航拍视频，显示一艘船在水中漂浮，随后被击中并爆炸。
+据卓创资讯数据统计，当前 PP装置停车比例已高达30%，明显高于2025年均值15.40%，现货资源偏紧态势延续，其中标品供应缺口尤为突出。
 
-这是美军连续第二天在东太平洋对所谓“贩毒船”发动打击，也是近日来美军宣布的第四次类似袭击。
+从拉丝品类来看，截至6月中旬，古雷石化、泉州国亨、中景石化、中石化英力士（天津）石化、东华能源茂名等多家企业涉产拉丝产线均处于停车状态，直接影响拉丝整体供应量。
 
-美军13日称，在东太平洋对一艘“贩毒船”发动打击，打死船上2人。
+与此同时，PP 拉丝排产比例自 4月起持续低于2025年均值，并于6月中旬降至17.96%，创下近年来新低。
 
-美军南方司令部12日还称，11日在东太平洋对两个由被认定的“恐怖组织”运营的船只实施了两次“致命打击”，致多人死亡。
+结合月度数据统计来看，4 月拉丝平均排产比例为23.46%，5月为 22.17%，截至6月12 日本月平均排产比例已降至19.99%，环比下滑 2.18个百分点。
 
-据此前报道，自2025年9月初以来，美军在加勒比海和东太平洋对美方指称的所谓“贩毒船”进行多次打击，并于当年11月13日宣布发起“南方之矛”军事行动。
+供应端持续收缩为拉丝价格形成有力支撑，叠加上游企业在5月底至6月初持续开展预售操作，库存亦无压力，因此在现货资源紧俏的供应面驱动下，拉丝品类市场表现坚挺，价格持续处于高位运行区间。
 
 ## 相关推荐
 
-- 2026-06-29 22:38 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 22:48 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 22:39 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 22:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 22:36 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 22:48 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 23:00 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 22:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 22:50 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 22:48 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 22:39 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 22:45 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 22:39 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 22:43 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 23:03 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 22:59 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 22:49 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 22:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 23:10 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 22:57 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 23:00 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 22:59 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 22:43 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 22:52 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 23:10 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 22:57 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 22:55 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:01 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/6689854.shtml)
-- 2026-06-29 22:48 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/9336990.shtml)
-- 2026-06-29 22:36 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/774448788995.shtml)
-- 2026-06-29 22:56 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/0881046.shtml)
-- 2026-06-29 22:44 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/289154.shtml)
-- 2026-06-29 22:57 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/30305.shtml)
-- 2026-06-29 22:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/685951159.shtml)
-- 2026-06-29 23:04 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/7898927.shtml)
-- 2026-06-29 22:53 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/73056986.shtml)
-- 2026-06-29 23:02 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/76743803920.shtml)
-- 2026-06-29 22:40 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/38798959.shtml)
-- 2026-06-29 22:48 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/02816839111.shtml)
-- 2026-06-29 23:04 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/125680.shtml)
-- 2026-06-29 22:47 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/6674487381.shtml)
-- 2026-06-29 22:37 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/034570185345.shtml)
+- 2026-06-29 23:04 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/47757951.shtml)
+- 2026-06-29 23:02 - [记者乘坐无人驾驶汽车去采访](https://www.blog.kurohicncr.top/Article/details/32430414.shtml)
+- 2026-06-29 22:56 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/0876936.shtml)
+- 2026-06-29 22:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/551536832755.shtml)
+- 2026-06-29 22:54 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/85174358.shtml)
+- 2026-06-29 22:53 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/249743233.shtml)
+- 2026-06-29 22:50 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/47042781.shtml)
+- 2026-06-29 23:10 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/12598.shtml)
+- 2026-06-29 22:46 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/07930.shtml)
+- 2026-06-29 23:06 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/44145058.shtml)
+- 2026-06-29 22:46 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/795492154697.shtml)
+- 2026-06-29 22:58 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/566014.shtml)
+- 2026-06-29 22:46 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/99775340.shtml)
+- 2026-06-29 23:09 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/7724745408.shtml)
+- 2026-06-29 22:45 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/14743.shtml)

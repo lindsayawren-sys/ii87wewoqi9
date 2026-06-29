@@ -1,60 +1,57 @@
-# Lululemon在美被调查！或与不孕不育、癌症等健康风险相关
+# 中东，突生变数！伊朗称将报复以色列
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-红星资本局4月14日消息，据报道，美国得克萨斯州总检察长Ken Paxton当地时间周一称，已对运动休闲品牌露露乐蒙（Lululemon）展开调查，原因是其运动服饰中可能含有“永久性化学物”。 Paxton表示，此次调查将核查露露乐蒙的运动服装是否含有全氟及多氟烷基物质（PFAS）。Paxton指出，最新研究结果与消费者担忧引发质疑：服装中的部分合成材料，是否与内分泌紊乱、不孕
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！突生变数。 据新华社消息，伊朗议会议长卡利巴夫今天（6月14日）在社交媒体发文表示，以色列对黎巴嫩首都贝鲁特南郊的袭击再次表明，美国“要么没有履行承诺的意愿，要么没有履行承诺的能力”，“继续推进对话进程变得不可能”。 与此同时，针对以色列14日再次袭击黎巴嫩首都贝鲁特南郊，伊朗武装部队哈塔姆·安比亚中央司令
 
 ## 正文
 
-红星资本局4月14日消息，据报道，美国得克萨斯州总检察长Ken Paxton当地时间周一称，已对运动休闲品牌露露乐蒙（Lululemon）展开调查，原因是其运动服饰中可能含有“永久性化学物”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-Paxton表示，此次调查将核查露露乐蒙的运动服装是否含有全氟及多氟烷基物质（PFAS）。
+突生变数。
 
-Paxton指出，最新研究结果与消费者担忧引发质疑：服装中的部分合成材料，是否与内分泌紊乱、不孕不育、癌症及其他健康风险相关。
+据新华社消息，伊朗议会议长卡利巴夫今天（6月14日）在社交媒体发文表示，以色列对黎巴嫩首都贝鲁特南郊的袭击再次表明，美国“要么没有履行承诺的意愿，要么没有履行承诺的能力”，“继续推进对话进程变得不可能”。
 
-报道称，得克萨斯州总检察长办公室将对照该州安全标准，核查露露乐蒙的检测流程、限用物质清单及供应链管理措施。
+与此同时，针对以色列14日再次袭击黎巴嫩首都贝鲁特南郊，伊朗武装部队哈塔姆·安比亚中央司令部副司令穆罕默德·贾法尔·阿萨迪表示，以色列在黎巴嫩的“罪行”必将遭到报复性打击。
 
-Paxton在帖文中称：“若露露乐蒙违反了得州法律，必将承担相应责任。
+据伊朗新闻电视台14日报道，伊朗伊斯兰革命卫队一名高级指挥官表示，伊朗武装部队目前处于全面戒备状态，已做好应对任何敌对行动的准备。
 
-” 对此，露露乐蒙一名发言人表示，已知悉此次调查，并将予以配合。
+该名指挥官说，伊朗正处于高度警戒状态。
 
-露露乐蒙的发言人回应称：“公司产品中并未使用全氟及多氟烷基物质。
+任何方面试图对伊朗采取敌对行动，伊朗有能力并已准备好立即予以回应。
 
-”该发言人补充称，此前该物质仅少量用于耐用防水类产品，公司已于2023财年完成对其的逐步淘汰。
+当天稍早前，以军再次空袭黎巴嫩首都贝鲁特南郊。
 
 ## 相关推荐
 
-- 2026-06-29 23:02 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 23:00 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 22:57 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 22:45 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 22:41 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 23:00 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 23:02 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 22:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 22:49 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 22:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 22:38 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 22:42 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 22:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 22:40 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 22:53 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 23:03 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 23:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 22:58 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 23:09 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 23:04 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 22:55 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 23:02 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 23:03 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 22:53 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 22:59 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:45 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/89425.shtml)
-- 2026-06-29 23:04 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/2307644.shtml)
-- 2026-06-29 22:37 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/889168462989.shtml)
-- 2026-06-29 22:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/9969383264.shtml)
-- 2026-06-29 22:42 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/981745.shtml)
-- 2026-06-29 22:49 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/16632633.shtml)
-- 2026-06-29 22:49 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/36948.shtml)
-- 2026-06-29 22:41 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/996792.shtml)
-- 2026-06-29 22:50 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/25689001.shtml)
-- 2026-06-29 22:54 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/8127404.shtml)
-- 2026-06-29 22:50 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/84956.shtml)
-- 2026-06-29 22:43 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/06816588.shtml)
-- 2026-06-29 22:47 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/7217370366.shtml)
-- 2026-06-29 22:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/5403962805.shtml)
-- 2026-06-29 22:53 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/94148.shtml)
+- 2026-06-29 22:55 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/82538.shtml)
+- 2026-06-29 22:51 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/385681415.shtml)
+- 2026-06-29 23:01 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/00374006739.shtml)
+- 2026-06-29 22:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/20580309242.shtml)
+- 2026-06-29 23:07 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/26323.shtml)
+- 2026-06-29 22:58 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/1420212.shtml)
+- 2026-06-29 23:03 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/956630326.shtml)
+- 2026-06-29 22:44 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/07132987.shtml)
+- 2026-06-29 22:44 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/141311.shtml)
+- 2026-06-29 22:48 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/46308278.shtml)
+- 2026-06-29 23:04 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/877061.shtml)
+- 2026-06-29 22:48 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/781684248.shtml)
+- 2026-06-29 23:03 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/7606983201.shtml)
+- 2026-06-29 22:50 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/92554316.shtml)
+- 2026-06-29 22:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/51176.shtml)

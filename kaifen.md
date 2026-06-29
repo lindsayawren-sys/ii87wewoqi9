@@ -1,60 +1,61 @@
-# 挪威主权财富基金称无意减持美国资产，仍将一半投资配置于美国
+# 山西榆次发现元代纪年墓 墓门“喜庆堂”墨书罕见
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-挪威财政大臣延斯·斯托尔滕贝格周三表示，尽管人们对中东冲突和不断攀升的美国债务感到担忧，但规模达2.1万亿美元的挪威主权财富基金（全球最大的主权财富基金）并不打算抛售美国资产。 斯托尔滕贝格说：“有人问过‘我们是否应该减持？’这是一个政治决定。”他补充说，他预计不会有任何重大变化。 周三早些时候，在华盛顿举行的Semafor活动上，斯托尔滕贝格表示，该基金计划继续大量投资美国公
+中新社太原6月15日电 (记者 胡健)中国山西省考古研究院15日对外公布晋中市榆次区金元墓发掘资料，墓中绘有精美彩绘，墓门门额出现的“喜庆堂”等堂号题字较为罕见，为研究山西地区金元时期墓葬的区域特征提供新资料。此次发现的两座墓葬均为仿木结构八边形砖雕壁画墓。其中M1为元代纪年墓，墓门门额墨书“喜庆堂”，东侧立颊题记“至正十六年”(1356年)，为元顺帝时期。 墓室由墓道、墓门、
 
 ## 正文
 
-挪威财政大臣延斯·斯托尔滕贝格周三表示，尽管人们对中东冲突和不断攀升的美国债务感到担忧，但规模达2.1万亿美元的挪威主权财富基金（全球最大的主权财富基金）并不打算抛售美国资产。
+中新社太原6月15日电 (记者 胡健)中国山西省考古研究院15日对外公布晋中市榆次区金元墓发掘资料，墓中绘有精美彩绘，墓门门额出现的“喜庆堂”等堂号题字较为罕见，为研究山西地区金元时期墓葬的区域特征提供新资料。
 
-斯托尔滕贝格说：“有人问过‘我们是否应该减持？
+此次发现的两座墓葬均为仿木结构八边形砖雕壁画墓。
 
-’这是一个政治决定。
+其中M1为元代纪年墓，墓门门额墨书“喜庆堂”，东侧立颊题记“至正十六年”(1356年)，为元顺帝时期。
 
-”他补充说，他预计不会有任何重大变化。
+墓室由墓道、墓门、甬道和墓室组成，采用砖雕与彩绘结合装饰，壁面绘牡丹、莲花等四季花卉屏风画。
 
-周三早些时候，在华盛顿举行的Semafor活动上，斯托尔滕贝格表示，该基金计划继续大量投资美国公司，并将其约一半的投资配置于美国，“因为美国股市充满活力，能够反映美国经济的强劲势头。
+棺床上一棺三具人骨，分别为40岁-50岁男女及20岁-30岁迁葬女性，随葬黑釉碗、白釉盏、酱釉钵等5件瓷器和1枚铜钱。
 
-” 斯托尔滕贝格发表此番言论之际，正值美以与伊朗的冲突爆发，这场冲突扰乱了全球经济，导致油价飙升，并给市场带来了不确定性。
+专家推测墓主为姓王的一般官吏或殷实地主。
 
-去年，挪威主权财富基金出售了其持有的美国工程机械集团卡特彼勒的股份，引发了特朗普政府的担忧。
+M2位于M1以东约1公里，推测为金代中晚期墓葬。
 
-卡特彼勒向以色列供应推土机，这些推土机被用于加沙和西岸地区。
+墓室呈南北长、东西窄的扁八边形，具有太原地区金墓区域特征。
 
 ## 相关推荐
 
-- 2026-06-29 23:04 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 22:45 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 22:36 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 23:01 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 22:58 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 22:57 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 23:01 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 22:42 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 22:48 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 22:49 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 23:01 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 22:50 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 22:37 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 23:02 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 23:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 22:56 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 22:43 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 22:46 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 22:47 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 22:46 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 23:08 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 23:10 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 22:57 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 22:46 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 22:42 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 22:53 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 22:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 22:52 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 23:10 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:55 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/6048283247.shtml)
-- 2026-06-29 23:03 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/350118914282.shtml)
-- 2026-06-29 22:50 - [绿营污蔑大陆“海上袭扰”被批](https://www.blog.minike.top/Article/details/87809798.shtml)
-- 2026-06-29 22:39 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/349690.shtml)
-- 2026-06-29 22:53 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.minike.top/Article/details/36517614.shtml)
-- 2026-06-29 22:57 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/1279870.shtml)
-- 2026-06-29 22:53 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/1879374.shtml)
-- 2026-06-29 22:54 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/69200009629.shtml)
-- 2026-06-29 23:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/07074815.shtml)
-- 2026-06-29 22:59 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/972700.shtml)
-- 2026-06-29 22:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/723085367.shtml)
-- 2026-06-29 22:53 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/306515098733.shtml)
-- 2026-06-29 22:44 - [东方风云榜](http://www.blog.minike.top/Article/details/80432.shtml)
-- 2026-06-29 22:50 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/465805.shtml)
-- 2026-06-29 23:00 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/67595.shtml)
+- 2026-06-29 22:51 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/65970994.shtml)
+- 2026-06-29 22:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/00117191.shtml)
+- 2026-06-29 22:54 - [刘宇宁 好听](http://www.share.minike.top/Article/details/86186676.shtml)
+- 2026-06-29 22:47 - [欧洲缘何成为变暖最快的大洲](https://www.share.kurohicncr.top/Article/details/9005893629.shtml)
+- 2026-06-29 23:05 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.kurohicncr.top/Article/details/7927513.shtml)
+- 2026-06-29 22:57 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/79594.shtml)
+- 2026-06-29 22:50 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/687092169.shtml)
+- 2026-06-29 22:57 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/75567358.shtml)
+- 2026-06-29 23:01 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/057709504196.shtml)
+- 2026-06-29 22:47 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/95188.shtml)
+- 2026-06-29 22:46 - [韩国队回国欢迎仪式取消](https://www.blog.minike.top/Article/details/9822425397.shtml)
+- 2026-06-29 23:01 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/704798358992.shtml)
+- 2026-06-29 22:52 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/38919142834.shtml)
+- 2026-06-29 23:08 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/448215.shtml)
+- 2026-06-29 22:51 - [刘念回应](https://www.share.kurohicncr.top/Article/details/662899318928.shtml)

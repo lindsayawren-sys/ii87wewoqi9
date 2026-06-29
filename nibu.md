@@ -1,61 +1,50 @@
-# 换脸盗声乱象频发，AI侵权怎么治
+# 仙工智能于6月15日至6月18日招股 预期6月24日上市
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-伴随人工智能技术的广泛应用，各类AI换脸、盗声乱象频发。日前，针对AI侵权行为，中国广播电视社会组织联合会演员委员会发布严正声明，划清法律底线，明确行业规范，强化权益保护。但是，也有人认为AI内容只要不商用就无伤大雅，如何看待这种观点？作为一名普通观众，许进财也有点分不清了。“以前还疑惑，为什么老年人刷短视频看不出明星被AI换脸，现在技术越来越成熟，自己也很难辨别真伪了。”他认
+仙工智能（06106）于2026年6月15日-2026年6月18日招股，拟全球发售1049.73万股H股，香港公开发售占5%（可予重新分配），国际发售占95%（可予重新分配），另有15%发售量调整权及15%超额配股权。发售价将为每股发售股份101.60港元，每手50股，预期H股将于2026年6月24日（星期三）上午九时正在联交所开始买卖。责任编辑：卢昱君
 
 ## 正文
 
-伴随人工智能技术的广泛应用，各类AI换脸、盗声乱象频发。
+仙工智能（06106）于2026年6月15日-2026年6月18日招股，拟全球发售1049.73万股H股，香港公开发售占5%（可予重新分配），国际发售占95%（可予重新分配），另有15%发售量调整权及15%超额配股权。
 
-日前，针对AI侵权行为，中国广播电视社会组织联合会演员委员会发布严正声明，划清法律底线，明确行业规范，强化权益保护。
+发售价将为每股发售股份101.60港元，每手50股，预期H股将于2026年6月24日（星期三）上午九时正在联交所开始买卖。
 
-但是，也有人认为AI内容只要不商用就无伤大雅，如何看待这种观点？
-
-作为一名普通观众，许进财也有点分不清了。
-
-“以前还疑惑，为什么老年人刷短视频看不出明星被AI换脸，现在技术越来越成熟，自己也很难辨别真伪了。
-
-”他认为，大家对熟悉的面孔和声音天然会有信赖感，无论是自娱自乐还是另有所图，只要是在公开平台发布的内容，都应该尽快堵住漏洞。
-
-从传统影视行业向AI影视转型的制片人金岩告诉记者，当前AI面孔和声音的使用频率越来越高，但监管尚不完善。
-
-一些青年演员愿意授权自己的形象和声音用于AI生成内容，这能在一定程度上实现降本增效。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:40 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 22:50 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 22:57 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 22:53 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 22:59 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 22:49 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 22:52 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 22:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 23:01 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 22:36 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 23:05 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 22:57 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 22:52 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 22:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 22:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 23:09 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 23:09 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 22:44 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 22:47 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 22:42 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 22:47 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 23:02 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 22:43 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 22:55 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 22:53 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 22:44 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 22:43 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 23:05 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 22:52 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:05 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/77821.shtml)
-- 2026-06-29 22:42 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/023276.shtml)
-- 2026-06-29 22:54 - [田曦薇没招了](https://www.blog.minike.top/Article/details/62256912150.shtml)
-- 2026-06-29 22:43 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/91038.shtml)
-- 2026-06-29 23:02 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/772990978.shtml)
-- 2026-06-29 22:43 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/8924610.shtml)
-- 2026-06-29 22:49 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/0672336797.shtml)
-- 2026-06-29 22:52 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/82134858433.shtml)
-- 2026-06-29 22:52 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/885446.shtml)
-- 2026-06-29 22:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/31791.shtml)
-- 2026-06-29 22:50 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/89413793.shtml)
-- 2026-06-29 22:49 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/241422.shtml)
-- 2026-06-29 22:55 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/76476566124.shtml)
-- 2026-06-29 22:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/113200.shtml)
-- 2026-06-29 22:48 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/745719263175.shtml)
+- 2026-06-29 22:45 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/92851482780.shtml)
+- 2026-06-29 23:01 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/554262219927.shtml)
+- 2026-06-29 23:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/35725.shtml)
+- 2026-06-29 23:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/899296.shtml)
+- 2026-06-29 23:07 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/354571163.shtml)
+- 2026-06-29 22:57 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/283824845.shtml)
+- 2026-06-29 22:56 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/58648196033.shtml)
+- 2026-06-29 23:02 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/008454.shtml)
+- 2026-06-29 23:08 - [18岁高二体育生训练晕倒后离世](https://www.share.kurohicncr.top/Article/details/113473184210.shtml)
+- 2026-06-29 22:56 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/0573110212.shtml)
+- 2026-06-29 22:50 - [金刚川](https://www.blog.minike.top/Article/details/53603.shtml)
+- 2026-06-29 22:44 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/5101772194.shtml)
+- 2026-06-29 22:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/31470624.shtml)
+- 2026-06-29 23:10 - [委内瑞拉发生余震](https://www.share.minike.top/Article/details/8716684896.shtml)
+- 2026-06-29 22:54 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/64725450.shtml)

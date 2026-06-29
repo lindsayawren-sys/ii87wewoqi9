@@ -1,56 +1,60 @@
-# 李家超：香港维护国家安全实践为市场注入强大稳定性
+# 美伊协议何时签署 特朗普说14日 伊朗否认
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 20:57 来源：中国新闻网 4月15日是第十一个全民国家安全教育日，香港特别行政区维护国家安全委员会在香港会议展览中心举办全民国家安全教育日开幕典礼。香港特区行政长官李家超在致辞时指出，维护国家安全是为了让香港更好地发展，让市民过上更好的日子，让投资者的合法权益得到更好保障。香港维护国家安全的实践，为市场注入了强大稳定性、确定性、可预期性。我
+当地时间13日，美国总统特朗普在社交媒体发文说，美国和伊朗定于14日签署协议，霍尔木兹海峡将在协议签署后立即开放。 另据巴基斯坦外交部方面公布的消息，美国与伊朗相关协议电子签署仪式定于14日举行。 伊朗外交部发言人巴加埃则表示，伊美谅解备忘录不会在14日签署，但不排除在未来几天内完成。 特朗普：美伊定于14日签署协议美国总统特朗普13日在社交媒体发文说，美国和伊朗定于14日签署
 
 ## 正文
 
-发布时间：2026年04月15日 20:57 来源：中国新闻网 4月15日是第十一个全民国家安全教育日，香港特别行政区维护国家安全委员会在香港会议展览中心举办全民国家安全教育日开幕典礼。
+当地时间13日，美国总统特朗普在社交媒体发文说，美国和伊朗定于14日签署协议，霍尔木兹海峡将在协议签署后立即开放。
 
-香港特区行政长官李家超在致辞时指出，维护国家安全是为了让香港更好地发展，让市民过上更好的日子，让投资者的合法权益得到更好保障。
+另据巴基斯坦外交部方面公布的消息，美国与伊朗相关协议电子签署仪式定于14日举行。
 
-香港维护国家安全的实践，为市场注入了强大稳定性、确定性、可预期性。
+伊朗外交部发言人巴加埃则表示，伊美谅解备忘录不会在14日签署，但不排除在未来几天内完成。
 
-我们要全面落实“爱国者治港”原则，推动行政与立法良性互动，不断提升特区政府治理效能。
+特朗普：美伊定于14日签署协议美国总统特朗普13日在社交媒体发文说，美国和伊朗定于14日签署协议，霍尔木兹海峡将在协议签署后立即开放。
 
-李家超指出，面对世界百年未有之大变局加速演进，要认识和把握总体国家安全观，坚持底线思维、极限思维，坚定扛起维护国家安全的宪制责任，持续筑牢国家安全屏障，坚定不移建设高水平安全，护航“一国两制”实践行稳致远。
+特朗普称，伊朗已不再寻求拥有核武器，也不会购买、自主研发或以任何其他方式获取核武器。
 
-(记者 程宇） 责任编辑：【罗攀】
+待局势平稳后，美国将择机采取行动取出“埋藏”在山体下的浓缩铀，并对其进行稀释处理与销毁，“无论是在伊朗境内还是在美国本土”。
+
+特朗普还表示“希望这一进程能迅速、轻松且顺利地推进”，但同时威胁道，“若事与愿违，我们手中还握有终极手段”。
+
+巴方：美伊14日举行协议电子签署仪式 13日，巴基斯坦外交部发表声明说，巴基斯坦副总理兼外交部长达尔当天与沙特阿拉伯外交大臣费萨尔通电话。
 
 ## 相关推荐
 
-- 2026-06-29 22:51 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 23:01 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 22:36 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 22:47 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 22:54 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 22:40 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 23:01 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 22:45 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 22:53 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 22:37 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 22:41 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 22:50 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 23:04 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 22:56 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 22:48 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 22:47 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 22:55 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 23:02 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 22:49 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 22:51 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 22:48 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 23:06 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 23:03 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 23:07 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 22:51 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 22:44 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 23:08 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 22:53 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/553882859.shtml)
-- 2026-06-29 22:44 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/1538781.shtml)
-- 2026-06-29 23:01 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/1544460.shtml)
-- 2026-06-29 22:44 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/14160842.shtml)
-- 2026-06-29 23:01 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/6038708.shtml)
-- 2026-06-29 22:39 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/30847618.shtml)
-- 2026-06-29 22:37 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/3171558955.shtml)
-- 2026-06-29 22:48 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/3851880944.shtml)
-- 2026-06-29 22:55 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/25878812.shtml)
-- 2026-06-29 22:54 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/635519.shtml)
-- 2026-06-29 22:51 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/813152638063.shtml)
-- 2026-06-29 22:43 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/466303476.shtml)
-- 2026-06-29 23:04 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/0318495922.shtml)
-- 2026-06-29 22:43 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/0532840.shtml)
-- 2026-06-29 22:36 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/080810847.shtml)
+- 2026-06-29 23:05 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/171845882.shtml)
+- 2026-06-29 23:00 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/80362.shtml)
+- 2026-06-29 23:07 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/611611.shtml)
+- 2026-06-29 23:10 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/6054216.shtml)
+- 2026-06-29 22:50 - [斛珠夫人](https://www.blog.minike.top/Article/details/7452295495.shtml)
+- 2026-06-29 23:11 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/74563846.shtml)
+- 2026-06-29 22:57 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/18380065842.shtml)
+- 2026-06-29 22:47 - [新官上任三把火](https://www.blog.minike.top/Article/details/188160291.shtml)
+- 2026-06-29 23:04 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/56374480.shtml)
+- 2026-06-29 22:49 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/897640.shtml)
+- 2026-06-29 22:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/528778869.shtml)
+- 2026-06-29 22:46 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/44138238.shtml)
+- 2026-06-29 22:46 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/0609512582.shtml)
+- 2026-06-29 22:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/812135.shtml)
+- 2026-06-29 23:08 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/776815964.shtml)

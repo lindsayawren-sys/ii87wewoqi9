@@ -1,43 +1,55 @@
-# “十五五”开局 上海向世界亮出高水平开放路线图
+# 广州龙舟“应景”探亲迎端午
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 10:24 来源：看看新闻Knews 责任编辑：【杨彦宇】
+发布时间：2026年06月15日 21:40 来源：中国新闻网 6月15日，农历五月初一，广州珠江与河涌之上，龙舟来来往往，“应景”探亲迎端午。 “应景”是广州龙舟探亲习俗的核心环节：主办村落发出“招景”邀请后，地缘相近、有亲缘关系的“兄弟村”“老表村”应邀赴会，这一回应参与的过程即为“应景”。活动前夕，应景村村民便提前整理龙舟，为龙舟装饰绣有村落氏族标识的罗伞、彩旗。 当日清
 
 ## 正文
 
-发布时间：2026年04月15日 10:24 来源：看看新闻Knews 责任编辑：【杨彦宇】
+发布时间：2026年06月15日 21:40 来源：中国新闻网 6月15日，农历五月初一，广州珠江与河涌之上，龙舟来来往往，“应景”探亲迎端午。
+
+“应景”是广州龙舟探亲习俗的核心环节：主办村落发出“招景”邀请后，地缘相近、有亲缘关系的“兄弟村”“老表村”应邀赴会，这一回应参与的过程即为“应景”。
+
+活动前夕，应景村村民便提前整理龙舟，为龙舟装饰绣有村落氏族标识的罗伞、彩旗。
+
+当日清晨，桡手们便划龙舟向招景村出发，行至招景村河涌口，应景龙舟依传统行叩门礼，桡手随着鼓点调整船向，完成“三进三退”的谢礼，向东道主表达敬意。
+
+招景村则在岸边燃放鞭炮相迎，村内宗祠提前备好龙船饼、龙舟茶接待到访桡手。
+
+龙舟应景探亲不以竞技竞速为目的，核心为走亲叙旧，以龙舟为纽带维系着珠三角村落间跨越百年的乡邻情谊，至今仍是广州端午期间独具特色的文化活动之一。
+
+(记者 陈楚红 制作 徐妙巧） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 22:39 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 22:58 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 23:03 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 22:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 22:56 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 22:47 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 22:58 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 23:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 22:38 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 22:40 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 22:41 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 22:58 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 23:09 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 23:04 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 22:54 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 22:55 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 23:01 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 22:55 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 23:02 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 23:07 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 22:51 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 23:03 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:38 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.kurohicncr.top/Article/details/66474806215.shtml)
-- 2026-06-29 22:54 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/7273082.shtml)
-- 2026-06-29 22:59 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/67037.shtml)
-- 2026-06-29 22:58 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/142184.shtml)
-- 2026-06-29 22:54 - [请回答王牌2019](https://www.share.minike.top/Article/details/514128467.shtml)
-- 2026-06-29 22:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/5548064181.shtml)
-- 2026-06-29 22:41 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/3917253475.shtml)
-- 2026-06-29 22:53 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/17410142607.shtml)
-- 2026-06-29 22:56 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/878233.shtml)
-- 2026-06-29 22:36 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/143384517.shtml)
-- 2026-06-29 23:05 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/04556775207.shtml)
-- 2026-06-29 22:51 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/167257280.shtml)
-- 2026-06-29 22:55 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/0605704.shtml)
-- 2026-06-29 22:47 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/6843382.shtml)
-- 2026-06-29 23:03 - [国际清算银行警告AI投资热潮](https://www.blog.kurohicncr.top/Article/details/305009229.shtml)
+- 2026-06-29 22:47 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/877565.shtml)
+- 2026-06-29 22:47 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/48915.shtml)
+- 2026-06-29 23:09 - [我们的少年时代2](http://www.share.minike.top/Article/details/5832539.shtml)
+- 2026-06-29 23:10 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/7677158957.shtml)
+- 2026-06-29 23:01 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/31897603099.shtml)
+- 2026-06-29 23:03 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/213904.shtml)
+- 2026-06-29 23:08 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/10082544515.shtml)
+- 2026-06-29 23:05 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.minike.top/Article/details/195215869.shtml)
+- 2026-06-29 22:44 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/9544350330.shtml)
+- 2026-06-29 23:09 - [18岁高二体育生训练晕倒后离世](https://www.blog.kurohicncr.top/Article/details/17322223.shtml)
+- 2026-06-29 23:05 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/084514.shtml)
+- 2026-06-29 22:45 - [乌克兰发广告全球征兵](http://www.blog.kurohicncr.top/Article/details/8960934.shtml)
+- 2026-06-29 23:06 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/781183.shtml)
+- 2026-06-29 22:56 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/24776624265.shtml)
+- 2026-06-29 23:08 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/11672005698.shtml)

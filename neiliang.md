@@ -1,58 +1,60 @@
-# 算力紧缺之下，Anthropic调整定价模式：按企业AI使用量计费
+# 美国高级官员：美伊已签署谅解备忘录
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-核心摘要 Anthropic 发言人证实，随着此次定价调整，Claude 企业版用户在每月 20 美元 / 用户固定费用之外，还需按使用软件时消耗的算力容量付费。Claude 企业版是面向大型企业推出的已上线两年的产品套餐，目前包含代码工具 Claude Code 与办公助手 Claude Cowork。 软件授权协议咨询公司 Redress Compliance 联合创始人弗
+据美国方面15日消息，美国总统特朗普和副总统万斯、伊朗伊斯兰议会议长卡利巴夫都已经以电子方式签署了美伊谅解备忘录。 当日，一名美国高级官员表示，“我们与伊朗签署了一份谅解备忘录，特朗普和万斯已签署，卡利巴夫也已签署”。 该官员表示，协议规定立即开放霍尔木兹海峡并解除美国对伊朗的封锁。海峡内的交通量即刻起将大幅增加。 该官员还表示，备忘录细节将在未来24至48小时内公布，解冻资金
 
 ## 正文
 
-核心摘要 Anthropic 发言人证实，随着此次定价调整，Claude 企业版用户在每月 20 美元 / 用户固定费用之外，还需按使用软件时消耗的算力容量付费。
+据美国方面15日消息，美国总统特朗普和副总统万斯、伊朗伊斯兰议会议长卡利巴夫都已经以电子方式签署了美伊谅解备忘录。
 
-Claude 企业版是面向大型企业推出的已上线两年的产品套餐，目前包含代码工具 Claude Code 与办公助手 Claude Cowork。
+当日，一名美国高级官员表示，“我们与伊朗签署了一份谅解备忘录，特朗普和万斯已签署，卡利巴夫也已签署”。
 
-软件授权协议咨询公司 Redress Compliance 联合创始人弗雷德里克・菲利普森表示，此前客户按每个授权用户每月最高 200 美元付费，订阅可获得固定额度的折扣代币使用量。
+该官员表示，协议规定立即开放霍尔木兹海峡并解除美国对伊朗的封锁。
 
-他估算，对部分高频用户而言，此次 Claude 企业版定价调整将使其成本翻倍甚至增至三倍。
+海峡内的交通量即刻起将大幅增加。
 
-多家为 Claude 付费企业的 IT 高管表示，他们已获悉近几周生效的定价调整，公司正在追踪此次变动是否会导致 Anthropic 账单大幅上涨。
+该官员还表示，备忘录细节将在未来24至48小时内公布，解冻资金与制裁减免将视履约情况而定。
 
-（部分 Claude 企业版用户需等到续约时才会看到新定价。
+根据备忘录，美方计划在下一阶段谈判期间维持目前的军事态势，在达成最终协议后削减军事力量。
 
-） 发言人表示，此次定价调整不影响用户数少于 150 人的企业，例如面向小型公司的团队版订阅用户，该套餐费用为每位用户每月最高 100 美元。
+美高级官员：伊朗议会议长已获最高领袖授权进行谈判并签署协议 该官员称，据美方了解，伊朗议会议长卡利巴夫已获最高领袖授权签署协议并开展谈判。
 
-今年以来，其 AI 代码智能体 Claude Code 以及可跨应用自动化办公任务的 AI 工具 Claude Cowork 使用量激增，Anthropic 随即推出了新定价政策。
+此外，美国对阿曼在战前谈判期间的表现感到不满。
 
 ## 相关推荐
 
-- 2026-06-29 22:53 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 22:48 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 22:59 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 22:44 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 22:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 22:44 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 22:59 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 22:43 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 22:47 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 22:40 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 22:55 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 22:44 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 23:02 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 22:49 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 22:52 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 23:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 23:02 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 23:04 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 23:09 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 22:59 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 22:44 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 23:04 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 22:42 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 22:42 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 22:49 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 23:03 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:52 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/046141600.shtml)
-- 2026-06-29 22:55 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/035405787346.shtml)
-- 2026-06-29 22:50 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/790105134.shtml)
-- 2026-06-29 22:40 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/29336250.shtml)
-- 2026-06-29 22:40 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/57460.shtml)
-- 2026-06-29 23:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/401485772819.shtml)
-- 2026-06-29 22:58 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/368666.shtml)
-- 2026-06-29 22:39 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/273827817159.shtml)
-- 2026-06-29 22:43 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/4931401220.shtml)
-- 2026-06-29 22:42 - [曼城官宣马雷斯卡出任主教练](https://www.share.minike.top/Article/details/05157000.shtml)
-- 2026-06-29 22:39 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/322304606.shtml)
-- 2026-06-29 22:46 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/98391.shtml)
-- 2026-06-29 22:37 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/47570773.shtml)
-- 2026-06-29 22:37 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/27657764927.shtml)
-- 2026-06-29 23:03 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/926642398122.shtml)
+- 2026-06-29 22:43 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/39926641.shtml)
+- 2026-06-29 23:09 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/4093908412.shtml)
+- 2026-06-29 22:45 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/3230916.shtml)
+- 2026-06-29 23:09 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/3195368783.shtml)
+- 2026-06-29 22:45 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/8407575.shtml)
+- 2026-06-29 22:53 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/07090993.shtml)
+- 2026-06-29 22:53 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/399947581390.shtml)
+- 2026-06-29 23:09 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/6195800.shtml)
+- 2026-06-29 22:49 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/0708998.shtml)
+- 2026-06-29 23:07 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/80832996.shtml)
+- 2026-06-29 22:58 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/22618704240.shtml)
+- 2026-06-29 22:59 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/351806.shtml)
+- 2026-06-29 22:55 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/4981125.shtml)
+- 2026-06-29 22:53 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/81633816129.shtml)
+- 2026-06-29 23:04 - [金刚川](https://www.share.kurohicncr.top/Article/details/56360303210.shtml)

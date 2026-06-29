@@ -1,54 +1,50 @@
-# 贵州茅台，重要高管变更
+# 中国民航信息网络获Brandes Investment Partners, L.P.增持60.9万股 每股作价8.94港元
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月14日，贵州茅台发布公告称，公司当日召开董事会，审议并通过《关于聘任高级管理人员的议案》。 会议决定，聘任余思明为公司财务总监，并指定余思明代行董事会秘书职责，公司董事长陈华不再代行董事会秘书职责。 一个月前，贵州茅台原财务总监、董秘蒋焰被留置，其因涉嫌严重违纪违法，接受相关部门的监察调查。 3月30日
+香港联交所最新数据显示，6月8日，Brandes Investment Partners， L.P．增持中国民航信息网络（00696）60.9万股，每股作价8.94港元，总金额约为544.45万港元。增持后最新持股数目约为6571.55万股，持股比例为7.05%。责任编辑：卢昱君
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+香港联交所最新数据显示，6月8日，Brandes Investment Partners， L.P．增持中国民航信息网络（00696）60.9万股，每股作价8.94港元，总金额约为544.45万港元。
 
-4月14日，贵州茅台发布公告称，公司当日召开董事会，审议并通过《关于聘任高级管理人员的议案》。
+增持后最新持股数目约为6571.55万股，持股比例为7.05%。
 
-会议决定，聘任余思明为公司财务总监，并指定余思明代行董事会秘书职责，公司董事长陈华不再代行董事会秘书职责。
-
-一个月前，贵州茅台原财务总监、董秘蒋焰被留置，其因涉嫌严重违纪违法，接受相关部门的监察调查。
-
-3月30日，贵州茅台召开董事会，会议决定，免去蒋焰公司副总经理、财务总监、董事会秘书职务。
-
-资料显示，余思明曾在中铁建工集团工作，于2015年正式加入茅台；2024年8月起，任贵州茅台集团财务有限公司党支部书记、董事长；2025年1月2日，贵州金融监管局公布相关批复，核准余思明贵州茅台集团财务有限公司董事、董事长的任职资格。
-
-作者：朱文彬责任编辑：宋雅芳
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 22:54 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 22:54 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 22:58 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 22:48 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 22:37 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 22:51 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 22:42 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 23:01 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 22:40 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 22:48 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 23:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 22:56 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 22:56 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 22:45 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 23:03 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 22:44 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 22:49 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 22:49 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 22:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 23:08 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 22:49 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 22:55 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 22:46 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:57 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/1482169.shtml)
-- 2026-06-29 22:45 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/251929099.shtml)
-- 2026-06-29 22:55 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/3675742524.shtml)
-- 2026-06-29 22:42 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/307894433899.shtml)
-- 2026-06-29 22:56 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/837058705.shtml)
-- 2026-06-29 22:46 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/13489505.shtml)
-- 2026-06-29 22:52 - [炽夏](https://www.share.minike.top/Article/details/44416371026.shtml)
-- 2026-06-29 22:54 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/5297797905.shtml)
-- 2026-06-29 22:37 - [速度与激情9](http://www.share.minike.top/Article/details/5945760.shtml)
-- 2026-06-29 22:54 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/0979345267.shtml)
-- 2026-06-29 22:38 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/623834448.shtml)
-- 2026-06-29 22:51 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/365766.shtml)
-- 2026-06-29 22:44 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/2919894.shtml)
-- 2026-06-29 22:52 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/559229.shtml)
-- 2026-06-29 22:57 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/0492581.shtml)
+- 2026-06-29 23:01 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/28182073.shtml)
+- 2026-06-29 23:02 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/7053038.shtml)
+- 2026-06-29 22:52 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/37697723.shtml)
+- 2026-06-29 22:58 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/676227524942.shtml)
+- 2026-06-29 22:52 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/933355331.shtml)
+- 2026-06-29 23:08 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/52971.shtml)
+- 2026-06-29 23:06 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/417445.shtml)
+- 2026-06-29 23:01 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/033740.shtml)
+- 2026-06-29 23:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/1107485506.shtml)
+- 2026-06-29 22:46 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/6472099.shtml)
+- 2026-06-29 23:05 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/558960.shtml)
+- 2026-06-29 23:11 - [世界杯](https://www.share.kurohicncr.top/Article/details/43754.shtml)
+- 2026-06-29 23:10 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/9656668522.shtml)
+- 2026-06-29 23:03 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/9500450470.shtml)
+- 2026-06-29 23:01 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/75732519.shtml)

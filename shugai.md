@@ -1,60 +1,58 @@
-# 国台办新闻发布会聚焦郑丽文访陆、大陆方面释放“和平利好”等热点
+# 3.08亿！苹果最大经销商爱施德“补票”
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-中新社北京4月15日电 (记者 刘大炜 张晓曦)国务院台办例行新闻发布会15日在北京举行，发言人陈斌华就中国国民党主席郑丽文应邀率团参访大陆、大陆方面发布十项促进两岸交流合作的政策措施等近期热点作出回应。应中共中央和习近平总书记邀请，中国国民党主席郑丽文率中国国民党访问团于4月7日至12日到大陆参观访问。10日上午，习近平总书记在北京会见了郑丽文并发表重要讲话。郑丽文此行，尤其
+来源：企业上市 6月5日，苹果国内最大授权经销商——深圳市爱施德股份有限公司（股票代码：002416）发布公告称，公司近期依据国家税收法律法规要求，对涉税事项开展自查，需补缴企业所得税税款及滞纳金合计约3.08亿元。截至公告披露日，上述款项已全部缴纳完毕。 公告显示，此次补缴的企业所得税本金为1.85亿元，滞纳金为1.23亿元。按滞纳金每日万分之五计算，该笔税款欠缴时间约在3年
 
 ## 正文
 
-中新社北京4月15日电 (记者 刘大炜 张晓曦)国务院台办例行新闻发布会15日在北京举行，发言人陈斌华就中国国民党主席郑丽文应邀率团参访大陆、大陆方面发布十项促进两岸交流合作的政策措施等近期热点作出回应。
+来源：企业上市 6月5日，苹果国内最大授权经销商——深圳市爱施德股份有限公司（股票代码：002416）发布公告称，公司近期依据国家税收法律法规要求，对涉税事项开展自查，需补缴企业所得税税款及滞纳金合计约3.08亿元。
 
-应中共中央和习近平总书记邀请，中国国民党主席郑丽文率中国国民党访问团于4月7日至12日到大陆参观访问。
+截至公告披露日，上述款项已全部缴纳完毕。
 
-10日上午，习近平总书记在北京会见了郑丽文并发表重要讲话。
+公告显示，此次补缴的企业所得税本金为1.85亿元，滞纳金为1.23亿元。
 
-郑丽文此行，尤其是国共两党领导人时隔10年再次会面备受关注，发布会上两岸记者就此密集发问。
+按滞纳金每日万分之五计算，该笔税款欠缴时间约在3年以上，属于历史遗留问题。
 
-陈斌华表示，郑丽文主席率团访问大陆，顺应了岛内要和平、要发展、要交流、要合作的主流民意，对推动两岸关系和平发展、维护台湾同胞利益福祉具有积极、重要的意义。
+公司强调，本次补缴不涉及行政处罚，系企业主动自查整改行为。
 
-谈及此次国共领导人会面，他认为这“开启了国共两党交往的新篇章”。
+国内最大的苹果经销商爱施德，自己查出过去少交了税，现在连本带“罚息”一共掏了3.08亿，这笔巨款会让公司今年的利润很难看，但好在已经彻底了结了。
 
-陈斌华在回答相关问题时还多次表示，坚持“九二共识”、反对“台独”是两岸沟通对话的基础。
+拆解一下： 1． 到底发生了什么事？
 
-大陆方面愿在此基础上，加强同台湾各政党、团体和各界人士交流沟通。
+公司自己内部查账，发现过去几年在税务上有问题，少缴了企业所得税。
 
 ## 相关推荐
 
-- 2026-06-29 23:02 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 22:57 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 22:48 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 22:53 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 22:43 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 22:59 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 22:42 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 22:45 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 23:04 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 22:36 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 22:49 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 22:48 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 23:05 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 22:43 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 22:50 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 23:10 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 22:57 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 22:45 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 22:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 22:54 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 23:10 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 23:08 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 23:04 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 22:48 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 23:08 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 22:42 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:58 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/004701833.shtml)
-- 2026-06-29 22:49 - [小娘惹](https://www.blog.minike.top/Article/details/5208946.shtml)
-- 2026-06-29 23:05 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/765009.shtml)
-- 2026-06-29 23:05 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/228543162.shtml)
-- 2026-06-29 22:55 - [佛得角队长门德斯被控强奸](http://www.share.kurohicncr.top/Article/details/178268491.shtml)
-- 2026-06-29 23:00 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/111922645.shtml)
-- 2026-06-29 22:37 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/9420342.shtml)
-- 2026-06-29 22:42 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/855105152328.shtml)
-- 2026-06-29 22:59 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/337467772442.shtml)
-- 2026-06-29 22:56 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/959866.shtml)
-- 2026-06-29 23:01 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/44322.shtml)
-- 2026-06-29 22:51 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/091513179.shtml)
-- 2026-06-29 22:54 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/297442882297.shtml)
-- 2026-06-29 23:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/097835.shtml)
-- 2026-06-29 22:48 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/499211.shtml)
+- 2026-06-29 22:45 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.minike.top/Article/details/35969600468.shtml)
+- 2026-06-29 23:02 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/811650890999.shtml)
+- 2026-06-29 22:54 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/136641652.shtml)
+- 2026-06-29 23:02 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/200058.shtml)
+- 2026-06-29 23:04 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/4652208532.shtml)
+- 2026-06-29 22:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/6273593324.shtml)
+- 2026-06-29 22:52 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/6543276822.shtml)
+- 2026-06-29 23:08 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/550910447708.shtml)
+- 2026-06-29 22:59 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/41785.shtml)
+- 2026-06-29 23:10 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/63327.shtml)
+- 2026-06-29 22:50 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/313205.shtml)
+- 2026-06-29 22:58 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/63796.shtml)
+- 2026-06-29 22:45 - [周生如故](http://www.share.kurohicncr.top/Article/details/9532939419.shtml)
+- 2026-06-29 22:54 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/85000168.shtml)
+- 2026-06-29 22:57 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/128689608.shtml)

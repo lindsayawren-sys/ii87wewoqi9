@@ -1,55 +1,56 @@
-# 在和平谈判无果而终后，以色列继续对黎巴嫩发动袭击
+# 盱眙龙虾节精彩启幕 美食文旅融合激活夜间消费
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-以色列与黎巴嫩数十年来首次在华盛顿举行直接谈判，最终未取得重大突破。此后，以色列于周三持续对黎巴嫩南部多地发动空袭。 黎巴嫩国家通讯社报道称，以色列轰炸了南部布拉希特、西迪钦等多个村庄，并针对车辆实施了两起独立定点打击。 官方通讯社消息显示，以色列袭击了南部村庄贾巴，造成一户人家四口人遇难；另一处针对安萨里耶村的袭击也造成多人死亡。责任编辑：何云
+发布时间：2026年06月15日 07:56 来源：中国新闻网 眼下正值小龙虾消费旺季。近日，第26届盱眙龙虾节欢乐龙虾宴开启。当地以虾为媒，融合特色美食、潮流演艺与文旅休闲项目，丰富夜间消费业态，持续释放消费活力。在盱眙龙虾广场，千余桌整齐摆放，全国各地游客齐聚一堂。十三香、蒜泥、麻辣、冰镇等多款口味小龙虾鲜香诱人。 围绕小龙虾主题，当地打造“龙虾+音乐”“龙虾+足球”等特色
 
 ## 正文
 
-以色列与黎巴嫩数十年来首次在华盛顿举行直接谈判，最终未取得重大突破。
+发布时间：2026年06月15日 07:56 来源：中国新闻网 眼下正值小龙虾消费旺季。
 
-此后，以色列于周三持续对黎巴嫩南部多地发动空袭。
+近日，第26届盱眙龙虾节欢乐龙虾宴开启。
 
-黎巴嫩国家通讯社报道称，以色列轰炸了南部布拉希特、西迪钦等多个村庄，并针对车辆实施了两起独立定点打击。
+当地以虾为媒，融合特色美食、潮流演艺与文旅休闲项目，丰富夜间消费业态，持续释放消费活力。
 
-官方通讯社消息显示，以色列袭击了南部村庄贾巴，造成一户人家四口人遇难；另一处针对安萨里耶村的袭击也造成多人死亡。
+在盱眙龙虾广场，千余桌整齐摆放，全国各地游客齐聚一堂。
 
-责任编辑：何云
+十三香、蒜泥、麻辣、冰镇等多款口味小龙虾鲜香诱人。
+
+围绕小龙虾主题，当地打造“龙虾+音乐”“龙虾+足球”等特色内容，拉动夜间文旅消费。
+
+同时当地推出票根经济，游客凭活动门票可免费游玩多家景区，并享受餐饮、住宿相关优惠，延伸文旅消费产业链。
+
+(记者 葛勇 江苏盱眙报道 视频来源 淮安台 盱眙台） 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-29 22:40 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 22:42 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 22:53 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 22:59 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 22:39 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 22:39 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 22:48 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 22:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 22:48 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 23:04 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 22:56 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 22:44 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 23:03 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 22:46 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 22:45 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 23:07 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 22:56 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 22:52 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 23:03 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 22:54 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 23:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 22:50 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 22:48 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 22:46 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 22:55 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:04 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/549383601134.shtml)
-- 2026-06-29 23:01 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/440487.shtml)
-- 2026-06-29 23:00 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/83222.shtml)
-- 2026-06-29 22:37 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/31224.shtml)
-- 2026-06-29 22:58 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/49996147.shtml)
-- 2026-06-29 22:42 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/464901.shtml)
-- 2026-06-29 22:40 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/09827.shtml)
-- 2026-06-29 22:51 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/47296025207.shtml)
-- 2026-06-29 22:41 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/121174294.shtml)
-- 2026-06-29 22:43 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/26047764.shtml)
-- 2026-06-29 22:43 - [勇敢的心第二部](http://www.share.minike.top/Article/details/5610809132.shtml)
-- 2026-06-29 23:00 - [马光远谈马斯克最大的价值](https://www.blog.minike.top/Article/details/3106367.shtml)
-- 2026-06-29 22:56 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/719455195.shtml)
-- 2026-06-29 22:47 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/589694730.shtml)
-- 2026-06-29 22:49 - [起风了](http://www.blog.kurohicncr.top/Article/details/444158556015.shtml)
+- 2026-06-29 23:03 - [新官上任三把火](https://www.blog.minike.top/Article/details/43912275442.shtml)
+- 2026-06-29 23:06 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/8633927086.shtml)
+- 2026-06-29 23:05 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/2770783712.shtml)
+- 2026-06-29 22:45 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/834440078288.shtml)
+- 2026-06-29 22:57 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/14566.shtml)
+- 2026-06-29 23:02 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/82631758.shtml)
+- 2026-06-29 23:02 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/22533.shtml)
+- 2026-06-29 22:58 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/3007532.shtml)
+- 2026-06-29 22:49 - [毒液2](http://www.blog.kurohicncr.top/Article/details/9493675.shtml)
+- 2026-06-29 22:45 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/756056030551.shtml)
+- 2026-06-29 22:54 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/194052.shtml)
+- 2026-06-29 23:11 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/7585512508.shtml)
+- 2026-06-29 23:06 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/816682973814.shtml)
+- 2026-06-29 23:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/326011364934.shtml)
+- 2026-06-29 22:59 - [网约车出事故平台拒赔称只是中介](https://www.share.kurohicncr.top/Article/details/655294856.shtml)

@@ -1,58 +1,53 @@
-# 海口海关支持2026年第六届中国国际消费品博览会便利措施及通关指南解读
+# 花旗：建滔积层板AI玻纤布盈利能力强于预期 上调目标价至100港元
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-快递涨价消息引发关注 多家快递公司回应从“搬运”到“定制” 青年创业者助中国宠物用品走俏海外“中式生活”海外走红带动保温杯等中国产品出口增长四年翻了近一倍！驱蚊液为何年年涨价？中新网评：“封号收租”的小红书，还有多少信任可透支？辽宁一动植物园非洲狮丧偶后不进食？园方回应一箭8星 力箭一号运载火箭完成“专车”发射岛内积极评价郑丽文大陆之行 批赖当局“成事不足、败事有余”双重封锁霍
+花旗发布研报称，上调建滔积层板（01888）2026-2028年盈利预测7-16%，目标价由80港元升至100港元，以反映AI玻纤布盈利能力强于预期。花旗在过去四个月内由20.5港元起多次上调目标价，公司股价年初至今亦升了五倍，该行相信是受电子玻纤布及覆铜板的平均售价急升带动，令其盈利及增长预期有所改善。 该行指，在与中国AI玻纤布行业龙头宏和电子材料会面后，发现由于织布机供应
 
 ## 正文
 
-快递涨价消息引发关注 多家快递公司回应从“搬运”到“定制” 青年创业者助中国宠物用品走俏海外“中式生活”海外走红带动保温杯等中国产品出口增长四年翻了近一倍！
+花旗发布研报称，上调建滔积层板（01888）2026-2028年盈利预测7-16%，目标价由80港元升至100港元，以反映AI玻纤布盈利能力强于预期。
 
-驱蚊液为何年年涨价？
+花旗在过去四个月内由20.5港元起多次上调目标价，公司股价年初至今亦升了五倍，该行相信是受电子玻纤布及覆铜板的平均售价急升带动，令其盈利及增长预期有所改善。
 
-中新网评：“封号收租”的小红书，还有多少信任可透支？
+该行指，在与中国AI玻纤布行业龙头宏和电子材料会面后，发现由于织布机供应有限，电子玻纤布平均售价在2026年下半年将维持上升，以及AI玻纤布盈利能力高于预期，都是对建滔积层板的启示。
 
-辽宁一动植物园非洲狮丧偶后不进食？
-
-园方回应一箭8星 力箭一号运载火箭完成“专车”发射岛内积极评价郑丽文大陆之行 批赖当局“成事不足、败事有余”双重封锁霍尔木兹海峡，美伊的筹码博弈何时结束？
-
-中国一季度进出口超11万亿元 季度增速达近五年新高苏林访华，为何从北京直奔雄安？
-
-从亲密关系到百亿生意 年轻人为何愿意为“陪伴”买单国家安全“大事”，跟普通人有什么关系？
-
-郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情AI可以成为老辈子们的“数字拐杖”吗？
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:57 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 22:55 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 22:46 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 23:03 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 22:39 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 22:56 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 22:36 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 22:58 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 22:43 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 22:50 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 22:51 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 23:05 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 23:01 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 22:50 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 23:05 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 22:57 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 23:08 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 23:04 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 22:57 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 22:52 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 23:08 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 23:09 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 22:56 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 23:06 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 23:00 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 23:11 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 23:02 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:50 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/98707496.shtml)
-- 2026-06-29 22:45 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/98092.shtml)
-- 2026-06-29 22:51 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/53596304838.shtml)
-- 2026-06-29 22:55 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/105867657.shtml)
-- 2026-06-29 22:58 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/4799013.shtml)
-- 2026-06-29 22:44 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/38474497833.shtml)
-- 2026-06-29 22:49 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/528784114628.shtml)
-- 2026-06-29 23:05 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/052597169.shtml)
-- 2026-06-29 22:36 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/59565277092.shtml)
-- 2026-06-29 22:38 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/45106.shtml)
-- 2026-06-29 22:49 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/8813738.shtml)
-- 2026-06-29 22:39 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/34146575.shtml)
-- 2026-06-29 23:03 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/69351363630.shtml)
-- 2026-06-29 22:48 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/329092.shtml)
-- 2026-06-29 23:00 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/3533147.shtml)
+- 2026-06-29 23:04 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/586870780.shtml)
+- 2026-06-29 22:57 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/972309362.shtml)
+- 2026-06-29 22:51 - [月亮](https://www.blog.kurohicncr.top/Article/details/24076838.shtml)
+- 2026-06-29 23:10 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/786508631.shtml)
+- 2026-06-29 23:04 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/808292444.shtml)
+- 2026-06-29 23:05 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/09607176392.shtml)
+- 2026-06-29 22:51 - [巴西10号球衣是天才传承史](https://www.blog.kurohicncr.top/Article/details/174493929846.shtml)
+- 2026-06-29 22:46 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/469688340.shtml)
+- 2026-06-29 22:48 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/74432436.shtml)
+- 2026-06-29 23:09 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/169176.shtml)
+- 2026-06-29 23:01 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/95004853.shtml)
+- 2026-06-29 23:05 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/5058351723.shtml)
+- 2026-06-29 23:02 - [起风了](http://www.blog.minike.top/Article/details/622165666.shtml)
+- 2026-06-29 22:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/049287596915.shtml)
+- 2026-06-29 22:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/675664764630.shtml)

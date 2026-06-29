@@ -1,57 +1,60 @@
-# 新疆军区某团利用科技手段提升战备工作水平
+# 黄金相关ETF规模“缩水”，年内已有超百只基金调降管理费率
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-新疆军区某团利用科技手段提升战备工作水平 兵器室有了“智慧大脑” 解放军报讯 陈继亮、曾存军报道：“指尖在控制面板上轻轻点击，武器出入库就能快速完成登记。”春日，新疆军区某团某分队组织一场战备拉动，官兵迅速从新改造的兵器室里领取武器，整个过程井然有序、快捷高效。 该团领导介绍，近年来，随着新配发的武器装备不断增多，以往手工填写武器编号的出入库登记方式，难以满足应急情况下快速申领
+金价持续大跌，黄金相关ETF规模“缩水”近370亿元 受多重因素影响，近日国际金价连续下挫，目前已经回吐年内全部涨幅。与此同时，黄金相关ETF持续“失血”，整体规模较一季度末缩水近370亿元。 在小红书、东方财富评论区，记者发现，不少网友已经开始跃跃欲试，讨论抄底黄金。 业内人士表示，本轮黄金调整受多重因素共振驱动，短期仍处于高位震荡状态，而中长期支撑黄金的核心逻辑并未动摇。当
 
 ## 正文
 
-新疆军区某团利用科技手段提升战备工作水平 兵器室有了“智慧大脑” 解放军报讯 陈继亮、曾存军报道：“指尖在控制面板上轻轻点击，武器出入库就能快速完成登记。
+金价持续大跌，黄金相关ETF规模“缩水”近370亿元 受多重因素影响，近日国际金价连续下挫，目前已经回吐年内全部涨幅。
 
-”春日，新疆军区某团某分队组织一场战备拉动，官兵迅速从新改造的兵器室里领取武器，整个过程井然有序、快捷高效。
+与此同时，黄金相关ETF持续“失血”，整体规模较一季度末缩水近370亿元。
 
-该团领导介绍，近年来，随着新配发的武器装备不断增多，以往手工填写武器编号的出入库登记方式，难以满足应急情况下快速申领武器的需求。
+在小红书、东方财富评论区，记者发现，不少网友已经开始跃跃欲试，讨论抄底黄金。
 
-为此，他们以营区“两化”建设为抓手，选取该分队为智能化兵器室改造试点单位，为其他单位探索一条提升战备工作效能的新路子。
+业内人士表示，本轮黄金调整受多重因素共振驱动，短期仍处于高位震荡状态，而中长期支撑黄金的核心逻辑并未动摇。
 
-笔者参观该分队新建成的智能化兵器室时了解到，武器柜全部组网成链，从“入室”到“开柜”，均采用“人脸识别+指纹认证”双重验证和“电子+机械”开锁方案，室内还安装了无死角监控报警系统。
+当前需要保持谨慎，短期风险窗口尚未关闭，在“长期叙事未变”与“短期压制未消”的格局下，保持耐心、等待信号明朗，或是当前更理性的策略。
 
-“这种智能终端控制柜，不用打开柜门，便可查看所有武器存放情况，以及湿度温度、取用情况、保养时间等信息。
+二季度以来债券型ETF规模增长超千亿元 公开数据显示，债券型ETF总规模已逼近8700亿元，较一季度末增长超千亿元，其中多只债券型ETF二季度以来规模增长超过或接近100亿元。
 
-”该分队分队长介绍，智能化兵器室建成后，管理员打开智能管理系统即可快捷检索、分析武器出入库情况等数据，管理效率大幅提高。
+公募基金行业首笔利率互换交易落地 日前，华夏基金（香港）旗下华夏精选人民币投资级别收益基金顺利完成首笔人民币利率互换（IRS）交易。
 
-据了解，除狠抓硬件建设外，他们还在总结前期经验基础上，对武器领取流程、路线进行重新规划，推动各基层连队兵器室“入云、入端、入网、入链”，加速实现“管理智能化、监测可视化”目标。
+这是“互换通”机制推出以来，离岸公募基金行业成功落地的第一单利率互换交易。
 
 ## 相关推荐
 
-- 2026-06-29 23:04 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 23:05 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 23:02 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 22:56 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 22:44 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 22:57 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 22:41 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 22:40 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 22:55 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 23:03 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 22:40 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 22:52 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 22:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 22:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 22:42 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 23:04 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 22:43 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 22:43 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 22:42 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 22:43 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 23:06 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 22:56 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 23:04 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 23:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 22:59 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:42 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/73606813311.shtml)
-- 2026-06-29 22:51 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/3135361267.shtml)
-- 2026-06-29 22:37 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/900694.shtml)
-- 2026-06-29 22:37 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/952226468889.shtml)
-- 2026-06-29 23:05 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/2689649254.shtml)
-- 2026-06-29 22:53 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.kurohicncr.top/Article/details/652867.shtml)
-- 2026-06-29 22:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/481899608710.shtml)
-- 2026-06-29 22:54 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/65711.shtml)
-- 2026-06-29 22:52 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/135281559229.shtml)
-- 2026-06-29 22:37 - [金刚川](http://www.share.minike.top/Article/details/70576.shtml)
-- 2026-06-29 22:52 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/63991813.shtml)
-- 2026-06-29 22:53 - [我们的少年时代2](https://www.blog.minike.top/Article/details/29684525135.shtml)
-- 2026-06-29 22:57 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/5402560495.shtml)
-- 2026-06-29 22:54 - [85花告别古偶](http://www.share.minike.top/Article/details/57538.shtml)
-- 2026-06-29 22:49 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/88383294.shtml)
+- 2026-06-29 23:00 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/4723755.shtml)
+- 2026-06-29 23:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/32300639637.shtml)
+- 2026-06-29 22:54 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/278234955824.shtml)
+- 2026-06-29 23:10 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/07029383374.shtml)
+- 2026-06-29 23:01 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/63982087.shtml)
+- 2026-06-29 23:10 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/3750969832.shtml)
+- 2026-06-29 22:43 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/7493926.shtml)
+- 2026-06-29 23:02 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/85145286.shtml)
+- 2026-06-29 23:03 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/3547033.shtml)
+- 2026-06-29 22:55 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/07368904715.shtml)
+- 2026-06-29 22:49 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/871461545.shtml)
+- 2026-06-29 23:02 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/771893.shtml)
+- 2026-06-29 23:08 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/831148.shtml)
+- 2026-06-29 22:51 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/742858733.shtml)
+- 2026-06-29 23:01 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/8330073.shtml)

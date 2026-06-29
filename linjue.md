@@ -1,57 +1,54 @@
-# 以军袭击加沙地带已致10死 哈马斯拒绝解除武装
+# 自动盘点、实时监测…… “AI养猪”为生猪产业装上“智慧大脑”
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-中新社北京4月15日电 综合消息：以军当地时间14日袭击加沙地带多地，造成至少10人丧生。另据外媒14日报道，巴勒斯坦伊斯兰抵抗运动(哈马斯)已拒绝解除其武装的计划。 综合路透社、半岛电视台及巴勒斯坦官方通讯社“瓦法”消息，加沙城一辆警车14日遭以色列空袭，造成4人死亡，其中包括一名儿童和一名警察，另有9人受伤。 当晚，以军对加沙城西侧的沙提难民营发动袭击，造成至少5人死亡，另
+发布时间：2026年06月15日 20:19 来源：中国新闻网 6月15日，记者走进位于重庆荣昌区的国家级生猪大数据中心，猪只自动盘点、智能环控监测、实时体征数据……一项项生猪数据汇聚到大屏之上。生猪养殖统计、价格趋势、产品生产走势、养殖户与屠宰场数量等信息一目了然。 在中心的智能猪场养殖监测屏幕上，显示着各个猪场的实时猪舍画面。据介绍，这些猪场均采取全封闭式管理，猪舍内采用的
 
 ## 正文
 
-中新社北京4月15日电 综合消息：以军当地时间14日袭击加沙地带多地，造成至少10人丧生。
+发布时间：2026年06月15日 20:19 来源：中国新闻网 6月15日，记者走进位于重庆荣昌区的国家级生猪大数据中心，猪只自动盘点、智能环控监测、实时体征数据……一项项生猪数据汇聚到大屏之上。
 
-另据外媒14日报道，巴勒斯坦伊斯兰抵抗运动(哈马斯)已拒绝解除其武装的计划。
+生猪养殖统计、价格趋势、产品生产走势、养殖户与屠宰场数量等信息一目了然。
 
-综合路透社、半岛电视台及巴勒斯坦官方通讯社“瓦法”消息，加沙城一辆警车14日遭以色列空袭，造成4人死亡，其中包括一名儿童和一名警察，另有9人受伤。
+在中心的智能猪场养殖监测屏幕上，显示着各个猪场的实时猪舍画面。
 
-当晚，以军对加沙城西侧的沙提难民营发动袭击，造成至少5人死亡，另有多人受伤。
+据介绍，这些猪场均采取全封闭式管理，猪舍内采用的智能风机、水帘等设备根据实时环境参数自动调节，保持舍内舒适；饲喂系统通过智能耳标识别身份后，为每头猪投喂量身定制的营养餐，从而提升饲料转化效率。
 
-当天在加沙地带北部城市贾巴利亚的一处难民营内，一名14岁少年被以军打死。
+此外，该大数据中心推出的智慧“阳光码”能够精准识别来源不明的猪肉，有效保障食品安全。
 
-另据《以色列时报》报道，以色列国防军14日通报称，以军当天在加沙地带北部击毙一名“过于靠近以军部队的恐怖分子”；前一日，以军在加沙地带中部打死多名哈马斯武装人员。
+据悉，国家级生猪大数据中心是农业农村部批准建设的全国首个、目前唯一的畜牧单品种国家级大数据服务平台。
 
-报道还称，一名以军士兵14日在加沙地带中部遭不明来源枪击后受伤，以军已启动相关调查。
-
-当前，加沙地带停火第一阶段协议已生效半年多，相关方正就落实第二阶段协议进行磋商。
+(贾楠 景诗雁） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 22:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 22:58 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 22:41 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 22:36 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 22:41 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 22:48 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 23:02 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 22:40 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 22:57 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 22:37 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 22:47 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 22:43 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 23:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 22:53 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 22:45 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 22:51 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 23:05 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 22:52 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 22:58 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 22:55 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 22:43 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:39 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/0039438205.shtml)
-- 2026-06-29 22:43 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/6547082183.shtml)
-- 2026-06-29 22:47 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/85559.shtml)
-- 2026-06-29 22:37 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/034442138.shtml)
-- 2026-06-29 22:46 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/1326789098.shtml)
-- 2026-06-29 22:47 - [世界杯](https://www.blog.kurohicncr.top/Article/details/38613931.shtml)
-- 2026-06-29 22:56 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/227721947.shtml)
-- 2026-06-29 22:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/724282951.shtml)
-- 2026-06-29 22:38 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/773328408.shtml)
-- 2026-06-29 22:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/0884039590.shtml)
-- 2026-06-29 23:05 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/632931.shtml)
-- 2026-06-29 22:52 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/575232.shtml)
-- 2026-06-29 22:59 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/677831525313.shtml)
-- 2026-06-29 22:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/65103142.shtml)
-- 2026-06-29 22:50 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/11135959748.shtml)
+- 2026-06-29 22:47 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/48257951110.shtml)
+- 2026-06-29 22:49 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/4919118.shtml)
+- 2026-06-29 23:01 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/549785.shtml)
+- 2026-06-29 22:59 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/3324959781.shtml)
+- 2026-06-29 22:49 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/372781594.shtml)
+- 2026-06-29 22:57 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/30137.shtml)
+- 2026-06-29 23:00 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/54270091749.shtml)
+- 2026-06-29 22:58 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/459663.shtml)
+- 2026-06-29 22:52 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/29101664132.shtml)
+- 2026-06-29 22:51 - [委内瑞拉发生余震](http://www.blog.kurohicncr.top/Article/details/13797293.shtml)
+- 2026-06-29 22:46 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/077469.shtml)
+- 2026-06-29 23:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/5277316830.shtml)
+- 2026-06-29 22:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/562438064433.shtml)
+- 2026-06-29 23:08 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/92415.shtml)
+- 2026-06-29 23:12 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/481350.shtml)

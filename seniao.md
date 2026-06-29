@@ -1,47 +1,46 @@
-# 光大银行重庆分行被罚208.6万元：违反数据安全管理规定等
+# 全国20条中小河流发生超警以上洪水
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-4月15日金融一线消息，中国人民银行重庆市分行行政处罚决定信息公示表显示，中国光大银行重庆分行因违反金融统计管理规定；违反账户管理规定；违反网络安全管理规定；违反数据安全管理规定；违反流通人民币管理规定；违反信用信息采集、提供、查询相关管理规定；未按照规定开展客户尽职调查，被中国人民银行重庆市分行警告，并处罚款208.6万元。 责任编辑：李琳琳
+记者从水利部了解到，受降雨影响，昨天到今天，广西郁江支流猪儿河、贺江支流东安江，广东西江支流谷圩河、东江支流古竹水、韩江支流松源河，福建汀江上游及支流永定河、九龙江支流雁石溪、闽江上游沙溪支流长潭河，吉林二道松花江支流大沙河等20条中小河流发生超警以上洪水，最大超警幅度1.76米。目前，大部河流已退至警戒水位以下。 (总台央视记者 梁丽娟 李洁)
 
 ## 正文
 
-4月15日金融一线消息，中国人民银行重庆市分行行政处罚决定信息公示表显示，中国光大银行重庆分行因违反金融统计管理规定；违反账户管理规定；违反网络安全管理规定；违反数据安全管理规定；违反流通人民币管理规定；违反信用信息采集、提供、查询相关管理规定；未按照规定开展客户尽职调查，被中国人民银行重庆市分行警告，并处罚款208.6万元。
+记者从水利部了解到，受降雨影响，昨天到今天，广西郁江支流猪儿河、贺江支流东安江，广东西江支流谷圩河、东江支流古竹水、韩江支流松源河，福建汀江上游及支流永定河、九龙江支流雁石溪、闽江上游沙溪支流长潭河，吉林二道松花江支流大沙河等20条中小河流发生超警以上洪水，最大超警幅度1.76米。
 
-责任编辑：李琳琳
+目前，大部河流已退至警戒水位以下。
+
+(总台央视记者 梁丽娟 李洁)
 
 ## 相关推荐
 
-- 2026-06-29 22:38 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 22:53 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 22:46 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 23:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 22:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 23:05 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 22:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 22:46 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 22:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 22:58 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 22:46 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 22:56 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 22:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 23:10 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 23:06 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 23:08 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 23:05 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 23:00 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 23:01 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 23:11 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 23:11 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 23:05 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 22:50 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:52 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/370824865416.shtml)
-- 2026-06-29 22:55 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/192549143800.shtml)
-- 2026-06-29 23:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/6264733.shtml)
-- 2026-06-29 22:51 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/463892.shtml)
-- 2026-06-29 23:02 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/90009544.shtml)
-- 2026-06-29 22:52 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/86656.shtml)
-- 2026-06-29 22:42 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/443903568803.shtml)
-- 2026-06-29 22:39 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/79919848.shtml)
-- 2026-06-29 22:37 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/314034.shtml)
-- 2026-06-29 22:41 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/54775163630.shtml)
-- 2026-06-29 23:02 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/56005111154.shtml)
-- 2026-06-29 22:59 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/794063214.shtml)
-- 2026-06-29 23:01 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/455470.shtml)
-- 2026-06-29 22:41 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/83708159814.shtml)
-- 2026-06-29 23:00 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/293214.shtml)
+- 2026-06-29 22:54 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/39488.shtml)
+- 2026-06-29 22:58 - [杨德龙：创新药迎来新的发展机遇](https://www.share.minike.top/Article/details/235489156.shtml)
+- 2026-06-29 23:07 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/3072545622.shtml)
+- 2026-06-29 22:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/547806758908.shtml)
+- 2026-06-29 22:58 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/798364363780.shtml)
+- 2026-06-29 22:54 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/539102.shtml)
+- 2026-06-29 22:49 - [王安宇聪明到导演组炸了](http://www.blog.minike.top/Article/details/4850239664.shtml)
+- 2026-06-29 23:07 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/53014889089.shtml)
+- 2026-06-29 23:00 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/48318.shtml)
+- 2026-06-29 22:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/711938373760.shtml)
+- 2026-06-29 23:02 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/31682.shtml)
+- 2026-06-29 22:45 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/93029762095.shtml)
+- 2026-06-29 22:51 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/747044.shtml)
+- 2026-06-29 23:07 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/574609921993.shtml)
+- 2026-06-29 22:57 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/01420.shtml)

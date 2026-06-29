@@ -1,58 +1,61 @@
-# 上海最新监测数据：肺癌、大肠癌和甲状腺癌位列发病前三位
+# 当AI深度融入生活，人与AI如何和谐相处？看看他们怎么做
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-中新网上海4月15日电 (记者 陈静)上海市卫健委15日披露，最新监测数据显示，2022年上海新发癌症病例数为8.22万例，发病率为547.9/10万，发病前三位的癌症依次是肺癌、大肠癌和甲状腺癌；2022年，全上海有3.85万人因癌症而死亡，死亡率为256.8/10万，癌症仍是上海民众的第二位死因。4月15日-21日是第三十七届上海市肿瘤防治宣传周，今年的主题是“早防早筛早治
+当下，AI已深度融入人们的日常生活。在带来高效与便利的同时，也催生了AI依赖、数字信任缺失、内容真伪难辨等各类问题。如何正视AI、用好AI、规范AI，成为全民数字素养提升过程中亟待解答的现实课题。 6月11日，2026年上海市全民数字素养与技能提升月启动活动举行。今年的活动以“申城友AI，共塑智序”为主题，从去年“携手AI”，到今年“友爱AI”，不仅倡导市民以开放心态拥抱新技术
 
 ## 正文
 
-中新网上海4月15日电 (记者 陈静)上海市卫健委15日披露，最新监测数据显示，2022年上海新发癌症病例数为8.22万例，发病率为547.9/10万，发病前三位的癌症依次是肺癌、大肠癌和甲状腺癌；2022年，全上海有3.85万人因癌症而死亡，死亡率为256.8/10万，癌症仍是上海民众的第二位死因。
+当下，AI已深度融入人们的日常生活。
 
-4月15日-21日是第三十七届上海市肿瘤防治宣传周，今年的主题是“早防早筛早治，同心携手抗癌”。
+在带来高效与便利的同时，也催生了AI依赖、数字信任缺失、内容真伪难辨等各类问题。
 
-15日，上海市卫健委举办肿瘤防治宣传周市级主题活动，发布申城最新癌症监测数据，组织知名医学专家现场咨询。
+如何正视AI、用好AI、规范AI，成为全民数字素养提升过程中亟待解答的现实课题。
 
-据悉，上海大力推动癌症筛查技术的创新与应用，使常见癌症的筛查范围不断扩大。
+6月11日，2026年上海市全民数字素养与技能提升月启动活动举行。
 
-全上海癌症防治核心指标稳步提升，总体癌症5年生存率已达65.2%。
+今年的活动以“申城友AI，共塑智序”为主题，从去年“携手AI”，到今年“友爱AI”，不仅倡导市民以开放心态拥抱新技术，让AI成为生活、工作的得力助手，更呼吁大家在享受便利的同时，守住安全伦理底线，共同探索人与AI和谐相处的“新智序”。
 
-作为上海市重大公共卫生服务项目之一，社区居民大肠癌筛查已连续实施十多年，至2025年底，相关项目已累计为419万名50岁以上的上海居民提供842万次筛查服务，有效促进了大肠癌和癌前期病变患者的早诊早治，提高了患者生存质量，延长了生存期。
+来自不同年龄、不同行业的普通市民走上讲台，分享了他们与人工智能相处的真实故事。
 
-2025年，上海为超过61.4万名居民提供了筛查服务，已发现癌前期病变6860例、确诊大肠癌710例。
+从学生、社区志愿者到内容创作者，他们用各自的方式探索着与AI的相处之道。
 
-今年，上海将围绕“50岁以上人人参加一次大肠癌筛查”目标，向超过50万名居民提供免费的大肠癌筛查服务，重点加强对从未参加过大肠癌筛查居民的宣传动员和对初筛阳性居民的转诊服务。
+和AI做朋友，塑造独立思考能力来自华师永德学校的董逸飞，带来了他告别AI依赖、与AI携手成长的“破瘾”故事。
 
 ## 相关推荐
 
-- 2026-06-29 22:50 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 22:51 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 22:51 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 22:36 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 23:01 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 22:41 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 23:00 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 23:05 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 22:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 22:56 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 22:37 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 22:54 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 23:03 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 22:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 22:59 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 22:56 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 23:08 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 23:09 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 22:47 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 22:48 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 23:01 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 22:50 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 23:06 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 22:53 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 22:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 23:10 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 23:09 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:37 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/772326696363.shtml)
-- 2026-06-29 22:48 - [送你一朵小红花](http://www.blog.minike.top/Article/details/7971293.shtml)
-- 2026-06-29 22:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/62689739508.shtml)
-- 2026-06-29 22:55 - [起风了](http://www.share.minike.top/Article/details/59762945.shtml)
-- 2026-06-29 22:42 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/97747865106.shtml)
-- 2026-06-29 22:51 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/384682.shtml)
-- 2026-06-29 22:56 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/44745.shtml)
-- 2026-06-29 22:39 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/47481202634.shtml)
-- 2026-06-29 22:47 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/677843197.shtml)
-- 2026-06-29 22:51 - [欧洲缘何成为变暖最快的大洲](http://www.blog.kurohicncr.top/Article/details/150440841422.shtml)
-- 2026-06-29 23:04 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/6160559810.shtml)
-- 2026-06-29 22:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/8329526154.shtml)
-- 2026-06-29 22:49 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/487525202621.shtml)
-- 2026-06-29 22:41 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/6917093366.shtml)
-- 2026-06-29 22:43 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/1626257738.shtml)
+- 2026-06-29 22:57 - [美人鱼](https://www.share.minike.top/Article/details/72168.shtml)
+- 2026-06-29 23:06 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/191232112817.shtml)
+- 2026-06-29 23:02 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/58773548159.shtml)
+- 2026-06-29 22:49 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/52268.shtml)
+- 2026-06-29 23:10 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/5347310.shtml)
+- 2026-06-29 22:53 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/76261738.shtml)
+- 2026-06-29 23:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/86058422.shtml)
+- 2026-06-29 22:49 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/885264.shtml)
+- 2026-06-29 22:46 - [极限挑战第一季](https://www.blog.minike.top/Article/details/13860.shtml)
+- 2026-06-29 23:01 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/61415.shtml)
+- 2026-06-29 22:58 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/705906736.shtml)
+- 2026-06-29 22:44 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/4960713.shtml)
+- 2026-06-29 23:05 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/252120909.shtml)
+- 2026-06-29 23:02 - [沙丘](https://www.blog.kurohicncr.top/Article/details/7232070803.shtml)
+- 2026-06-29 22:49 - [小娘惹](http://www.share.kurohicncr.top/Article/details/70698209802.shtml)

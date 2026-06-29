@@ -1,58 +1,58 @@
-# （乡村行·看振兴）“一地双收”加码农文旅融合 山西忻州激活“金色密码”
+# 迎估值修复窗口，A股周期板块集体反弹
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-中新网忻州4月15日电 (杨佩佩 陈文强)眼下，山西忻州忻府区已进入春耕备耕的忙碌时节。在忻州古城以南，仅一桥之隔的南关村，近百亩冬油菜田绿意铺展、黄花缀枝。“这是最新培育的强耐寒油菜新品种，也是首次在晋北地区大规模种植并成功越冬。”来自山西农业大学农业基因资源研究中心的胡奋山如是介绍。 2021年，胡奋山便将目光投向了忻定盆地的甜糯玉米耕地利用难题，作为全国甜糯玉米优质产区的
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！航空、海运、有色等传统周期行业行情的核心催化，来自市场对霍尔木兹海峡即将恢复通航的强烈预期。 6月15日，A股市场周期板块集体异动，航空运输、海运港口、有色金属、基础化工等板块早盘全线走高。截至当日收盘，航空机场板块表现活跃，中国国航（601111.SH）、南方航空（600029.SH）、中国东航（6001
 
 ## 正文
 
-中新网忻州4月15日电 (杨佩佩 陈文强)眼下，山西忻州忻府区已进入春耕备耕的忙碌时节。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在忻州古城以南，仅一桥之隔的南关村，近百亩冬油菜田绿意铺展、黄花缀枝。
+航空、海运、有色等传统周期行业行情的核心催化，来自市场对霍尔木兹海峡即将恢复通航的强烈预期。
 
-“这是最新培育的强耐寒油菜新品种，也是首次在晋北地区大规模种植并成功越冬。
+6月15日，A股市场周期板块集体异动，航空运输、海运港口、有色金属、基础化工等板块早盘全线走高。
 
-”来自山西农业大学农业基因资源研究中心的胡奋山如是介绍。
+截至当日收盘，航空机场板块表现活跃，中国国航（601111.SH）、南方航空（600029.SH）、中国东航（600115.SH）三大航司集体上涨；有色金属板块方面，铜、锡等工业金属标的表现活跃；海运板块更是掀起了涨停潮。
 
-2021年，胡奋山便将目光投向了忻定盆地的甜糯玉米耕地利用难题，作为全国甜糯玉米优质产区的忻定盆地广泛种植鲜食甜糯玉米，每年8月下旬采摘后由于积温不足和缺少科技成果支撑，导致后期采摘的甜糯玉米田难以利用而休闲过冬，造成光热水资源的巨大浪费。
+这一轮行情的核心催化，来自市场对霍尔木兹海峡即将恢复通航的强烈预期。
 
-“如果能把这段空闲期充分利用起来，既能盘活土地资源，又能提高复种指数和提升土地综合效益，岂不是一举两得。
+随着美伊和谈信号持续释放，市场普遍认为，持续近三个月的海峡管控有望迎来实质性松动，这将对全球能源供应链、通胀预期以及大宗商品定价产生深远影响。
 
-”这个念头，成了胡奋山五年来深耕研究的初心。
+对于A股而言，此前受海峡封锁影响深度调整的周期板块，正站在估值修复的关键节点，油价下行、成本改善、需求回暖三重逻辑共振下，航空、石化、海运、有色等产业链有望迎来估值修复。
 
-五年间，胡奋山带领团队不断攻关，结合山西省种质资源库的优势，开展冬油菜籽品种强耐寒性的鉴定和新品种选育，成功选育出能够经受忻定盆地、晋西北高寒区冬季严寒考验的新品种，并研发出配套栽培技术，实现突破。
+周期板块估值修复，数月承压后迎来反弹窗口 6月15日，传统周期板块集体上涨，不仅是直接受益于油价下行的航空板块，包括化工、有色、海运在内的全周期产业链也均有资金回流迹象。
 
 ## 相关推荐
 
-- 2026-06-29 22:57 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 23:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 22:58 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 22:52 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 22:52 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 22:57 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 23:04 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 23:03 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 22:59 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 23:00 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 23:02 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 22:46 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 22:56 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 22:54 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 22:49 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 22:50 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 23:00 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 22:44 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 23:06 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 23:02 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 22:44 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 23:03 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 22:52 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 22:56 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:03 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/30923332509.shtml)
-- 2026-06-29 23:05 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/41253.shtml)
-- 2026-06-29 22:45 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/04036767942.shtml)
-- 2026-06-29 22:52 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/500514.shtml)
-- 2026-06-29 23:05 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/709726796893.shtml)
-- 2026-06-29 22:56 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/2579347735.shtml)
-- 2026-06-29 22:39 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/55162426778.shtml)
-- 2026-06-29 22:39 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/47337837.shtml)
-- 2026-06-29 23:05 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/230671361202.shtml)
-- 2026-06-29 22:52 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/75144.shtml)
-- 2026-06-29 22:52 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/7687373423.shtml)
-- 2026-06-29 23:04 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/569159.shtml)
-- 2026-06-29 22:48 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/5105525726.shtml)
-- 2026-06-29 22:55 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/756714597327.shtml)
-- 2026-06-29 22:58 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/9072092.shtml)
+- 2026-06-29 22:55 - [《贺子珍》](https://www.blog.minike.top/Article/details/01510391376.shtml)
+- 2026-06-29 23:03 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/17487144.shtml)
+- 2026-06-29 23:10 - [18岁高二体育生训练晕倒后离世](https://www.share.minike.top/Article/details/16736706.shtml)
+- 2026-06-29 23:08 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/9407091.shtml)
+- 2026-06-29 22:45 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/651130853421.shtml)
+- 2026-06-29 23:00 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/76421.shtml)
+- 2026-06-29 23:07 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/34314919622.shtml)
+- 2026-06-29 22:59 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/12431059.shtml)
+- 2026-06-29 22:51 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/649875708.shtml)
+- 2026-06-29 23:06 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/816975001.shtml)
+- 2026-06-29 22:43 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/601058540705.shtml)
+- 2026-06-29 22:46 - [急先锋](https://www.blog.minike.top/Article/details/952986.shtml)
+- 2026-06-29 22:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/809882669.shtml)
+- 2026-06-29 23:05 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/586944285.shtml)
+- 2026-06-29 22:55 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/9038887.shtml)

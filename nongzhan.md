@@ -1,56 +1,56 @@
-# （经济观察）“China Travel”不只“到此一游”
+# 英国计划禁止16岁以下未成年人使用主流社交媒体
 
-> 更新时间：2026-06-29 23:06:03 UTC+8
+> 更新时间：2026-06-29 23:12:03 UTC+8
 
 ## 摘要
 
-中新社北京4月14日电 (记者 刘文文)韩国年轻人周末飞往上海，钻进弄堂深处定制专属旗袍；外国博主在社交平台分享写汉字、打太极的心得；非洲游客在景德镇陶艺工坊，体验千年制瓷工艺…… 从“走马观花”转向文化沉浸，从“到此一游”转为“深度畅游”，“China Travel”的叙事逻辑已悄然改写，入境游正成为中国服务业提质扩能的重要抓手。 “不断培育服务业新增长点”“促进日常生活服务
+中新社伦敦6月15日电 (记者 欧阳开宇)当地时间6月15日，英国首相斯塔默宣布，英国将推出严苛的未成年人网络保护新规，计划全面禁止16岁以下未成年人使用主流社交媒体平台，并对青少年网络直播、网络游戏社交功能实施严格管控。斯塔默表示，英国已完成相关公众咨询，多数家长支持设置未成年人社交媒体使用禁令。英政府认为，社交媒体滥用严重损害青少年心理健康，易诱发焦虑、抑郁等问题，此次新规
 
 ## 正文
 
-中新社北京4月14日电 (记者 刘文文)韩国年轻人周末飞往上海，钻进弄堂深处定制专属旗袍；外国博主在社交平台分享写汉字、打太极的心得；非洲游客在景德镇陶艺工坊，体验千年制瓷工艺…… 从“走马观花”转向文化沉浸，从“到此一游”转为“深度畅游”，“China Travel”的叙事逻辑已悄然改写，入境游正成为中国服务业提质扩能的重要抓手。
+中新社伦敦6月15日电 (记者 欧阳开宇)当地时间6月15日，英国首相斯塔默宣布，英国将推出严苛的未成年人网络保护新规，计划全面禁止16岁以下未成年人使用主流社交媒体平台，并对青少年网络直播、网络游戏社交功能实施严格管控。
 
-“不断培育服务业新增长点”“促进日常生活服务更加便捷、公共服务高效适配、文旅体等服务创新发展”，近日召开的全国服务业大会传递出清晰信号。
+斯塔默表示，英国已完成相关公众咨询，多数家长支持设置未成年人社交媒体使用禁令。
 
-作为培育“中国服务”品牌的重要一环，入境游服务正不断升级。
+英政府认为，社交媒体滥用严重损害青少年心理健康，易诱发焦虑、抑郁等问题，此次新规旨在净化青少年网络环境，保护未成年人身心健康，归还孩子健康的成长空间。
 
-近年来，中国持续加码入境便利化措施，让外国人来华旅游可以“说走就走”。
+据悉，英国本次监管方案参照澳大利亚此前实施的未成年人网络管理模式。
 
-数据显示，2025年，中国入境游客人次超1.5亿，同比增长超17%。
+禁令覆盖短视频、图片社交、视频门户、社交论坛等主流社交平台，日常即时通讯工具不在受限范围内。
 
-2026年清明假期，外国人出入境84.3万人次，较2025年同期增长20.9%。
+新规同时禁止未成年人在直播、游戏平台与陌生网友交流，以防范网络侵害风险。
 
-如果说入境便利化解决了“怎么来”的问题，那么让外国游客“留下来”并“沉进去”，则依赖配套服务的持续优化与旅游产品的多元供给。
+根据时间表，相关监管条例将于今年年底前完善出台，整套管控措施预计明年春季正式实施。
 
-从导航APP上线多语言服务，到移动支付、即时通信不断优化，外国游客自由行的障碍正被持续扫清。
+英国政府将督促网络平台强化年龄审核机制，压实平台监管责任。
 
 ## 相关推荐
 
-- 2026-06-29 22:43 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 22:36 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 22:52 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 22:44 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 22:58 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 22:57 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 22:38 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 22:42 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 22:49 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 22:51 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 22:59 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 23:04 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 22:44 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 22:58 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 22:43 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 22:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 22:49 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 23:07 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 22:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 22:47 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:01 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/54651269201.shtml)
-- 2026-06-29 22:52 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/1381693333.shtml)
-- 2026-06-29 22:54 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/267519134614.shtml)
-- 2026-06-29 22:59 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/2295540.shtml)
-- 2026-06-29 22:47 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/59142.shtml)
-- 2026-06-29 23:04 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/643045367.shtml)
-- 2026-06-29 22:57 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/283004559.shtml)
-- 2026-06-29 22:42 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/820374717260.shtml)
-- 2026-06-29 22:49 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/09746.shtml)
-- 2026-06-29 22:43 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/19114769374.shtml)
-- 2026-06-29 23:00 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/04252034.shtml)
-- 2026-06-29 22:40 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/093721.shtml)
-- 2026-06-29 22:55 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/4475824.shtml)
-- 2026-06-29 22:41 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/08705300.shtml)
-- 2026-06-29 22:45 - [斗破苍穹](https://www.share.minike.top/Article/details/6372049276.shtml)
+- 2026-06-29 23:03 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/73998.shtml)
+- 2026-06-29 22:53 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/716560.shtml)
+- 2026-06-29 23:00 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/677702.shtml)
+- 2026-06-29 22:54 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/3359849829.shtml)
+- 2026-06-29 22:49 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/86300429.shtml)
+- 2026-06-29 23:11 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/531421.shtml)
+- 2026-06-29 22:56 - [乔家的儿女](http://www.share.minike.top/Article/details/785956847203.shtml)
+- 2026-06-29 23:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/376422074.shtml)
+- 2026-06-29 23:03 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/067389278.shtml)
+- 2026-06-29 23:11 - [山东发布山洪灾害气象预警](http://www.share.minike.top/Article/details/3249655.shtml)
+- 2026-06-29 22:54 - [勇敢的心第二部](http://www.share.minike.top/Article/details/050948953116.shtml)
+- 2026-06-29 23:02 - [周生如故](http://www.blog.kurohicncr.top/Article/details/560953153.shtml)
+- 2026-06-29 22:47 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/223263178.shtml)
+- 2026-06-29 22:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/394573472.shtml)
+- 2026-06-29 22:53 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/370254.shtml)
