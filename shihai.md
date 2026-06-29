@@ -1,61 +1,56 @@
-# 黄益平：化解全球经济失衡是世界各国共同的课题
+# “广州·科创引力场”品牌发布 助力生物医药产业发展
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-专题：2026第十七届夏季达沃斯论坛 6月23日消息，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）今日在大连举行。北京大学国家发展研究院院长黄益平在“失衡的世界”论坛上谈到，中国是体量庞大的经济体，自身情况具备特殊性。二三十年前小型经济体出现供需盈余，并不会引发明显矛盾，但大国环境完全不同。他举例表示，新加坡当前盈余占比约 30%，放在中国这样的大型经济体，持
+中新网广州4月30日电 (记者 王坚)2026广州产业投资合作交流会(生物医药专场)暨“广州·科创引力场”品牌发布会近日在广州举办。活动旨在深入推动广州战略性新兴产业融合集群发展，做强做优生物医药与健康战略性支柱产业，塑造高质量发展新增长引擎。 据介绍，活动由广州市投资发展委员会办公室、广州市科学技术局、广州市工业和信息化局、广州市科技进步基金会共同主办，汇聚政府、产业、资本、
 
 ## 正文
 
-专题：2026第十七届夏季达沃斯论坛 6月23日消息，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）今日在大连举行。
+中新网广州4月30日电 (记者 王坚)2026广州产业投资合作交流会(生物医药专场)暨“广州·科创引力场”品牌发布会近日在广州举办。
 
-北京大学国家发展研究院院长黄益平在“失衡的世界”论坛上谈到，中国是体量庞大的经济体，自身情况具备特殊性。
+活动旨在深入推动广州战略性新兴产业融合集群发展，做强做优生物医药与健康战略性支柱产业，塑造高质量发展新增长引擎。
 
-二三十年前小型经济体出现供需盈余，并不会引发明显矛盾，但大国环境完全不同。
+据介绍，活动由广州市投资发展委员会办公室、广州市科学技术局、广州市工业和信息化局、广州市科技进步基金会共同主办，汇聚政府、产业、资本、科研、服务等多方力量，聚焦生物医药赛道精准发力，以科创引力场首场活动为起点，全面打响广州“招商引资年”攻坚战。
 
-他举例表示，新加坡当前盈余占比约 30%，放在中国这样的大型经济体，持续盈余会产生一系列连锁经济影响。
+活动现场，依托中国创新创业成果交易会、海外人才交流会两大国家级平台的资源优势，“广州·科创引力场”品牌正式发布。
 
-他指出，全球经济失衡是突出难题，会进一步放大全球经济波动，当下各国都在主动调整自身增长结构。
+作为两大盛会的常态化延伸子品牌，其旨在打造连接政府、企业、资本与市场的核心桥梁，构建开放、协同、高效的科技创新生态系统。
 
-以美国为例，美方时常提及中国出口过剩，但实际上美国也从对华出口贸易中获得实际收益。
+广州产投科创集团相关负责人对“广州·科创引力场”年度工作计划进行介绍，“广州·科创引力场”将以“投研榜招”四位一体为核心能力，通过品牌发布、项目路演、生态构建三大维度协同发力，形成从项目引进、培育到产业落地的完整闭环；并打破传统招商“拼政策、给空间”的单一模式，转向“给市场、给耐心、给生态”的全要素赋能，真正实现从“物理集聚”到“化学融合”的生态跃迁。
 
-他谈到，中国也需要推进自身经济再平衡，加大力度提振消费、更为积极地扩大内需。
+为构建“以商招商、生态招商”的产业发展新格局，活动现场同步举行了首批“广州·科创引力场”招商合伙人聘任仪式，三大批次共24位招商合伙人正式受聘，涵盖生物医药领域龙头企业代表、头部投资机构负责人、高校科研院所专家及产业服务机构代表。
 
-“化解全球经济失衡并非中国一国的责任，而是世界各国共同的课题，需要各方协同发力。
+未来，招商合伙人将充分发挥行业影响力与资源优势，助力优质项目挖掘、意向合作撮合与产业落地推动，持续扩容广州生物医药产业“朋友圈”。
 
 ## 相关推荐
 
-- 2026-06-30 04:13 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 04:01 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 04:09 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 04:18 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 04:07 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 04:23 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 04:16 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 04:22 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 04:06 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 03:55 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 04:18 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 04:19 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 04:02 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 04:23 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 04:22 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 04:26 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 04:15 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 04:24 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 04:11 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 04:22 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 04:10 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 04:26 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 04:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 04:20 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 04:27 - [刘念回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:56 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/697805.shtml)
-- 2026-06-30 04:12 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/87736260396.shtml)
-- 2026-06-30 04:10 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/43580147767.shtml)
-- 2026-06-30 04:15 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/574261577914.shtml)
-- 2026-06-30 04:23 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/395494044533.shtml)
-- 2026-06-30 03:59 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/02730.shtml)
-- 2026-06-30 04:10 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/36137828.shtml)
-- 2026-06-30 04:05 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/306716445.shtml)
-- 2026-06-30 04:05 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/710515240.shtml)
-- 2026-06-30 04:20 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/38218724721.shtml)
-- 2026-06-30 04:06 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/2491467437.shtml)
-- 2026-06-30 04:09 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/839548751.shtml)
-- 2026-06-30 03:56 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/81581372030.shtml)
-- 2026-06-30 04:21 - [点菜也要教吗](https://www.blog.minike.top/Article/details/771885264875.shtml)
-- 2026-06-30 04:02 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/47190068.shtml)
+- 2026-06-30 04:22 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/73857.shtml)
+- 2026-06-30 04:08 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/68813.shtml)
+- 2026-06-30 04:23 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/468483.shtml)
+- 2026-06-30 04:09 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/340741637554.shtml)
+- 2026-06-30 04:21 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/438450863553.shtml)
+- 2026-06-30 04:06 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/12854.shtml)
+- 2026-06-30 04:00 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/63275086959.shtml)
+- 2026-06-30 04:11 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/45734.shtml)
+- 2026-06-30 04:09 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/538215115391.shtml)
+- 2026-06-30 04:23 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/34431.shtml)
+- 2026-06-30 04:01 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/21588658.shtml)
+- 2026-06-30 04:05 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/650638573.shtml)
+- 2026-06-30 04:14 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/68115935438.shtml)
+- 2026-06-30 04:23 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/26230.shtml)
+- 2026-06-30 04:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/319644200.shtml)

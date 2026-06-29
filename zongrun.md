@@ -1,46 +1,57 @@
-# 湖北：罕见“头位出生”长江江豚 分娩的挑战
+# 判了！受贿数额特别巨大，上海保交所原董事长任春生一审获刑12年
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 09:21 来源：央视新闻 责任编辑：【王祎】
+上海保交所原董事长任春生受贿案一审宣判。 据北京市高级人民法院微信号“京网法事”消息 ，2026年4月30日，北京市第二中级人民法院依法公开宣判上海保交所原党委书记、董事长任春生受贿一案，对被告人任春生以受贿罪判处有期徒刑十二年，并处罚金人民币一百五十万元。对追缴在案的任春生受贿犯罪所得财物依法予以没收，上缴国库。 两年前的2024年4月30日，任春生被曝失联。在此之前，他卸任
 
 ## 正文
 
-发布时间：2026年06月23日 09:21 来源：央视新闻 责任编辑：【王祎】
+上海保交所原董事长任春生受贿案一审宣判。
+
+据北京市高级人民法院微信号“京网法事”消息 ，2026年4月30日，北京市第二中级人民法院依法公开宣判上海保交所原党委书记、董事长任春生受贿一案，对被告人任春生以受贿罪判处有期徒刑十二年，并处罚金人民币一百五十万元。
+
+对追缴在案的任春生受贿犯罪所得财物依法予以没收，上缴国库。
+
+两年前的2024年4月30日，任春生被曝失联。
+
+在此之前，他卸任上海保交所党委书记、董事长职务，并被调任国家金融监督管理总局投诉调解中心筹备组组长。
+
+同年5月7日，中央纪委国家监委驻国家金融监督管理总局纪检监察组、北京市纪委监委消息称，国家金融监督管理总局投诉调解中心筹备组组长任春生涉嫌严重违纪违法，目前正接受中央纪委国家监委驻国家金融监督管理总局纪检监察组纪律审查和北京市通州区监委监察调查。
+
+2025年3月21日，据中央纪委国家监委网站发布消息，任春生被“双开”。
+
+通报称，经查，任春生身为国有金融企业党员领导干部，丧失理想信念，背弃初心使命，目无党纪国法，违反政治纪律，参加迷信活动；违反中央八项规定精神，接受可能影响公正执行公务的旅游活动和宴请，将应由本人承担的费用交由他人支付，收受可能影响公正执行公务的消费卡；违反组织纪律，在接受组织函询时不如实向组织说明问题，利用职权和职务影响为他人在人员录用工作中谋利；违反廉洁纪律，违规买卖股票。
 
 ## 相关推荐
 
-- 2026-06-30 04:16 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 03:54 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 04:08 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 03:55 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-30 04:00 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 04:17 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 04:18 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 03:57 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 04:04 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 04:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 04:19 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 04:12 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 03:54 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 04:03 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 04:13 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 04:29 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 04:00 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 04:28 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 04:29 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 04:28 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 04:00 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 04:20 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 04:25 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 04:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 04:06 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:54 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/83639.shtml)
-- 2026-06-30 04:10 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/81376.shtml)
-- 2026-06-30 04:23 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/0385902250.shtml)
-- 2026-06-30 04:04 - [周生如故](http://www.share.minike.top/Article/details/018215762519.shtml)
-- 2026-06-30 04:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/753582681745.shtml)
-- 2026-06-30 04:08 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/2759378774.shtml)
-- 2026-06-30 03:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/046435.shtml)
-- 2026-06-30 04:20 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/8129612029.shtml)
-- 2026-06-30 04:07 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/0319666610.shtml)
-- 2026-06-30 03:57 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/482241.shtml)
-- 2026-06-30 04:13 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/38137958971.shtml)
-- 2026-06-30 04:18 - [送你一朵小红花](https://www.share.minike.top/Article/details/77832788.shtml)
-- 2026-06-30 04:21 - [天道](http://www.blog.kurohicncr.top/Article/details/75057888853.shtml)
-- 2026-06-30 03:56 - [巴西2比1日本](http://www.share.minike.top/Article/details/04662748.shtml)
-- 2026-06-30 04:20 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/636575726.shtml)
+- 2026-06-30 04:16 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/586356540458.shtml)
+- 2026-06-30 04:08 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/737227198152.shtml)
+- 2026-06-30 04:21 - [金牌调解](https://www.blog.minike.top/Article/details/9318320.shtml)
+- 2026-06-30 04:29 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/39836771.shtml)
+- 2026-06-30 04:19 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/746892653732.shtml)
+- 2026-06-30 04:06 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/42050091231.shtml)
+- 2026-06-30 04:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/027226621.shtml)
+- 2026-06-30 04:01 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/0291325235.shtml)
+- 2026-06-30 04:08 - [小娘惹](http://www.blog.minike.top/Article/details/4704109072.shtml)
+- 2026-06-30 04:05 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/113175008.shtml)
+- 2026-06-30 04:27 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/1153546.shtml)
+- 2026-06-30 04:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/7054575227.shtml)
+- 2026-06-30 04:12 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/22102.shtml)
+- 2026-06-30 04:26 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/84385475.shtml)
+- 2026-06-30 04:08 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/801390656.shtml)

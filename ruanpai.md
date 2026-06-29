@@ -1,57 +1,47 @@
-# 全球顶尖科技基金，大举加仓中国资产
+# 黄德炜获批出任明亚保险经纪董事长
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-在美股科技股经历了一轮大幅上涨后，部分外资机构开始将目光重新投向估值处于低位的中国科技资产。一只名为Liontrust Global Technology Fund的基金自去年年底以来大幅增持中国资产，新建仓阿里巴巴、中微公司等个股，同时对美光科技、Lumentum等大幅上涨的美股科技股进行了减持操作。顶尖科技基金加仓中国资产英国资产管理机构Liontrust Asset Ma
+4月30日金融一线消息，北京金融监管局发布批复，核准黄德炜明亚保险经纪股份有限公司董事长的任职资格。 责任编辑：秦艺
 
 ## 正文
 
-在美股科技股经历了一轮大幅上涨后，部分外资机构开始将目光重新投向估值处于低位的中国科技资产。
+4月30日金融一线消息，北京金融监管局发布批复，核准黄德炜明亚保险经纪股份有限公司董事长的任职资格。
 
-一只名为Liontrust Global Technology Fund的基金自去年年底以来大幅增持中国资产，新建仓阿里巴巴、中微公司等个股，同时对美光科技、Lumentum等大幅上涨的美股科技股进行了减持操作。
-
-顶尖科技基金加仓中国资产英国资产管理机构Liontrust Asset Management旗舰产品——Liontrust Global Technology Fund今年以来大幅提升中国资产的持仓比重。
-
-最新数据显示，截至今年6月，该基金对中国资产的配置比例已较去年底翻倍，达到11%。
-
-晨星公司数据表明，该基金今年以来及过去五年的业绩表现，均跑赢了超过九成的同类基金。
-
-在具体调仓方面，基金新建了阿里巴巴、中微公司、新易盛等中国个股，同时减持了部分前期涨幅较大的美股科技股，如美光科技和Lumentum。
-
-基金经理Clare Pleydell-Bouverie和Storm Uru近日阐述了调仓逻辑。
-
-他们认为，代理式人工智能(Agentic AI)作为“杀手级应用”，有望显著提升中国互联网企业的投资回报率；而美国芯片及光通信设备板块在经历大幅上涨后，预计将进入盘整阶段。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 04:13 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 03:57 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 04:03 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 04:03 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 04:08 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 04:05 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 04:11 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 04:23 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 04:11 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-30 04:10 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 03:56 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 04:26 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 04:20 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-30 04:07 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 04:00 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 04:09 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 04:01 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 04:28 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 04:02 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 04:08 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 04:19 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 04:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 04:17 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 04:09 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:13 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/9014554962.shtml)
-- 2026-06-30 04:08 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/72787.shtml)
-- 2026-06-30 03:55 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/14175.shtml)
-- 2026-06-30 04:20 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/166965314162.shtml)
-- 2026-06-30 03:55 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/0987404.shtml)
-- 2026-06-30 04:15 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/79582242326.shtml)
-- 2026-06-30 04:02 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/28175.shtml)
-- 2026-06-30 03:58 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/54025.shtml)
-- 2026-06-30 04:09 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/46808386373.shtml)
-- 2026-06-30 04:15 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/43769191673.shtml)
-- 2026-06-30 04:16 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/410924951346.shtml)
-- 2026-06-30 04:17 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/3170560908.shtml)
-- 2026-06-30 03:55 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/134140192588.shtml)
-- 2026-06-30 04:03 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/76509711604.shtml)
-- 2026-06-30 04:15 - [世界杯](http://www.blog.minike.top/Article/details/824029.shtml)
+- 2026-06-30 04:14 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/971412.shtml)
+- 2026-06-30 04:06 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/15790392145.shtml)
+- 2026-06-30 04:01 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/35310.shtml)
+- 2026-06-30 04:25 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/34061657270.shtml)
+- 2026-06-30 04:02 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/96958105.shtml)
+- 2026-06-30 04:22 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/66642246.shtml)
+- 2026-06-30 04:03 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/704015712.shtml)
+- 2026-06-30 04:06 - [绘画区你赢了](https://www.share.minike.top/Article/details/51464.shtml)
+- 2026-06-30 04:24 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/715247077336.shtml)
+- 2026-06-30 04:05 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/95488.shtml)
+- 2026-06-30 04:07 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/8720940502.shtml)
+- 2026-06-30 04:25 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/147350281.shtml)
+- 2026-06-30 04:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/36734855754.shtml)
+- 2026-06-30 04:19 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/953586.shtml)
+- 2026-06-30 04:20 - [《共患难》](http://www.share.minike.top/Article/details/61484493.shtml)

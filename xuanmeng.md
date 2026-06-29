@@ -1,59 +1,60 @@
-# 券商板块单日暴涨7.52%！估值与业绩背离，“牛市旗手”要回来了？
+# 广播业协会：FCC审查迪士尼牌照给全行业带来重大不确定性
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月22日，沉寂已久的券商板块突然爆发，成为A股市场最亮眼的焦点。截至收盘，券商指数大涨7.52%，板块成交额突破900亿元。 机构认为，在政策端改革信号密集释放、行业ROE回到高位而估值却处于历史底部的背景下，券商板块的集体反攻有着坚实的基本面支撑。多位非银分析师指出，当前券商估值与业绩严重错配，重视证券
+美国全国广播业者协会周三表示，美国联邦通信委员会要求迪士尼旗下ABC电视台提前续办牌照的做法，给所有广播公司带来了“重大不确定性”。 FCC本周二下令迪士尼为其拥有的八家地方电视台提前提交牌照续期申请，这些牌照原定于2028年至2031年间陆续到期，现被要求在30天内完成申请。FCC表示，此举与其对迪士尼多元化政策及潜在违规行为的调查有关。 这一决定紧随白宫与ABC深夜脱口秀主
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美国全国广播业者协会周三表示，美国联邦通信委员会要求迪士尼旗下ABC电视台提前续办牌照的做法，给所有广播公司带来了“重大不确定性”。
 
-6月22日，沉寂已久的券商板块突然爆发，成为A股市场最亮眼的焦点。
+FCC本周二下令迪士尼为其拥有的八家地方电视台提前提交牌照续期申请，这些牌照原定于2028年至2031年间陆续到期，现被要求在30天内完成申请。
 
-截至收盘，券商指数大涨7.52%，板块成交额突破900亿元。
+FCC表示，此举与其对迪士尼多元化政策及潜在违规行为的调查有关。
 
-机构认为，在政策端改革信号密集释放、行业ROE回到高位而估值却处于历史底部的背景下，券商板块的集体反攻有着坚实的基本面支撑。
+这一决定紧随白宫与ABC深夜脱口秀主持人吉米·坎摩尔的最新争执之后。
 
-多位非银分析师指出，当前券商估值与业绩严重错配，重视证券板块β修复机会。
+坎摩尔在节目中调侃第一夫人梅拉尼娅·特朗普，引发特朗普总统的强烈批评。
 
-券商板块集体大涨 个股方面，东方财富大涨12.74%，全天成交额高达219亿元；中信建投、广发证券、长江证券、财通证券涨停，华泰证券、财达证券涨逾8%，国盛证券、中国银河、中信证券、第一创业等涨逾7%。
+全国广播业者协会在声明中指出：“FCC媒体局要求一家公司迅速重新申请所有牌照的做法几乎前所未有，违背了牌照程序的公平与透明原则，给所有广播公司带来重大不确定性。
 
-与此同时，保险板块也全面爆发，新华保险涨停，中国人寿涨逾8%，中国人保涨超7%。
+” FCC内部也出现分歧，该机构唯一民主党委员安娜·戈麦斯批评此举“前所未有、违法且毫无意义”，是一场“政治噱头”。
 
-今年以来，券商板块整体走势与A股市场的火热交投形成鲜明反差。
+迪士尼方面则表示对获得续期充满信心，并准备通过法律渠道应对。
 
 ## 相关推荐
 
-- 2026-06-30 04:11 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 04:06 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 03:57 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 03:58 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 04:21 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 04:23 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 03:56 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 03:56 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 04:19 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 04:05 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 04:21 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 04:07 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 04:22 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 04:06 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 04:12 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 04:14 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 04:18 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 04:01 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 04:26 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 04:12 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 04:13 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 04:20 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 04:20 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 04:13 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 04:22 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 04:05 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 04:28 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/08060.shtml)
-- 2026-06-30 03:54 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/82245465720.shtml)
-- 2026-06-30 04:06 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/74059005869.shtml)
-- 2026-06-30 04:01 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/54876496.shtml)
-- 2026-06-30 04:11 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/42519059.shtml)
-- 2026-06-30 04:03 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/301514495856.shtml)
-- 2026-06-30 04:08 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/2103841664.shtml)
-- 2026-06-30 03:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/59281955976.shtml)
-- 2026-06-30 04:08 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/9252378.shtml)
-- 2026-06-30 04:14 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/88223365.shtml)
-- 2026-06-30 03:57 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/86358059957.shtml)
-- 2026-06-30 04:15 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/546919.shtml)
-- 2026-06-30 04:10 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/8184794.shtml)
-- 2026-06-30 04:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/82062.shtml)
-- 2026-06-30 04:21 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/11479.shtml)
+- 2026-06-30 04:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/517411177.shtml)
+- 2026-06-30 04:23 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/158850.shtml)
+- 2026-06-30 04:15 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/850801140.shtml)
+- 2026-06-30 04:07 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/56586.shtml)
+- 2026-06-30 04:05 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/6738975678.shtml)
+- 2026-06-30 04:05 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/384735.shtml)
+- 2026-06-30 04:10 - [乔家的儿女](https://www.blog.minike.top/Article/details/95747095.shtml)
+- 2026-06-30 04:09 - [田曦薇没招了](https://www.blog.minike.top/Article/details/0667729125.shtml)
+- 2026-06-30 04:06 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/6830771357.shtml)
+- 2026-06-30 04:12 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/4451304.shtml)
+- 2026-06-30 04:04 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/2901439.shtml)
+- 2026-06-30 04:15 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/53375260628.shtml)
+- 2026-06-30 04:16 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/4628158786.shtml)
+- 2026-06-30 04:18 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/44860912.shtml)
+- 2026-06-30 04:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/4927350399.shtml)

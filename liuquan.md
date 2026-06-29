@@ -1,61 +1,59 @@
-# 李强在辽宁大连调研时强调 大力发展高端装备制造业 加快建设现代化产业体系
+# 无人机实名登记和激活要求将于5月1日起全国实施
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-新华社大连6月22日电(记者邹伟)中共中央政治局常委、国务院总理李强6月22日在辽宁省大连市调研。他强调，要深入贯彻落实习近平总书记关于新时代东北全面振兴和建设现代化产业体系的重要指示精神，坚持智能化、绿色化、融合化方向，加强原创性、引领性科技攻关，强化产业基础再造，大力发展高端装备制造业，加快建设现代化产业体系，为高质量发展不断注入新动能。 李强首先来到大连船舶重工集团有限公
+新华社北京4月30日电(记者王聿昊)记者4月30日从中国民航局获悉，由中国民航局发布的强制性国家标准《民用无人驾驶航空器实名登记和激活要求》将于5月1日起正式实施，旨在将“实名登记激活”要求落到实处，构建覆盖全生命周期的可追溯管理体系，为公共安全、空域秩序及个人权益提供基础保障。适用范围方面，凡在室外从事飞行活动的民用无人驾驶航空器，无论其用途、来源或所有权状态，均必须遵循标准
 
 ## 正文
 
-新华社大连6月22日电(记者邹伟)中共中央政治局常委、国务院总理李强6月22日在辽宁省大连市调研。
+新华社北京4月30日电(记者王聿昊)记者4月30日从中国民航局获悉，由中国民航局发布的强制性国家标准《民用无人驾驶航空器实名登记和激活要求》将于5月1日起正式实施，旨在将“实名登记激活”要求落到实处，构建覆盖全生命周期的可追溯管理体系，为公共安全、空域秩序及个人权益提供基础保障。
 
-他强调，要深入贯彻落实习近平总书记关于新时代东北全面振兴和建设现代化产业体系的重要指示精神，坚持智能化、绿色化、融合化方向，加强原创性、引领性科技攻关，强化产业基础再造，大力发展高端装备制造业，加快建设现代化产业体系，为高质量发展不断注入新动能。
+适用范围方面，凡在室外从事飞行活动的民用无人驾驶航空器，无论其用途、来源或所有权状态，均必须遵循标准关于实名登记与激活的全部要求。
 
-李强首先来到大连船舶重工集团有限公司，听取企业规划布局、业务发展、数智化转型等介绍和大连市船舶工业发展汇报，登上在建船只，了解液化天然气运输船等船舶建造情况，对企业取得的技术突破予以肯定。
+标准平等适用于所有符合适用条件的民用无人驾驶航空器，不因其生产来源或获取方式不同而有所区别。
 
-他指出，高端船舶制造具有高技术、高难度、高附加值的特点，产业链条长、辐射带动效应大。
+标准确立了两种并行的实名登记与激活技术流程。
 
-要强化企业创新主体地位，支持整机和零部件企业、装备和用户企业开展协同攻关，加快关键技术研发突破，培养造就一批掌握精湛技艺、具有丰富经验的技术骨干和产业工人，进一步提升自主创新能力，通过经营理念创新和产品、服务迭代升级来创造市场、引领市场，不断巩固拓展船舶和海洋工程装备产业优势。
+方式一通过“生产者信息系统”中转，适合需要集中管控民用无人驾驶航空器的厂商；方式二则由“民用无人驾驶航空器系统”直接与实名登记系统交互，适用于自制民用无人驾驶航空器或具备直控能力的系统。
 
-大连造船业拥有悠久历史，在发展高端装备制造业方面有比较好的基础，要紧盯国际前沿，聚焦关键领域持续攻坚，加强行业内交流合作，着力打造先进制造业集群、建设世界一流造船基地。
+两种方式均要求所有者在飞行前完成实名登记，并通过系统交互验证后方可激活民用无人驾驶航空器使其获得飞行能力。
 
-在一重集团大连核电石化有限公司，李强详细了解核电、石化等装备研制情况，走进车间察看核反应堆压力容器加工制造，细致询问重大工程项目运行状况。
+为给予市场调整时间，标准设置了分步实施的过渡期。
 
-他强调，先进核电等高端装备对国家能源、产业、科技安全意义重大。
+对于新生产的民用无人驾驶航空器，自5月1日标准实施之日起必须满足要求；对于已售在用的存量民用无人驾驶航空器，则留有12个月的过渡期，自明年5月1日起执行，最终实现对所有在用民用无人驾驶航空器的全面规范管理。
 
 ## 相关推荐
 
-- 2026-06-30 03:55 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 03:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 04:21 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 04:17 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 04:07 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 04:22 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 04:05 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 04:07 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 04:00 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-30 04:10 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 03:54 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 04:17 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 04:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 04:09 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 04:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 04:18 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 04:09 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 04:04 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 04:14 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 04:05 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 04:29 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 04:27 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 04:02 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 04:02 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 04:23 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 04:29 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 04:26 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 04:01 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:23 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/556180074873.shtml)
-- 2026-06-30 04:07 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/86868960.shtml)
-- 2026-06-30 04:14 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/6913903601.shtml)
-- 2026-06-30 04:11 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/886189661.shtml)
-- 2026-06-30 04:02 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/889034864.shtml)
-- 2026-06-30 04:11 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/28767914408.shtml)
-- 2026-06-30 04:19 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/0652750.shtml)
-- 2026-06-30 04:05 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/36285.shtml)
-- 2026-06-30 04:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/86339231.shtml)
-- 2026-06-30 04:18 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/41599.shtml)
-- 2026-06-30 04:01 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/3586519.shtml)
-- 2026-06-30 04:04 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/9422977.shtml)
-- 2026-06-30 04:15 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/105443506.shtml)
-- 2026-06-30 04:01 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/55946.shtml)
-- 2026-06-30 03:57 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/3474276187.shtml)
+- 2026-06-30 04:09 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/75580230.shtml)
+- 2026-06-30 04:23 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/85704128988.shtml)
+- 2026-06-30 04:02 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/7565528416.shtml)
+- 2026-06-30 04:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/19536477937.shtml)
+- 2026-06-30 04:17 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/629949.shtml)
+- 2026-06-30 04:29 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/6112682063.shtml)
+- 2026-06-30 04:00 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/21745133.shtml)
+- 2026-06-30 04:14 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/033755664.shtml)
+- 2026-06-30 04:10 - [扬名立万](https://www.share.minike.top/Article/details/355979818.shtml)
+- 2026-06-30 04:07 - [日本反击率先破门](https://www.blog.minike.top/Article/details/974111283933.shtml)
+- 2026-06-30 04:16 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/5409863736.shtml)
+- 2026-06-30 04:10 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/74645191019.shtml)
+- 2026-06-30 04:15 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/1554325.shtml)
+- 2026-06-30 04:25 - [锐评T1零封KC](http://www.share.minike.top/Article/details/43534838.shtml)
+- 2026-06-30 04:26 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/22175913811.shtml)

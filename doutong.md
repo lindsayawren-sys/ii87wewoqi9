@@ -1,59 +1,57 @@
-# 高盛：三大因素或将引发东南亚粮食供应冲击
+# 中国人寿绩后涨超5% 第一季度新业务价值同比增长75.5%
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-核心要点 这家投行表示，受原油、化肥生产成本上涨，叠加 2026 年下半年可能出现厄尔尼诺现象影响，粮食价格或将走高。 多重因素叠加，未来 12 个月地区粮食通胀率或将在现有基础上再攀升 2.1 个百分点。 粮食净进口国新加坡、菲律宾将最先直面本轮价格冲击，整个东南亚地区各国都会受到成本上涨波及。 经济学家穆罕默德・法伊兹・纳古塔表示，相较于其他国家，印尼、菲律宾、越南等国居民
+中国人寿（02628）绩后涨超5%，截至发稿，股价上涨5.18%，现报28.82港元，成交额6.27亿港元。 中国人寿发布一季度业绩，营业收入为932.91亿元，同比减少15.3%；归属于母公司股东的净利润为195.05亿元，同比减少32.3%。 中金指出，公司一季度业绩好于预期，主要由于投资端表现好于预期；新业务价值（NBV）同比增长75.5%，大幅好于该行和市场预期；归母净
 
 ## 正文
 
-核心要点 这家投行表示，受原油、化肥生产成本上涨，叠加 2026 年下半年可能出现厄尔尼诺现象影响，粮食价格或将走高。
+中国人寿（02628）绩后涨超5%，截至发稿，股价上涨5.18%，现报28.82港元，成交额6.27亿港元。
 
-多重因素叠加，未来 12 个月地区粮食通胀率或将在现有基础上再攀升 2.1 个百分点。
+中国人寿发布一季度业绩，营业收入为932.91亿元，同比减少15.3%；归属于母公司股东的净利润为195.05亿元，同比减少32.3%。
 
-粮食净进口国新加坡、菲律宾将最先直面本轮价格冲击，整个东南亚地区各国都会受到成本上涨波及。
+中金指出，公司一季度业绩好于预期，主要由于投资端表现好于预期；新业务价值（NBV）同比增长75.5%，大幅好于该行和市场预期；归母净资产较年初+0.5%。
 
-经济学家穆罕默德・法伊兹・纳古塔表示，相较于其他国家，印尼、菲律宾、越南等国居民的食品支出在个人总消费中占比很高。
+该行指出，投资端承压拖累净利润，实际表现好于预期。
 
-据高盛发布的一份报告显示，东南亚或将遭遇粮食供应冲击：中东冲突推高原油与化肥价格，叠加 2026 年末大概率出现强厄尔尼诺天气事件的影响，食品价格将持续走高。
+受一季度资本市场波动及去年同期基数较高影响，第一季度国寿总投资收益率同比下降0.5ppt至2.21%，导致净利润同比承压，但公司实际投资表现好于我们和市场预期，支撑净利润水平好于预期。
 
-高盛称：“中东冲突引发的油价冲击已经体现在对燃料敏感的居民消费价格指数品类中，化肥涨价会抬升农业生产投入成本，这将迫使东南亚各国政府重新权衡粮食补贴与能源补贴之间的取舍。
-
-” 该投行补充道：“正当原油、化肥带来的成本压力沿着食品产业链传导之际，2026 年末若爆发强厄尔尼诺现象，或将再度引爆一轮粮食供应危机。
-
-” 在东南亚各国中，高盛认为新加坡与菲律宾作为粮食净进口国，将直接承受全球粮价波动带来的冲击。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:10 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 04:11 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 04:19 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 03:58 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 04:23 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 04:15 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 04:00 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 03:56 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 04:07 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 04:14 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 04:04 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 04:05 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 04:05 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 04:10 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 04:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 04:01 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 04:19 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 04:06 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 04:27 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 04:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 04:17 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 04:28 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 04:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-30 04:16 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 04:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-30 04:22 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 04:05 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 04:21 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:00 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/31653668.shtml)
-- 2026-06-30 04:21 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/4262684.shtml)
-- 2026-06-30 03:55 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/7277382471.shtml)
-- 2026-06-30 04:04 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/57209787.shtml)
-- 2026-06-30 03:56 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/98280081047.shtml)
-- 2026-06-30 04:05 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/36196023.shtml)
-- 2026-06-30 04:04 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/1649752626.shtml)
-- 2026-06-30 04:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/31734.shtml)
-- 2026-06-30 03:58 - [扬名立万](http://www.blog.minike.top/Article/details/14012770157.shtml)
-- 2026-06-30 04:13 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/71922024440.shtml)
-- 2026-06-30 04:15 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/33209.shtml)
-- 2026-06-30 04:19 - [送你一朵小红花](https://www.blog.minike.top/Article/details/810354176762.shtml)
-- 2026-06-30 04:18 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/599088.shtml)
-- 2026-06-30 04:18 - [周生如故](https://www.share.kurohicncr.top/Article/details/38395144.shtml)
-- 2026-06-30 04:07 - [美股](https://www.share.kurohicncr.top/Article/details/0083559.shtml)
+- 2026-06-30 04:25 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/48409.shtml)
+- 2026-06-30 04:04 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/744819537.shtml)
+- 2026-06-30 04:16 - [起风了](http://www.share.minike.top/Article/details/96912.shtml)
+- 2026-06-30 04:12 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/9332076851.shtml)
+- 2026-06-30 04:13 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/895690625310.shtml)
+- 2026-06-30 04:22 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/6408524.shtml)
+- 2026-06-30 04:24 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/537906517.shtml)
+- 2026-06-30 04:26 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/563566742898.shtml)
+- 2026-06-30 04:21 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/32975234084.shtml)
+- 2026-06-30 04:16 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/95402578.shtml)
+- 2026-06-30 04:29 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/9649335119.shtml)
+- 2026-06-30 04:25 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/108410.shtml)
+- 2026-06-30 04:12 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/26371895.shtml)
+- 2026-06-30 04:19 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/10987330.shtml)
+- 2026-06-30 04:23 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/9125103035.shtml)

@@ -1,52 +1,58 @@
-# 中国推动全链条扩大汽车消费
+# 算力芯片爆发，寒武纪20CM涨停！华宝基金“科创双雄”狂飙，589190、589520拉升超6%！港股芯片连续吸金
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-中新社北京6月23日电 (记者 尹倩芸)中国商务部等部门23日发布两项通知，开展汽车流通消费改革试点，培育壮大汽车后市场消费，加力推动全链条扩大汽车消费。 当日，商务部等8部门发布通知，公布了40个汽车流通消费改革试点城市。通知要求各试点城市要结合本地产业特色、市场特点、资源禀赋、区位条件、功能定位等实际情况，针对汽车流通消费不合理限制等堵点问题，完善改革创新举措，培育汽车消费
+从追“光”到抢“芯”！ 周四（4月30日），算力芯片产业链爆发，寒武纪、芯原股份20CM涨停，引爆科创双雄！全“芯”布局芯片产业的科创芯片ETF华宝（589190）收涨6.46%，刷新上市以来的历史高点！重点布局国产AI芯片的科创人工智能ETF华宝（589520）场内收涨6.12%！ 港股芯片逆势领涨港股市场，中芯国际领涨超7%，华虹半导体涨超4%，聚焦港股芯片硬科技的港股通信
 
 ## 正文
 
-中新社北京6月23日电 (记者 尹倩芸)中国商务部等部门23日发布两项通知，开展汽车流通消费改革试点，培育壮大汽车后市场消费，加力推动全链条扩大汽车消费。
+从追“光”到抢“芯”！
 
-当日，商务部等8部门发布通知，公布了40个汽车流通消费改革试点城市。
+周四（4月30日），算力芯片产业链爆发，寒武纪、芯原股份20CM涨停，引爆科创双雄！
 
-通知要求各试点城市要结合本地产业特色、市场特点、资源禀赋、区位条件、功能定位等实际情况，针对汽车流通消费不合理限制等堵点问题，完善改革创新举措，培育汽车消费新场景新业态新模式，带动商旅文体健融合发展。
+全“芯”布局芯片产业的科创芯片ETF华宝（589190）收涨6.46%，刷新上市以来的历史高点！
 
-此外，商务部等9部门发布关于培育壮大汽车后市场消费若干措施的通知。
+重点布局国产AI芯片的科创人工智能ETF华宝（589520）场内收涨6.12%！
 
-通知围绕规范有序发展汽车改装、支持发展房车露营产业、培育传统经典车新业态、优化汽车维修和保险服务供给、积极发展汽车赛事运动、推动汽车租赁创新融合发展等方面提出17条措施。
+港股芯片逆势领涨港股市场，中芯国际领涨超7%，华虹半导体涨超4%，聚焦港股芯片硬科技的港股通信息技术ETF华宝（159131）持续吸引资金布局，单日再获净申购4900万份，至此已连续5日获资金净流入，此前四日资金累计爆买超1亿元。
 
-(完)
+光模块CPO方向则窄幅震荡，重仓光模块龙头的创业板人工智能ETF华宝（159363）场内微跌0.24%，资金继续净申购4800万份，此前五累计加仓超7亿元。
+
+据财联社报道，2026年四大海外云巨头资本支出预期合计有望突破7000亿美元，大幅超预期。
+
+光模块等海外算力链有望持续受益，高“光”创业板人工智能仍具备长期配置价值。
 
 ## 相关推荐
 
-- 2026-06-30 04:00 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 04:04 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 04:16 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 04:13 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 04:13 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 04:12 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 03:57 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 04:04 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 04:18 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 04:10 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 04:03 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 04:18 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 04:20 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 04:22 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 04:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 04:04 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 04:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 04:05 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 04:11 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 04:14 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 04:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 04:22 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:17 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/860337760.shtml)
-- 2026-06-30 04:13 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/8986395.shtml)
-- 2026-06-30 04:08 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/3836675.shtml)
-- 2026-06-30 04:15 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/181439713695.shtml)
-- 2026-06-30 04:01 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/6838127783.shtml)
-- 2026-06-30 04:06 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/8047280403.shtml)
-- 2026-06-30 04:12 - [明星大侦探第一季](http://www.share.minike.top/Article/details/27442633.shtml)
-- 2026-06-30 04:04 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/98686401.shtml)
-- 2026-06-30 04:13 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/974201260665.shtml)
-- 2026-06-30 04:11 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/295363.shtml)
-- 2026-06-30 04:03 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/08551770945.shtml)
-- 2026-06-30 04:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/51856268.shtml)
-- 2026-06-30 04:01 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/941500.shtml)
-- 2026-06-30 04:01 - [张凌赫 客串](http://www.share.minike.top/Article/details/938225511.shtml)
-- 2026-06-30 04:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/437760496.shtml)
+- 2026-06-30 04:03 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/883672138.shtml)
+- 2026-06-30 04:03 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/47312014954.shtml)
+- 2026-06-30 04:10 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/643307056.shtml)
+- 2026-06-30 04:15 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/10740753138.shtml)
+- 2026-06-30 04:10 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/25304868718.shtml)
+- 2026-06-30 04:00 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/29082288963.shtml)
+- 2026-06-30 04:27 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/286917208108.shtml)
+- 2026-06-30 04:05 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/74884584.shtml)
+- 2026-06-30 04:28 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/0001116.shtml)
+- 2026-06-30 04:14 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/754088505580.shtml)
+- 2026-06-30 04:28 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/119345969726.shtml)
+- 2026-06-30 04:18 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/7555228.shtml)
+- 2026-06-30 04:03 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/909270633973.shtml)
+- 2026-06-30 04:27 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/800931485.shtml)
+- 2026-06-30 04:13 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/920667263561.shtml)

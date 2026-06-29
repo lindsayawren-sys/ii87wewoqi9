@@ -1,59 +1,60 @@
-# 黄金突然崩了！金价暴跌81美元 美联储加息预期飙升吓坏多头
+# 不降息！美联储，罕见重大分歧！
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-文章来源：24K99 周二（6月23日），现货黄金价格在一度逼近4200美元/盎司后突然大幅下挫，金价盘中一度跌破4100美元/盎司关口。美联储加息预期升温，推动美元触及一年高点，掩盖了美伊和谈进展带来的利好支撑。 现货黄金价格周二收盘暴跌81.42美元，跌幅1.94%，报4110.02美元/盎司。 FXStreet分析师Christian Borjon Valencia指出，
+专题：A股风格切换一触即发？5月机构紧盯三大景气主线 美联储维持利率不变，但内部分歧创1992年以来最高水平。 当地时间4月29日，美股三大指数收盘涨跌不一。截至收盘，道指跌280.12点，跌幅为0.57%，报48861.81点；纳指涨9.44点，涨幅为0.04%，报24673.24点；标普500指数跌2.85点，跌幅为0.04%，报7135.95点。 当天，美国联邦储备委员会
 
 ## 正文
 
-文章来源：24K99 周二（6月23日），现货黄金价格在一度逼近4200美元/盎司后突然大幅下挫，金价盘中一度跌破4100美元/盎司关口。
+专题：A股风格切换一触即发？
 
-美联储加息预期升温，推动美元触及一年高点，掩盖了美伊和谈进展带来的利好支撑。
+5月机构紧盯三大景气主线 美联储维持利率不变，但内部分歧创1992年以来最高水平。
 
-现货黄金价格周二收盘暴跌81.42美元，跌幅1.94%，报4110.02美元/盎司。
+当地时间4月29日，美股三大指数收盘涨跌不一。
 
-FXStreet分析师Christian Borjon Valencia指出，受美元走强（主要受美联储鹰派政策以及避险情绪推动）的影响，黄金价格周二暴跌，抹去周一的涨幅。
+截至收盘，道指跌280.12点，跌幅为0.57%，报48861.81点；纳指涨9.44点，涨幅为0.04%，报24673.24点；标普500指数跌2.85点，跌幅为0.04%，报7135.95点。
 
-金价周二盘中最高触及4198美元/盎司。
+当天，美国联邦储备委员会宣布不降息，继续将联邦基金利率目标区间维持在3.5%至3.75%之间不变。
 
-周二，追踪美元兑六种主要货币表现的美元指数（DXY）上涨0.40%，至101.39，创下年内新高。
+这一今年连续第三次维持利率不变的决定符合市场普遍预期。
 
-StoneX高级市场策略师Bob Haberkorn说：“目前黄金和白银市场并未真正关注中东局势。
+不过，围绕当天发布的政策声明，美联储负责制定货币政策的核心决策机构——联邦公开市场委员会却出现了自1992年以来最严重的分歧。
 
-我认为它们更关注的是美联储上周的表态。
+美联储今年连续第三次宣布维持利率不变 美联储周三决定维持基准利率在3.50%—3.75%区间不变，这是美联储今年连续第三次宣布维持利率不变。
 
 ## 相关推荐
 
-- 2026-06-30 04:11 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 04:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 04:15 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 04:15 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 03:55 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 03:54 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 04:12 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 03:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 04:13 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 04:21 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 04:21 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 03:58 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 03:56 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 04:08 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 04:27 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 04:00 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-30 04:24 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 04:05 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 04:23 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 04:05 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 04:23 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 04:16 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 04:01 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 04:14 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 04:00 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 04:13 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 04:27 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:08 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/0544341640.shtml)
-- 2026-06-30 04:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/64783283.shtml)
-- 2026-06-30 04:18 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/411492.shtml)
-- 2026-06-30 03:56 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/655825.shtml)
-- 2026-06-30 04:15 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/402168115052.shtml)
-- 2026-06-30 04:06 - [张凌赫 客串](https://www.share.minike.top/Article/details/1586528.shtml)
-- 2026-06-30 03:58 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/980590104716.shtml)
-- 2026-06-30 04:06 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/480491246.shtml)
-- 2026-06-30 03:58 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/01277.shtml)
-- 2026-06-30 04:09 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/893107677.shtml)
-- 2026-06-30 04:09 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/01169.shtml)
-- 2026-06-30 04:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/081815.shtml)
-- 2026-06-30 03:55 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/22234.shtml)
-- 2026-06-30 03:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/404824.shtml)
-- 2026-06-30 04:11 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/1397517.shtml)
+- 2026-06-30 04:08 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/24676730.shtml)
+- 2026-06-30 04:28 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/192794310.shtml)
+- 2026-06-30 04:29 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/04636153792.shtml)
+- 2026-06-30 04:20 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/180035065159.shtml)
+- 2026-06-30 04:24 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/707626912.shtml)
+- 2026-06-30 04:06 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/3619879442.shtml)
+- 2026-06-30 04:25 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/95701886.shtml)
+- 2026-06-30 04:03 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/66164016.shtml)
+- 2026-06-30 04:13 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/9558385481.shtml)
+- 2026-06-30 04:16 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/37638871.shtml)
+- 2026-06-30 04:07 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/80339888.shtml)
+- 2026-06-30 04:23 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/25237604165.shtml)
+- 2026-06-30 04:15 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/569112623267.shtml)
+- 2026-06-30 04:18 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/998019082.shtml)
+- 2026-06-30 04:10 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/930219.shtml)

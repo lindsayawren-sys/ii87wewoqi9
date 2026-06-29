@@ -1,57 +1,54 @@
-# “靠谱老王”已无人办公？实地探访：门紧闭，灯亮着，不见人，只留一地Babycare
+# 中央党校（国家行政学院）举行2026年春季学期第一批进修班毕业典礼 陈希出席并为学员颁发毕业证书
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-文 | 《BUG》栏目 徐苑蕾 纸尿裤“甲酰胺”争议经过多次反转，正陷入“罗生门”的境地。6月22日，市场监管总局发文，牵头成立联合调查组，核查“婴幼儿纸尿裤甲酰胺问题”。 这场风波的起点，是《经济参考报》刊发的一则报道称，一些婴幼儿在使用了部分品牌的纸尿裤后，反复出现红臀乃至皮肤破溃等现象，停用后症状明显缓解。该报道称，抽样检测结果显示，多个品牌产品检出毒性物质甲酰胺。 报道
+新华社北京4月30日电 中共中央党校(国家行政学院)30日举行2026年春季学期第一批进修班毕业典礼。中央党校(国家行政学院)校长(院长)陈希出席毕业典礼，并为学员颁发毕业证书。 中央党校(国家行政学院)本期毕业学员370人。毕业典礼上，4位学员代表发言。大家一致认为，此次学习适逢“十五五”开局起步的关键节点，深感意义特殊、学有所获。通过深学细悟习近平新时代中国特色社会主义思想
 
 ## 正文
 
-文 | 《BUG》栏目 徐苑蕾 纸尿裤“甲酰胺”争议经过多次反转，正陷入“罗生门”的境地。
+新华社北京4月30日电 中共中央党校(国家行政学院)30日举行2026年春季学期第一批进修班毕业典礼。
 
-6月22日，市场监管总局发文，牵头成立联合调查组，核查“婴幼儿纸尿裤甲酰胺问题”。
+中央党校(国家行政学院)校长(院长)陈希出席毕业典礼，并为学员颁发毕业证书。
 
-这场风波的起点，是《经济参考报》刊发的一则报道称，一些婴幼儿在使用了部分品牌的纸尿裤后，反复出现红臀乃至皮肤破溃等现象，停用后症状明显缓解。
+中央党校(国家行政学院)本期毕业学员370人。
 
-该报道称，抽样检测结果显示，多个品牌产品检出毒性物质甲酰胺。
+毕业典礼上，4位学员代表发言。
 
-报道发出后，一名叫“靠谱老王”（本名王东鉴）的博主被指牵涉其中。
+大家一致认为，此次学习适逢“十五五”开局起步的关键节点，深感意义特殊、学有所获。
 
-有传言称，报道中涉及的检测过程与“靠谱老王”所售卖的设备相关，其检测方法和动机遭到广泛质疑。
+通过深学细悟习近平新时代中国特色社会主义思想，集中学习领会党的二十届四中全会精神，认真参加树立和践行正确政绩观学习教育，接受系统的理论教育、党性教育和履职能力培训，进一步筑牢政治忠诚、提高理论素养、锤炼党性修养、强化担当本领。
 
-“靠谱老王”到底是谁？
-
-舆论之下，它的公司还在正常运作吗？
+大家表示，在新征程上，要坚持不懈用习近平新时代中国特色社会主义思想凝心铸魂，自觉运用党的创新理论把握大势、明辨方向、掌握方法，切实把学习成果转化为推动高质量发展的实际行动，带头树牢正确政绩观，坚持为人民出政绩、以实干出政绩，奋力开创中国式现代化建设新局面。
 
 ## 相关推荐
 
-- 2026-06-30 04:15 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-30 04:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 04:09 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 03:55 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 04:15 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 04:22 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 04:03 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-30 04:02 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 04:10 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-30 04:20 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 03:57 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 04:14 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 04:29 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 04:06 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 04:25 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 04:26 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-30 04:19 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 04:28 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-30 04:13 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 04:20 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 04:17 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:21 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/0504835.shtml)
-- 2026-06-30 04:07 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/022368018224.shtml)
-- 2026-06-30 04:22 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/15575716.shtml)
-- 2026-06-30 04:01 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/977349617.shtml)
-- 2026-06-30 04:11 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/847760.shtml)
-- 2026-06-30 04:20 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/570520227705.shtml)
-- 2026-06-30 04:21 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/795385023516.shtml)
-- 2026-06-30 04:10 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/839216559.shtml)
-- 2026-06-30 04:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/91830848117.shtml)
-- 2026-06-30 04:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/524133181.shtml)
-- 2026-06-30 04:21 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/316527.shtml)
-- 2026-06-30 04:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/413499689.shtml)
-- 2026-06-30 04:12 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/727897925.shtml)
-- 2026-06-30 03:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/753173.shtml)
-- 2026-06-30 04:22 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/49544055895.shtml)
+- 2026-06-30 04:09 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/011493914665.shtml)
+- 2026-06-30 04:29 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/586722152.shtml)
+- 2026-06-30 04:19 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/14421355.shtml)
+- 2026-06-30 04:02 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/3713507400.shtml)
+- 2026-06-30 04:11 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/4381714909.shtml)
+- 2026-06-30 04:21 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/78711.shtml)
+- 2026-06-30 04:25 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/7192331473.shtml)
+- 2026-06-30 04:08 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/4510328247.shtml)
+- 2026-06-30 04:15 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/35917396616.shtml)
+- 2026-06-30 04:06 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/73007.shtml)
+- 2026-06-30 04:09 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/2254196.shtml)
+- 2026-06-30 04:17 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/774974667771.shtml)
+- 2026-06-30 04:11 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/102886178.shtml)
+- 2026-06-30 04:19 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/081007779091.shtml)
+- 2026-06-30 04:08 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/2578168.shtml)

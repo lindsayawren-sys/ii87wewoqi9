@@ -1,58 +1,60 @@
-# 解码广州海珠湿地如何成为“飞羽天堂”
+# 2026粤语经典歌曲大赛在广州塔下启动
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-中新网广州6月22日电 题：解码广州海珠湿地如何成为“飞羽天堂” 中新网记者 王坚 随着赤颈鸭、棕尾褐鹟接连“报到”，“消失”四十余年的红领绿鹦鹉回归，位于广州城市中央的“城市绿心”——海珠湿地鸟类记录目前已刷新至207种。在中国南部人口最稠密、经济社会活动最活跃的地区，广州的这颗“城市绿心”，为何能让各类物种“争相落地”？记者近日前往海珠湿地一探究竟。 对于鸟类而言，海珠湿地
+中新网广州5月1日电 (记者 程景伟)4月30日晚，广州塔下灯火辉煌，珠江两岸流光溢彩。随着广州塔亮起“粤语经典歌曲大赛正式启动”的字样，2026粤语经典歌曲大赛正式拉开帷幕。 启动仪式上，“你的粤语歌，我的故事”主题音乐会将现场气氛推向高潮。来自粤港澳大湾区的高校学子与实力歌手同台献艺，深情演绎《光辉岁月》《上海滩》《红日》等脍炙人口的经典曲目。熟悉的旋律在夜空中回荡，不仅唤
 
 ## 正文
 
-中新网广州6月22日电 题：解码广州海珠湿地如何成为“飞羽天堂” 中新网记者 王坚 随着赤颈鸭、棕尾褐鹟接连“报到”，“消失”四十余年的红领绿鹦鹉回归，位于广州城市中央的“城市绿心”——海珠湿地鸟类记录目前已刷新至207种。
+中新网广州5月1日电 (记者 程景伟)4月30日晚，广州塔下灯火辉煌，珠江两岸流光溢彩。
 
-在中国南部人口最稠密、经济社会活动最活跃的地区，广州的这颗“城市绿心”，为何能让各类物种“争相落地”？
+随着广州塔亮起“粤语经典歌曲大赛正式启动”的字样，2026粤语经典歌曲大赛正式拉开帷幕。
 
-记者近日前往海珠湿地一探究竟。
+启动仪式上，“你的粤语歌，我的故事”主题音乐会将现场气氛推向高潮。
 
-对于鸟类而言，海珠湿地就像一座五星级综合度假村。
+来自粤港澳大湾区的高校学子与实力歌手同台献艺，深情演绎《光辉岁月》《上海滩》《红日》等脍炙人口的经典曲目。
 
-不仅有品类超丰富的自助餐服务——延续岭南垛基果林传统，补充54种本土果树，将单一林改造为四季百果林，全年提供果实食源；改造增益水稻田，将耕道改为水生动物鱼道，联通河网、潮汐供肥，鱼虾蟹蛙繁茂生长。
+熟悉的旋律在夜空中回荡，不仅唤醒现场观众的集体记忆，也展现粤语流行音乐跨越时代的艺术魅力。
 
-还有堪比度假别墅的住宿条件——广州海珠区坚持自然恢复为主、自然恢复与人工修复相结合，湿地率从54.8%大幅提升至79.4%。
+本次大赛作为2026年广东十大群众赛事之一，由广东省委教育工作领导小组、广东全民终身学习平台主办，广东省文化和旅游厅、东莞市人民政府牵头组织。
 
-改造了4座专属鸟岛，加密筑巢林、拓展浅滩、布置枯木与浮排，新增栖息面积2.3万平方米，搭建49个人工浮排，随水位浮动，为涉禽营造“水上浅滩”，为鸟类打造绝佳的“安居房”。
+大赛秉持“全民参与、人人受益”的理念，打破年龄与专业的界限，向全球粤语音乐爱好者开放；创新设立“经典传唱”与“原创作品”两条赛道，既致敬经典底蕴，又鼓励原创活力。
 
-记者了解到，近年来，广州市生态环境局海珠分局常态化开展大气、水、土壤、噪声等各领域精准管控，与海珠区人民法院签署《涉生态环境纠纷联动联调机制共建协议》，用“信息共享、制度共建、资源共用、纠纷共调”的联动联调工作机制打击污染环境、破坏湿地、猎捕野生动物等违法犯罪行为，为海珠湿地稳定、健康的生态系统筑牢了法治根基。
+赛事进程分海选、晋级赛和决赛三个阶段，晋级赛将于6月至7月在四个城市陆续举办，决赛暨颁奖活动将于8月在东莞市举行，届时将评选出两大赛道的金、银、铜奖，以及最佳原创作品奖、最佳唱功奖、最具人气奖等多个奖项。
 
 ## 相关推荐
 
-- 2026-06-30 04:01 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 04:14 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 04:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 04:13 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 04:14 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 04:20 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 04:22 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 04:21 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 03:55 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 04:14 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 04:06 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 04:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 04:06 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 04:27 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 04:00 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 04:29 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 04:04 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 04:17 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 04:19 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 04:20 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 04:28 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 04:01 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 04:20 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 04:23 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 04:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 04:13 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:20 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/999136.shtml)
-- 2026-06-30 04:11 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/6423366937.shtml)
-- 2026-06-30 04:21 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/15508.shtml)
-- 2026-06-30 04:03 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/7674513432.shtml)
-- 2026-06-30 04:10 - [日本进球](http://www.share.kurohicncr.top/Article/details/828537491.shtml)
-- 2026-06-30 04:19 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/42917223.shtml)
-- 2026-06-30 04:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/841907125.shtml)
-- 2026-06-30 04:14 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/608062227.shtml)
-- 2026-06-30 04:17 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/32836453.shtml)
-- 2026-06-30 03:57 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/76972723.shtml)
-- 2026-06-30 04:07 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/6703401.shtml)
-- 2026-06-30 04:19 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/61078920961.shtml)
-- 2026-06-30 04:09 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/70258959045.shtml)
-- 2026-06-30 04:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/39994474.shtml)
-- 2026-06-30 04:08 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/8947290524.shtml)
+- 2026-06-30 04:20 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/49472994683.shtml)
+- 2026-06-30 04:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/94033640386.shtml)
+- 2026-06-30 04:03 - [沙丘](https://www.blog.kurohicncr.top/Article/details/6731914.shtml)
+- 2026-06-30 04:10 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/00380237.shtml)
+- 2026-06-30 04:18 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/845936.shtml)
+- 2026-06-30 04:22 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/575511281.shtml)
+- 2026-06-30 04:26 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/09884.shtml)
+- 2026-06-30 04:09 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/8408043.shtml)
+- 2026-06-30 04:07 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/27924.shtml)
+- 2026-06-30 04:05 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/54841.shtml)
+- 2026-06-30 04:12 - [巴西绝杀日本](http://www.share.minike.top/Article/details/27199138586.shtml)
+- 2026-06-30 04:28 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/25542149304.shtml)
+- 2026-06-30 04:29 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/40625.shtml)
+- 2026-06-30 04:23 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/660599897422.shtml)
+- 2026-06-30 04:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/25173991.shtml)

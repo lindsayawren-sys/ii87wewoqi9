@@ -1,56 +1,54 @@
-# SpaceX收盘上涨近1%，终结三连跌
+# 比利时副首相“点赞”中国机器人
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-SpaceX股价周二收盘上涨近1%，终结了此前连续三天的下跌走势，期间该股累计跌幅近24%。 开盘后不久，股价一度跌破150美元——这是该股近两周前上市首笔交易的价格。早盘的下跌还使其市值一度跌破2万亿美元。 SpaceX周一市值蒸发4000亿美元，暴跌16%，此前两个交易日已分别下跌3.6%和5%。 SpaceX在6月12日创纪录的IPO后曾大幅上涨，市值一度短暂超越亚马逊和
+发布时间：2026年04月30日 16:14 来源：中国新闻网 4月29日，比利时副首相兼外交大臣普雷沃一行访问浙江。当日，在参观“杭州六小龙”之一的杭州云深处科技股份有限公司时，他多次露出笑容，并与机器人互动，表达赞赏之意。 今年是中比建交55周年。多年来，中比两国在贸易投资、航运物流等方面密切合作，成效显著。随团访问的比利时官员表示，希望可以一直和中国携手合作、共谋发展。
 
 ## 正文
 
-SpaceX股价周二收盘上涨近1%，终结了此前连续三天的下跌走势，期间该股累计跌幅近24%。
+发布时间：2026年04月30日 16:14 来源：中国新闻网 4月29日，比利时副首相兼外交大臣普雷沃一行访问浙江。
 
-开盘后不久，股价一度跌破150美元——这是该股近两周前上市首笔交易的价格。
+当日，在参观“杭州六小龙”之一的杭州云深处科技股份有限公司时，他多次露出笑容，并与机器人互动，表达赞赏之意。
 
-早盘的下跌还使其市值一度跌破2万亿美元。
+今年是中比建交55周年。
 
-SpaceX周一市值蒸发4000亿美元，暴跌16%，此前两个交易日已分别下跌3.6%和5%。
+多年来，中比两国在贸易投资、航运物流等方面密切合作，成效显著。
 
-SpaceX在6月12日创纪录的IPO后曾大幅上涨，市值一度短暂超越亚马逊和微软，但随着市场情绪降温，又回落至两者之下。
+随团访问的比利时官员表示，希望可以一直和中国携手合作、共谋发展。
 
-该公司周一宣布发行优先无担保票据，并披露截至6月19日持有现金及现金等价物1008亿美元。
-
-同一天，SpaceX还透露已与开源AI初创公司Reflection签署了一项重大计算能力协议，为该公司提供马斯克“Colossus”基础设施的访问权限。
-
-SpaceX股价在轰动性上市后飙升，较发行价上涨超过50%，投资者争相买入马斯克对公司宏伟愿景的押注。
+吴君毅 浙江杭州报道 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-30 04:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 04:05 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 04:10 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 03:59 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 04:01 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 04:05 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 04:14 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 04:10 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 04:01 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-30 04:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 04:14 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 04:18 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 04:19 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 04:09 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 04:29 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 04:08 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 04:03 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 04:08 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-30 04:26 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 04:03 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 04:11 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 04:22 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:21 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/200651210355.shtml)
-- 2026-06-30 03:56 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/857294.shtml)
-- 2026-06-30 04:01 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/60224.shtml)
-- 2026-06-30 04:16 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/8316764309.shtml)
-- 2026-06-30 04:21 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/540127044952.shtml)
-- 2026-06-30 04:22 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/292977794356.shtml)
-- 2026-06-30 04:10 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/729709443774.shtml)
-- 2026-06-30 04:02 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/8736286736.shtml)
-- 2026-06-30 04:10 - [送你一朵小红花](https://www.share.minike.top/Article/details/904142193939.shtml)
-- 2026-06-30 04:13 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/03780911.shtml)
-- 2026-06-30 04:06 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/93561.shtml)
-- 2026-06-30 04:09 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/74215399.shtml)
-- 2026-06-30 04:00 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/69400883542.shtml)
-- 2026-06-30 04:23 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/61962829143.shtml)
-- 2026-06-30 04:23 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/764264116.shtml)
+- 2026-06-30 04:24 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/1411721330.shtml)
+- 2026-06-30 04:04 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/42510958207.shtml)
+- 2026-06-30 04:07 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/38559357624.shtml)
+- 2026-06-30 04:29 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/95974163.shtml)
+- 2026-06-30 04:26 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/55770.shtml)
+- 2026-06-30 04:29 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/687194499.shtml)
+- 2026-06-30 04:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/6032092068.shtml)
+- 2026-06-30 04:29 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/48536.shtml)
+- 2026-06-30 04:05 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/560947759916.shtml)
+- 2026-06-30 04:09 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/418937563.shtml)
+- 2026-06-30 04:17 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/664501.shtml)
+- 2026-06-30 04:02 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/2089790665.shtml)
+- 2026-06-30 04:28 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/895916877116.shtml)
+- 2026-06-30 04:05 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/9855846277.shtml)
+- 2026-06-30 04:06 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/30278.shtml)

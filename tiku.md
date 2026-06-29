@@ -1,57 +1,59 @@
-# 货拉拉被约谈，同城货运变天了？
+# 新兴市场股市录得2022年以来最佳单月表现 AI热潮与油价风险交织
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：投资者网-思维财经 【IPO观察 】速览新股招股书、拆解融资故事，关注监管动态，用大白话帮你划重点。 ‘合规重于规模。’ 近日，市场监管总局公开约谈货拉拉，依据《反垄断法》要求其停止利用算法不合理压低货运价格、利用平台规则实施强制独家车贴等行为，全面开展自查整改。监管要求货拉拉将平台抽成比例从现行约1
+新兴市场股市录得自2022年以来最佳单月表现，得益于亚洲科技股因人工智能需求前景乐观而大涨，尽管美伊围绕霍尔木兹海峡对峙之际，石油供应冲击仍在持续。 MSCI新兴市场指数4月上涨14.5%，收复战争爆发后出现的跌幅。 本轮上涨“似乎不仅仅是空头回补推动的反弹，”Global X Management高级投资组合经理Malcolm Dorson表示，“我们仍认为存在进一步上行空间
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新兴市场股市录得自2022年以来最佳单月表现，得益于亚洲科技股因人工智能需求前景乐观而大涨，尽管美伊围绕霍尔木兹海峡对峙之际，石油供应冲击仍在持续。
 
-来源：投资者网-思维财经 【IPO观察 】速览新股招股书、拆解融资故事，关注监管动态，用大白话帮你划重点。
+MSCI新兴市场指数4月上涨14.5%，收复战争爆发后出现的跌幅。
 
-‘合规重于规模。
+本轮上涨“似乎不仅仅是空头回补推动的反弹，”Global X Management高级投资组合经理Malcolm Dorson表示，“我们仍认为存在进一步上行空间”。
 
-’ 近日，市场监管总局公开约谈货拉拉，依据《反垄断法》要求其停止利用算法不合理压低货运价格、利用平台规则实施强制独家车贴等行为，全面开展自查整改。
+尽管经历反弹，新兴市场股票估值相较美国市场便宜，此前分析师今年将新兴市场企业盈利预期上调30%，这一上调幅度远高于标普500指数平均约10%的上调。
 
-监管要求货拉拉将平台抽成比例从现行约11%下调至约9%区间，向受不合理规则影响的司机返还资金总额达1.2亿元，涉及订单追溯期最长可达三年。
+周四风险情绪表现分化，新兴市场股票下跌1.1%，而多数货币兑美元走强。
 
-对于多次冲击港交所上市未果的货拉拉而言，这不仅是一次监管的敲打，更是对其商业模式的一次深度拷问。
+尽管原油价格自四年高点回落，但仍维持在每桶110美元以上，市场仍担心伊朗冲突可能升级。
 
-01 狂奔的货拉拉，与港交所门前的徘徊 回顾货拉拉的发展历程，是一部典型的互联网平台“烧钱换规模”的扩张史。
-
-自2013年成立以来，货拉拉凭借O2O模式切入同城货运，在红杉、高瓴等一线机构的资本催化下，迅速跑马圈地。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 04:19 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-30 04:18 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 04:21 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 04:19 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-30 04:14 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 04:02 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 04:10 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 04:03 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 03:59 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 03:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 04:00 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 04:11 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 04:05 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 04:26 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-30 04:06 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 04:00 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 04:19 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-30 04:24 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 04:21 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 04:28 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 04:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 04:10 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 04:19 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 04:02 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 04:07 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 04:00 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:09 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/09379904.shtml)
-- 2026-06-30 03:56 - [送你一朵小红花](https://www.blog.minike.top/Article/details/7761173.shtml)
-- 2026-06-30 04:08 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/826691.shtml)
-- 2026-06-30 03:57 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/8599135.shtml)
-- 2026-06-30 04:21 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/42881.shtml)
-- 2026-06-30 04:11 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/69270.shtml)
-- 2026-06-30 04:13 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/0511654757.shtml)
-- 2026-06-30 03:57 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/441676.shtml)
-- 2026-06-30 04:04 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/619119.shtml)
-- 2026-06-30 04:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/34628.shtml)
-- 2026-06-30 04:18 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/151781365.shtml)
-- 2026-06-30 04:18 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/5220657902.shtml)
-- 2026-06-30 03:59 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/64937448.shtml)
-- 2026-06-30 04:15 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/335661062185.shtml)
-- 2026-06-30 04:18 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/196018471063.shtml)
+- 2026-06-30 04:27 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/0397030919.shtml)
+- 2026-06-30 04:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/7731725343.shtml)
+- 2026-06-30 04:02 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/12831785842.shtml)
+- 2026-06-30 04:14 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/511315022.shtml)
+- 2026-06-30 04:24 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/42596.shtml)
+- 2026-06-30 04:23 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/3413093.shtml)
+- 2026-06-30 04:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/8980440.shtml)
+- 2026-06-30 04:02 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/70608762.shtml)
+- 2026-06-30 04:09 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/0401704633.shtml)
+- 2026-06-30 04:17 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/078387007292.shtml)
+- 2026-06-30 04:00 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/48797700315.shtml)
+- 2026-06-30 04:13 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/69633745745.shtml)
+- 2026-06-30 04:05 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/2838250.shtml)
+- 2026-06-30 04:17 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/7570002849.shtml)
+- 2026-06-30 04:09 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/825997225.shtml)

@@ -1,57 +1,45 @@
-# 赫力昂首次参展链博会，中国副总裁傅悦：与更多合作伙伴携手推动产业链协同创新
+# 博纳影业：一季度归母净亏损4426.98万元
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-专题：第四届中国国际供应链促进博览会（链博会） 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新浪科技讯 6月23日下午消息，近日，全球消费健康公司赫力昂首次亮相第四届链博会“健康生活链”展区，与中国英国商会联合参展。这是赫力昂首次参加链博会，现场展示了多款核心产品。 赫力昂中国副总裁、企业事务部负责人傅悦表示：“链博会是促进产业链供应链交流合作的重要
+博纳影业4月29日公告，2026年第一季度实现营业收入2.77亿元，同比下降47.20%；归属于上市公司股东的净利润亏损4426.98万元，上年同期净亏损9.55亿元；基本每股收益-0.03元。
 
 ## 正文
 
-专题：第四届中国国际供应链促进博览会（链博会） 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-新浪科技讯 6月23日下午消息，近日，全球消费健康公司赫力昂首次亮相第四届链博会“健康生活链”展区，与中国英国商会联合参展。
-
-这是赫力昂首次参加链博会，现场展示了多款核心产品。
-
-赫力昂中国副总裁、企业事务部负责人傅悦表示：“链博会是促进产业链供应链交流合作的重要平台，不仅展示创新成果，更推动产业链上下游、产学研各界的深度链接与协同发展。
-
-作为首次参展企业，我们希望以开放的心态向各方伙伴学习交流，深入了解中国健康产业链创新发展的最新实践，并分享赫力昂在绿色制造、本土创新和健康生态共建等方面的经验。
-
-未来，我们期待与更多合作伙伴携手，推动产业链协同创新，让科学健康更加可及可得，共同助力‘健康中国2030’建设。
-
-” 赫力昂深耕营养健康、口腔健康、疼痛管理、呼吸健康及皮肤健康等领域，旗下拥有善存、钙尔奇、舒适达、益周适、芬必得、扶他林、新康泰克、百多邦和辅舒良等品牌。
-
-基于对中国市场中长期潜力的信心，赫力昂加码在华投入。
+博纳影业4月29日公告，2026年第一季度实现营业收入2.77亿元，同比下降47.20%；归属于上市公司股东的净利润亏损4426.98万元，上年同期净亏损9.55亿元；基本每股收益-0.03元。
 
 ## 相关推荐
 
-- 2026-06-30 04:07 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 04:04 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 04:04 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-30 04:03 - [巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 03:54 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 03:59 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 03:55 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 04:00 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 04:17 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 04:23 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 04:08 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 04:22 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 04:19 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 04:01 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 04:03 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 04:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 04:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 04:11 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 04:26 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 04:02 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 04:24 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 04:29 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 04:15 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 04:04 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:23 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/61096052620.shtml)
-- 2026-06-30 04:14 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/4742771.shtml)
-- 2026-06-30 04:13 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/633188827723.shtml)
-- 2026-06-30 04:14 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/09656688.shtml)
-- 2026-06-30 04:16 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/333665677.shtml)
-- 2026-06-30 04:14 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/0146596.shtml)
-- 2026-06-30 04:20 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/630888272.shtml)
-- 2026-06-30 04:10 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/4690687.shtml)
-- 2026-06-30 04:06 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/42484.shtml)
-- 2026-06-30 03:57 - [TOP Prada](http://www.share.minike.top/Article/details/75902172090.shtml)
-- 2026-06-30 04:15 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/43583232420.shtml)
-- 2026-06-30 04:01 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/3113248043.shtml)
-- 2026-06-30 03:55 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/097684637769.shtml)
-- 2026-06-30 04:03 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/487329913.shtml)
-- 2026-06-30 04:15 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/23228075789.shtml)
+- 2026-06-30 04:25 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/7359178.shtml)
+- 2026-06-30 04:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/29328012171.shtml)
+- 2026-06-30 04:13 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/17125.shtml)
+- 2026-06-30 04:11 - [月亮](https://www.blog.kurohicncr.top/Article/details/25131943.shtml)
+- 2026-06-30 04:07 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/43636182.shtml)
+- 2026-06-30 04:20 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/20913480641.shtml)
+- 2026-06-30 04:10 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/02769.shtml)
+- 2026-06-30 04:06 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/30187661.shtml)
+- 2026-06-30 04:23 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/906271.shtml)
+- 2026-06-30 04:07 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/01846392885.shtml)
+- 2026-06-30 04:07 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/7362833825.shtml)
+- 2026-06-30 04:01 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/420285387512.shtml)
+- 2026-06-30 04:20 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/4559224.shtml)
+- 2026-06-30 04:25 - [恋与深空 巧合](http://www.share.minike.top/Article/details/830210.shtml)
+- 2026-06-30 04:20 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/971836.shtml)

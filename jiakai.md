@@ -1,60 +1,59 @@
-# 618消费反思：花钱之前，先“瞄一眼”能帮你省多少冤枉钱
+# 机场再度陷入混乱的威胁迫在眉睫之际 众议院投票结束国土安全部停摆
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-618年中大促刚刚落下帷幕，相信不少人的购物车里已经清空了好几轮。从手机家电到日用品零食，各种优惠券、满减、补贴叠加下来，确实能省下不少钱。但大促过后，另一种声音也在社交媒体上多了起来：买回来的东西和宣传不符、赠品没兑现、价格“先涨后降”、退货退款被拒等 根据黑猫投诉 【下载黑猫投诉客户端】平台发布的《2025年“双十一”消费投诉数据报告》，双11期间电商平台投诉量高达18万余
+美国历史上持续时间最长的部分政府停摆即将结束。众议院周四通过了国土安全部大部分机构的拨款法案，距离运输安全管理局工作人员领不到工资进而可能使机场陷入混乱，只剩下几天时间。 参议院数周前已一致通过这项拨款方案，白宫也表示，美国总统特朗普将签署该法案。 这项法案将为国土安全部除移民与海关执法局和边境巡逻队之外的所有机构提供资金。共和党人计划在未来一项由党派推动的法案中处理增加移民执
 
 ## 正文
 
-618年中大促刚刚落下帷幕，相信不少人的购物车里已经清空了好几轮。
+美国历史上持续时间最长的部分政府停摆即将结束。
 
-从手机家电到日用品零食，各种优惠券、满减、补贴叠加下来，确实能省下不少钱。
+众议院周四通过了国土安全部大部分机构的拨款法案，距离运输安全管理局工作人员领不到工资进而可能使机场陷入混乱，只剩下几天时间。
 
-但大促过后，另一种声音也在社交媒体上多了起来：买回来的东西和宣传不符、赠品没兑现、价格“先涨后降”、退货退款被拒等 根据黑猫投诉 【下载黑猫投诉客户端】平台发布的《2025年“双十一”消费投诉数据报告》，双11期间电商平台投诉量高达18万余件，较上期增长超过22%。
+参议院数周前已一致通过这项拨款方案，白宫也表示，美国总统特朗普将签署该法案。
 
-今年618虽然平台纷纷强调不再主打“全网最低价”，但各种消费纠纷依然层出不穷。
+这项法案将为国土安全部除移民与海关执法局和边境巡逻队之外的所有机构提供资金。
 
-那么，作为普通消费者，怎样才能在眼花缭乱的促销中做出理性的消费决策，避开那些“看上去很美”的陷阱呢？
+共和党人计划在未来一项由党派推动的法案中处理增加移民执法资金的问题。
 
-大促常见的消费陷阱，你中了几个？
+民主党人表示，在执法策略不作出调整的情况下，他们不会支持特朗普打击移民的行动，这导致了始于2月14日的政府停摆。
 
-先涨后降，虚假优惠。
+在停摆初期，运输安全管理局员工因抗议领不到工资而请病假，促使特朗普在3月下旬下令，从其他资金中向机场安检人员发放薪酬。
 
-这是最经典的套路。
+白宫本周在一份备忘录中警告国会，这些资金正迅速耗尽，如果国会不采取行动，运输安全管理局安检人员和其他工作人员将在5月份拿不到工资。
 
 ## 相关推荐
 
-- 2026-06-30 04:08 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 04:12 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 04:20 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 04:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 04:17 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 04:07 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 04:20 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 04:05 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 04:01 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 04:07 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-30 03:56 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-30 04:19 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 04:13 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 04:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 04:04 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 04:06 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 04:10 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 04:16 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 04:02 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 04:05 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 04:15 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 04:04 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 04:16 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 04:26 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 04:01 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 04:11 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 04:08 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:21 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/35259489.shtml)
-- 2026-06-30 04:13 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/845520.shtml)
-- 2026-06-30 04:16 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/212160361029.shtml)
-- 2026-06-30 04:07 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/568127.shtml)
-- 2026-06-30 04:16 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/55005153244.shtml)
-- 2026-06-30 04:01 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/0295741460.shtml)
-- 2026-06-30 04:12 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/31897929.shtml)
-- 2026-06-30 04:20 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/1289555100.shtml)
-- 2026-06-30 04:06 - [周生如故](https://www.share.kurohicncr.top/Article/details/1894661.shtml)
-- 2026-06-30 03:54 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/725098974.shtml)
-- 2026-06-30 04:11 - [急先锋](http://www.share.minike.top/Article/details/7818627112.shtml)
-- 2026-06-30 04:02 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/395301.shtml)
-- 2026-06-30 03:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/745955.shtml)
-- 2026-06-30 04:10 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/61364.shtml)
-- 2026-06-30 04:18 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/905472.shtml)
+- 2026-06-30 04:20 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/5724848278.shtml)
+- 2026-06-30 04:26 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/75382.shtml)
+- 2026-06-30 04:16 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/389006.shtml)
+- 2026-06-30 04:19 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/178760890.shtml)
+- 2026-06-30 04:24 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/1024310776.shtml)
+- 2026-06-30 04:10 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/27074479228.shtml)
+- 2026-06-30 04:15 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/66237711.shtml)
+- 2026-06-30 04:21 - [急先锋](https://www.blog.kurohicncr.top/Article/details/54340472587.shtml)
+- 2026-06-30 04:12 - [刘念回应](https://www.share.kurohicncr.top/Article/details/850519.shtml)
+- 2026-06-30 04:00 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/7661405.shtml)
+- 2026-06-30 04:02 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/302820.shtml)
+- 2026-06-30 04:23 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/67455.shtml)
+- 2026-06-30 04:23 - [扬名立万](https://www.share.minike.top/Article/details/148014506490.shtml)
+- 2026-06-30 04:19 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/006574.shtml)
+- 2026-06-30 04:25 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/54441751.shtml)

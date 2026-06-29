@@ -1,50 +1,59 @@
-# 快讯：现货黄金日内跌超2% 现货白银失守62美元/盎司
+# “智度系”前董事长在美涉嫌性侵，两大上市公司隐瞒不报？
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-北京时间6月23日下午，现货黄金日内跌幅扩大至2%，报4106.03美元/盎司。现货白银失守62美元/盎司，日内跌4.72%。 责任编辑：朱赫楠
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：野马财经 董事长去哪儿了？看守所。 “五一节”前夕，一个在4月份引起舆论广泛关注的“董事长辞职谜团”，被揭开。 4月29日下午15：10分，北京智度德正投资有限公司（简称“智度德正”）通过官方服务号平台刊登一份印有公司公章的声明——《关于我司下属公司智
 
 ## 正文
 
-北京时间6月23日下午，现货黄金日内跌幅扩大至2%，报4106.03美元/盎司。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-现货白银失守62美元/盎司，日内跌4.72%。
+来源：野马财经 董事长去哪儿了？
 
-责任编辑：朱赫楠
+看守所。
+
+“五一节”前夕，一个在4月份引起舆论广泛关注的“董事长辞职谜团”，被揭开。
+
+4月29日下午15：10分，北京智度德正投资有限公司（简称“智度德正”）通过官方服务号平台刊登一份印有公司公章的声明——《关于我司下属公司智度股份与国光电器原董事长陆宏达事件的声明》（简称，“声明”）。
+
+声明称，智度德正自4月20日起持续联系陆宏达未果，经合法渠道核实，陆宏达在美涉嫌性侵被起诉的案件属实，且该案件拟于2026年5月4日再次开庭。
+
+辞职的原董事长去哪儿了？
+
+智度德正一锤定音：陆宏达目前因涉嫌刑事犯罪案件，现已被羁押在深圳市某看守所的情况属实。
 
 ## 相关推荐
 
-- 2026-06-30 04:07 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 04:10 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 04:06 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 04:14 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 04:08 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 03:56 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-30 04:13 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 04:10 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 04:09 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 04:09 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 04:07 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 04:04 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 04:12 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 03:55 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 04:27 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 04:23 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 04:10 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 04:20 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 04:07 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-30 04:11 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-30 04:18 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 04:24 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 04:20 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 04:00 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 04:21 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 04:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 04:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:55 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/644051180732.shtml)
-- 2026-06-30 03:57 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/94619.shtml)
-- 2026-06-30 03:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/436471.shtml)
-- 2026-06-30 04:07 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/075406113561.shtml)
-- 2026-06-30 04:21 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/77071.shtml)
-- 2026-06-30 03:57 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/114938027787.shtml)
-- 2026-06-30 04:21 - [德国vs巴拉圭](http://www.blog.minike.top/Article/details/195926455301.shtml)
-- 2026-06-30 04:15 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/517909611237.shtml)
-- 2026-06-30 04:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/110496164.shtml)
-- 2026-06-30 04:10 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/390577423105.shtml)
-- 2026-06-30 04:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/230813.shtml)
-- 2026-06-30 04:22 - [日本16强魔咒](https://www.share.minike.top/Article/details/016713952989.shtml)
-- 2026-06-30 04:05 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/660298373721.shtml)
-- 2026-06-30 04:20 - [斛珠夫人](http://www.blog.minike.top/Article/details/9212995.shtml)
-- 2026-06-30 04:18 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/85928.shtml)
+- 2026-06-30 04:24 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/24031447.shtml)
+- 2026-06-30 04:13 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/06598850742.shtml)
+- 2026-06-30 04:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/107087.shtml)
+- 2026-06-30 04:16 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/18258.shtml)
+- 2026-06-30 04:03 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/25241.shtml)
+- 2026-06-30 04:27 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/07708400623.shtml)
+- 2026-06-30 04:06 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/8384667.shtml)
+- 2026-06-30 04:15 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/458329056983.shtml)
+- 2026-06-30 04:16 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/905697.shtml)
+- 2026-06-30 04:21 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/37124848.shtml)
+- 2026-06-30 04:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/1101101.shtml)
+- 2026-06-30 04:10 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/15609924.shtml)
+- 2026-06-30 04:29 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/2154385.shtml)
+- 2026-06-30 04:03 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/1589701.shtml)
+- 2026-06-30 04:15 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/8225287025.shtml)

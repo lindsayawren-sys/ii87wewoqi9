@@ -1,59 +1,61 @@
-# 受贿1.39亿余元 上海市委原常委朱芝松一审被判死缓
+# 中国银行党委召开扩大会议 传达学习中共中央政治局会议精神
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-2026年6月23日，江西省南昌市中级人民法院一审公开宣判上海市委原常委、浦东新区区委原书记朱芝松受贿案，对被告人朱芝松以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的朱芝松受贿所得财物及孳息依法上缴国库，不足部分继续追缴。 经审理查明：2003年至2024年，被告人朱芝松利用担任中国航天科技集团公司第八研究院副院长、院长，上海市委宣传部副部
+来源：中国银行 4月29日，中国银行党委召开扩大会议，传达学习4月28日中共中央政治局会议精神，研究部署中国银行贯彻落实措施。党委书记、董事长葛海蛟主持会议并讲话。 会议指出，本次中央政治局会议准确研判我国当前经济形势，作出一系列重要部署，具有极强的战略性、指导性、针对性，为进一步坚定发展信心、牢牢把握发展主动、努力实现“十五五”良好开局指明前进方向。全行要迅速把思想和行动统一
 
 ## 正文
 
-2026年6月23日，江西省南昌市中级人民法院一审公开宣判上海市委原常委、浦东新区区委原书记朱芝松受贿案，对被告人朱芝松以受贿罪判处死刑，缓期二年执行，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的朱芝松受贿所得财物及孳息依法上缴国库，不足部分继续追缴。
+来源：中国银行 4月29日，中国银行党委召开扩大会议，传达学习4月28日中共中央政治局会议精神，研究部署中国银行贯彻落实措施。
 
-经审理查明：2003年至2024年，被告人朱芝松利用担任中国航天科技集团公司第八研究院副院长、院长，上海市委宣传部副部长，上海市闵行区委副书记、区长，闵行区委书记，上海市政府副秘书长、中国(上海)自贸区临港新片区管委会党组书记、常务副主任、浦东新区区委副书记，中国(上海)自贸区临港新片区党工委书记、管委会主任，上海市委常委、浦东新区区委书记等职务上的便利，为相关单位和个人在企业经营、工程承揽、融资贷款等事项上提供帮助，直接或者通过他人非法收受财物，共计折合人民币1.39亿余元。
+党委书记、董事长葛海蛟主持会议并讲话。
 
-南昌市中级人民法院认为，被告人朱芝松的行为构成受贿罪，受贿数额特别巨大，并使国家和人民利益遭受特别重大损失，论罪应当判处死刑。
+会议指出，本次中央政治局会议准确研判我国当前经济形势，作出一系列重要部署，具有极强的战略性、指导性、针对性，为进一步坚定发展信心、牢牢把握发展主动、努力实现“十五五”良好开局指明前进方向。
 
-鉴于其受贿犯罪中有未遂情节，归案后如实供述自己罪行，主动交代监察机关尚未掌握的大部分犯罪事实，认罪悔罪，积极退赃，绝大部分受贿所得已追缴到案，具有法定、酌定从轻处罚情节，对其判处死刑，可不立即执行。
+全行要迅速把思想和行动统一到党中央对形势的科学判断和对经济工作的决策部署上来，深刻认识一季度我国经济发展取得的成绩，准确把握党中央最新部署要求，围绕防风险、强监管、促高质量发展金融工作主线，抢抓政策机遇、主动担当作为，以实际行动坚定拥护“两个确立”，坚决做到“两个维护”。
 
-法庭遂作出上述判决。
+会议强调，要以更大力度和更实举措助力经济稳中向好发展。
 
-据悉，南昌市中级人民法院于2026年1月22日公开开庭审理了该案。
+要用好用足宏观政策，精准有效传导财政货币政策，聚焦重大战略、重点领域和薄弱环节，加大授信支持力度，持续提升服务质效。
 
-庭审中，检察机关出示了相关证据，被告人朱芝松及其辩护人进行了质证，控辩双方在法庭的主持下充分发表了意见，朱芝松进行了最后陈述，并当庭表示认罪悔罪。
+要深入挖掘内需潜力，积极支持服务业扩能提质，大力支持“六张网”建设，做好重大工程项目服务对接，落实落细财政金融协同促内需一揽子政策。
 
-人大代表和各界群众30余人旁听了庭审。
+要充分发挥特色优势，加快推进人民币国际使用，全力支持“走出去”企业，系统支持贸易创新发展，助力做优国内国际双循环。
 
 ## 相关推荐
 
-- 2026-06-30 04:03 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 04:13 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 04:21 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 03:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 04:02 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 04:19 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-30 04:01 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 03:55 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 03:59 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 03:58 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 04:21 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 04:20 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 04:16 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 04:27 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 04:12 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 04:17 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 04:06 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 04:15 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 04:18 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 04:14 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 04:05 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 04:03 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 04:18 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 04:14 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 04:21 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 04:22 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 04:09 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 04:09 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:02 - [张凌赫 客串](http://www.blog.minike.top/Article/details/786443.shtml)
-- 2026-06-30 04:16 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/08055156475.shtml)
-- 2026-06-30 04:17 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/51889.shtml)
-- 2026-06-30 04:18 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/090611738762.shtml)
-- 2026-06-30 04:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/953677.shtml)
-- 2026-06-30 04:10 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/09869688.shtml)
-- 2026-06-30 04:03 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/68371.shtml)
-- 2026-06-30 04:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/2583306740.shtml)
-- 2026-06-30 04:05 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/1929977.shtml)
-- 2026-06-30 04:21 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/0257310.shtml)
-- 2026-06-30 04:21 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/08650.shtml)
-- 2026-06-30 04:03 - [月亮](https://www.blog.kurohicncr.top/Article/details/23378841681.shtml)
-- 2026-06-30 04:22 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/0158216.shtml)
-- 2026-06-30 04:15 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/82124249.shtml)
-- 2026-06-30 04:07 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/86782008727.shtml)
+- 2026-06-30 04:27 - [美股](https://www.share.kurohicncr.top/Article/details/86902836.shtml)
+- 2026-06-30 04:18 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/94864520.shtml)
+- 2026-06-30 04:09 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/1795449.shtml)
+- 2026-06-30 04:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/13303.shtml)
+- 2026-06-30 04:26 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/30624425416.shtml)
+- 2026-06-30 04:29 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/394773272.shtml)
+- 2026-06-30 04:16 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/035665.shtml)
+- 2026-06-30 04:05 - [田曦薇没招了](http://www.blog.minike.top/Article/details/14907.shtml)
+- 2026-06-30 04:06 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/810710.shtml)
+- 2026-06-30 04:18 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/243990506.shtml)
+- 2026-06-30 04:09 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/238723.shtml)
+- 2026-06-30 04:21 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/68413271246.shtml)
+- 2026-06-30 04:25 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/979044824403.shtml)
+- 2026-06-30 04:10 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/5860684946.shtml)
+- 2026-06-30 04:10 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/1020888.shtml)

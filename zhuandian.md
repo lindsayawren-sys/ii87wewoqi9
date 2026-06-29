@@ -1,53 +1,59 @@
-# 端午节期间云南各口岸共25.14万人次出入境
+# “新世纪中国织锦技艺巡展”在杭开幕 131件珍品亮相
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-中新网昆明6月23日电 (记者 韩帅南)记者23日从云南出入境边防检查总站(下称“云南边检总站”)获悉，今年端午节假期(6月19日至21日)，共25.14万人次中外人员从云南各口岸出入境，日均8.38万人次，同比增长16.49%；其中，外国人入出境13.06万人次，同比增长10.11%；单日出入境通关最高峰出现在6月21日，达8.53万人次。云南省地处中国西南边陲，与缅甸、老挝
+中新网杭州4月30日电(曹丹)4月30日，“新世纪中国织锦技艺的创新与传承作品巡展”首展在浙江杭州的中国丝绸博物馆开幕。本次展览聚焦传统工艺的当代转化，汇聚131件珍贵展品，系统呈现中国织锦技艺从文化传承到创新发展的转型之路。 展览分为“织锦与时代同行”“传统与创新对话”“科技赋能织锦”三个板块。其中，“织锦与时代同行”集中展现织锦亮相APEC、G20等重大国际峰会的外交高光，
 
 ## 正文
 
-中新网昆明6月23日电 (记者 韩帅南)记者23日从云南出入境边防检查总站(下称“云南边检总站”)获悉，今年端午节假期(6月19日至21日)，共25.14万人次中外人员从云南各口岸出入境，日均8.38万人次，同比增长16.49%；其中，外国人入出境13.06万人次，同比增长10.11%；单日出入境通关最高峰出现在6月21日，达8.53万人次。
+中新网杭州4月30日电(曹丹)4月30日，“新世纪中国织锦技艺的创新与传承作品巡展”首展在浙江杭州的中国丝绸博物馆开幕。
 
-云南省地处中国西南边陲，与缅甸、老挝、越南接壤，毗邻南亚东南亚，边境线长达4000多公里，有对外开放口岸29个。
+本次展览聚焦传统工艺的当代转化，汇聚131件珍贵展品，系统呈现中国织锦技艺从文化传承到创新发展的转型之路。
 
-假期期间，云南边检总站在各口岸共查验出入境交通运输工具2.52万架(艘、列、辆)次，同比增长15.59%。
+展览分为“织锦与时代同行”“传统与创新对话”“科技赋能织锦”三个板块。
 
-假日期间，云南边检总站加强节日期间出入境流量监测，及时发布口岸出入境客流高峰预警，提示引导广大出入境人员合理安排行程。
+其中，“织锦与时代同行”集中展现织锦亮相APEC、G20等重大国际峰会的外交高光，千年技艺成为讲好中国故事、彰显文化自信的重要载体；“传统与创新对话”呈现了云锦、蜀锦、宋锦、壮锦、缂丝等传统技艺与当代创新的碰撞；“科技赋能织锦”则聚焦重大科技成果，包括世界最大独幅织锦画《金贵妃》、合织海峡两岸名作的《富春山居图》等。
 
-同时科学组织勤务，开足查验通道，增设现场引导岗位，进一步提升通关便利化水平。
+“华流就是顶流。
 
-(完)
+”中国工艺美术学会织锦专业委员会主任、南京云锦博物馆馆长简名伟说，云锦拥有1600多年织造历史，过去专为皇家织造龙袍，“现在我们让绘画成锦，让皇家技艺变成当代的摆件与画作”。
+
+简名伟以现场一款熊猫织锦文创摆件举例，其购买者平均年龄不足21岁。
+
+“如今，皇家非遗不再沉重，年轻人正用热爱接续文化自信。
 
 ## 相关推荐
 
-- 2026-06-30 04:06 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 04:16 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 04:22 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-30 04:02 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-30 03:59 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 04:12 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 03:58 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 04:16 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 04:07 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 04:16 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 03:56 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 04:14 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 04:15 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 04:05 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 04:11 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 04:19 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 04:17 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 04:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 04:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 04:01 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 04:18 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 04:01 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 04:10 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 04:23 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/79048284686.shtml)
-- 2026-06-30 04:06 - [第一炉香](https://www.blog.minike.top/Article/details/5707256326.shtml)
-- 2026-06-30 04:24 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/40344.shtml)
-- 2026-06-30 04:06 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/169895021321.shtml)
-- 2026-06-30 04:22 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/08224.shtml)
-- 2026-06-30 04:20 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/99888509.shtml)
-- 2026-06-30 03:57 - [金刚川](http://www.share.minike.top/Article/details/767833.shtml)
-- 2026-06-30 04:00 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/719141.shtml)
-- 2026-06-30 04:01 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/96057.shtml)
-- 2026-06-30 03:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/73314860.shtml)
-- 2026-06-30 04:05 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/772341.shtml)
-- 2026-06-30 04:11 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/05288.shtml)
-- 2026-06-30 04:11 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/97879598372.shtml)
-- 2026-06-30 03:58 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/77203880487.shtml)
-- 2026-06-30 04:14 - [请回答王牌2019](https://www.blog.minike.top/Article/details/1491896765.shtml)
+- 2026-06-30 04:10 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/40327568535.shtml)
+- 2026-06-30 04:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/97839656411.shtml)
+- 2026-06-30 04:01 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/1309131277.shtml)
+- 2026-06-30 04:21 - [金牌调解](http://www.share.minike.top/Article/details/9418446371.shtml)
+- 2026-06-30 04:15 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/350675015.shtml)
+- 2026-06-30 04:04 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/316964.shtml)
+- 2026-06-30 04:10 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/17455.shtml)
+- 2026-06-30 04:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/26986.shtml)
+- 2026-06-30 04:29 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/855101309707.shtml)
+- 2026-06-30 04:13 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/42362.shtml)
+- 2026-06-30 04:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/4174187440.shtml)
+- 2026-06-30 04:12 - [流金岁月](https://www.blog.minike.top/Article/details/1168530137.shtml)
+- 2026-06-30 04:11 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/282067.shtml)
+- 2026-06-30 04:25 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/00418538.shtml)
+- 2026-06-30 04:14 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/08745832.shtml)

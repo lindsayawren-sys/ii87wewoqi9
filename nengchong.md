@@ -1,56 +1,58 @@
-# 这个尼泊尔医生在中国的多重身份
+# 小龙虾“撬动”湖南洞庭湖区乡村振兴百亿元产业
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-从加德满都到上海—— 这个尼泊尔医生在中国的多重身份(我和中国的故事) 看点 握住手术刀，他是救死扶伤的医者；挽起衣袖，他是传递大爱的公益带头人；行走街巷，他是心系家园的“主人翁”。20多年前为求学来到上海的尼泊尔青年阿思势，如今已深深扎根在“第二故乡”——中国。创办外籍献血志愿者队，担任都市建设“国际体验官”，为中国基层立法建言……在阿思势看来，救死扶伤是本分，回馈社会是责任
+中新网益阳4月29日电 (付敬懿 宋梅)临近初夏，小龙虾又跃上民众餐桌成为“时令主角”。凌晨四时许，在洞庭湖区腹地的湖南南县茅草街镇庆丰村，种养大户郭新已穿上防水裤，收提起一个个地笼。色泽鲜亮、体态饱满的小龙虾破水而出，即将发往各地商超和市场。 “眼下小龙虾天天供不应求，根本不够卖。”郭新说，五一假期市场需求大幅增长，南县又迎来第四届小龙虾节，各地游客将涌入这座“洞庭明珠”。
 
 ## 正文
 
-从加德满都到上海—— 这个尼泊尔医生在中国的多重身份(我和中国的故事) 看点 握住手术刀，他是救死扶伤的医者；挽起衣袖，他是传递大爱的公益带头人；行走街巷，他是心系家园的“主人翁”。
+中新网益阳4月29日电 (付敬懿 宋梅)临近初夏，小龙虾又跃上民众餐桌成为“时令主角”。
 
-20多年前为求学来到上海的尼泊尔青年阿思势，如今已深深扎根在“第二故乡”——中国。
+凌晨四时许，在洞庭湖区腹地的湖南南县茅草街镇庆丰村，种养大户郭新已穿上防水裤，收提起一个个地笼。
 
-创办外籍献血志愿者队，担任都市建设“国际体验官”，为中国基层立法建言……在阿思势看来，救死扶伤是本分，回馈社会是责任，参与全过程人民民主是机遇。
+色泽鲜亮、体态饱满的小龙虾破水而出，即将发往各地商超和市场。
 
-今年“六一”国际儿童节之际，上海市儿童医院举行了一场“热血助患儿——中外爱心人士献血活动”。
+“眼下小龙虾天天供不应求，根本不够卖。
 
-百余名中外爱心人士为需要血液救治的患儿送上了一份最珍贵的节日礼物。
+”郭新说，五一假期市场需求大幅增长，南县又迎来第四届小龙虾节，各地游客将涌入这座“洞庭明珠”。
 
-在活动现场，尼泊尔籍医生阿思势穿梭于人群中，组织献血、参与演出、与孩子们互动……阿思势是上海市血液中心外籍献血志愿者队“血缘”的创始人，在中国生活已有20余年。
+作为“中国虾稻米之乡”“中国生态小龙虾之乡”和“全国稻虾全产业链典型县”，南县稻虾综合种养面积达63万亩，区域公用品牌价值突破500亿元。
 
-从来华深造的学子，到志愿者团队带头人；从临床一线的医者，到都市建设“国际体验官”、参与基层立法的建言者，阿思势用他的多重身份，书写着他与“第二故乡”中国的温暖故事。
+当前，南县日均售出小龙虾活虾65.6万斤，日交易额近700万元，开发出的20多种“南县小龙虾”加工产品，远销至欧美、东南亚等地的40多个国家。
 
-外籍献血志愿者队带头人—— 像雷锋那样，用心服务身边每一个人 阿思势出身医学世家，父亲的言传身教在他心中种下了奉献的种子。
+“我们从2016年开始推广稻虾共作，那时候面积才5.7万亩。
 
 ## 相关推荐
 
-- 2026-06-30 03:57 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-30 04:22 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 04:11 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 04:02 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 04:03 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 04:02 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 04:03 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 04:11 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 04:12 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 04:22 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 04:21 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 04:13 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 04:04 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 04:21 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 04:00 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 04:21 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 04:05 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 04:18 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 04:15 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 04:10 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 04:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 04:11 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:15 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/81321844311.shtml)
-- 2026-06-30 04:05 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/587899706.shtml)
-- 2026-06-30 04:19 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/853373.shtml)
-- 2026-06-30 04:09 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/8370963.shtml)
-- 2026-06-30 04:17 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/35761.shtml)
-- 2026-06-30 04:11 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/04603.shtml)
-- 2026-06-30 04:00 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/198620.shtml)
-- 2026-06-30 04:05 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/90906734436.shtml)
-- 2026-06-30 04:02 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/08877797480.shtml)
-- 2026-06-30 03:58 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/66314168123.shtml)
-- 2026-06-30 04:08 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/96874198.shtml)
-- 2026-06-30 04:22 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/74200711659.shtml)
-- 2026-06-30 03:55 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/154382.shtml)
-- 2026-06-30 04:23 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/431854477931.shtml)
-- 2026-06-30 04:03 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/8372133329.shtml)
+- 2026-06-30 04:01 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/0393467.shtml)
+- 2026-06-30 04:19 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/596286040805.shtml)
+- 2026-06-30 04:26 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/809338673024.shtml)
+- 2026-06-30 04:01 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/94880079381.shtml)
+- 2026-06-30 04:23 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/061761.shtml)
+- 2026-06-30 04:04 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/766624866577.shtml)
+- 2026-06-30 04:13 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/824742.shtml)
+- 2026-06-30 04:13 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/4613093.shtml)
+- 2026-06-30 04:26 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/098492912.shtml)
+- 2026-06-30 04:03 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/557531428366.shtml)
+- 2026-06-30 04:22 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/62699085.shtml)
+- 2026-06-30 04:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/10076.shtml)
+- 2026-06-30 04:14 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/541185523022.shtml)
+- 2026-06-30 04:01 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/99973.shtml)
+- 2026-06-30 04:27 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/5194716544.shtml)

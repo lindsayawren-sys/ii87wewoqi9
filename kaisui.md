@@ -1,59 +1,59 @@
-# 600421，终止上市！
+# 农业农村部成立生猪产业监测预警专家咨询委员会
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 又一家公司退市。 6月22日，退市华嵘（600421.SH）公告称，公司股票因2025年度净利润为负且营收低于3亿元，触及终止上市条件，上海证券交易所决定终止公司股票上市。退市整理期已于2026年6月22日结束，摘牌日为2026年6月26日。公司股票将转入全国中小企业股份转让系统挂牌转让，主办券商为华源证券股份有限公司。 今年4
+转自：农业农村部网站 本网讯4月28日，农业农村部召开生猪产业监测预警专家咨询委员会成立大会，深入学习贯彻习近平总书记重要指示精神，认真落实党中央、国务院决策部署，研究加强生猪产能监测预警重点工作。农业农村部党组成员、副部长张治礼出席会议并讲话。 与会专家代表分析了当前生猪产销形势，就加强产能监测预警提出意见建议。大家认为，当前生猪产能有序调减，价格企稳向好，供需关系有所改善，
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 又一家公司退市。
+转自：农业农村部网站 本网讯4月28日，农业农村部召开生猪产业监测预警专家咨询委员会成立大会，深入学习贯彻习近平总书记重要指示精神，认真落实党中央、国务院决策部署，研究加强生猪产能监测预警重点工作。
 
-6月22日，退市华嵘（600421.SH）公告称，公司股票因2025年度净利润为负且营收低于3亿元，触及终止上市条件，上海证券交易所决定终止公司股票上市。
+农业农村部党组成员、副部长张治礼出席会议并讲话。
 
-退市整理期已于2026年6月22日结束，摘牌日为2026年6月26日。
+与会专家代表分析了当前生猪产销形势，就加强产能监测预警提出意见建议。
 
-公司股票将转入全国中小企业股份转让系统挂牌转让，主办券商为华源证券股份有限公司。
+大家认为，当前生猪产能有序调减，价格企稳向好，供需关系有所改善，市场信心回暖增强，后期行情有望逐步好转。
 
-今年4月22日，退市华嵘披露业绩预告修正公告，决定调减报告期内工程及信息化业务收入。
+但专家同时提醒，广大养殖场户应落实产能调控要求，合理安排生产出栏计划，顺势出栏，切忌压栏“等行情”或盲目扩张“赌行情”，避免不必要的损失。
 
-修正后，预计2025年度净利润为-120万元至-180万元，扣非净利润-150万元至-220万元，预计2025年年度营业收入1.50亿元到1.65亿元，扣除后营业收入1.40亿元到1.50亿元。
+会议强调，当前生猪产业供需关系发生深刻变化，加强产能综合调控十分必要。
 
-此前的1月29日，退市华嵘曾披露《2025年年度业绩预盈公告》，预计2025年度实现归属于上市公司股东的净利润650万元至800万元，扣非净利润600万元至750万元，营业收入1.85亿元至1.95亿元。
+成立生猪产业监测预警专家咨询委员会，是凝聚行业共识、强化预警引导，探索有效发挥政府调控作用的重要举措。
 
-4月29日，公司披露的2025年年报确认了公司触发退市条件的事实。
+会议要求，要充分发挥生猪产业监测预警专家咨询委员会作用，进一步完善生产与市场监测调查体系，提高监测数据质量；强化形势会商分析，科学把握发展趋势规律；加强权威预警信息发布，强化市场和预期引导，更好指导服务生产，促进生猪产业稳定健康发展。
 
 ## 相关推荐
 
-- 2026-06-30 04:21 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 03:54 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 04:05 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 04:09 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 04:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 04:06 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 04:15 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 04:00 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 03:57 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 04:11 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 04:23 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 04:07 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 04:06 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 04:08 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 04:27 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 04:11 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 04:12 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 04:16 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-30 04:00 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 04:23 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 04:29 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 04:13 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 04:24 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 04:23 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 04:05 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 04:22 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:54 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/18196.shtml)
-- 2026-06-30 03:56 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/699148200.shtml)
-- 2026-06-30 04:16 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/92680116.shtml)
-- 2026-06-30 04:18 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/822982080.shtml)
-- 2026-06-30 04:01 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/77267104.shtml)
-- 2026-06-30 04:06 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/84077967129.shtml)
-- 2026-06-30 04:23 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/95348461323.shtml)
-- 2026-06-30 04:06 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/52954.shtml)
-- 2026-06-30 04:23 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/15379586.shtml)
-- 2026-06-30 04:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/97167833527.shtml)
-- 2026-06-30 04:21 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/06056271362.shtml)
-- 2026-06-30 04:19 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/2449253805.shtml)
-- 2026-06-30 04:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/782983864.shtml)
-- 2026-06-30 04:22 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/0674804.shtml)
-- 2026-06-30 04:01 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/63603686.shtml)
+- 2026-06-30 04:12 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/527874425.shtml)
+- 2026-06-30 04:18 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/46101559.shtml)
+- 2026-06-30 04:23 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/451591095.shtml)
+- 2026-06-30 04:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/071097.shtml)
+- 2026-06-30 04:22 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/1598670.shtml)
+- 2026-06-30 04:17 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/82014542.shtml)
+- 2026-06-30 04:14 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/2933321.shtml)
+- 2026-06-30 04:10 - [《贺子珍》](https://www.share.minike.top/Article/details/37902467.shtml)
+- 2026-06-30 04:27 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/58223.shtml)
+- 2026-06-30 04:14 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/23077707716.shtml)
+- 2026-06-30 04:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/20286985.shtml)
+- 2026-06-30 04:08 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/57097.shtml)
+- 2026-06-30 04:22 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/985287708.shtml)
+- 2026-06-30 04:18 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/5427185.shtml)
+- 2026-06-30 04:00 - [斛珠夫人](https://www.blog.minike.top/Article/details/5327331.shtml)

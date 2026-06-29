@@ -1,57 +1,56 @@
-# 长城基金督察长正式落定：审计老将李建军接棒 总经理不再代为履职
+# 若能源价格未回落 欧洲央行官员料6月加息
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-6月24日，长城基金发布高级管理人员变更的公告，新任李建军为公司督察长，任职日期2026-06-23。同日，公司总经理祝函不再代为履行督察长职务。至此，这家管理规模超3700亿元的老牌公募，在经历一季度管理层重大调整后，终于完成了合规条线的最终落定。 督察长李建军：审计出身的合规“老兵” 公告显示，李建军于2001年7月起就职于国家审计署驻深圳特派员办事处，拥有深厚的审计与监管
+知情人士称，除非能源价格和结束伊朗战争方面出现积极进展，否则欧洲央行决策者很可能在6月下次会议上加息。 因谈及非公开讨论而不愿具名的知情人士表示，如果冲突持续，避免加息的可能性将非常小。不过他们强调，尚未作出任何决定，形势也可能会迅速改变。 欧洲央行发言人拒绝置评。 欧洲央行行长拉加德早些时候示意，在周四会议上决策者曾讨论但最终否决了加息方案，不过央行将在6月会议上考虑加息可能
 
 ## 正文
 
-6月24日，长城基金发布高级管理人员变更的公告，新任李建军为公司督察长，任职日期2026-06-23。
+知情人士称，除非能源价格和结束伊朗战争方面出现积极进展，否则欧洲央行决策者很可能在6月下次会议上加息。
 
-同日，公司总经理祝函不再代为履行督察长职务。
+因谈及非公开讨论而不愿具名的知情人士表示，如果冲突持续，避免加息的可能性将非常小。
 
-至此，这家管理规模超3700亿元的老牌公募，在经历一季度管理层重大调整后，终于完成了合规条线的最终落定。
+不过他们强调，尚未作出任何决定，形势也可能会迅速改变。
 
-督察长李建军：审计出身的合规“老兵” 公告显示，李建军于2001年7月起就职于国家审计署驻深圳特派员办事处，拥有深厚的审计与监管背景。
+欧洲央行发言人拒绝置评。
 
-2017年11月起，他就职于中天国富证券有限公司；2023年9月起就职于世纪证券有限责任公司。
+欧洲央行行长拉加德早些时候示意，在周四会议上决策者曾讨论但最终否决了加息方案，不过央行将在6月会议上考虑加息可能性。
 
-2026年3月，李建军加入长城基金管理有限公司。
+官员们将在下次会议上获得最新预测，经济学家和投资者预计他们届时将选择加息25个基点。
 
-值得关注的是，李建军的履历与现任总经理祝函高度重叠。
+拉加德表示，接下来的六周将是评估经济形势的合适时机，以便基于经过验证和重新审视的信息作出审慎决策。
 
-两人均曾在世纪证券、中天国富证券任职，且都曾是券业老将余维佳的老部下。
+到目前为止，尽管整体通胀率已跳升至3%，但石油和天然气成本的飙升尚未引发所谓的第二轮效应，因此官员们尚未确信有必要收紧货币政策。
 
 ## 相关推荐
 
-- 2026-06-30 04:06 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 04:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 04:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 04:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 04:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 04:16 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-30 04:06 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-30 04:21 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 04:08 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-30 04:12 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 04:07 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 04:30 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 04:14 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 04:22 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 04:06 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 04:05 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 04:24 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 04:07 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 04:05 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 04:17 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 04:03 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:07 - [急先锋](https://www.blog.minike.top/Article/details/292373343.shtml)
-- 2026-06-30 03:59 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/87582821913.shtml)
-- 2026-06-30 04:09 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/9586976954.shtml)
-- 2026-06-30 04:15 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/3645974.shtml)
-- 2026-06-30 03:54 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/680652410.shtml)
-- 2026-06-30 04:09 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/01910002.shtml)
-- 2026-06-30 04:10 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/663552117340.shtml)
-- 2026-06-30 04:06 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/5311457.shtml)
-- 2026-06-30 04:02 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/42694170343.shtml)
-- 2026-06-30 04:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/49450780771.shtml)
-- 2026-06-30 04:17 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/442046516.shtml)
-- 2026-06-30 04:03 - [流金岁月](http://www.share.kurohicncr.top/Article/details/79006903345.shtml)
-- 2026-06-30 04:07 - [月亮](http://www.blog.kurohicncr.top/Article/details/23469647789.shtml)
-- 2026-06-30 04:17 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/96374.shtml)
-- 2026-06-30 03:58 - [日本进球](https://www.share.kurohicncr.top/Article/details/8271186.shtml)
+- 2026-06-30 04:01 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/635593.shtml)
+- 2026-06-30 04:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/47382806882.shtml)
+- 2026-06-30 04:20 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/39864720.shtml)
+- 2026-06-30 04:16 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/246980507918.shtml)
+- 2026-06-30 04:06 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/161838624.shtml)
+- 2026-06-30 04:11 - [天道](http://www.share.kurohicncr.top/Article/details/97773875.shtml)
+- 2026-06-30 04:19 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/9835300302.shtml)
+- 2026-06-30 04:26 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/07768.shtml)
+- 2026-06-30 04:14 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/36479691.shtml)
+- 2026-06-30 04:25 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/86109.shtml)
+- 2026-06-30 04:25 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/22885884140.shtml)
+- 2026-06-30 04:27 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/635284049292.shtml)
+- 2026-06-30 04:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/0870553.shtml)
+- 2026-06-30 04:11 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/8456388624.shtml)
+- 2026-06-30 04:15 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/3601426282.shtml)

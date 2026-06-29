@@ -1,57 +1,61 @@
-# 海尔消金转让超4万笔不良贷款，李占国有紧迫感
+# 信达生物第一季度产品收入超38亿元 同比增长超过50%
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-来源：银瑞社 作者：许淑敏 作为海尔消金的掌舵者，李占国对外露面极少。 他是60后，从2003年出任海尔集团财务部长，也曾担任海尔集团财务公司总经理，熟悉财务线条的工作。 2014年，海尔消金成立伊始，李占国便是管理层核心，一开始担任副董事长职务，到2020年正式成为董事长，至今已有6年时间。 他曾经一肩统筹公司经营、风控、渠道、资本全条线业务。 2024 年6月，海尔消金原总
+信达生物（01801）发布公告，于2026年第一季度，公司产品收入录得超过人民币38亿元，同比增长超过50%，此强劲势头印证了公司“双轮驱动”策略的成功执行。公司肿瘤领域的领先地位日益显著，五款酪氨酸激酶抑制剂（TKI）新增纳入国家医保药品目录（NRDL）后实现快速放量。同时，综合产品线已成为公司收入增长的强劲新兴动力，主要源于信尔美®（玛仕度肽注射液）、信必乐®（托莱西单抗注
 
 ## 正文
 
-来源：银瑞社 作者：许淑敏 作为海尔消金的掌舵者，李占国对外露面极少。
+信达生物（01801）发布公告，于2026年第一季度，公司产品收入录得超过人民币38亿元，同比增长超过50%，此强劲势头印证了公司“双轮驱动”策略的成功执行。
 
-他是60后，从2003年出任海尔集团财务部长，也曾担任海尔集团财务公司总经理，熟悉财务线条的工作。
+公司肿瘤领域的领先地位日益显著，五款酪氨酸激酶抑制剂（TKI）新增纳入国家医保药品目录（NRDL）后实现快速放量。
 
-2014年，海尔消金成立伊始，李占国便是管理层核心，一开始担任副董事长职务，到2020年正式成为董事长，至今已有6年时间。
+同时，综合产品线已成为公司收入增长的强劲新兴动力，主要源于信尔美®（玛仕度肽注射液）、信必乐®（托莱西单抗注射液）及信必敏®（替妥尤单抗N01注射液）等核心产品的优异表现。
 
-他曾经一肩统筹公司经营、风控、渠道、资本全条线业务。
+2026年第一季度的强劲表现增强了公司收入持续快速增长的信心，进一步巩固公司作为中国领先生物制药公司的高成长性及确定性。
 
-2024 年6月，海尔消金原总经理离职后，李占国代为履行总经理职责近一年半时间，直至2025 年10 月，新任总经理周文龙才获批上岗。
+与此同时，公司持续推进全球化创新，为公司价值打开持续向上的成长空间。
 
-周文龙出身银行系，曾是中原消金筹备组成员，实力亦不容小觑。
+公司正在推进三项高价值潜力分子——IBI363（PD-1/IL-2α-biased双特异性抗体）、IBI343（CLDN18.2ADC）及IBI324（VEGF/ANG2双特异性抗体）——进入或即将进入全球多中心III期临床研究，并持续加码早期创新，推动新一代肿瘤、心血管及代谢（CVM）、自身免疫及眼科领域早期管线的全球临床开发。
 
-李占国与周文龙搭档，能否实现1+1＞2的效果，市场仍在拭目以待。
+展望未来，公司国内业务规模的持续稳固扩张及全球创新管线的加速推进，将稳步推动公司实现“成为国际一流的生物制药公司”的长期愿景。
 
-尤其是今年3月，海尔消金完成增资，注册资本金由20.9亿元增至约31.18亿元，资本实力大幅增强。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 04:11 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 03:57 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 04:09 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 03:57 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 04:22 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 04:10 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 04:23 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 04:22 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 04:23 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-30 03:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 04:24 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 04:17 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 04:17 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 04:16 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 04:08 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 04:06 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 04:05 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-30 04:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 04:08 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 04:08 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 04:11 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 04:08 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 04:11 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 04:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 04:18 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:54 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/36087920924.shtml)
-- 2026-06-30 04:01 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/45406167622.shtml)
-- 2026-06-30 04:12 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/013484562.shtml)
-- 2026-06-30 04:06 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/75309290093.shtml)
-- 2026-06-30 04:00 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/9457583171.shtml)
-- 2026-06-30 04:00 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/231465.shtml)
-- 2026-06-30 04:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/263643359094.shtml)
-- 2026-06-30 04:20 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/73740893933.shtml)
-- 2026-06-30 04:05 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/647283382.shtml)
-- 2026-06-30 04:21 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/0494269.shtml)
-- 2026-06-30 04:22 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/9096593.shtml)
-- 2026-06-30 04:22 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/0840648864.shtml)
-- 2026-06-30 04:17 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/2100968.shtml)
-- 2026-06-30 03:59 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/49083070.shtml)
-- 2026-06-30 04:12 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/0008551914.shtml)
+- 2026-06-30 04:10 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/806570.shtml)
+- 2026-06-30 04:24 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/8178943257.shtml)
+- 2026-06-30 04:15 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/257141.shtml)
+- 2026-06-30 04:04 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/23715934.shtml)
+- 2026-06-30 04:25 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/42896821.shtml)
+- 2026-06-30 04:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/811374369.shtml)
+- 2026-06-30 04:21 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/11398447034.shtml)
+- 2026-06-30 04:23 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/3331818.shtml)
+- 2026-06-30 04:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/16518872.shtml)
+- 2026-06-30 04:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/583233504362.shtml)
+- 2026-06-30 04:05 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/40061299909.shtml)
+- 2026-06-30 04:02 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/2837308.shtml)
+- 2026-06-30 04:19 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/5930315.shtml)
+- 2026-06-30 04:14 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/8205276.shtml)
+- 2026-06-30 04:24 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/771611.shtml)

@@ -1,61 +1,49 @@
-# 第十七届夏季达沃斯论坛开幕——开启多元对话 探寻务实良策
+# 美国总统特朗普：与英国国王会晤后取消部分威士忌关税
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-黄渤海之滨，世界目光再次齐聚大连。 6月23日至25日，以“规模化创新”为主题的世界经济论坛第十七届新领军者年会(夏季达沃斯论坛)将在这里举行。本届年会专题会议超200场。来自全球90多个国家和地区的1700余名政、商、学、媒体界代表将围绕增长、技术、就业、能源与全球经济未来发展等核心议题，激荡思想火花，探寻务实良策。 步入年会主会场大连国际会议中心，新领军者村、演播厅、前瞻空
+“我将取消与苏格兰同肯塔基州在威士忌和波本威士忌方面开展合作能力有关的威士忌关税和限制，”美国总统特朗普在Truth Social上发帖称。 此举是在英国国王查尔斯访问美国之后做出的。 特朗普称此举是为了“向（英国）国王和王后致敬”。责任编辑：何云
 
 ## 正文
 
-黄渤海之滨，世界目光再次齐聚大连。
+“我将取消与苏格兰同肯塔基州在威士忌和波本威士忌方面开展合作能力有关的威士忌关税和限制，”美国总统特朗普在Truth Social上发帖称。
 
-6月23日至25日，以“规模化创新”为主题的世界经济论坛第十七届新领军者年会(夏季达沃斯论坛)将在这里举行。
+此举是在英国国王查尔斯访问美国之后做出的。
 
-本届年会专题会议超200场。
+特朗普称此举是为了“向（英国）国王和王后致敬”。
 
-来自全球90多个国家和地区的1700余名政、商、学、媒体界代表将围绕增长、技术、就业、能源与全球经济未来发展等核心议题，激荡思想火花，探寻务实良策。
-
-步入年会主会场大连国际会议中心，新领军者村、演播厅、前瞻空间、互动空间等密集分布，连通各个空间的走廊上摆放着沙发，参会者可随时坐下交流。
-
-“本届年会创新会场布局，首次将各类会议功能区集中整合至同一楼层，大幅提升参会通行与交流效率。
-
-”世界经济论坛全球会议运营总监塞维林·波多洛克介绍。
-
-本届年会备受关注，参会嘉宾数量实现新突破。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 04:09 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 04:05 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 04:08 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-30 04:01 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-30 04:17 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 04:22 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 04:00 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 04:16 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 03:56 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-30 04:19 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 04:05 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 03:56 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 04:14 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 04:10 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 04:11 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 04:09 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-30 04:10 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 04:22 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 04:09 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 04:19 - [孙兴慜道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 04:19 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 04:23 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 04:00 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-30 04:10 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 04:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 04:10 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:57 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/604558938322.shtml)
-- 2026-06-30 04:11 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/01605661518.shtml)
-- 2026-06-30 03:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/51312220.shtml)
-- 2026-06-30 04:05 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/66395362882.shtml)
-- 2026-06-30 04:20 - [天道](http://www.share.minike.top/Article/details/326105.shtml)
-- 2026-06-30 04:06 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/77754824.shtml)
-- 2026-06-30 04:01 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/07999963648.shtml)
-- 2026-06-30 03:57 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/41420.shtml)
-- 2026-06-30 04:15 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/26025753304.shtml)
-- 2026-06-30 03:58 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/63734395.shtml)
-- 2026-06-30 04:02 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/090389.shtml)
-- 2026-06-30 03:59 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/326245.shtml)
-- 2026-06-30 04:09 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/423268624.shtml)
-- 2026-06-30 04:14 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/96496497.shtml)
-- 2026-06-30 04:18 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/88916455.shtml)
+- 2026-06-30 04:17 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/265165828.shtml)
+- 2026-06-30 04:20 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/2143049800.shtml)
+- 2026-06-30 04:27 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/352265938746.shtml)
+- 2026-06-30 04:27 - [斗破苍穹](http://www.share.minike.top/Article/details/991751.shtml)
+- 2026-06-30 04:03 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/55293043.shtml)
+- 2026-06-30 04:28 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/671411602729.shtml)
+- 2026-06-30 04:19 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/30353.shtml)
+- 2026-06-30 04:23 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/7500351277.shtml)
+- 2026-06-30 04:01 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/591416.shtml)
+- 2026-06-30 04:23 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/90140855.shtml)
+- 2026-06-30 04:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/2824537.shtml)
+- 2026-06-30 04:21 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/02000590.shtml)
+- 2026-06-30 04:22 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/70363914.shtml)
+- 2026-06-30 04:22 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/228968677944.shtml)
+- 2026-06-30 04:02 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/62753.shtml)

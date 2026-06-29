@@ -1,56 +1,60 @@
-# 油价走低叠加美联储鹰派预期支撑美元，美元兑加元刷新一年高位
+# 巴西零售商CVLB申请破产保护，旗下运营CASA&VIDEO和Le Biscuit
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——周二亚洲交易时段，美元兑加元（USD/CAD）在经历前一交易日小幅回调后重新获得买盘支撑，汇价运行于1.4170区域附近，接近自2025年4月以来最高水平。市场对于加拿大经济前景和国际油价走势的担忧，继续推动资金流向美元资产。 近期影响加元走势的核心因素仍然来自能源市场。随着美国与伊朗和平谈判取得积极进展，市场对于中东地区原油供应中断的担忧明显缓解。与此同时
+巴西零售商CVLB Brasil申请破产保护，称此举是为正在进行的债务重组过程“扩大范围并提供更大的法律稳定性”。 该公司运营着CASA&VIDEO和Le Biscuit连锁店。作为破产保护申请的一部分，CVLB Brasil透露已获得一笔7500万雷亚尔的营运资金融资。声明称，这笔资金旨在“在此重组阶段加强流动性和确保业务连续性”。该公司还表示，其业务运营正常，将继续采取措施
 
 ## 正文
 
-汇通财经APP讯——周二亚洲交易时段，美元兑加元（USD/CAD）在经历前一交易日小幅回调后重新获得买盘支撑，汇价运行于1.4170区域附近，接近自2025年4月以来最高水平。
+巴西零售商CVLB Brasil申请破产保护，称此举是为正在进行的债务重组过程“扩大范围并提供更大的法律稳定性”。
 
-市场对于加拿大经济前景和国际油价走势的担忧，继续推动资金流向美元资产。
+该公司运营着CASA&VIDEO和Le Biscuit连锁店。
 
-近期影响加元走势的核心因素仍然来自能源市场。
+作为破产保护申请的一部分，CVLB Brasil透露已获得一笔7500万雷亚尔的营运资金融资。
 
-随着美国与伊朗和平谈判取得积极进展，市场对于中东地区原油供应中断的担忧明显缓解。
+声明称，这笔资金旨在“在此重组阶段加强流动性和确保业务连续性”。
 
-与此同时，美国财政部宣布暂时放宽部分伊朗原油出口限制，进一步强化了未来全球原油供应增加的预期。
+该公司还表示，其业务运营正常，将继续采取措施改善财务和运营结构。
 
-受此影响，WTI原油价格持续承压，目前仍徘徊在74美元/桶附近，接近上周创下的3个月低点。
+CVLB Brasil申请破产保护与其2021年完成的重组有关，当时该公司在将普通股转为优先股后，减少了约21亿雷亚尔的债务。
 
-由于加拿大是全球主要能源出口国之一，国际油价走弱往往会削弱加元吸引力，并对加拿大出口收入形成压力。
+然而，高企的利率和融资挑战使巴西零售商处境艰难，与2020年相比，申请破产保护的公司数量有所增加。
 
-尽管如此，加拿大最新公布的通胀数据表现强劲。
+该公司解释称，破产保护的申请源于“有必要扩大范围并为正在进行的重组过程提供更大的法律稳定性”，但这并不代表放弃谈判。
 
 ## 相关推荐
 
-- 2026-06-30 04:17 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 04:00 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 04:21 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 04:16 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 04:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-30 04:12 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 04:04 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 04:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 03:59 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 04:23 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 04:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 04:04 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 04:11 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 04:11 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 04:07 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 04:29 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 04:10 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 04:15 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 04:05 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 04:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 04:12 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 04:01 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 04:04 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 04:03 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/2979725.shtml)
-- 2026-06-30 04:00 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/18281986472.shtml)
-- 2026-06-30 04:07 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/7091457049.shtml)
-- 2026-06-30 03:56 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/23221.shtml)
-- 2026-06-30 03:58 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/52412.shtml)
-- 2026-06-30 03:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/9626371.shtml)
-- 2026-06-30 04:19 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/39384.shtml)
-- 2026-06-30 04:20 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/6180504.shtml)
-- 2026-06-30 04:15 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/7672110.shtml)
-- 2026-06-30 03:58 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/821482027514.shtml)
-- 2026-06-30 04:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/113885669.shtml)
-- 2026-06-30 03:58 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/066304685369.shtml)
-- 2026-06-30 04:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/54439.shtml)
-- 2026-06-30 04:13 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/96549.shtml)
-- 2026-06-30 04:12 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/14327564240.shtml)
+- 2026-06-30 04:08 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/8765933.shtml)
+- 2026-06-30 04:19 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/927042482025.shtml)
+- 2026-06-30 04:29 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/28444218.shtml)
+- 2026-06-30 04:20 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/98095659.shtml)
+- 2026-06-30 04:16 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/4765233.shtml)
+- 2026-06-30 04:17 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/3058750714.shtml)
+- 2026-06-30 04:12 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/4387866.shtml)
+- 2026-06-30 04:10 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/377520492013.shtml)
+- 2026-06-30 04:25 - [点菜也要教吗](http://www.share.minike.top/Article/details/22349.shtml)
+- 2026-06-30 04:00 - [恋与深空 巧合](http://www.share.minike.top/Article/details/9476303529.shtml)
+- 2026-06-30 04:08 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/33621656.shtml)
+- 2026-06-30 04:06 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/007374.shtml)
+- 2026-06-30 04:14 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/675271056.shtml)
+- 2026-06-30 04:26 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/18927.shtml)
+- 2026-06-30 04:27 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/299563543.shtml)

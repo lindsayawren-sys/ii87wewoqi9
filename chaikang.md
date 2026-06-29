@@ -1,52 +1,57 @@
-# 桦欣控股：购股协议已完成 要约人将作出强制性无条件现金要约
+# 聚焦“码头上的中国” 《海之上》开机
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-桦欣控股（01657）及要约人香港伟业软件股份有限公司联合公布，购股协议项下的所有先决条件已获达成，且完成已于2026年6月23日落实。根据购股协议，要约人按总代价1.99亿港元收购合共2397万股股份。紧接完成前，要约人、其最终实益拥有人、其董事及要约人一致行动人士（卖方除外）概无持有任何股份；及卖方于2397万股股份（即销售股份）中拥有权益。完成后，要约人及要约人一致行动人
+中新网青岛4月30日电 由徐宗政执导，陈晓、宋轶领衔主演的年代情感剧《海之上》日前在青岛正式开机。 《海之上》以20世纪90年代起近三十年的中国港口发展历程为背景，围绕“码头即故乡”的核心概念，讲述大学生徐海(陈晓 饰)因见义勇为被开除后回到港口从装卸工做起，历经兄弟反目、爱人错嫁、技术封锁等磨难，最终成长为港口领军人物的传奇人生。剧中，陈晓、宋轶领衔演绎一段关于错嫁、等待与救
 
 ## 正文
 
-桦欣控股（01657）及要约人香港伟业软件股份有限公司联合公布，购股协议项下的所有先决条件已获达成，且完成已于2026年6月23日落实。
+中新网青岛4月30日电 由徐宗政执导，陈晓、宋轶领衔主演的年代情感剧《海之上》日前在青岛正式开机。
 
-根据购股协议，要约人按总代价1.99亿港元收购合共2397万股股份。
+《海之上》以20世纪90年代起近三十年的中国港口发展历程为背景，围绕“码头即故乡”的核心概念，讲述大学生徐海(陈晓 饰)因见义勇为被开除后回到港口从装卸工做起，历经兄弟反目、爱人错嫁、技术封锁等磨难，最终成长为港口领军人物的传奇人生。
 
-紧接完成前，要约人、其最终实益拥有人、其董事及要约人一致行动人士（卖方除外）概无持有任何股份；及卖方于2397万股股份（即销售股份）中拥有权益。
+剧中，陈晓、宋轶领衔演绎一段关于错嫁、等待与救赎的三十年沉浮，照见人心的温度与时代的重量。
 
-完成后，要约人及要约人一致行动人士合共拥有2397万股股份，占截至本联合公告日期本公司已发行股份总数74.91%。
+据了解，作为国产年代剧从“土地叙事”向“海洋叙事”的突破性尝试，《海之上》不再强调港口的工业属性，而是将码头塑造成一代中国人漂泊、扎根、重逢与离别的精神原乡。
 
-因此，根据收购守则规则26.1，要约人须于紧随完成后就所有已发行股份（要约人及要约人一致行动人士已拥有及╱或同意将予收购者除外）作出强制性无条件现金要约。
+剧中聚焦“EDI技术攻关”“西移战略”“自动化码头”“港口整合”等真实事件，既有宏大的时代叙事，也有细腻的人情冷暖。
 
-责任编辑：卢昱君
+几位主要人物之间爱与恨、兄弟情与背叛、婚姻与救赎，构成极具戏剧张力的情感网络，整体叙事在人物纠葛与时代纵深之上，力图谱写一部关于青春、背叛与救赎的“港口风云”。
+
+开机仪式上，出品方表示，《海之上》不是简单的行业剧，而是一部关于青春、爱情与选择的命运传奇。
+
+据悉，该剧由山东港口集团有限公司、山东广播电视台、山东广电传媒集团有限公司、山东出版集团有限公司等共同出品。
 
 ## 相关推荐
 
-- 2026-06-30 03:57 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 04:00 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 04:08 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 03:58 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 04:04 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 04:18 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 04:12 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 04:20 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 03:56 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 04:17 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 04:13 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 04:28 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 04:24 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 04:17 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-30 04:01 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 04:01 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 04:18 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-30 04:11 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 04:01 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 04:13 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 04:06 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:13 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/223337689057.shtml)
-- 2026-06-30 04:13 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/48220.shtml)
-- 2026-06-30 04:02 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/653631752.shtml)
-- 2026-06-30 04:19 - [恋与深空回应争议](http://www.share.minike.top/Article/details/81830773005.shtml)
-- 2026-06-30 04:22 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/03313002.shtml)
-- 2026-06-30 04:01 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/5593469.shtml)
-- 2026-06-30 04:11 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/1042595538.shtml)
-- 2026-06-30 04:18 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/069458994999.shtml)
-- 2026-06-30 04:20 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/5866680301.shtml)
-- 2026-06-30 03:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/7020447.shtml)
-- 2026-06-30 04:09 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/54692362602.shtml)
-- 2026-06-30 04:11 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/164511998738.shtml)
-- 2026-06-30 04:07 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/90938840.shtml)
-- 2026-06-30 04:11 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/79270909.shtml)
-- 2026-06-30 04:04 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/1377477.shtml)
+- 2026-06-30 04:17 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/425455.shtml)
+- 2026-06-30 04:17 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/167469910630.shtml)
+- 2026-06-30 04:21 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/095628.shtml)
+- 2026-06-30 04:17 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/2377110642.shtml)
+- 2026-06-30 04:28 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/5747574429.shtml)
+- 2026-06-30 04:13 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/3571397.shtml)
+- 2026-06-30 04:11 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/405103.shtml)
+- 2026-06-30 04:06 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/361735.shtml)
+- 2026-06-30 04:07 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/76007705.shtml)
+- 2026-06-30 04:04 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/22146.shtml)
+- 2026-06-30 04:13 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/13805366.shtml)
+- 2026-06-30 04:24 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/55027397656.shtml)
+- 2026-06-30 04:22 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/00009312.shtml)
+- 2026-06-30 04:12 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/98410513.shtml)
+- 2026-06-30 04:20 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/25686.shtml)

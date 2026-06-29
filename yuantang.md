@@ -1,60 +1,54 @@
-# 国际金价跌破4100美元整数关口，A股黄金股全线重挫
+# 伊朗德黑兰机场宣布增加航线和航班频次
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-国际金价周二再度急挫，一度跌破4100美元整数关口。 Wind数据显示，6月23日，现货黄金（伦敦金现，下同）跌超2%，跌破4100美元/盎司关口，跌幅一度达2.16%，最低报4090.50美元/盎司。与此同时，现货白银一度跌近5%，至61.80美元/盎司下方。此外，期货方面，COMEX黄金最低跌2.25%报4108.2美元/盎司。COMEX白银跌5.69%报61.85美元/盎
+据伊朗方面29日消息，位于伊朗首都德黑兰的伊玛目霍梅尼国际机场当天宣布增加航线和航班频次，以应对该机场业务的增加。 伊玛目霍梅尼机场城首席执行官卡谢夫·阿扎尔称，与前几天相比，伊玛目霍梅尼国际机场的空中交通量显著增加。 阿扎尔说，自客运航班日前恢复以来，已完成规划并获得必要许可，开通或即将开通从德黑兰飞往伊斯坦布尔、曼谷、马斯喀特、莫斯科、北京等地的航班。他说，伊玛目霍梅尼国际
 
 ## 正文
 
-国际金价周二再度急挫，一度跌破4100美元整数关口。
+据伊朗方面29日消息，位于伊朗首都德黑兰的伊玛目霍梅尼国际机场当天宣布增加航线和航班频次，以应对该机场业务的增加。
 
-Wind数据显示，6月23日，现货黄金（伦敦金现，下同）跌超2%，跌破4100美元/盎司关口，跌幅一度达2.16%，最低报4090.50美元/盎司。
+伊玛目霍梅尼机场城首席执行官卡谢夫·阿扎尔称，与前几天相比，伊玛目霍梅尼国际机场的空中交通量显著增加。
 
-与此同时，现货白银一度跌近5%，至61.80美元/盎司下方。
+阿扎尔说，自客运航班日前恢复以来，已完成规划并获得必要许可，开通或即将开通从德黑兰飞往伊斯坦布尔、曼谷、马斯喀特、莫斯科、北京等地的航班。
 
-此外，期货方面，COMEX黄金最低跌2.25%报4108.2美元/盎司。
+他说，伊玛目霍梅尼国际机场两个航站楼的出入境通道均严格遵守相关标准，并在安全的环境下运行。
 
-COMEX白银跌5.69%报61.85美元/盎司。
+据伊朗方面25日消息，伊玛目霍梅尼国际机场当天恢复运营。
 
-截至发稿时，现货黄金价格回到4100美元上方，跌幅收窄至1.77%。
-
-国内市场方面，截至6月23日收盘，沪金期货2608合约收报897.90元/克，跌2.04%，年初至今跌幅达到8.85%。
-
-与此同时，周二A股贵金属板块重挫。
+(央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-30 03:54 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 04:07 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 04:04 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 04:21 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 04:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 04:04 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 04:16 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-30 04:14 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 04:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 04:21 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 04:06 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 04:01 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 04:23 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 04:15 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 04:22 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 04:24 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 04:09 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 04:09 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 04:20 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 04:07 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 04:06 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 04:28 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 04:00 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 04:01 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 04:29 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 04:00 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:17 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/1439011.shtml)
-- 2026-06-30 04:15 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/01106582822.shtml)
-- 2026-06-30 04:17 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/55094088591.shtml)
-- 2026-06-30 03:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/5770357217.shtml)
-- 2026-06-30 04:05 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/43497.shtml)
-- 2026-06-30 04:14 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/6094807885.shtml)
-- 2026-06-30 03:56 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/0853531.shtml)
-- 2026-06-30 04:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/772598.shtml)
-- 2026-06-30 04:06 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/34034.shtml)
-- 2026-06-30 03:59 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/8547602409.shtml)
-- 2026-06-30 04:13 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/5088546126.shtml)
-- 2026-06-30 04:04 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/07229372.shtml)
-- 2026-06-30 04:08 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/151391289948.shtml)
-- 2026-06-30 03:59 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/38378.shtml)
-- 2026-06-30 03:54 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/7307563543.shtml)
+- 2026-06-30 04:15 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/454269994825.shtml)
+- 2026-06-30 04:27 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/08546837720.shtml)
+- 2026-06-30 04:24 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/249315.shtml)
+- 2026-06-30 04:27 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/12148.shtml)
+- 2026-06-30 04:22 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/947753.shtml)
+- 2026-06-30 04:25 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/77471308219.shtml)
+- 2026-06-30 04:03 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/6111286.shtml)
+- 2026-06-30 04:22 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/961566749693.shtml)
+- 2026-06-30 04:11 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/4311225788.shtml)
+- 2026-06-30 04:06 - [恋与深空 日服](http://www.blog.minike.top/Article/details/558081.shtml)
+- 2026-06-30 04:25 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/722662044120.shtml)
+- 2026-06-30 04:01 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/1785847147.shtml)
+- 2026-06-30 04:26 - [一见倾心](https://www.share.minike.top/Article/details/959567.shtml)
+- 2026-06-30 04:14 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/92610.shtml)
+- 2026-06-30 04:23 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/87188.shtml)

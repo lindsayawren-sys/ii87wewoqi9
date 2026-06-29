@@ -1,60 +1,56 @@
-# 贵金属：伪鹰派信号为何仍让市场恐慌？
+# 新浪财经李兀：防范“漂绿”须从披露规范、评价标准、强化监督三方面同时入手
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-作者：张晨/F0284349、Z0010567/一德期货宏观分析师 要点速览版 行情回顾 上周贵金属板块冲高回落，直接压力来自6月FOMC会议点阵图释放的超预期鹰派信号，带动实际利率与美元同步走强。 操作策略 建议配置头寸继续持有；投机头寸可采取“先卖后买”的倒差价策略，等待盘面企稳后回补。 一、调整驱动：利率信号偏鹰，但实质效力存疑 上周贵金属价格冲高回落，核心压制因素来自6
+专题：第五届气候投融国际研讨会 4月29-30日，“2026第五届气候投融资国际研讨会”在京举办，主题为“碳融新局·筑绿未来”。新浪财经总编辑李兀在演讲中谈到，“漂绿”现象不仅在中国，在国际上也是争议极大的话题，甚至导致部分“反可持续”或“反ESG”派别主张“把洗脚水都泼了，把孩子也泼出去”。 他认为，要有效防范“漂绿”，须从披露规范、评价标准和强化监督三个方面同时入手。 第一
 
 ## 正文
 
-作者：张晨/F0284349、Z0010567/一德期货宏观分析师 要点速览版 行情回顾 上周贵金属板块冲高回落，直接压力来自6月FOMC会议点阵图释放的超预期鹰派信号，带动实际利率与美元同步走强。
+专题：第五届气候投融国际研讨会 4月29-30日，“2026第五届气候投融资国际研讨会”在京举办，主题为“碳融新局·筑绿未来”。
 
-操作策略 建议配置头寸继续持有；投机头寸可采取“先卖后买”的倒差价策略，等待盘面企稳后回补。
+新浪财经总编辑李兀在演讲中谈到，“漂绿”现象不仅在中国，在国际上也是争议极大的话题，甚至导致部分“反可持续”或“反ESG”派别主张“把洗脚水都泼了，把孩子也泼出去”。
 
-一、调整驱动：利率信号偏鹰，但实质效力存疑 上周贵金属价格冲高回落，核心压制因素来自6月FOMC会议释放的超预期鹰派利率信号。
+他认为，要有效防范“漂绿”，须从披露规范、评价标准和强化监督三个方面同时入手。
 
-点阵图显示利率路径上移，带动实际利率和美元同步走强，直接触发板块调整。
+第一，披露必须规范。
 
-但从会议整体评估，利率层面的鹰派表态主要基于SEP预测和点阵图推演，而这两项工具已被新任主席沃什明确抛弃。
+李兀表示，当前国际标准尚未统一，但有志之士正在持续推进，这是“重中之重”。
 
-因此，该鹰派信号的实质政策效力无需过度夸张。
+他借用热播剧《太平年》中的一句台词——“须去做，方知晓”提到，“可持续发展事业、高质量发展其实也是类似的，我们从业人员觉得它是一个美好的前景，各利益相关方都要为此不断努力，去提高披露的规范性。
 
-二、美联储治理改革动向：独立性面临挑战 沃什在新闻发布会上宣布成立工作组，核心目标在于改变目前票委分散、难以被掌控的现状。
+” 第二，提升评价标准。
 
-后续改革极有可能通过对外沟通方式的重大调整影响投票权领域，还可能延伸至决策机制等方面，这对美联储长期秉持的独立性原则构成潜在冲击，改革推进过程预计不会平坦。
+他认为，ESG评级体系中与气候相关的权重需要调整。
 
 ## 相关推荐
 
-- 2026-06-30 04:01 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 03:54 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 04:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 04:22 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 04:18 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 03:55 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 04:19 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 04:15 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 04:18 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 04:24 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 04:10 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 04:14 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 04:06 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 04:13 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 04:27 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 04:10 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 04:18 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 04:18 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 04:18 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 04:26 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 04:21 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 04:19 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 04:02 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 04:13 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:06 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/44036484.shtml)
-- 2026-06-30 04:11 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/71606.shtml)
-- 2026-06-30 04:01 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/195436.shtml)
-- 2026-06-30 03:58 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/011234629369.shtml)
-- 2026-06-30 04:15 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/4211565729.shtml)
-- 2026-06-30 04:03 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/225644540.shtml)
-- 2026-06-30 04:16 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/72315.shtml)
-- 2026-06-30 04:07 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/51741.shtml)
-- 2026-06-30 04:03 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/782173.shtml)
-- 2026-06-30 04:23 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/17484276.shtml)
-- 2026-06-30 03:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/5155181311.shtml)
-- 2026-06-30 04:18 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/44340599190.shtml)
-- 2026-06-30 04:22 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/0330180.shtml)
-- 2026-06-30 04:05 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/4501732.shtml)
-- 2026-06-30 04:03 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/78050017.shtml)
+- 2026-06-30 04:24 - [勇敢的心第二部](https://www.share.minike.top/Article/details/9305304719.shtml)
+- 2026-06-30 04:17 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/2969059317.shtml)
+- 2026-06-30 04:13 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/547900.shtml)
+- 2026-06-30 04:20 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/94307.shtml)
+- 2026-06-30 04:14 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/3780364834.shtml)
+- 2026-06-30 04:14 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/9500147.shtml)
+- 2026-06-30 04:11 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/564871170404.shtml)
+- 2026-06-30 04:23 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/7541131.shtml)
+- 2026-06-30 04:01 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/406043233.shtml)
+- 2026-06-30 04:22 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/320229907.shtml)
+- 2026-06-30 04:28 - [点菜也要教吗](http://www.share.minike.top/Article/details/4714043781.shtml)
+- 2026-06-30 04:13 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/477827.shtml)
+- 2026-06-30 04:01 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/4559267334.shtml)
+- 2026-06-30 04:05 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/25853.shtml)
+- 2026-06-30 04:19 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/540228749.shtml)

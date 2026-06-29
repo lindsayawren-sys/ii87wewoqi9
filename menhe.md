@@ -1,56 +1,61 @@
-# SpaceX发债交易预计筹资至少200亿美元
+# 突发！英伟达暴跌！
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-SpaceX今日宣布进行有史以来的首次发债，将其资本市场首秀的舞台转向债券市场。 这家火箭制造商刚刚通过首次公开募股（IPO）筹集了逾850亿美元资金，此次预计将发行至少200亿美元的债券，用于偿还今年早些时候从银行业获得的一笔过渡性贷款。若有任何超额筹集的资金，将用于“一般公司用途”。 一位知情人士透露，该公司今日正与投资者举行电话会议，这批债券预计将于明日定价发行。 Spa
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！当地时间周四（4月30日），美股开盘上涨，截至发稿，标普500指数和纳斯达克100指数转跌。 英伟达股价重挫，截至发稿重挫4.48%，报199.87美元/股，总市值报4.86万亿美元。 4月29日，随着英伟达发布新一代开源全模态模型Nemotron 3 Nano Omni，大模型竞争的焦点加速转向智能体（A
 
 ## 正文
 
-SpaceX今日宣布进行有史以来的首次发债，将其资本市场首秀的舞台转向债券市场。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这家火箭制造商刚刚通过首次公开募股（IPO）筹集了逾850亿美元资金，此次预计将发行至少200亿美元的债券，用于偿还今年早些时候从银行业获得的一笔过渡性贷款。
+当地时间周四（4月30日），美股开盘上涨，截至发稿，标普500指数和纳斯达克100指数转跌。
 
-若有任何超额筹集的资金，将用于“一般公司用途”。
+英伟达股价重挫，截至发稿重挫4.48%，报199.87美元/股，总市值报4.86万亿美元。
 
-一位知情人士透露，该公司今日正与投资者举行电话会议，这批债券预计将于明日定价发行。
+4月29日，随着英伟达发布新一代开源全模态模型Nemotron 3 Nano Omni，大模型竞争的焦点加速转向智能体（Agent）和应用效率。
 
-SpaceX已获主要评级公司评为投资级，其中，穆迪评级给予其Baa1评级，标普全球评级给予其BBB评级。
+4月24日，DeepSeek发布新模型DeepSeek-V4，该模型有百万字超长上下文，在智能体能力、世界知识和推理性能上均实现国内与开源领域的领先，该模型与华为昇腾合作。
 
-标普分析师在上周的一份报告中称，SpaceX的火箭业务“稳健”，卫星互联网部门“具有实力”。
+前沿模型与国内算力厂商合作并完成适配，有望推动国产算力使用，客观上对英伟达构成了挑战。
 
-他们指出，由于前期投资巨大且变现路径不明，AI业务是“三个业务部门中风险最高的”。
+随着算力需求增长，4月以来还有一些关于英伟达算力卡租赁价格上涨的消息。
 
-他们补充说，居高不下的资本支出将“导致自由现金流在2029年底前持续为负”，迫使该公司通过发行债券和股票来筹集更多资金。
+4月初市场研究机构SemiAnalysis发布GPU租赁报告，显示单块英伟达H100一年期租赁合同价格从2025年10月的低点1.7美元/小时飙升至2026年3月的2.35美元/小时，涨幅近40%。
 
 ## 相关推荐
 
-- 2026-06-30 04:23 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 04:21 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 04:16 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 04:09 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 03:54 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 04:19 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 03:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 04:05 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 04:22 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 04:18 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 04:02 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 04:06 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 04:02 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 04:05 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 04:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 04:18 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 04:03 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 04:24 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 04:04 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 04:08 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 04:26 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 04:14 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 04:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 04:09 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 04:00 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - [起风了](http://www.blog.kurohicncr.top/Article/details/785253.shtml)
-- 2026-06-30 03:58 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/6172716530.shtml)
-- 2026-06-30 04:09 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/7126819749.shtml)
-- 2026-06-30 04:12 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/443432281.shtml)
-- 2026-06-30 04:08 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/0290666.shtml)
-- 2026-06-30 04:17 - [女心理师](https://www.share.kurohicncr.top/Article/details/526383.shtml)
-- 2026-06-30 04:19 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/509001678.shtml)
-- 2026-06-30 04:23 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/123224447.shtml)
-- 2026-06-30 03:57 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/425799956.shtml)
-- 2026-06-30 04:20 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/234814449.shtml)
-- 2026-06-30 04:16 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/386276.shtml)
-- 2026-06-30 03:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/1999518.shtml)
-- 2026-06-30 03:55 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/56811727.shtml)
-- 2026-06-30 04:15 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/6113696423.shtml)
-- 2026-06-30 04:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/197522002.shtml)
+- 2026-06-30 04:10 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/46479614.shtml)
+- 2026-06-30 04:23 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/26776184300.shtml)
+- 2026-06-30 04:28 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/896713066458.shtml)
+- 2026-06-30 04:04 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/202286033.shtml)
+- 2026-06-30 04:07 - [田曦薇没招了](http://www.share.minike.top/Article/details/911578.shtml)
+- 2026-06-30 04:22 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/356823.shtml)
+- 2026-06-30 04:21 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/26694.shtml)
+- 2026-06-30 04:09 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/7270582494.shtml)
+- 2026-06-30 04:14 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/42193.shtml)
+- 2026-06-30 04:20 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/23672492442.shtml)
+- 2026-06-30 04:27 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/63177137.shtml)
+- 2026-06-30 04:01 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/50263.shtml)
+- 2026-06-30 04:29 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/44990.shtml)
+- 2026-06-30 04:20 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/531906602028.shtml)
+- 2026-06-30 04:16 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/231164792.shtml)

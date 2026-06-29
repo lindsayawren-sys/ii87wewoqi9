@@ -1,60 +1,57 @@
-# 三星电子发布业界最快UFS 5.0闪存，用于设备端人工智能
+# 习近平主席贺信为上合绿色和可持续发展合作凝聚合力
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-三星电子公司周二表示，该公司已开发出业界速度最快的通用闪存存储 （UFS） 5.0 解决方案，旨在使人工智能 （AI） 模型能够直接在设备上运行，而无需网络连接。 三星表示，其下一代UFS 5.0闪存将为智能手机和其他移动设备提供业界领先的性能，预计将作为存储解决方案应用于这些设备。 三星电子内存产品规划负责人Choi Jang-seok表示：“在设备端AI时代，存储设备正在演
+原标题：携手共建清洁、美丽、可持续的世界——习近平主席贺信为深化上海合作组织绿色和可持续发展合作凝聚合力 新华社北京4月29日电 题：携手共建清洁、美丽、可持续的世界——习近平主席贺信为深化上海合作组织绿色和可持续发展合作凝聚合力 新华社记者温馨、董雪、方问禹 4月29日，国家主席习近平向上海合作组织绿色和可持续发展论坛致贺信。与会各方表示，习近平主席在去年“上海合作组织+”会
 
 ## 正文
 
-三星电子公司周二表示，该公司已开发出业界速度最快的通用闪存存储 （UFS） 5.0 解决方案，旨在使人工智能 （AI） 模型能够直接在设备上运行，而无需网络连接。
+原标题：携手共建清洁、美丽、可持续的世界——习近平主席贺信为深化上海合作组织绿色和可持续发展合作凝聚合力 新华社北京4月29日电 题：携手共建清洁、美丽、可持续的世界——习近平主席贺信为深化上海合作组织绿色和可持续发展合作凝聚合力 新华社记者温馨、董雪、方问禹 4月29日，国家主席习近平向上海合作组织绿色和可持续发展论坛致贺信。
 
-三星表示，其下一代UFS 5.0闪存将为智能手机和其他移动设备提供业界领先的性能，预计将作为存储解决方案应用于这些设备。
+与会各方表示，习近平主席在去年“上海合作组织+”会议上提出中方将办好这一论坛，今天又专门向论坛发来贺信，充分体现了对上海合作组织绿色和可持续发展合作的高度重视，彰显了中国与上合组织国家团结协作、携手并进的坚定决心。
 
-三星电子内存产品规划负责人Choi Jang-seok表示：“在设备端AI时代，存储设备正在演变为定义人工智能体验的关键驱动因素。
+贺信为各方共谋全球生态文明建设之路、共促全球环境治理体系完善指明了方向、凝聚了力量。
 
-” 该公司表示，UFS 5.0闪存的量产计划于今年第四季度开始。
+习近平主席在贺信中指出，中国秉持绿水青山就是金山银山理念，坚定不移走生态优先、绿色发展之路，是全球生态文明建设的参与者、贡献者、引领者。
 
-三星电子称，这项技术为下一代移动存储器市场树立了新的标杆。
+各方对此表示高度赞赏。
 
-生成式人工智能正迅速从云端转移到设备端，导致本地需要处理的数据量急剧增长。
+目前，中国人工林面积稳居世界第一，建成全球规模最大的碳市场，风电、光伏装机容量连续多年全球第一；中国以更大力度帮助和支持生态环境脆弱、绿色发展能力薄弱的国家和地区，已与100多个国家和地区开展了绿色能源项目合作，成为全球最大清洁技术出口国，创造了全球可再生能源领域约一半的工作岗位…… “论坛主题是‘践行全球治理倡议，共促上合组织绿色和可持续发展’。
 
-因此，存储介质也从主要用于存储数据转变为支持人工智能计算的核心基础设施。
+”吉尔吉斯斯坦总统特别代表托罗巴耶夫表示，在习近平主席领导下，中国在绿色发展领域取得显著成就，已成为全球绿色转型的重要引领者。
 
-据介绍，三星UFS 5.0最高顺序读取速度为10.8GB/s，最高写入速度为9.5GB/s，均较上一代UFS 4.1提升一倍以上，可进一步缩短大型应用和端侧AI模型的加载时间。
+习近平主席提出的绿水青山就是金山银山理念，生动阐释了可持续经济增长与惠及后代之间的深层逻辑。
 
 ## 相关推荐
 
-- 2026-06-30 04:12 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 04:10 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 04:20 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 04:13 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 04:22 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 04:03 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 04:12 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 04:15 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 04:07 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 03:56 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 04:15 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 04:09 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 04:14 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 04:07 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 04:29 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 04:07 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 04:13 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 04:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 04:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 04:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 04:01 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 04:08 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 04:19 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 04:10 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 04:14 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:22 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/186382673.shtml)
-- 2026-06-30 04:06 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/10276474142.shtml)
-- 2026-06-30 04:12 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/016469284367.shtml)
-- 2026-06-30 04:21 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/33485644968.shtml)
-- 2026-06-30 04:02 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/85001253569.shtml)
-- 2026-06-30 03:59 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/907504.shtml)
-- 2026-06-30 04:02 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/283097683.shtml)
-- 2026-06-30 04:05 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/85487914068.shtml)
-- 2026-06-30 03:56 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/946000295.shtml)
-- 2026-06-30 03:55 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/689861801800.shtml)
-- 2026-06-30 04:22 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/31276346.shtml)
-- 2026-06-30 04:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/091443.shtml)
-- 2026-06-30 04:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/69039533685.shtml)
-- 2026-06-30 04:21 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/384260588.shtml)
-- 2026-06-30 04:11 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/06122448438.shtml)
+- 2026-06-30 04:01 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/5994011337.shtml)
+- 2026-06-30 04:20 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/5138216.shtml)
+- 2026-06-30 04:11 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/0695033160.shtml)
+- 2026-06-30 04:29 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/85623287.shtml)
+- 2026-06-30 04:01 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/7025355.shtml)
+- 2026-06-30 04:05 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/716407664516.shtml)
+- 2026-06-30 04:16 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/224722598.shtml)
+- 2026-06-30 04:13 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/60414267.shtml)
+- 2026-06-30 04:10 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/87267.shtml)
+- 2026-06-30 04:28 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/2734940.shtml)
+- 2026-06-30 04:19 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/41899236.shtml)
+- 2026-06-30 04:17 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/3658329.shtml)
+- 2026-06-30 04:09 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/17127561612.shtml)
+- 2026-06-30 04:19 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/37836523.shtml)
+- 2026-06-30 04:05 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/304507270.shtml)

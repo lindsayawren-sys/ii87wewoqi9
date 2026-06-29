@@ -1,57 +1,56 @@
-# 你放心让AI养宠物吗？
+# “宁水贷”正式发布：用水权变“硬通货” 首批4家企业获授信5.5亿元
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-你放心让AI养宠物吗？(有事说事) 数据显示，在第六届TOPS它博会宠物展上，专业观众超8.2万人，海外买家增长，采购节交易额也交出亮眼成绩单。另据媒体报道，越来越多的企业涌入这条赛道，并借助人工智能技术探索新的产品形态和服务模式。 随着独居人数增加，宠物正逐渐从“饲养动物”转变为不少养宠物人生活中的重要陪伴者。《2026年中国宠物行业白皮书(消费报告)》显示，消费者越来越愿意
+中新网银川4月30日电 (记者 于晶)4月30日，由宁夏回族自治区党委金融办、水利厅与农业银行宁夏分行联合推出的“宁水贷”特色金融产品正式发布。该产品突破传统抵押模式，将用水权价值、节水成效等纳入银行授信依据，实现“水权变信贷”。首批4家涉水企业累计获得专项授信5.5亿元。“宁水贷”是宁夏深化“四水四定”、推进用水权改革的重要突破。产品创新建立两种融资模式：“水权+信用”增信模
 
 ## 正文
 
-你放心让AI养宠物吗？
+中新网银川4月30日电 (记者 于晶)4月30日，由宁夏回族自治区党委金融办、水利厅与农业银行宁夏分行联合推出的“宁水贷”特色金融产品正式发布。
 
-(有事说事) 数据显示，在第六届TOPS它博会宠物展上，专业观众超8.2万人，海外买家增长，采购节交易额也交出亮眼成绩单。
+该产品突破传统抵押模式，将用水权价值、节水成效等纳入银行授信依据，实现“水权变信贷”。
 
-另据媒体报道，越来越多的企业涌入这条赛道，并借助人工智能技术探索新的产品形态和服务模式。
+首批4家涉水企业累计获得专项授信5.5亿元。
 
-随着独居人数增加，宠物正逐渐从“饲养动物”转变为不少养宠物人生活中的重要陪伴者。
+“宁水贷”是宁夏深化“四水四定”、推进用水权改革的重要突破。
 
-《2026年中国宠物行业白皮书(消费报告)》显示，消费者越来越愿意为宠物提供的情感价值买单。
+产品创新建立两种融资模式：“水权+信用”增信模式，以用水权评估价值为基数，叠加信用评价、节水成效等指标，优质主体融资额度最高可放大8倍，实现无抵押纯信用贷款；“用水权抵押+”组合担保模式，以用水权抵押为基础，可叠加其他担保方式，抵押率最高可达评估价值的75%，为信用一般企业提供多元融资渠道。
 
-在此背景下，人工智能的应用为养宠生活带来了不少积极变化。
+产品还为涉水经营主体配套提供额度优先、期限灵活、利率优惠、担保多元、审批高效、成本压降的一揽子金融优惠政策。
 
-智能喂食器、陪伴机器人等产品，在一定程度上缓解了宠物独处和主人陪伴不足的问题；健康监测设备通过数据分析，为疾病预警和日常管理提供参考，让养宠更加科学便捷；从行业发展角度看，AI技术的融入也有助于推动产品创新，进一步释放消费潜力，为宠物经济注入新的增长动力。
+签约现场，国能宁夏鸳鸯湖第二发电有限公司、宁夏宁东水务有限公司、宁夏全等4家企业获首批授信。
 
-与此同时，面对快速发展的市场，也需保持理性思考。
+宁夏塞尚乳业有限公司相关负责人介绍，企业凭借30万立方米用水权和A级信用等级，通过“水权+信用”模式获得农行5000万元授信，全程无需固定资产抵押，“为企业长期投资吃下了‘定心丸’”。
 
 ## 相关推荐
 
-- 2026-06-30 04:08 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-30 04:01 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 04:17 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 04:23 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 04:18 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 04:04 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 04:12 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 03:56 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 04:07 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 04:18 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 04:20 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 04:13 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 04:19 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 04:12 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 04:17 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 04:24 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 04:14 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 04:26 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 04:09 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 04:28 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 04:01 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:01 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/932870384.shtml)
-- 2026-06-30 04:06 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/75940934.shtml)
-- 2026-06-30 04:21 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/962795487.shtml)
-- 2026-06-30 04:12 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/04688771220.shtml)
-- 2026-06-30 04:03 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/74681.shtml)
-- 2026-06-30 04:01 - [日本反击率先破门](http://www.blog.minike.top/Article/details/42681023854.shtml)
-- 2026-06-30 04:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/08111687313.shtml)
-- 2026-06-30 04:17 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/53710794.shtml)
-- 2026-06-30 03:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/6347349739.shtml)
-- 2026-06-30 04:17 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/649774656.shtml)
-- 2026-06-30 04:22 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/842854.shtml)
-- 2026-06-30 03:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/5021319370.shtml)
-- 2026-06-30 04:21 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/7881747781.shtml)
-- 2026-06-30 04:09 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/529081.shtml)
-- 2026-06-30 04:17 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/002549068.shtml)
+- 2026-06-30 04:10 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/17212741292.shtml)
+- 2026-06-30 04:19 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/9055116.shtml)
+- 2026-06-30 04:12 - [美股](https://www.share.kurohicncr.top/Article/details/91579.shtml)
+- 2026-06-30 04:05 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/25146677.shtml)
+- 2026-06-30 04:17 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/353014747997.shtml)
+- 2026-06-30 04:29 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/615472368.shtml)
+- 2026-06-30 04:25 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/492130824751.shtml)
+- 2026-06-30 04:02 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/52237426439.shtml)
+- 2026-06-30 04:26 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/969425780.shtml)
+- 2026-06-30 04:27 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/54985544.shtml)
+- 2026-06-30 04:02 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/489585900830.shtml)
+- 2026-06-30 04:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/7266043.shtml)
+- 2026-06-30 04:07 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/27902.shtml)
+- 2026-06-30 04:05 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/7532770.shtml)
+- 2026-06-30 04:18 - [美股](http://www.blog.kurohicncr.top/Article/details/32630533946.shtml)

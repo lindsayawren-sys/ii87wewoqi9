@@ -1,58 +1,60 @@
-# 永辉柳州首店开业：4天销售额674万 定制及自有品牌占比首破40%
+# 秒售罄！定价5999元的LABUBU冰箱，最高溢价15000元！
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月22日晚间消息，永辉柳州首店于6月18日开业。官方披露数据，开业前四天该店累计销售额突破674万元，其中永辉定制及自有品牌“品质永辉”产品销售占比首次超过40%，创下历史新高，门店累计客流超7万人次。 随着重庆、柳州等调改店相继开业，永辉全国门店已进入调改第二阶段的核心推进期。据介绍，本阶段重点围绕“十
+4月30日晚10点，定价5999元的泡泡玛特首款LABUBU冰箱正式开售，京东、天猫官方旗舰店上线即秒售罄。 第三方平台上，LABUBU冰箱已出现大幅溢价。得物App价格趋势图显示，LABUBU冰箱市场成交价由发售价5999元上涨至最高20999元，溢价15000元。随后，LABUBU冰箱的市场价有所回落，最新市场成交价为11999元，溢价回落至6000元。 行业人士指出，LA
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+4月30日晚10点，定价5999元的泡泡玛特首款LABUBU冰箱正式开售，京东、天猫官方旗舰店上线即秒售罄。
 
-6月22日晚间消息，永辉柳州首店于6月18日开业。
+第三方平台上，LABUBU冰箱已出现大幅溢价。
 
-官方披露数据，开业前四天该店累计销售额突破674万元，其中永辉定制及自有品牌“品质永辉”产品销售占比首次超过40%，创下历史新高，门店累计客流超7万人次。
+得物App价格趋势图显示，LABUBU冰箱市场成交价由发售价5999元上涨至最高20999元，溢价15000元。
 
-随着重庆、柳州等调改店相继开业，永辉全国门店已进入调改第二阶段的核心推进期。
+随后，LABUBU冰箱的市场价有所回落，最新市场成交价为11999元，溢价回落至6000元。
 
-据介绍，本阶段重点围绕“十大健康场景”重塑商品结构，致力于为消费者提供更清晰、更安心的健康选择。
+行业人士指出，LABUBU冰箱开启了冰箱IP化的新品类，让冰箱从单纯的使用价值升级为具备情绪价值的潮流新品，成为“可使用的全球限量单品”。
 
-接下来，呼和浩特、广州等城市新店将陆续亮相。
+LABUBU冰箱的风靡也印证了泡泡玛特IP的巨大影响力。
 
-责任编辑：宋雅芳
+回溯来看，4月24日，泡泡玛特在社交平台宣布将发售该产品。
+
+作为泡泡玛特首款家电产品，消息一经发布便引发全网热议。
 
 ## 相关推荐
 
-- 2026-06-30 04:10 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 04:18 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 04:20 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 04:12 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-30 03:56 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 04:05 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 04:03 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 04:23 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-30 04:18 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 04:01 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-30 04:22 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 03:59 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 04:04 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 04:18 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 04:04 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 04:29 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 04:07 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 04:23 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 04:24 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 04:08 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 04:01 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 04:20 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 04:14 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 04:16 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 04:11 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 04:21 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 04:28 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 04:19 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:23 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/914537300.shtml)
-- 2026-06-30 04:02 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/454120183.shtml)
-- 2026-06-30 04:15 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/0332608.shtml)
-- 2026-06-30 04:15 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/550738851.shtml)
-- 2026-06-30 04:20 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/51742222987.shtml)
-- 2026-06-30 04:07 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/1698078.shtml)
-- 2026-06-30 04:09 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/900848881.shtml)
-- 2026-06-30 04:06 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/9331577.shtml)
-- 2026-06-30 04:15 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/6483866.shtml)
-- 2026-06-30 03:59 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/21312802116.shtml)
-- 2026-06-30 03:54 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/3592464559.shtml)
-- 2026-06-30 04:15 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/59287280.shtml)
-- 2026-06-30 04:08 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/0599178926.shtml)
-- 2026-06-30 03:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/48584134.shtml)
-- 2026-06-30 04:22 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/2531175.shtml)
+- 2026-06-30 04:22 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/536707253.shtml)
+- 2026-06-30 04:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/202546166.shtml)
+- 2026-06-30 04:15 - [日本进球](http://www.blog.minike.top/Article/details/22299864091.shtml)
+- 2026-06-30 04:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/2545702.shtml)
+- 2026-06-30 04:21 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/88806992.shtml)
+- 2026-06-30 04:25 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/561361541538.shtml)
+- 2026-06-30 04:25 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/8632317606.shtml)
+- 2026-06-30 04:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/1858115110.shtml)
+- 2026-06-30 04:18 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/0445417875.shtml)
+- 2026-06-30 04:22 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/199227592.shtml)
+- 2026-06-30 04:27 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/90228930931.shtml)
+- 2026-06-30 04:29 - [扬名立万](http://www.blog.minike.top/Article/details/68834779990.shtml)
+- 2026-06-30 04:08 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/49216551.shtml)
+- 2026-06-30 04:28 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/2161575542.shtml)
+- 2026-06-30 04:06 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/88012137.shtml)

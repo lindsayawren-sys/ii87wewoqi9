@@ -1,61 +1,61 @@
-# 新加坡5月通胀率维持1.8%，服务成本回落低于市场预期
+# 临夏有约：西北有座千年“牡丹城”
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-核心要点 受电信服务价格下行对冲了私人交通、住宿、零售及食品价格上涨影响，新加坡 5 月通胀率持平于 1.8%，低于市场经济学家预期。 本次通胀数据不及路透社受访经济学家预测的 2%，与 4 月录得的 1.8% 保持一致。 官方数据显示，汽车、摩托车价格上涨推高私人交通类通胀，住宿、零售以及食品价格同样带动整体物价上行。 剔除住宿与私人交通两项的核心通胀率为 1.4%，低于市场
+中新网兰州5月1日电 (马临舟 李彬)5月1日，2026年河州牡丹文化嘉年华84场活动全城联动，将这座“中国牡丹之乡”甘肃临夏州临夏市的浪漫推向高潮。 在很多人的刻板印象里，西北是黄沙漫卷的苍茫之地，与国色天香的牡丹似乎毫无关联。但在临夏市，牡丹却是扎根千年的城市底色。 临夏与牡丹的渊源可追溯至盛唐。作为丝路重镇，这里的河州紫斑牡丹因花瓣基部独特的紫色斑点得名，至今已有1400
 
 ## 正文
 
-核心要点 受电信服务价格下行对冲了私人交通、住宿、零售及食品价格上涨影响，新加坡 5 月通胀率持平于 1.8%，低于市场经济学家预期。
+中新网兰州5月1日电 (马临舟 李彬)5月1日，2026年河州牡丹文化嘉年华84场活动全城联动，将这座“中国牡丹之乡”甘肃临夏州临夏市的浪漫推向高潮。
 
-本次通胀数据不及路透社受访经济学家预测的 2%，与 4 月录得的 1.8% 保持一致。
+在很多人的刻板印象里，西北是黄沙漫卷的苍茫之地，与国色天香的牡丹似乎毫无关联。
 
-官方数据显示，汽车、摩托车价格上涨推高私人交通类通胀，住宿、零售以及食品价格同样带动整体物价上行。
+但在临夏市，牡丹却是扎根千年的城市底色。
 
-剔除住宿与私人交通两项的核心通胀率为 1.4%，低于市场预测的 1.6%。
+临夏与牡丹的渊源可追溯至盛唐。
 
-新加坡金融管理局在声明中表示，尽管近期能源价格有所回落，但相较 2025 年依旧处于高位。
+作为丝路重镇，这里的河州紫斑牡丹因花瓣基部独特的紫色斑点得名，至今已有1400多年栽培历史。
 
-该行指出：“高昂的能源成本会存在滞后效应，并沿着全球供应链传导，未来一段时间或将推升新加坡大量进口商品与服务的生产、运输成本。
+相传，文成公主进藏途经临夏，在炳灵寺留下的牡丹种苗，经过世代繁衍，形成花瓣基部带独特紫斑的河州紫斑牡丹。
 
-” 金管局同时表示，随着名义薪资增速放缓，今年服务业人力成本涨幅大概率收窄；叠加经济前景存在不确定性，国内居民消费支出或将趋于谨慎。
+金代墓葬的牡丹砖雕、《嘉靖河州志》的记载，以及解缙“至今花树似咸京”、吴镇“袍罕花称小洛阳”的诗句，都印证着牡丹早已融入这片土地的文化血脉。
 
-eToro 市场分析师黄扎维尔在数据发布后的研报中分析，受伊朗地缘冲突影响的燃油高价、以及新加坡机动车拥车证费用走高，共同推升了本次通胀数据。
+在临夏，从八坊十三巷的雕花院落到城郊农家小院，处处可见牡丹身影，不少民间爱好者潜心培育品种，树龄数十年的牡丹在当地并不鲜见。
 
 ## 相关推荐
 
-- 2026-06-30 04:03 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 04:00 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 04:21 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 04:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 04:14 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 04:01 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 03:57 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 04:07 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-30 04:16 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 04:05 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-30 03:59 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 04:12 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 04:20 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 03:57 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 04:05 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 04:26 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 04:08 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 04:25 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 04:14 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 04:10 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 04:08 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 04:20 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-30 04:08 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-30 04:09 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 04:08 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 04:17 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 04:00 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 04:24 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 04:17 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-30 04:09 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:54 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/64354259.shtml)
-- 2026-06-30 04:03 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/117326.shtml)
-- 2026-06-30 04:04 - [《共患难》](http://www.share.minike.top/Article/details/3621537386.shtml)
-- 2026-06-30 04:23 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/597893373201.shtml)
-- 2026-06-30 04:00 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/122599714963.shtml)
-- 2026-06-30 04:14 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/60437.shtml)
-- 2026-06-30 04:19 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/56850316.shtml)
-- 2026-06-30 04:12 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/92956645.shtml)
-- 2026-06-30 04:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/10856037373.shtml)
-- 2026-06-30 04:03 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/2575878.shtml)
-- 2026-06-30 04:10 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/206114665098.shtml)
-- 2026-06-30 04:01 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/065858332.shtml)
-- 2026-06-30 04:11 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/150905.shtml)
-- 2026-06-30 04:12 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/28897.shtml)
-- 2026-06-30 04:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/897293765.shtml)
+- 2026-06-30 04:15 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/053075383.shtml)
+- 2026-06-30 04:14 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/452273633292.shtml)
+- 2026-06-30 04:29 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/78261426.shtml)
+- 2026-06-30 04:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/087650970936.shtml)
+- 2026-06-30 04:18 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/959256.shtml)
+- 2026-06-30 04:04 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/990843163.shtml)
+- 2026-06-30 04:20 - [一生一世](http://www.share.kurohicncr.top/Article/details/483758.shtml)
+- 2026-06-30 04:03 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/568327402650.shtml)
+- 2026-06-30 04:17 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/2582529.shtml)
+- 2026-06-30 04:11 - [扫黑风暴](http://www.share.minike.top/Article/details/0288362.shtml)
+- 2026-06-30 04:27 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/7955810569.shtml)
+- 2026-06-30 04:07 - [斛珠夫人](https://www.blog.minike.top/Article/details/23004292642.shtml)
+- 2026-06-30 04:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/605868574.shtml)
+- 2026-06-30 04:11 - [明星大侦探第一季](https://www.share.minike.top/Article/details/1254031900.shtml)
+- 2026-06-30 04:26 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/07070.shtml)

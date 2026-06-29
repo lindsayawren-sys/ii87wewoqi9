@@ -1,56 +1,50 @@
-# 财政司司长陈茂波：首季香港基金净流入1000亿，稳居全球三大ETF市场之列
+# 美国总统特朗普听取了对伊朗潜在军事行动方案的简报
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-6月22日，香港投资基金公会第19届年会成功举办，财政司司长陈茂波出席会议时表示：去年以香港为注册地的基金净流入约3500亿元，良好势头延续至今年第一季，再增加近1000亿元，稳居全球三大ETF市场之列。 陈茂波指，过去两年，在香港上市的交易所买卖产品（ETP）数量已从不足180只增长到240多只，管理资产规模接近6500亿元，使香港稳居全球三大ETF市场之列。这意味着全球投资
+Axios记者在社交媒体平台X援引两位知情美国官员的消息发帖称，中央司令部司令Brad Cooper上将和参谋长联席会议主席Dan Caine将军，已就针对伊朗的潜在军事行动新方案向总统特朗普作了简报。简报持续时间约45分钟。责任编辑：王永生
 
 ## 正文
 
-6月22日，香港投资基金公会第19届年会成功举办，财政司司长陈茂波出席会议时表示：去年以香港为注册地的基金净流入约3500亿元，良好势头延续至今年第一季，再增加近1000亿元，稳居全球三大ETF市场之列。
+Axios记者在社交媒体平台X援引两位知情美国官员的消息发帖称，中央司令部司令Brad Cooper上将和参谋长联席会议主席Dan Caine将军，已就针对伊朗的潜在军事行动新方案向总统特朗普作了简报。
 
-陈茂波指，过去两年，在香港上市的交易所买卖产品（ETP）数量已从不足180只增长到240多只，管理资产规模接近6500亿元，使香港稳居全球三大ETF市场之列。
+简报持续时间约45分钟。
 
-这意味着全球投资者现在可以透过香港，以更低的风险溢价配置黄金、科技、跨境指数甚至数字资产。
-
-香港正推进建立一个支持多资产托管、跨国抵押和跨境结算的“国际中央证券存管处”（ICSD）。
-
-这项工作的重要性不仅在于技术本身，更在于它将带来的资本部署效率。
-
-此外，过去几年香港也引入了数项法例修订，并提供丰厚的税务优惠，以进一步提升香港基金制度的竞争力。
-
-责任编辑：尉旖涵
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 04:18 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-30 04:23 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 03:58 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 04:10 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 04:05 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 04:22 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 04:19 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 04:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 04:13 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 04:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 03:59 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 04:14 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 04:29 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 04:29 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 04:11 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 04:02 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 04:12 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 04:07 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 04:02 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 04:22 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 04:27 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 04:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 04:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 04:13 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 04:22 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 04:03 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:04 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/54675.shtml)
-- 2026-06-30 04:20 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/90780932.shtml)
-- 2026-06-30 04:16 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/593530.shtml)
-- 2026-06-30 04:03 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/920263833452.shtml)
-- 2026-06-30 03:59 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/575203154813.shtml)
-- 2026-06-30 03:58 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/1342990614.shtml)
-- 2026-06-30 04:01 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/356932534894.shtml)
-- 2026-06-30 04:12 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/772979170044.shtml)
-- 2026-06-30 04:10 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/7375965.shtml)
-- 2026-06-30 04:08 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/659182.shtml)
-- 2026-06-30 04:07 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/146245734183.shtml)
-- 2026-06-30 04:14 - [周生如故](http://www.blog.minike.top/Article/details/36267.shtml)
-- 2026-06-30 03:58 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/31669152184.shtml)
-- 2026-06-30 04:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/372557858.shtml)
-- 2026-06-30 04:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/49226350.shtml)
+- 2026-06-30 04:06 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/8608212.shtml)
+- 2026-06-30 04:14 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/75714.shtml)
+- 2026-06-30 04:07 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/185954628.shtml)
+- 2026-06-30 04:12 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/14506.shtml)
+- 2026-06-30 04:04 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/30405.shtml)
+- 2026-06-30 04:26 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/5913874.shtml)
+- 2026-06-30 04:18 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/300714.shtml)
+- 2026-06-30 04:27 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/1107560764.shtml)
+- 2026-06-30 04:29 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/241635494926.shtml)
+- 2026-06-30 04:17 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/0544993.shtml)
+- 2026-06-30 04:08 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/562152430503.shtml)
+- 2026-06-30 04:19 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/43639.shtml)
+- 2026-06-30 04:27 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/713195759.shtml)
+- 2026-06-30 04:04 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/5136852958.shtml)
+- 2026-06-30 04:20 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/68954.shtml)

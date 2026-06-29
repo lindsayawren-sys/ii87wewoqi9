@@ -1,56 +1,59 @@
-# （经济观察）端午假期中国旅游市场现三大新风向
+# AI短剧疑融脸肖战王一博？律师分析如何认定AI角色构成肖像权侵权
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-中新社北京6月22日电 题：端午假期中国旅游市场现三大新风向 中新社记者 刘文文 2026年端午假期已收官。据中国交通运输部统计，假期三天(2026年6月19日-21日)，预计全社会跨区域人员流动量超6.5亿人次。假日期间，旅游市场呈现三大出游新风向。 民俗游成假日流量担当 作为传统佳节，端午民俗体验持续“出圈”。今年显著变化在于：从“打卡式”观光转向“沉浸式”体验。同程旅行数
+中新网北京4月29日电(记者 郎朗)近日，某卫视上星播出的AI短剧《中国传说·白蛇》被网友质疑融脸知名艺人肖战、王一博，且有不少网友认为相似度颇高，#AI短剧疑融脸肖战王一博捞百万流量#登上热搜，引发热议。截至目前，该卫视已删除《中国传说·白蛇》相关海报、博文。 法律层面上，如何认定AI角色构成肖像权侵权？如果侵权属实，侵权方需要承担哪些责任？ “从法律的滞后性上来说，这类问题
 
 ## 正文
 
-中新社北京6月22日电 题：端午假期中国旅游市场现三大新风向 中新社记者 刘文文 2026年端午假期已收官。
+中新网北京4月29日电(记者 郎朗)近日，某卫视上星播出的AI短剧《中国传说·白蛇》被网友质疑融脸知名艺人肖战、王一博，且有不少网友认为相似度颇高，#AI短剧疑融脸肖战王一博捞百万流量#登上热搜，引发热议。
 
-据中国交通运输部统计，假期三天(2026年6月19日-21日)，预计全社会跨区域人员流动量超6.5亿人次。
+截至目前，该卫视已删除《中国传说·白蛇》相关海报、博文。
 
-假日期间，旅游市场呈现三大出游新风向。
+法律层面上，如何认定AI角色构成肖像权侵权？
 
-民俗游成假日流量担当 作为传统佳节，端午民俗体验持续“出圈”。
+如果侵权属实，侵权方需要承担哪些责任？
 
-今年显著变化在于：从“打卡式”观光转向“沉浸式”体验。
+“从法律的滞后性上来说，这类问题的边界还比较模糊，还需要更多精细规则的制定。
 
-同程旅行数据显示，包粽子、手工制香囊、编织五彩绳、制作艾草花束等深度体验类产品，预订热度同比增长23%。
+”北京德翔律师事务所主任安翔告诉中新网，如果AI制作数字虚拟人的过程中，使用了明星的肖像，导致数字虚拟人拥有了显著的明星可识别特征，将构成对肖像权的侵犯。
 
-沉浸式手作将节日氛围拉满，让传统古韵可触可感。
+正在征求意见的《数字虚拟人信息服务管理办法(征求意见稿)》中可以看到，此办法拟将未经许可使用与特定自然人高度相似的肖像列入禁止范畴。
 
-同时，新中式游园、古风市集、古礼复原等文旅新业态热度持续走高。
+《中华人民共和国民法典》第1018条规定，“自然人享有肖像权，有权依法制作、使用、公开或者许可他人使用自己的肖像。
 
 ## 相关推荐
 
-- 2026-06-30 04:17 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-30 04:12 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 04:23 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 04:20 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 04:16 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 04:06 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 04:24 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 03:58 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 04:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 03:55 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 04:27 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 04:03 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 04:21 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 04:02 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 04:07 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 04:01 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 04:07 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 04:00 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 04:16 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 04:22 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 04:23 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 04:11 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 04:00 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:20 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/217737968.shtml)
-- 2026-06-30 04:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/82863.shtml)
-- 2026-06-30 04:16 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/33159331251.shtml)
-- 2026-06-30 03:54 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/171742537.shtml)
-- 2026-06-30 04:03 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/168344574.shtml)
-- 2026-06-30 04:13 - [毒液2](http://www.blog.kurohicncr.top/Article/details/970723919.shtml)
-- 2026-06-30 04:17 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/2807695.shtml)
-- 2026-06-30 04:15 - [扫黑风暴](http://www.share.minike.top/Article/details/41634027.shtml)
-- 2026-06-30 04:06 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/9870925556.shtml)
-- 2026-06-30 04:22 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/72521.shtml)
-- 2026-06-30 04:07 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/607882204.shtml)
-- 2026-06-30 04:08 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/39722141.shtml)
-- 2026-06-30 04:13 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/799280.shtml)
-- 2026-06-30 04:02 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/16232.shtml)
-- 2026-06-30 04:02 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/046907830556.shtml)
+- 2026-06-30 04:20 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/71522.shtml)
+- 2026-06-30 04:25 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/18932.shtml)
+- 2026-06-30 04:03 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/25109.shtml)
+- 2026-06-30 04:09 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/122386588746.shtml)
+- 2026-06-30 04:24 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/02917.shtml)
+- 2026-06-30 04:22 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/224810947.shtml)
+- 2026-06-30 04:29 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/622849.shtml)
+- 2026-06-30 04:23 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/593102377.shtml)
+- 2026-06-30 04:26 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/820275.shtml)
+- 2026-06-30 04:08 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/91563301.shtml)
+- 2026-06-30 04:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/45389.shtml)
+- 2026-06-30 04:02 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/80713436297.shtml)
+- 2026-06-30 04:21 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/587979448.shtml)
+- 2026-06-30 04:20 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/896886755.shtml)
+- 2026-06-30 04:27 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/45863.shtml)

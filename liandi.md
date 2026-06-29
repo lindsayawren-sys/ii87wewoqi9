@@ -1,59 +1,59 @@
-# 丁薛祥出席第四届中国国际供应链促进博览会开幕式并作主旨讲话
+# 俄外交部：东京审判在全人类层面具有重要意义
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-新华社北京6月22日电 第四届中国国际供应链促进博览会22日在北京开幕，中共中央政治局常委、国务院副总理丁薛祥出席并作主旨讲话。 丁薛祥表示，当前世界形势复杂多变，产业链供应链碎片化风险增加。习近平主席指出，维护全球产业链供应链韧性和稳定是推动世界经济发展的重要保障，符合世界各国人民共同利益。中国作为负责任大国，有效发挥完整产业体系、超大规模市场等优势，努力畅通世界经济运行脉络
+当地时间4月29日，俄罗斯外交部发言人扎哈罗娃表示，东京审判在法律和全人类层面都具有重要意义。 扎哈罗娃当天在记者会上回答东京审判开庭80周年相关提问时说，二战期间日本军国主义犯下的反人类罪行没有追诉时效限制，查明这些罪行的工作将继续进行。俄方正竭尽全力进一步揭露日本军国主义的罪行，并将系统性公布相关信息。 扎哈罗娃说，二战期间，日本奴役亚洲国家，并对平民犯下了惨无人道的罪行。
 
 ## 正文
 
-新华社北京6月22日电 第四届中国国际供应链促进博览会22日在北京开幕，中共中央政治局常委、国务院副总理丁薛祥出席并作主旨讲话。
+当地时间4月29日，俄罗斯外交部发言人扎哈罗娃表示，东京审判在法律和全人类层面都具有重要意义。
 
-丁薛祥表示，当前世界形势复杂多变，产业链供应链碎片化风险增加。
+扎哈罗娃当天在记者会上回答东京审判开庭80周年相关提问时说，二战期间日本军国主义犯下的反人类罪行没有追诉时效限制，查明这些罪行的工作将继续进行。
 
-习近平主席指出，维护全球产业链供应链韧性和稳定是推动世界经济发展的重要保障，符合世界各国人民共同利益。
+俄方正竭尽全力进一步揭露日本军国主义的罪行，并将系统性公布相关信息。
 
-中国作为负责任大国，有效发挥完整产业体系、超大规模市场等优势，努力畅通世界经济运行脉络，以实际行动坚定维护全球产业链供应链稳定畅通。
+扎哈罗娃说，二战期间，日本奴役亚洲国家，并对平民犯下了惨无人道的罪行。
 
-事实充分证明，中国既是全球产业链供应链合作的参与者和受益者，也是坚定的维护者和建设者。
+日本政府应该吸取历史教训，放弃当前“再军事化”和试图遗忘其在二战期间所犯战争罪行的做法。
 
-丁薛祥强调，全球供应链、产业链、价值链紧密联系，每个国家都是合作链条中的一环，维护全球产业链供应链稳定畅通需要各方共同努力。
+1946年至1948年，远东国际军事法庭对第二次世界大战中日本首要甲级战犯进行国际大审判，史称“东京审判”，共开庭800多次、出庭证人达400多名、书面证人700多名、受理证据4300多件、判决书长达1200多页，最终判决25名被告有罪，东条英机、松井石根等7人被处以绞刑。
 
-他提出4点建议：一是加强相互信任，防止将经贸问题政治化、武器化、泛安全化，着力消除非经济因素干扰，共同维护产业链供应链的全球公共产品属性。
-
-二是加强贸易畅通，维护和践行真正的多边主义，维护以世界贸易组织为核心的多边贸易体制，反对以绿色低碳为名、行保护主义之实，积极营造公平、开放、可预期的市场环境，促进贸易投资自由化便利化。
+来源：央视新闻客户端
 
 ## 相关推荐
 
-- 2026-06-30 04:06 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 04:08 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-30 04:01 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 04:14 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 03:57 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 03:54 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 04:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 04:11 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 04:00 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-30 03:57 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 03:54 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 04:07 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 04:14 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 04:24 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 04:27 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 04:10 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 04:02 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 04:09 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-30 04:14 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 04:28 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 04:24 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 04:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 04:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 04:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 04:11 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 04:28 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 04:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 04:13 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/7930522.shtml)
-- 2026-06-30 03:58 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/5470779872.shtml)
-- 2026-06-30 03:58 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/6411253872.shtml)
-- 2026-06-30 04:09 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/38592.shtml)
-- 2026-06-30 04:10 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/190884922.shtml)
-- 2026-06-30 04:19 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/3075694.shtml)
-- 2026-06-30 03:58 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/273631159.shtml)
-- 2026-06-30 04:22 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/17785917001.shtml)
-- 2026-06-30 04:20 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/19701254003.shtml)
-- 2026-06-30 04:20 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/43822.shtml)
-- 2026-06-30 03:58 - [扬名立万](http://www.share.minike.top/Article/details/97960244736.shtml)
-- 2026-06-30 04:12 - [第一炉香](http://www.share.kurohicncr.top/Article/details/91646512619.shtml)
-- 2026-06-30 04:16 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/378875343.shtml)
-- 2026-06-30 04:14 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/03842742.shtml)
-- 2026-06-30 04:08 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/03982398.shtml)
+- 2026-06-30 04:20 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/016324190946.shtml)
+- 2026-06-30 04:28 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/8806616809.shtml)
+- 2026-06-30 04:12 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/36101871.shtml)
+- 2026-06-30 04:06 - [流金岁月](http://www.blog.minike.top/Article/details/282854991939.shtml)
+- 2026-06-30 04:05 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/810259987811.shtml)
+- 2026-06-30 04:26 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/94834056.shtml)
+- 2026-06-30 04:22 - [女心理师](http://www.blog.kurohicncr.top/Article/details/79582360822.shtml)
+- 2026-06-30 04:05 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/235078.shtml)
+- 2026-06-30 04:19 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/2052847.shtml)
+- 2026-06-30 04:22 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/855689406.shtml)
+- 2026-06-30 04:18 - [金牌调解](https://www.blog.minike.top/Article/details/82108522719.shtml)
+- 2026-06-30 04:04 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/461906.shtml)
+- 2026-06-30 04:29 - [美股](http://www.blog.minike.top/Article/details/114969916.shtml)
+- 2026-06-30 04:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/15336948053.shtml)
+- 2026-06-30 04:20 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/832802540.shtml)

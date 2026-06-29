@@ -1,58 +1,57 @@
-# 外交部：中国扩大高水平对外开放，欢迎各国企业深挖中国大市场潜力
+# “长期封锁”伊朗，美国的财政扛得住吗？
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-6月23日，外交部发言人郭嘉昆主持例行记者会。 有记者提问，昨天第四届中国国际供应链促进博览会在北京顺义开幕，吸引超过1200家中外参展商，其中美国参展企业和机构数量继续位列外资参展商榜首。我们注意到，中方近期密集举办系列博览会，中国南亚博览会上周在昆明闭幕，后天中国亚欧博览会将在乌鲁木齐举行，有分析认为在一些国家筑墙设垒推行保护主义的同时，中国则选择进一步敞开开放的大门，请问
+白宫战情室内，一场关于伊朗的闭门会议正在进行。 会议结束后，特朗普向助手下达了一个决定，他“准备对伊朗实施长期封锁”，旨在迫使伊朗做出“核让步”。 美东时间28日，《华尔街日报》报道了上述消息。据报道援引美方官员透露，特朗普认为，继续轰炸或从对伊朗战事中脱身，都比维持封锁风险更大。而长期封锁，似乎是“两害相权取其轻”的选择。 但延长封锁的后果，美国真的承受得住？ 在这一决策被曝
 
 ## 正文
 
-6月23日，外交部发言人郭嘉昆主持例行记者会。
+白宫战情室内，一场关于伊朗的闭门会议正在进行。
 
-有记者提问，昨天第四届中国国际供应链促进博览会在北京顺义开幕，吸引超过1200家中外参展商，其中美国参展企业和机构数量继续位列外资参展商榜首。
+会议结束后，特朗普向助手下达了一个决定，他“准备对伊朗实施长期封锁”，旨在迫使伊朗做出“核让步”。
 
-我们注意到，中方近期密集举办系列博览会，中国南亚博览会上周在昆明闭幕，后天中国亚欧博览会将在乌鲁木齐举行，有分析认为在一些国家筑墙设垒推行保护主义的同时，中国则选择进一步敞开开放的大门，请问发言人对此有何评论？
+美东时间28日，《华尔街日报》报道了上述消息。
 
-郭嘉昆表示，共同维护全球产业链、供应链稳定是世界经济健康发展的重要保障。
+据报道援引美方官员透露，特朗普认为，继续轰炸或从对伊朗战事中脱身，都比维持封锁风险更大。
 
-中国作为负责任大国，积极发挥完整产业体系、超大规模市场等优势，努力畅通世界经济运行脉络，坚定维护产业链、供应链的公共产品属性。
+而长期封锁，似乎是“两害相权取其轻”的选择。
 
-链博会是全球首个以供应链为主题的国家级展会，为中外企业提供展链条、展生态、展场景的平台，搭建找合作伙伴、找解决方案的桥梁。
+但延长封锁的后果，美国真的承受得住？
 
-本届链博会吸引超过1200家参展商，涉及85个国家地区和国际组，外资参展商占比超过36%，世界500强及行业龙头企业参展比例超过65%。
+在这一决策被曝光的前一天，美国国会预算办公室(CBO)主任菲利普·斯瓦戈尔在接受彭博电视台采访时表示，未来十年，美国联邦政府预算赤字将增加约1.1万亿美元。
 
-各国企业的参展热情反映出对中国大市场的重视，对中国经济前景的信心。
+这一结果恰恰来自白宫过去几年实施的一连串政策。
 
 ## 相关推荐
 
-- 2026-06-30 03:58 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 04:04 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 04:11 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 04:15 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 04:07 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 04:08 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 03:54 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 04:00 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 04:15 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 04:06 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 04:20 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 04:09 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 04:29 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 04:23 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 04:06 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-30 04:06 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 04:17 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 04:04 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 04:06 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 04:25 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 04:29 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 04:20 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 04:07 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:09 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/90655846381.shtml)
-- 2026-06-30 04:18 - [送你一朵小红花](http://www.share.minike.top/Article/details/084932222.shtml)
-- 2026-06-30 04:16 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/35951722.shtml)
-- 2026-06-30 04:13 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/038101060.shtml)
-- 2026-06-30 03:57 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/66083441.shtml)
-- 2026-06-30 04:16 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/91122724.shtml)
-- 2026-06-30 03:58 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/3291598741.shtml)
-- 2026-06-30 04:17 - [日本16强魔咒](http://www.blog.minike.top/Article/details/955148125.shtml)
-- 2026-06-30 04:16 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/846731.shtml)
-- 2026-06-30 04:13 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/821368.shtml)
-- 2026-06-30 03:56 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/602650.shtml)
-- 2026-06-30 04:05 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/649153.shtml)
-- 2026-06-30 04:03 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/926666006.shtml)
-- 2026-06-30 04:10 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/332776859072.shtml)
-- 2026-06-30 04:13 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/66236.shtml)
+- 2026-06-30 04:02 - [一生一世](http://www.share.kurohicncr.top/Article/details/499545.shtml)
+- 2026-06-30 04:09 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/4010318263.shtml)
+- 2026-06-30 04:12 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/0596703.shtml)
+- 2026-06-30 04:11 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/38665777.shtml)
+- 2026-06-30 04:06 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/77810856878.shtml)
+- 2026-06-30 04:01 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/884527272.shtml)
+- 2026-06-30 04:22 - [时光音乐会](http://www.blog.minike.top/Article/details/055647213.shtml)
+- 2026-06-30 04:28 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/7163019.shtml)
+- 2026-06-30 04:04 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/00419.shtml)
+- 2026-06-30 04:15 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/8902231475.shtml)
+- 2026-06-30 04:09 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/5101124269.shtml)
+- 2026-06-30 04:13 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/891015610399.shtml)
+- 2026-06-30 04:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/9566166.shtml)
+- 2026-06-30 04:19 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/835417873841.shtml)
+- 2026-06-30 04:06 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/640574.shtml)

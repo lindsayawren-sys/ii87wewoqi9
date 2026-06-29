@@ -1,54 +1,56 @@
-# 凯赛生物：公司将通过产品定价调整积极对冲原材料价格波动对盈利能力带来的负面影响
+# 马靖昊：五粮液犯下这样的“会计差错”，情何以堪！这种把操纵财报当本事的做法，是对投资者信任的践踏！
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月22日，凯赛生物在互动平台回答投资者提问时表示，公司的主要产品系列生物法长链二元酸的主要原料为烷烃，生物基戊二胺的主要原料为生物质。其中，受行业整体形势影响，烷烃价格近期有所上涨。公司将通过产品定价调整积极对冲原材料价格波动对盈利能力带来的负面影响。布局生物基复材电池壳的凯酰时代项目以及和招商创科、合肥产投等合资的复材项目目前均已进入产线调试阶段。（文章来源：
+专题：五粮液“大洗澡”：“腰斩式”修改历史数据，全年净利暴跌72% 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际投行研究报告 五粮液犯下这样的“会计差错”，情何以堪！ 马靖昊，他是一位在财税领域具有广泛影响力的专家和意见领袖。 马靖昊是中国注册会计师，资深财税咨询顾问，同时也是中国教育观察者与学习方法研究专家。他目前担任畅捷通信息技术股份有
 
 ## 正文
 
-证券日报网讯 6月22日，凯赛生物在互动平台回答投资者提问时表示，公司的主要产品系列生物法长链二元酸的主要原料为烷烃，生物基戊二胺的主要原料为生物质。
+专题：五粮液“大洗澡”：“腰斩式”修改历史数据，全年净利暴跌72% 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-其中，受行业整体形势影响，烷烃价格近期有所上涨。
+来源：国际投行研究报告 五粮液犯下这样的“会计差错”，情何以堪！
 
-公司将通过产品定价调整积极对冲原材料价格波动对盈利能力带来的负面影响。
+马靖昊，他是一位在财税领域具有广泛影响力的专家和意见领袖。
 
-布局生物基复材电池壳的凯酰时代项目以及和招商创科、合肥产投等合资的复材项目目前均已进入产线调试阶段。
+马靖昊是中国注册会计师，资深财税咨询顾问，同时也是中国教育观察者与学习方法研究专家。
 
-（文章来源：证券日报）
+他目前担任畅捷通信息技术股份有限公司首席会计专家，并是北京市职业院校特聘专家、中央财经大学研究生客座导师。
+
+马靖昊的职业生涯始于财政部，曾参与会计制度制定，后在中国华融资产管理公司、中央金融工委等机构任职。
+
+2005年，他创办了无忧会计网，2010年创立“思维导题法”辅导会计考试，2011年起出版《玩的就是考试》系列辅导丛书，2012年推出《玩的就是会计》系列书籍。
+
+2017年，他提出对西方会计体系的批判性观点，主张会计文化自信。
 
 ## 相关推荐
 
-- 2026-06-30 04:18 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 03:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 04:21 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 03:54 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 04:23 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 04:02 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 03:56 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 04:10 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 04:14 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 04:11 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 03:59 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 04:18 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 04:03 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 04:12 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 04:18 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 04:21 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 04:13 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 04:17 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 04:28 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 04:19 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 04:18 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 04:19 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 04:12 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 04:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:03 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/501771.shtml)
-- 2026-06-30 04:04 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/238833703159.shtml)
-- 2026-06-30 04:21 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.kurohicncr.top/Article/details/0180114568.shtml)
-- 2026-06-30 04:12 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/5310331.shtml)
-- 2026-06-30 04:12 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/180272.shtml)
-- 2026-06-30 03:58 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/2161206425.shtml)
-- 2026-06-30 03:58 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/979826.shtml)
-- 2026-06-30 04:08 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/6842222572.shtml)
-- 2026-06-30 04:15 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/182988.shtml)
-- 2026-06-30 04:10 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/27594.shtml)
-- 2026-06-30 04:09 - [啊啊啊](http://www.blog.minike.top/Article/details/246783.shtml)
-- 2026-06-30 04:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/2533323568.shtml)
-- 2026-06-30 04:22 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/85240.shtml)
-- 2026-06-30 04:13 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/902485641221.shtml)
-- 2026-06-30 03:55 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/706674413.shtml)
+- 2026-06-30 04:00 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/7597165.shtml)
+- 2026-06-30 04:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/4276425.shtml)
+- 2026-06-30 04:08 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/2358186749.shtml)
+- 2026-06-30 04:02 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/629682763116.shtml)
+- 2026-06-30 04:27 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/33179.shtml)
+- 2026-06-30 04:26 - [毒液2](https://www.blog.kurohicncr.top/Article/details/223301.shtml)
+- 2026-06-30 04:16 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/26953532580.shtml)
+- 2026-06-30 04:17 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/41379562462.shtml)
+- 2026-06-30 04:05 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/295664010856.shtml)
+- 2026-06-30 04:26 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/0557500.shtml)
+- 2026-06-30 04:11 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/4853846597.shtml)
+- 2026-06-30 04:06 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/1150681.shtml)
+- 2026-06-30 04:17 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/674114.shtml)
+- 2026-06-30 04:02 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/713818220.shtml)
+- 2026-06-30 04:13 - [啊啊啊](http://www.blog.minike.top/Article/details/700606349.shtml)

@@ -1,49 +1,50 @@
-# 民族团结进步促进法是30多年来第一部设序言的法律
+# 印度大幅下调5月上半月柴油、航空燃油出口税
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-国务院新闻办公室6月24日举行新闻发布会，介绍《中华人民共和国民族团结进步促进法》和我国民族工作有关情况。记者从新闻发布会上了解到，民族团结进步促进法是新时代实施宪法有关规定、处理民族事务和开展民族工作的基本法律。在体例上专门设置序言，是30多年来第一部设置序言的法律，凸显了这部法律的政治性、原则性、宣示性、导向性。(记者范思翔、唐健辉)
+因国际基准油价变动，印度大幅下调5月前15天柴油与航空燃油的出口关税。印度政府当地时间周四晚间发布声明称：柴油特别附加消费税从每升55.55卢比下调至23卢比（约合24美分）；航空燃油出口税由每升42卢比下调至33卢比。受霍尔木兹海峡通航中断冲击原油进口影响，印度曾于3月27日对上述燃油加征出口税，以保障国内库存供应。责任编辑：王永生
 
 ## 正文
 
-国务院新闻办公室6月24日举行新闻发布会，介绍《中华人民共和国民族团结进步促进法》和我国民族工作有关情况。
+因国际基准油价变动，印度大幅下调5月前15天柴油与航空燃油的出口关税。
 
-记者从新闻发布会上了解到，民族团结进步促进法是新时代实施宪法有关规定、处理民族事务和开展民族工作的基本法律。
+印度政府当地时间周四晚间发布声明称：柴油特别附加消费税从每升55.55卢比下调至23卢比（约合24美分）；航空燃油出口税由每升42卢比下调至33卢比。
 
-在体例上专门设置序言，是30多年来第一部设置序言的法律，凸显了这部法律的政治性、原则性、宣示性、导向性。
+受霍尔木兹海峡通航中断冲击原油进口影响，印度曾于3月27日对上述燃油加征出口税，以保障国内库存供应。
 
-(记者范思翔、唐健辉)
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 04:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 03:58 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 04:08 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 04:02 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 03:54 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 03:55 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 04:23 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 04:23 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 04:00 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 04:00 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 03:58 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 04:22 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 04:29 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 04:08 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 04:13 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 04:19 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 04:16 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 04:22 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 04:04 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 04:13 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 04:15 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 04:16 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 04:02 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:18 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/18328202142.shtml)
-- 2026-06-30 03:56 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/91375.shtml)
-- 2026-06-30 03:55 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/9185158516.shtml)
-- 2026-06-30 04:19 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/361554652.shtml)
-- 2026-06-30 04:14 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/62472178782.shtml)
-- 2026-06-30 04:18 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/61998088.shtml)
-- 2026-06-30 04:12 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/493079697.shtml)
-- 2026-06-30 04:15 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/05831672252.shtml)
-- 2026-06-30 03:59 - [《共患难》](https://www.blog.minike.top/Article/details/834727895942.shtml)
-- 2026-06-30 03:59 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/89804392.shtml)
-- 2026-06-30 04:13 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/7195672.shtml)
-- 2026-06-30 04:02 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/98722478879.shtml)
-- 2026-06-30 04:12 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/827016.shtml)
-- 2026-06-30 04:23 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/46602.shtml)
-- 2026-06-30 04:02 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/70998.shtml)
+- 2026-06-30 04:20 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/38085893.shtml)
+- 2026-06-30 04:02 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/645108464761.shtml)
+- 2026-06-30 04:27 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/097457223283.shtml)
+- 2026-06-30 04:20 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/936153.shtml)
+- 2026-06-30 04:03 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/507390658979.shtml)
+- 2026-06-30 04:04 - [送你一朵小红花](https://www.blog.minike.top/Article/details/5208271860.shtml)
+- 2026-06-30 04:14 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/41582036343.shtml)
+- 2026-06-30 04:07 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/08358878.shtml)
+- 2026-06-30 04:21 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/640132.shtml)
+- 2026-06-30 04:28 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/54843.shtml)
+- 2026-06-30 04:15 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/174126.shtml)
+- 2026-06-30 04:06 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/607493.shtml)
+- 2026-06-30 04:15 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/386707.shtml)
+- 2026-06-30 04:19 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/5824486.shtml)
+- 2026-06-30 04:00 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/4217712806.shtml)

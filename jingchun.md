@@ -1,58 +1,60 @@
-# 英国首相斯塔默迫于辞职压力，即将公布离任方案
+# “五一”假期 中外年轻人都去哪儿
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-核心要点 多家消息显示，英国首相基尔・斯塔默预计将在周一公布离职时间表，这也将正式开启英国的首相更替流程，该国或将迎来十年内第七位政府首脑。 上周，安迪・伯纳姆在英格兰西北部的议会补选中胜出，即将重返英国下议院，成为接替斯塔默出任首相的最大热门人选。 就任英国首相尚不足两年的斯塔默，在补选结果出炉之初曾表态，若党内出现党魁职位挑战，自己会全力参选。但上周末，有关斯塔默即将主动辞
+4月24日，上海，中外游客在2026年长三角文旅惠民市集体验非遗昆曲《牡丹亭》。视觉中国供图 “五一”假期临近，随着中国免签“朋友圈”不断扩大，“中国游”与出境游热度同步攀升，年轻群体成为假期出游主力，一边是出境游持续回暖，长线目的地热度攀升；另一边是入境游话题热度不减，外国游客走进更多“小而美”的中国城市。从“打卡式旅游”到“沉浸式体验”，出入境游双向流动背后，折射出这届年轻
 
 ## 正文
 
-核心要点 多家消息显示，英国首相基尔・斯塔默预计将在周一公布离职时间表，这也将正式开启英国的首相更替流程，该国或将迎来十年内第七位政府首脑。
+4月24日，上海，中外游客在2026年长三角文旅惠民市集体验非遗昆曲《牡丹亭》。
 
-上周，安迪・伯纳姆在英格兰西北部的议会补选中胜出，即将重返英国下议院，成为接替斯塔默出任首相的最大热门人选。
+视觉中国供图 “五一”假期临近，随着中国免签“朋友圈”不断扩大，“中国游”与出境游热度同步攀升，年轻群体成为假期出游主力，一边是出境游持续回暖，长线目的地热度攀升；另一边是入境游话题热度不减，外国游客走进更多“小而美”的中国城市。
 
-就任英国首相尚不足两年的斯塔默，在补选结果出炉之初曾表态，若党内出现党魁职位挑战，自己会全力参选。
+从“打卡式旅游”到“沉浸式体验”，出入境游双向流动背后，折射出这届年轻人文旅消费趋势的变化，也释放出中国文旅市场持续复苏的积极信号。
 
-但上周末，有关斯塔默即将主动辞职的猜测持续发酵。
+长线目的地热度明显攀升 “五一”假期，出境出行活力持续释放。
 
-据消息透露，多位英国内阁高级大臣已劝说首相敲定离任计划，其中包括外交大臣伊薇特・库珀、内政大臣沙巴娜・马哈茂德、能源大臣埃德・米利班德。
+航旅纵横大数据显示，截至4月28日，“五一”假期出入境航线机票预订量超112万张，较去年同期稳步增长。
 
-上个月地方选举遭遇惨败，再加上民意支持率长期低迷，斯塔默在执政党工党内部的权威不断被削弱。
+在线旅游平台去哪儿发布的数据显示，平台用户已预订“五一”期间入住全球3000多个城市的酒店，热门出境目的地酒店预订量同比增长20%。
 
-一旦斯塔默宣布辞职，定于周一晚些时候宣誓就任下议院议员的伯纳姆，将顺利接任工党党魁、出任英国首相。
+泰国、韩国、马来西亚、中国香港、新加坡、越南、澳大利亚、印度尼西亚、中国澳门、意大利位列热门出境游目的地前十。
 
-伯纳姆在上周梅克菲尔德选区补选中以压倒性优势获胜，进一步巩固了他在工党内部的地位，大概率不会引发党内党魁竞选，有望无对手入主唐宁街 10 号首相府。
+值得关注的是，增幅最高的20个出境目的地中，有14个为飞行距离4000公里及以上的中长线目的地，覆盖欧洲、美洲及中亚等区域，长线游增势尤为明显。
 
 ## 相关推荐
 
-- 2026-06-30 04:21 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 04:11 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 04:04 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 04:00 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 04:15 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-30 04:13 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 04:02 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-30 04:18 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 04:22 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 04:00 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 04:03 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-30 04:11 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 04:16 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 04:10 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 04:00 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 04:07 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 04:06 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 04:26 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 04:03 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 04:18 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 04:11 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 04:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 04:26 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 04:07 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 04:28 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 04:11 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:59 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/406811709577.shtml)
-- 2026-06-30 03:56 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/764677445001.shtml)
-- 2026-06-30 03:59 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/9051568811.shtml)
-- 2026-06-30 04:01 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/06851.shtml)
-- 2026-06-30 04:10 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/23408445.shtml)
-- 2026-06-30 04:16 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/56014108.shtml)
-- 2026-06-30 03:57 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/098913693.shtml)
-- 2026-06-30 04:13 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/4910714300.shtml)
-- 2026-06-30 04:02 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/685129484.shtml)
-- 2026-06-30 04:13 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/36596488988.shtml)
-- 2026-06-30 04:21 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/615648235.shtml)
-- 2026-06-30 03:56 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/31569.shtml)
-- 2026-06-30 04:13 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/77424556002.shtml)
-- 2026-06-30 04:08 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/20447530.shtml)
-- 2026-06-30 04:12 - [送你一朵小红花](http://www.share.minike.top/Article/details/724250.shtml)
+- 2026-06-30 04:09 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/6865946295.shtml)
+- 2026-06-30 04:02 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/08834.shtml)
+- 2026-06-30 04:28 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/5881438.shtml)
+- 2026-06-30 04:25 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/31332567.shtml)
+- 2026-06-30 04:09 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/93391.shtml)
+- 2026-06-30 04:14 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/929129219.shtml)
+- 2026-06-30 04:15 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/61740.shtml)
+- 2026-06-30 04:20 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/54729716.shtml)
+- 2026-06-30 04:14 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/144595120.shtml)
+- 2026-06-30 04:16 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/797121476253.shtml)
+- 2026-06-30 04:05 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/298432.shtml)
+- 2026-06-30 04:14 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/915364410424.shtml)
+- 2026-06-30 04:00 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/4183682.shtml)
+- 2026-06-30 04:18 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/22024.shtml)
+- 2026-06-30 04:28 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/094188.shtml)

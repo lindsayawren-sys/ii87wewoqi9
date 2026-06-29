@@ -1,48 +1,57 @@
-# 浙江自然：公司与知名智能硬件平台“当贝”母公司当趣科技达成深度合作，联合开发新一代智能床垫产品
+# 10天8板！002081再度爆发
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-证券日报网6月22日讯，浙江自然在接受调研者提问时表示，依托公司深耕充气床垫多年积累的材料研发、规模化制造、供应链整合核心能力，公司与知名智能硬件平台“当贝”母公司当趣科技达成深度合作，联合开发新一代智能床垫产品。双方整合各自产业资源，协同打造集硬件载体、智能调控、用户数据运营于一体的完整产业生态，布局家居智能健康新赛道。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月30日，A股出现明显分化，沪指窄幅震荡整理，科创综指大幅拉升，再创新高；港股弱势下探，恒生指数盘中跌幅超1%。 具体来看，沪指盘中窄幅震荡上扬，科创综指大涨超3%，创历史新高。截至收盘，沪指涨0.11%报4112.16点，深证成指跌0.09%，创业板指跌0.27%，科创综指涨3.42%，沪深北三市合计成
 
 ## 正文
 
-证券日报网6月22日讯，浙江自然在接受调研者提问时表示，依托公司深耕充气床垫多年积累的材料研发、规模化制造、供应链整合核心能力，公司与知名智能硬件平台“当贝”母公司当趣科技达成深度合作，联合开发新一代智能床垫产品。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-双方整合各自产业资源，协同打造集硬件载体、智能调控、用户数据运营于一体的完整产业生态，布局家居智能健康新赛道。
+4月30日，A股出现明显分化，沪指窄幅震荡整理，科创综指大幅拉升，再创新高；港股弱势下探，恒生指数盘中跌幅超1%。
+
+具体来看，沪指盘中窄幅震荡上扬，科创综指大涨超3%，创历史新高。
+
+截至收盘，沪指涨0.11%报4112.16点，深证成指跌0.09%，创业板指跌0.27%，科创综指涨3.42%，沪深北三市合计成交约2.76万亿元，较此前一日增加约1500亿元。
+
+A股市场近2900股飘红，半导体、芯片概念爆发，寒武纪涨20%创历史新高，股价逼近1700元/股，超越源杰科技，成为A股“新股王”；芯原股份、明微电子等均涨停，华虹公司、龙芯中科等走高；商业航天概念拉升，日联科技连续两日涨停，翱捷科技、西测测试、陕西华达等涨超10%，金螳螂（002081）午后封涨停，近10个交易日斩获8个涨停板；机器人概念活跃，创世纪、光莆股份、凌云光等涨停。
+
+值得注意的是，工业富联再度下挫，收盘跌超5%，全日成交186.3亿元，位居A股成交额第二。
+
+此外，近一年大涨超10倍的长飞光纤盘中大幅跳水，收盘跌约4.5%。
+
+半导体板块强势 半导体板块盘中强势拉升，截至收盘，寒武纪20%涨停，报1699.96元/股，创历史新高，超越源杰科技，成为A股“新股王”；芯原股份、明微电子等均涨停，杰华特、芯源微等均创新高。
 
 ## 相关推荐
 
-- 2026-06-30 04:05 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 04:15 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 04:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 04:01 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 04:04 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 04:22 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 04:12 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 04:18 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-30 04:08 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 03:57 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 04:16 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 04:00 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 04:00 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-30 04:18 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 04:15 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 04:09 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 04:12 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 04:01 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 04:04 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 04:22 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 04:04 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 04:22 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 04:13 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 04:20 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 04:17 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:16 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/957487774.shtml)
-- 2026-06-30 04:03 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/772831869.shtml)
-- 2026-06-30 04:09 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/40493.shtml)
-- 2026-06-30 04:05 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/21942307.shtml)
-- 2026-06-30 04:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/75636064.shtml)
-- 2026-06-30 03:57 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/53722346.shtml)
-- 2026-06-30 04:10 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/1968040165.shtml)
-- 2026-06-30 04:23 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/185407333467.shtml)
-- 2026-06-30 04:06 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/7457299736.shtml)
-- 2026-06-30 03:57 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/975373.shtml)
-- 2026-06-30 03:56 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/49416751.shtml)
-- 2026-06-30 04:14 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/38651339.shtml)
-- 2026-06-30 04:09 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/482770835783.shtml)
-- 2026-06-30 04:22 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/202599.shtml)
-- 2026-06-30 04:00 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/395809603.shtml)
+- 2026-06-30 04:06 - [流金岁月](http://www.blog.minike.top/Article/details/9824407.shtml)
+- 2026-06-30 04:11 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/7345663619.shtml)
+- 2026-06-30 04:17 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/5060406515.shtml)
+- 2026-06-30 04:24 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/034866320.shtml)
+- 2026-06-30 04:01 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/4257541688.shtml)
+- 2026-06-30 04:12 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/325044.shtml)
+- 2026-06-30 04:08 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/8485073.shtml)
+- 2026-06-30 04:11 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/11252946737.shtml)
+- 2026-06-30 04:26 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/4105593.shtml)
+- 2026-06-30 04:09 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/97693.shtml)
+- 2026-06-30 04:22 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/2971242.shtml)
+- 2026-06-30 04:21 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/0554333231.shtml)
+- 2026-06-30 04:04 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/79176.shtml)
+- 2026-06-30 04:00 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/63816453.shtml)
+- 2026-06-30 04:10 - [乔家的儿女](https://www.blog.minike.top/Article/details/337063643.shtml)

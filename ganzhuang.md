@@ -1,60 +1,57 @@
-# 近80只公募基金上半年收益翻倍，近百只亏超20%！这些板块成业绩亏损主要原因→
+# 调查显示德国4月就业景气指数达疫情以来最低水平
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-来源：金融投资报 A股市场上半年行情已逐步进入尾声，公募基金也即将交出上半年投资答卷。 金融投资报记者注意到，今年以来，以半导体、AI算力为代表的科技成长资产成为市场投资主线，重仓科技成长的公募基金表现强势，带动A股主要股票指数迭创新高，公募基金也取得了不俗的投资成绩，截至6月18日，近80只主动权益基金收益率超过100%。 与此同时，消费、医药、农业、传统周期、价值蓝筹等板块
+中新网柏林4月29日电(记者 马秀秀)德国伊弗经济研究所(ifo)29日发布的数据显示，受全球危机影响，德国4月就业景气指数降至91.3点，低于3月93.4点，创下2020年5月德国疫情初期以来最低水平。 调查指出，工业领域劳动力市场形势依然紧张。包括批发与零售业、服务业、物流以及旅游业在内，几乎所有行业都受到裁员影响。 该机构调查负责人克劳斯·沃尔拉贝(Klaus Wohlr
 
 ## 正文
 
-来源：金融投资报 A股市场上半年行情已逐步进入尾声，公募基金也即将交出上半年投资答卷。
+中新网柏林4月29日电(记者 马秀秀)德国伊弗经济研究所(ifo)29日发布的数据显示，受全球危机影响，德国4月就业景气指数降至91.3点，低于3月93.4点，创下2020年5月德国疫情初期以来最低水平。
 
-金融投资报记者注意到，今年以来，以半导体、AI算力为代表的科技成长资产成为市场投资主线，重仓科技成长的公募基金表现强势，带动A股主要股票指数迭创新高，公募基金也取得了不俗的投资成绩，截至6月18日，近80只主动权益基金收益率超过100%。
+调查指出，工业领域劳动力市场形势依然紧张。
 
-与此同时，消费、医药、农业、传统周期、价值蓝筹等板块的低迷表现，也同样导致多只公募基金出现亏损，共有近百只公募基金今年以来亏损超过20%，其中单只基金亏损接近30%，尤其是重仓消费、医疗板块的公募基金亏损居前。
+包括批发与零售业、服务业、物流以及旅游业在内，几乎所有行业都受到裁员影响。
 
-制图： 张潇予 近百只基金年内亏损20% Wind数据显示，今年年初至6月18日收盘，万得偏股混合型基金指数累计上涨15.72%，该指数表征偏股方向基金整体收益水平，自2021年以来，这一涨幅在各半年度涨幅中排名第二，表明上半年权益类基金的收益较为“靓丽”。
+该机构调查负责人克劳斯·沃尔拉贝(Klaus Wohlrabe)表示，地缘政治不确定性正在影响企业人力规划，岗位减少多于新增。
 
-就单只公募基金表现来看，全市场共有85只公募基金（仅计A类份额，下同）收益率超过100%。
+尤其是中东地区持续未解的冲突，正对全球经济造成严重负担。
 
-其中，有78只是主要投向A股市场的主动权益类基金。
+与此同时，ifo商业景气指数在4月下降至84.4点，显示企业信心持续走弱。
 
-收益率超过150%的公募基金达到6只，单只收益率最高的超过177%。
+分析认为，关键能源通道霍尔木兹海峡运输受阻，造成全球能源价格上涨，并导致供应链中断。
 
-公募基金主动股票投资的优势在牛市中展现无遗。
+只有当不确定性显著下降时，德国劳动力市场才有望出现持续性缓解。
 
 ## 相关推荐
 
-- 2026-06-30 04:01 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 04:06 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 03:57 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 04:23 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 04:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 04:17 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 04:17 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 04:19 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 04:07 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 04:08 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 04:00 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 04:00 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 04:22 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 04:22 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 04:18 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 04:23 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 04:07 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 04:28 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 04:27 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 04:00 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 04:19 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 04:11 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 04:17 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-30 04:06 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 04:05 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:21 - [急先锋](https://www.blog.kurohicncr.top/Article/details/90857500120.shtml)
-- 2026-06-30 04:14 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/2460560.shtml)
-- 2026-06-30 04:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/78420654.shtml)
-- 2026-06-30 04:06 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/7843032.shtml)
-- 2026-06-30 03:59 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/69577.shtml)
-- 2026-06-30 04:00 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/54550719.shtml)
-- 2026-06-30 04:03 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/157546.shtml)
-- 2026-06-30 04:22 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/079223.shtml)
-- 2026-06-30 04:00 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/35373207578.shtml)
-- 2026-06-30 04:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/61113760810.shtml)
-- 2026-06-30 04:15 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/828159308247.shtml)
-- 2026-06-30 04:23 - [女心理师](https://www.share.kurohicncr.top/Article/details/6141785447.shtml)
-- 2026-06-30 04:16 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/682864264225.shtml)
-- 2026-06-30 04:23 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/39809590413.shtml)
-- 2026-06-30 04:14 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/43442862090.shtml)
+- 2026-06-30 04:05 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/040532880302.shtml)
+- 2026-06-30 04:08 - [乔家的儿女](https://www.share.minike.top/Article/details/3767966.shtml)
+- 2026-06-30 04:09 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/02164626.shtml)
+- 2026-06-30 04:22 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/9174145780.shtml)
+- 2026-06-30 04:18 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/5924189.shtml)
+- 2026-06-30 04:23 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/034151435.shtml)
+- 2026-06-30 04:00 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/955803.shtml)
+- 2026-06-30 04:17 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/578002022791.shtml)
+- 2026-06-30 04:01 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/934985609401.shtml)
+- 2026-06-30 04:28 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/717416297.shtml)
+- 2026-06-30 04:26 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/35020.shtml)
+- 2026-06-30 04:16 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/4911972677.shtml)
+- 2026-06-30 04:03 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/882438.shtml)
+- 2026-06-30 04:26 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/73155995099.shtml)
+- 2026-06-30 04:09 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/4041325.shtml)

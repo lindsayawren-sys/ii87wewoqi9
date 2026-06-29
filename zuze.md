@@ -1,56 +1,56 @@
-# 山西晋中“介休选煤工”如何撬动海外大市场？
+# “君子不器——沈鹏书法艺术回顾展”在上海美术馆开幕
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-中新网晋中6月23日电 题：山西晋中“介休选煤工”如何撬动海外大市场？ 作者 陈琦 马子为 李虎 在非洲赞比亚乔玛煤矿，一位中国矿长被当地员工亲切地称为“介休师傅”。“现在他们不叫我徐师傅了，都叫我‘介休师傅’。”矿长徐雪平在视频连线中笑着说。 在赞比亚洗煤行业，“介休师傅”就是技术过硬的代名词。如今，有3800多名像徐雪平一样的介休选煤工常年活跃在全国乃至海外煤炭主产区，在跳
+中新网上海4月29日电 (记者 王笈)“君子不器——沈鹏书法艺术回顾展”29日在上海美术馆正式开幕，汇聚116件(套)珍贵展品，通过“心迹天成”“转益多师”“文思潜寄”“诗心妙悟”四大篇章，完整勾勒出著名书法家、诗人、美术评论家、编辑出版家沈鹏的文化大家形象。 作为中国书法家协会第四届主席、首批国务院有突出贡献专家，沈鹏是当代书坛一座令人仰止的文化高峰。他一生践行“君子不囿于一
 
 ## 正文
 
-中新网晋中6月23日电 题：山西晋中“介休选煤工”如何撬动海外大市场？
+中新网上海4月29日电 (记者 王笈)“君子不器——沈鹏书法艺术回顾展”29日在上海美术馆正式开幕，汇聚116件(套)珍贵展品，通过“心迹天成”“转益多师”“文思潜寄”“诗心妙悟”四大篇章，完整勾勒出著名书法家、诗人、美术评论家、编辑出版家沈鹏的文化大家形象。
 
-作者 陈琦 马子为 李虎 在非洲赞比亚乔玛煤矿，一位中国矿长被当地员工亲切地称为“介休师傅”。
+作为中国书法家协会第四届主席、首批国务院有突出贡献专家，沈鹏是当代书坛一座令人仰止的文化高峰。
 
-“现在他们不叫我徐师傅了，都叫我‘介休师傅’。
+他一生践行“君子不囿于一技之限”的“通人”之境，融通众艺，出入古今，既深耕书法，又兼擅诗文、评论、出版诸域。
 
-”矿长徐雪平在视频连线中笑着说。
+本次展览以“君子不器”为题，分别从书法本体、师承取法、学养积淀、诗书融通四个维度，回溯沈鹏的人生追求与艺术境界。
 
-在赞比亚洗煤行业，“介休师傅”就是技术过硬的代名词。
+展厅中的数件作品尤为引人入胜。
 
-如今，有3800多名像徐雪平一样的介休选煤工常年活跃在全国乃至海外煤炭主产区，在跳汰洗煤等核心岗位的市场占有率超过95%。
+其中，画作《自画像》是沈鹏“书画同源”理念的生动实践，笔墨既是字，亦是画，将书法笔墨与绘画技法有机融合；草书《玉带》展现了沈鹏对空间构成的驾驭，大面积的留白与墨线的奔突形成强烈对比，让人感受到“计白当黑”的东方美学智慧；《古诗十九首》长卷则是其“小草”书风的典范之作，将古诗中苍茫悠远的意绪转化为奔流不息的笔墨之河，极具韵律感与感染力。
 
-近年来，山西省晋中市介休市高位推动“介休选煤工”劳务品牌建设，以产业育品牌、以品牌聚人才、以人才促发展。
+上海美术馆党委书记、执行馆长王一川表示，“通过这场展览，我们希望观众不仅能领略一位艺术大师的风采，更能在‘不器’的通达智慧中，感受中华文脉的当代生机，在欣赏艺术、体悟精神的同时，共同守护文化薪火，坚定我们内心深处的那份文化自信”。
 
-人走出去，品牌带出去，设备跟出去，形成了“介休造”设备与“介休工”技术成套输出的生动格局，为山西由输出资源向输出技术、输出标准的转型发展蹚出了一条新路。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:11 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 04:17 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 04:22 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 04:09 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 04:21 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 04:18 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 04:02 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 04:09 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-30 04:10 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 04:01 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 04:22 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 04:10 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 04:14 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 04:22 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 04:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 04:27 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 04:10 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 04:01 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 04:18 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 04:15 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:21 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/46613.shtml)
-- 2026-06-30 04:13 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/4219198.shtml)
-- 2026-06-30 04:07 - [孙兴慜道歉](https://www.share.minike.top/Article/details/4568011470.shtml)
-- 2026-06-30 03:55 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/835148564.shtml)
-- 2026-06-30 03:58 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/76312541784.shtml)
-- 2026-06-30 04:12 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/74219316.shtml)
-- 2026-06-30 04:06 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/592577500.shtml)
-- 2026-06-30 04:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/73486977.shtml)
-- 2026-06-30 04:21 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/397356176.shtml)
-- 2026-06-30 04:20 - [千与千寻](http://www.blog.minike.top/Article/details/325206574098.shtml)
-- 2026-06-30 03:59 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/01847917.shtml)
-- 2026-06-30 04:04 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/392976973.shtml)
-- 2026-06-30 04:21 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/211122624.shtml)
-- 2026-06-30 04:08 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/3316510338.shtml)
-- 2026-06-30 04:12 - [沙丘](http://www.share.minike.top/Article/details/79104299.shtml)
+- 2026-06-30 04:11 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/3241194988.shtml)
+- 2026-06-30 04:06 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/499058.shtml)
+- 2026-06-30 04:00 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/05769.shtml)
+- 2026-06-30 04:01 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/4945199336.shtml)
+- 2026-06-30 04:08 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/77085363.shtml)
+- 2026-06-30 04:07 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/44837314428.shtml)
+- 2026-06-30 04:01 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/7648135811.shtml)
+- 2026-06-30 04:06 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/18791894.shtml)
+- 2026-06-30 04:03 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/284345.shtml)
+- 2026-06-30 04:02 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/638722004.shtml)
+- 2026-06-30 04:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/1990231271.shtml)
+- 2026-06-30 04:15 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/228550059.shtml)
+- 2026-06-30 04:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/780974846.shtml)
+- 2026-06-30 04:12 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/1964991660.shtml)
+- 2026-06-30 04:08 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/7267198260.shtml)

@@ -1,54 +1,59 @@
-# 中国夏粮旺季收购开局良好 小麦收购量超3000万吨
+# 新华社经济随笔：读懂“起步有力”里的发展韧性
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-中新社北京6月23日电 (记者 陈溯)中国国家粮食和物资储备局23日发布，随着夏粮陆续收获上市，旺季收购正逐步展开。截至目前，中国各类粮食经营主体累计收购小麦超3000万吨，总体进展顺利、开局良好，呈现出购销活跃、市场平稳、优质优价等特点。目前，中国小麦大规模机收基本完成，夏粮旺季收购正在由南向北有序展开，收购进度与上年基本持平。 国家粮食和物资储备局粮食储备司司长罗守全表示，
+新华社北京4月29日电 题：新华社经济随笔：读懂“起步有力”里的发展韧性 新华社记者吉哲鹏、王雨萧 “我国经济起步有力，主要指标好于预期，彰显强大韧性和活力。”4月28日召开的中央政治局会议，对今年以来我国经济运行作出阐述。 就在不久前，中国经济“首季报”公布：一季度国内生产总值(GDP)同比增长5.0%，比上年四季度加快0.5个百分点，增速在全球主要经济体中预计继续名列前茅。
 
 ## 正文
 
-中新社北京6月23日电 (记者 陈溯)中国国家粮食和物资储备局23日发布，随着夏粮陆续收获上市，旺季收购正逐步展开。
+新华社北京4月29日电 题：新华社经济随笔：读懂“起步有力”里的发展韧性 新华社记者吉哲鹏、王雨萧 “我国经济起步有力，主要指标好于预期，彰显强大韧性和活力。
 
-截至目前，中国各类粮食经营主体累计收购小麦超3000万吨，总体进展顺利、开局良好，呈现出购销活跃、市场平稳、优质优价等特点。
+”4月28日召开的中央政治局会议，对今年以来我国经济运行作出阐述。
 
-目前，中国小麦大规模机收基本完成，夏粮旺季收购正在由南向北有序展开，收购进度与上年基本持平。
+就在不久前，中国经济“首季报”公布：一季度国内生产总值(GDP)同比增长5.0%，比上年四季度加快0.5个百分点，增速在全球主要经济体中预计继续名列前茅。
 
-国家粮食和物资储备局粮食储备司司长罗守全表示，各级储备企业有序开展轮换收购，各类加工和贸易企业、饲料企业积极入市，市场购销较为活跃。
+“十五五”开局之年，面对全球经济复苏乏力、地缘政治冲突外溢风险上升，中国有效应对外部变化，以奋进之姿跑出“起步有力”的第一棒，交出一份韧性十足的经济答卷。
 
-目前，主产区小麦收购均价每斤1.21元(人民币，下同)左右，优质品种小麦售价比市场价每斤高出0.1元左右，以质论价、优质优价特征明显。
+这份韧性里，蕴藏着“新”与“旧”的转换。
 
-国家粮食和物资储备局表示，下一步将统筹抓好市场化收购和政策性收储，持续加强市场监测预警，健全极端天气应对预案，完善粮食烘干、清理等服务，确保农民售粮渠道畅通、市场平稳运行。
+翻开中国经济“首季报”，产业向“新”的信号尤为鲜明：装备制造业占规上工业增加值比重升至35.1%，高技术制造业占规上工业增加值的比重进一步提高。
 
-(完)
+从全球首款5吨级电动垂直起降飞行器完成转换飞行，到人形机器人选手打破人类半马世界纪录……新兴产业和未来产业正加速技术迭代，更多科技创新成果落地应用，新经济、新动能快速成长带来经济活力。
+
+积极培育新动能、注重更新旧动能，才能在守正创新中实现产业结构优化升级。
 
 ## 相关推荐
 
-- 2026-06-30 04:20 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 04:21 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 04:11 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 04:18 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 04:10 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-30 04:10 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 04:13 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 04:11 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 04:18 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 03:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 04:19 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 04:28 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 04:23 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 04:21 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 04:21 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 04:00 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 04:01 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 04:17 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 04:24 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 04:08 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 04:06 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 04:18 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 04:00 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:58 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/545164641.shtml)
-- 2026-06-30 04:17 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/40996229.shtml)
-- 2026-06-30 04:15 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/968998.shtml)
-- 2026-06-30 04:08 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/6862487.shtml)
-- 2026-06-30 04:09 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/17505264983.shtml)
-- 2026-06-30 04:10 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/80628487278.shtml)
-- 2026-06-30 04:22 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/533052.shtml)
-- 2026-06-30 03:57 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/94532110032.shtml)
-- 2026-06-30 03:54 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/02718203265.shtml)
-- 2026-06-30 04:14 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/28540351.shtml)
-- 2026-06-30 04:02 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/4838406796.shtml)
-- 2026-06-30 04:11 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/7871723.shtml)
-- 2026-06-30 04:04 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/971512791.shtml)
-- 2026-06-30 04:15 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/489322365.shtml)
-- 2026-06-30 04:19 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/78110.shtml)
+- 2026-06-30 04:15 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/7910028.shtml)
+- 2026-06-30 04:05 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/95969.shtml)
+- 2026-06-30 04:03 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/9487695673.shtml)
+- 2026-06-30 04:01 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/586660.shtml)
+- 2026-06-30 04:22 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/45762997101.shtml)
+- 2026-06-30 04:05 - [金刚川](http://www.blog.minike.top/Article/details/97129190353.shtml)
+- 2026-06-30 04:15 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/41552.shtml)
+- 2026-06-30 04:28 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/94437419627.shtml)
+- 2026-06-30 04:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/316110.shtml)
+- 2026-06-30 04:25 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/9972481114.shtml)
+- 2026-06-30 04:21 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/2034653577.shtml)
+- 2026-06-30 04:06 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/18016366643.shtml)
+- 2026-06-30 04:01 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/500932817.shtml)
+- 2026-06-30 04:01 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/65497246.shtml)
+- 2026-06-30 04:23 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/291372256157.shtml)

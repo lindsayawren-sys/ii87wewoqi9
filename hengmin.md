@@ -1,57 +1,60 @@
-# “九色甘南”首创跨省篮球IP：28场对决燃动雪域
+# 广东56个镇街遭遇暴雨、大暴雨
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-中新网兰州6月23日电 (刘娜)2026年(第一届)“九色甘南杯”雪域羚城篮球邀请赛23日在甘肃省甘南藏族自治州合作市正式开赛。来自湖北、四川、青海、甘肃四省10支代表队齐聚雪域羚城，以篮球为媒，搭建跨区域体育竞技与民族交融的新平台。 据了解，本次赛事是甘南州自主孵化的首个跨省原创篮球IP，立足铸牢中华民族共同体意识主线，把篮球运动作为各族民众交往交流交融的重要载体。参赛队伍涵
+中新网广州4月29日电 (记者 王坚)广东多地28日白天到29日早晨持续强降雨，全省有56个镇街遭遇暴雨、大暴雨，其中阳江阳东区和江门恩平出现了局地特大暴雨。 广东省气象局介绍，据气象水文监测，28日8时到29日8时，全省有6个镇街录得超过250毫米的特大暴雨，有50个镇街录得100至250毫米的大暴雨，有162个镇街录得50至100毫米的暴雨，各市雨量最大的镇街有：阳江阳东区
 
 ## 正文
 
-中新网兰州6月23日电 (刘娜)2026年(第一届)“九色甘南杯”雪域羚城篮球邀请赛23日在甘肃省甘南藏族自治州合作市正式开赛。
+中新网广州4月29日电 (记者 王坚)广东多地28日白天到29日早晨持续强降雨，全省有56个镇街遭遇暴雨、大暴雨，其中阳江阳东区和江门恩平出现了局地特大暴雨。
 
-来自湖北、四川、青海、甘肃四省10支代表队齐聚雪域羚城，以篮球为媒，搭建跨区域体育竞技与民族交融的新平台。
+广东省气象局介绍，据气象水文监测，28日8时到29日8时，全省有6个镇街录得超过250毫米的特大暴雨，有50个镇街录得100至250毫米的大暴雨，有162个镇街录得50至100毫米的暴雨，各市雨量最大的镇街有：阳江阳东区大八镇455毫米、珠海金湾区南水镇188.8毫米、韶关乳源瑶族自治县洛阳镇170.5毫米、茂名高州市南塘镇158.3毫米。
 
-据了解，本次赛事是甘南州自主孵化的首个跨省原创篮球IP，立足铸牢中华民族共同体意识主线，把篮球运动作为各族民众交往交流交融的重要载体。
+此外，全省大部有轻雾，部分市县有雾，清远阳山录得最低能见度100米。
 
-参赛队伍涵盖湖北恩施土家族苗族自治州、四川凉山彝族自治州，青海海北、海南、黄南藏族自治州，临夏回族自治州、白银市、定西市、兰州新区以及东道主甘南州代表队，均来自多民族聚居区和沿黄河洮河民族团结进步创新示范区。
+广东省气象局预计，29日夜间开始，全省降水明显减弱。
 
-甘南素有深厚的篮球底蕴，全州县域篮球争霸赛已连续举办五届，“扎尕那杯”篮球赛等基层活动常态化落地。
+29日夜间到30日，南部沿海市县多云间阴天有分散阵雨，其余大部市县多云。
 
-本次邀请赛跳出单纯竞技比拼范畴，依托篮球赛事搭建跨区域体育竞技、地域文化互通、民族深度交融的综合平台。
+气象专家表示，近期，广东强降水趋于明显，需注意防范局地强降水可能诱发的地质灾害、城乡积涝、农田渍涝等风险。
 
-未来赛事将固定为年度常态化品牌赛事长期举办，同步向下延伸深耕基层篮球联赛、常态化开展青少年篮球选拔培优工作。
+同时，需注意防范强雷电、雷雨大风等强对流天气引发的灾害风险。
 
-赛事赛制方面，10支队伍划分为A、B两个小组，每组5队展开小组单循环对决，各组前四名晋级八强，后续依次推进交叉淘汰赛、半决赛、三四名决赛和冠亚军决赛，全程共计28场精彩对决。
+此外，雨时能见度差，道路湿滑，注意交通出行安全。
 
 ## 相关推荐
 
-- 2026-06-30 04:00 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 04:12 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 04:07 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 04:11 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 04:20 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 04:16 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 03:55 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 04:11 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 04:05 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 04:20 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 04:06 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 04:05 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 04:19 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 04:03 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 04:03 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 04:16 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 04:28 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 04:21 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 04:10 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 04:16 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 04:18 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-30 04:27 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 04:21 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 04:22 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 04:06 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:15 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/306076.shtml)
-- 2026-06-30 04:12 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/6042406.shtml)
-- 2026-06-30 04:19 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/2162452428.shtml)
-- 2026-06-30 04:01 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/1404451.shtml)
-- 2026-06-30 04:04 - [TOP Prada](http://www.share.minike.top/Article/details/7435268674.shtml)
-- 2026-06-30 04:01 - [绘画区你赢了](https://www.blog.minike.top/Article/details/020192452102.shtml)
-- 2026-06-30 04:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/04233266.shtml)
-- 2026-06-30 04:08 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/710272677.shtml)
-- 2026-06-30 04:18 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/95060826.shtml)
-- 2026-06-30 04:21 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/46561.shtml)
-- 2026-06-30 04:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/623668.shtml)
-- 2026-06-30 04:09 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/478570957310.shtml)
-- 2026-06-30 04:06 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/68517612.shtml)
-- 2026-06-30 04:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/24280.shtml)
-- 2026-06-30 04:21 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/582736.shtml)
+- 2026-06-30 04:07 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/48095386116.shtml)
+- 2026-06-30 04:13 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/2062653252.shtml)
+- 2026-06-30 04:20 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/63921225404.shtml)
+- 2026-06-30 04:10 - [毒液2](https://www.blog.minike.top/Article/details/765294.shtml)
+- 2026-06-30 04:21 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/9459417.shtml)
+- 2026-06-30 04:13 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/347280260299.shtml)
+- 2026-06-30 04:04 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/879369.shtml)
+- 2026-06-30 04:04 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/835312034.shtml)
+- 2026-06-30 04:22 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/438314514.shtml)
+- 2026-06-30 04:13 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/816243.shtml)
+- 2026-06-30 04:05 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/35326564.shtml)
+- 2026-06-30 04:10 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/778362869.shtml)
+- 2026-06-30 04:03 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/34983675.shtml)
+- 2026-06-30 04:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/74272.shtml)
+- 2026-06-30 04:12 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/61794634.shtml)

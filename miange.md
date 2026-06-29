@@ -1,58 +1,56 @@
-# 政策发力，但猪价拐点难现？
+# 排行榜｜上市险企省分群雄争霸，国寿稳坐头把交椅，中坚险企高增长，市场两极分化加剧
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-作者：侯晓瑞/F3044447、Z0015326/一德期货生鲜畜牧分析师 要点速览版 当前格局 近月：受“短期促出清”政策压制，操作上以震荡偏空思路为主； 远月：虽有去产能预期支撑，但当前盘面升水已偏高，做多性价比不高。 关键指标 能繁母猪去化：月度去化持续维持在1%以上，是判断产能实质性收缩的核心指标； 出栏均重变化：有效跌破123公斤关口，标志着前期积压库存是否消化完毕；
+来源：观潮财经 作为行业龙头，2025年中国人寿继续展现压倒性实力，上市险企前十大人身险分公司排名中其包揽前五席。其中，江苏分公司以824.66亿元拔得头筹，广东、浙江分公司共同构建“金三角”粮仓。太保寿险稳居第二梯队，江苏、浙江、广东等核心区域保持稳定输出。 阳光人寿与人保寿险在江苏、安徽等地实现高增，分别以90.75%和88.61%的爆发式增长领跑，苏、皖、浙、京、沪等战略
 
 ## 正文
 
-作者：侯晓瑞/F3044447、Z0015326/一德期货生鲜畜牧分析师 要点速览版 当前格局 近月：受“短期促出清”政策压制，操作上以震荡偏空思路为主； 远月：虽有去产能预期支撑，但当前盘面升水已偏高，做多性价比不高。
+来源：观潮财经 作为行业龙头，2025年中国人寿继续展现压倒性实力，上市险企前十大人身险分公司排名中其包揽前五席。
 
-关键指标 能繁母猪去化：月度去化持续维持在1%以上，是判断产能实质性收缩的核心指标； 出栏均重变化：有效跌破123公斤关口，标志着前期积压库存是否消化完毕； 各地政策执行情况：产能调控细则的落地力度，将决定供给压力的释放节奏。
+其中，江苏分公司以824.66亿元拔得头筹，广东、浙江分公司共同构建“金三角”粮仓。
 
-本轮生猪下行周期自2022年启动，至今已连续下跌超40个月，底部震荡时长突破行业历史纪录。
+太保寿险稳居第二梯队，江苏、浙江、广东等核心区域保持稳定输出。
 
-此次端午备货虽带来小幅回升，但就目前行业表现来看，生猪市场的核心逻辑依旧是持续磨底。
+阳光人寿与人保寿险在江苏、安徽等地实现高增，分别以90.75%和88.61%的爆发式增长领跑，苏、皖、浙、京、沪等战略重镇集体发力，成为中坚险企虎口夺食、价值翻倍的关键动力。
 
-尽管政策组合拳正加速产能出清，但短期内仍难见趋势性拐点。
+财险方面，人保财险继续展现强劲统治力，广东、江苏、浙江稳居“第一梯队”，占据前五席中的四席；平安财险增量亮眼，京沪市场表现分化，太保财险精准发力，阳光财险在小基数下实现“多点开花”，前三名跨入500亿俱乐部，头部效应显著。
 
-供应端 总量高位+体重偏高+补栏低迷 6月重点省份养殖企业计划出栏量环比仅微降，日均供给压力不减。
+阳光财险沿海及中部省份保费波动明显，人保财险福建分公司虽规模最大仍出现下滑。
 
-出栏均重虽呈缓慢下降趋势，但仍维持在123公斤左右的偏高位置。
+35家主要财险分公司中，24家收入上升，11家下滑，“冰火两重天”态势凸显部分险企当下的市场压力。
 
-前期压栏及二次育肥形成的大体重猪源仍在集中释放，尤其是散户手中150-170公斤乃至200公斤以上的超大猪源正陆续出栏，变相放大了市场的实际猪肉供给量。
+注：中国平安未披露寿险子公司分公司数据，因信披口径问题，本文未含平安寿险分支机构。
 
 ## 相关推荐
 
-- 2026-06-30 03:55 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 03:56 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 04:08 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 04:14 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 04:17 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 04:16 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 04:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 03:55 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 03:58 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-30 04:09 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 04:17 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 03:54 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 04:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 04:03 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 04:07 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 04:19 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 04:10 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 04:03 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 04:09 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 04:02 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 04:19 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 04:16 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:08 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/34232038936.shtml)
-- 2026-06-30 04:23 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/141869.shtml)
-- 2026-06-30 04:21 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/49917.shtml)
-- 2026-06-30 03:57 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/9259126.shtml)
-- 2026-06-30 04:21 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/84701382881.shtml)
-- 2026-06-30 04:14 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/9717117.shtml)
-- 2026-06-30 03:55 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/54124042518.shtml)
-- 2026-06-30 04:06 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/715469170.shtml)
-- 2026-06-30 03:56 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/4159508.shtml)
-- 2026-06-30 03:58 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/800661.shtml)
-- 2026-06-30 04:05 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/40520071858.shtml)
-- 2026-06-30 03:58 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/05643068897.shtml)
-- 2026-06-30 03:55 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/217787715830.shtml)
-- 2026-06-30 04:23 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/58136940420.shtml)
-- 2026-06-30 04:15 - [天道](http://www.share.kurohicncr.top/Article/details/4785990827.shtml)
+- 2026-06-30 04:25 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/5566848.shtml)
+- 2026-06-30 04:15 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/317275.shtml)
+- 2026-06-30 04:23 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/33699258.shtml)
+- 2026-06-30 04:20 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/8494842959.shtml)
+- 2026-06-30 04:22 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/2465129.shtml)
+- 2026-06-30 04:06 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/8679508.shtml)
+- 2026-06-30 04:09 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/21479.shtml)
+- 2026-06-30 04:08 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/729036571.shtml)
+- 2026-06-30 04:10 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/2665853515.shtml)
+- 2026-06-30 04:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/69624606.shtml)
+- 2026-06-30 04:04 - [电影后室值得看吗](https://www.share.minike.top/Article/details/741668.shtml)
+- 2026-06-30 04:13 - [《贺子珍》](http://www.blog.minike.top/Article/details/967677999583.shtml)
+- 2026-06-30 04:27 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/83521.shtml)
+- 2026-06-30 04:13 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/553575474.shtml)
+- 2026-06-30 04:18 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/672906.shtml)

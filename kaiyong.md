@@ -1,60 +1,56 @@
-# 碳酸锂市场的黑色星期四：一次暴跌背后的“狼来了”与真博弈
+# 告别“套娃式”导流与支付捆绑 助贷行业整改进入倒计时
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-牛钱网 6月18日，碳酸锂主力合约LC2609以6.58%的跌幅领跌商品市场，收于16.05万元/吨，单日暴跌11300元/吨。就在前一天，该合约还微涨0.59%至17.13万元/吨，市场情绪平稳。然而当日盘中风云突变，价格从17.20万元/吨的开盘价一路俯冲，最低触及16.01万元/吨，持仓量减少4883手，资金大幅流出。 短短一天之内，发生了什么？ 一、导火索：一份文件引发
+来源：经济参考报 “必须在9月底前完成全流程整改，调整系统架构和导流链路，重新评估合作放款机构。”一家头部助贷机构负责人向记者坦言，“长期以来的导流模式被叫停，获客与盈利模式都将面临根本性改写。” 当前，距离《金融产品网络营销管理办法》正式实施仅剩5个月。这项由央行等八部门于日前联合发布的新规，将于2026年9月30日起全面施行。无论是“套娃式”多层分销，还是隐形的API导流，
 
 ## 正文
 
-牛钱网 6月18日，碳酸锂主力合约LC2609以6.58%的跌幅领跌商品市场，收于16.05万元/吨，单日暴跌11300元/吨。
+来源：经济参考报 “必须在9月底前完成全流程整改，调整系统架构和导流链路，重新评估合作放款机构。
 
-就在前一天，该合约还微涨0.59%至17.13万元/吨，市场情绪平稳。
+”一家头部助贷机构负责人向记者坦言，“长期以来的导流模式被叫停，获客与盈利模式都将面临根本性改写。
 
-然而当日盘中风云突变，价格从17.20万元/吨的开盘价一路俯冲，最低触及16.01万元/吨，持仓量减少4883手，资金大幅流出。
+” 当前，距离《金融产品网络营销管理办法》正式实施仅剩5个月。
 
-短短一天之内，发生了什么？
+这项由央行等八部门于日前联合发布的新规，将于2026年9月30日起全面施行。
 
-一、导火索：一份文件引发的血案 6月18日盘中，江西省自然资源厅发布了一则看似不起眼的公告——《用地预审与选址行政许可事项（2026年6月17日）》。
+无论是“套娃式”多层分销，还是隐形的API导流，还是支付收银台里的信贷捆绑到短视频里的“秒到账”话术，过去数年间助贷行业习以为常的展业手段，几乎被逐一画上红线。
 
-这份公告许可了江西省宜丰县圳口里-奉新县枧下窝锂矿采矿项目的用地预审与选址。
+业内不完全统计显示，国内七家上市互联网助贷平台2025年四季度业绩普遍承压。
 
-枧下窝锂矿，这个名字在碳酸锂圈子里可谓如雷贯耳。
+在新规出台前不久，国家金融监督管理总局已对5家头部平台进行集中约谈，要求规范营销宣传、清晰披露息费、加强个人信息保护。
 
-它是全球最大单体锂云母矿之一，推断瓷石矿资源量约9.6亿吨，伴生氧化锂资源量265.68万吨，折合碳酸锂当量约657万吨。
+一系列监管动作表明，助贷行业靠信息差和流量倒卖赚快钱的时代，正在加速终结。
 
 ## 相关推荐
 
-- 2026-06-30 03:55 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-30 04:02 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 04:04 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-30 04:16 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 03:58 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 04:12 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 04:18 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 04:17 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 04:17 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 04:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 03:59 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 04:01 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 04:04 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 04:07 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 04:08 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 04:24 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 04:02 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 04:24 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 04:06 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 04:20 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 04:04 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 04:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 04:09 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 04:06 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:18 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/002219169092.shtml)
-- 2026-06-30 04:08 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/5611345.shtml)
-- 2026-06-30 04:22 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/501094892891.shtml)
-- 2026-06-30 04:16 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/36500883.shtml)
-- 2026-06-30 04:19 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/917261838.shtml)
-- 2026-06-30 04:08 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/70160928.shtml)
-- 2026-06-30 04:10 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/2792286996.shtml)
-- 2026-06-30 04:15 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/81135845.shtml)
-- 2026-06-30 04:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/42296940680.shtml)
-- 2026-06-30 03:58 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/835653884127.shtml)
-- 2026-06-30 04:10 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/33685325.shtml)
-- 2026-06-30 04:11 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/12940095426.shtml)
-- 2026-06-30 04:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/051932451088.shtml)
-- 2026-06-30 04:19 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/37980027376.shtml)
-- 2026-06-30 03:59 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/01454.shtml)
+- 2026-06-30 04:04 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/7758254.shtml)
+- 2026-06-30 04:13 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/50595148.shtml)
+- 2026-06-30 04:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/85812.shtml)
+- 2026-06-30 04:16 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/32868784826.shtml)
+- 2026-06-30 04:23 - [扬名立万](https://www.share.kurohicncr.top/Article/details/48701.shtml)
+- 2026-06-30 04:24 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/4537680765.shtml)
+- 2026-06-30 04:21 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/236661.shtml)
+- 2026-06-30 04:21 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/822302869582.shtml)
+- 2026-06-30 04:11 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/04451185130.shtml)
+- 2026-06-30 04:09 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/836472.shtml)
+- 2026-06-30 04:19 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/46484139285.shtml)
+- 2026-06-30 04:07 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/3908392.shtml)
+- 2026-06-30 04:04 - [日本领先巴西](http://www.share.minike.top/Article/details/94888146.shtml)
+- 2026-06-30 04:19 - [乔家的儿女](https://www.blog.minike.top/Article/details/57607.shtml)
+- 2026-06-30 04:03 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/67840873.shtml)

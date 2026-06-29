@@ -1,59 +1,57 @@
-# 甘肃前5个月农产品出口增7.4%：品种渐丰富 市场趋多元
+# 法国农业信贷银行一季度利润不及预期，因美以对伊战争不确定性增加审慎拨备
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-中新网兰州6月23日电（冯志军 张瑞航）天水110吨浓缩苹果汁首次出口以色列，陇南1.5吨冻豆腐首次出口西班牙，平凉1吨花椒首次出口捷克……兰州海关22日发布消息称，今年前5个月，甘肃省出口农产品总值14.9亿元，同比增长7.4%，产品覆盖东南亚、中亚、欧洲等市场。 据介绍，“甘味”农产品出口呈现品种日益丰富，市场日趋多元。产品种类涵盖新鲜果蔬、道地中药材、特色调味品和精深加工
+法国农业信贷银行周四公布的第一季度财报显示，净利润略低于市场预期，主要原因是该行因中东冲突带来的经济不确定性大幅增加了坏账拨备。 财报显示，该行第一季度净利润同比增长1.8%至16.8亿欧元，低于分析师普遍预期的17.2亿欧元。收入增长0.9%至69.9亿欧元，同样不及预期的70.6亿欧元。 成本风险，即潜在不良贷款拨备，飙升逾32%，达到5.47亿欧元。其中，约1亿欧元属于审
 
 ## 正文
 
-中新网兰州6月23日电（冯志军 张瑞航）天水110吨浓缩苹果汁首次出口以色列，陇南1.5吨冻豆腐首次出口西班牙，平凉1吨花椒首次出口捷克……兰州海关22日发布消息称，今年前5个月，甘肃省出口农产品总值14.9亿元，同比增长7.4%，产品覆盖东南亚、中亚、欧洲等市场。
+法国农业信贷银行周四公布的第一季度财报显示，净利润略低于市场预期，主要原因是该行因中东冲突带来的经济不确定性大幅增加了坏账拨备。
 
-据介绍，“甘味”农产品出口呈现品种日益丰富，市场日趋多元。
+财报显示，该行第一季度净利润同比增长1.8%至16.8亿欧元，低于分析师普遍预期的17.2亿欧元。
 
-产品种类涵盖新鲜果蔬、道地中药材、特色调味品和精深加工食品等，核心品类包括花牛苹果、静宁富士、甘谷辣椒、陇南核桃等。
+收入增长0.9%至69.9亿欧元，同样不及预期的70.6亿欧元。
 
-近年来，甘肃企业借助“甘味”品牌，将本土特色农产品推向国际市场。
+成本风险，即潜在不良贷款拨备，飙升逾32%，达到5.47亿欧元。
 
-以陇南长城果汁饮料有限公司为例，随着“甘味出海”深入实施，“陇上花牛”品牌知名度不断提升，出口市场拓展至加拿大、南非、澳大利亚、欧盟等多个国家和地区。
+其中，约1亿欧元属于审慎拨备，首席财务官向记者表示。
 
-“海关不仅及时开展‘一对一’政策辅导和食品质量安全培训，还开通了农产品绿色通道，缩短了货物通关时间，帮我们降低了成本。
+她强调：“这是审慎拨备，实际风险仍然非常可控，甚至比第四季度有所下降。
 
-”天水长城果汁饮料有限公司关务负责人魏彦军说。
+”在这1亿欧元中，有2800万欧元是法国农业信贷银行投资银行部门针对石化和航空等特定行业和地区进行的拨备。
 
-为助力“甘味”品牌持续拓展海外市场，兰州海关聚焦企业发展痛点难点，推行“一企一策”精准帮扶。
+财报显示，其投资银行业务收入下降4%，固定收益、货币和大宗商品业务收入下降9%，表现落后于德意志银行、法国巴黎银行及多家华尔街同行。
 
 ## 相关推荐
 
-- 2026-06-30 04:03 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 04:08 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 04:08 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-30 04:05 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-30 04:11 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 04:14 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 04:21 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 04:00 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 04:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 03:59 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 04:14 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 03:59 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-30 04:09 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 04:16 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 04:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 04:25 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 04:24 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 04:26 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 04:15 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 04:20 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 04:13 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 04:20 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 04:04 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 04:03 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:21 - [速度与激情9](http://www.blog.minike.top/Article/details/212145216264.shtml)
-- 2026-06-30 04:09 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/3398524.shtml)
-- 2026-06-30 03:59 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/704271750147.shtml)
-- 2026-06-30 04:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/730049011.shtml)
-- 2026-06-30 04:10 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/0330969.shtml)
-- 2026-06-30 04:08 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/6051240193.shtml)
-- 2026-06-30 03:57 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/994046012589.shtml)
-- 2026-06-30 04:04 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/414005191.shtml)
-- 2026-06-30 04:00 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/58482.shtml)
-- 2026-06-30 04:22 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/45948950.shtml)
-- 2026-06-30 03:59 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/26937.shtml)
-- 2026-06-30 03:55 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/28853326651.shtml)
-- 2026-06-30 03:54 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/70038.shtml)
-- 2026-06-30 04:14 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/5612967.shtml)
-- 2026-06-30 04:05 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/6273686.shtml)
+- 2026-06-30 04:15 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/63978147.shtml)
+- 2026-06-30 04:08 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/8526805.shtml)
+- 2026-06-30 04:13 - [勇敢的心第二部](https://www.share.minike.top/Article/details/377782904.shtml)
+- 2026-06-30 04:18 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/45714702583.shtml)
+- 2026-06-30 04:21 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/43440117.shtml)
+- 2026-06-30 04:18 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/343180207825.shtml)
+- 2026-06-30 04:18 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/61916661.shtml)
+- 2026-06-30 04:03 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/6341810.shtml)
+- 2026-06-30 04:16 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/21266236673.shtml)
+- 2026-06-30 04:21 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/5826139208.shtml)
+- 2026-06-30 04:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/32501845.shtml)
+- 2026-06-30 04:23 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/46731.shtml)
+- 2026-06-30 04:06 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/372461.shtml)
+- 2026-06-30 04:18 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/79281.shtml)
+- 2026-06-30 04:01 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/12981094122.shtml)

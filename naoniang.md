@@ -1,56 +1,60 @@
-# 四大证券报头版头条内容精华摘要_2026年6月23日_财经新闻
+# 2025年可数字化交付服务进出口总额预计超4300亿美元
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月23日（星期二），今日报刊头条主要内容精华如下： 中国证券报 两公司预计业绩翻倍 中报行情要来了？ 6月22日晚间，长川科技（维权）与卫星化学双双交出亮眼的半年度业绩预告。长川科技预计上半年归母净利润9亿元至10亿元，同比增长110.76%至134.18%；卫星化学预计上半年归母净
+中新网福州4月30日电 (叶秋云)30日，中国国家数据发展研究院在福建福州披露，参照2025年上半年增速，2025年可数字化交付的服务进出口总额预计超过4300亿美元，近四年保持稳步增长，每年增速有所加快。 当前，第九届数字中国建设峰会正在福建福州举办。中国国家数据发展研究院举行新闻发布会，发布数字中国发展指数(2025年)，并介绍有关情况。 2025年数字中国发展指数为170
 
 ## 正文
 
-专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网福州4月30日电 (叶秋云)30日，中国国家数据发展研究院在福建福州披露，参照2025年上半年增速，2025年可数字化交付的服务进出口总额预计超过4300亿美元，近四年保持稳步增长，每年增速有所加快。
 
-6月23日（星期二），今日报刊头条主要内容精华如下： 中国证券报 两公司预计业绩翻倍 中报行情要来了？
+当前，第九届数字中国建设峰会正在福建福州举办。
 
-6月22日晚间，长川科技（维权）与卫星化学双双交出亮眼的半年度业绩预告。
+中国国家数据发展研究院举行新闻发布会，发布数字中国发展指数(2025年)，并介绍有关情况。
 
-长川科技预计上半年归母净利润9亿元至10亿元，同比增长110.76%至134.18%；卫星化学预计上半年归母净利润60亿元至70亿元，同比增长118.68%至155.13%。
+2025年数字中国发展指数为170.1(以2020年为100)，同比增长12.99%，增幅较去年扩大2.34%。
 
-赛伍技术被立案调查？
+中国国家数据发展研究院院长胡坚波指出，整体上，数字中国建设成效显著，数字化发展水平快速提升，当前呈现加速前进的发展态势。
 
-公司辟谣！
+会上透露，网络方面，中国10G PON端口数近四年实现倍增，从2022年的1523万个增加至2025年的3162万个，复合年均增长率高达27.57%。
 
-6月22日，赛伍技术开盘大跌，盘中一度跌停，收盘跌幅为8.69%，换手率9.03%，成交额5.17亿元。
+算力方面，在“东数西算”工程带动下，中国智算总规模增速迅猛，2025年达到159万PFLOPS(FP16)，较2024年提升3倍以上，近五年复合年均增长率约80%。
 
-此前一个交易日（6月18日），赛伍技术股价跌停。
+据披露数据显示，近年来，中国数据生产总量大幅增长，从2022年的26.83泽字节(ZB，下同)增长到2025年的52.26泽字节，复合年均增长率高达24.89%。
 
 ## 相关推荐
 
-- 2026-06-30 04:06 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 04:14 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 04:20 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 04:21 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 04:08 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 03:56 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 04:20 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 04:02 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 04:21 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 04:18 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 04:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 04:24 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 04:10 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 04:02 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 04:02 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 04:19 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 04:28 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 04:29 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 04:11 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 04:19 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 04:06 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 04:27 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 04:17 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 04:10 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:12 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/989091.shtml)
-- 2026-06-30 04:08 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/17759404.shtml)
-- 2026-06-30 04:04 - [电影后室值得看吗](https://www.share.minike.top/Article/details/32361615734.shtml)
-- 2026-06-30 04:20 - [日本 高位逼抢](http://www.share.minike.top/Article/details/3405360.shtml)
-- 2026-06-30 04:02 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/60657.shtml)
-- 2026-06-30 03:54 - [85花告别古偶](http://www.share.minike.top/Article/details/673966445.shtml)
-- 2026-06-30 04:09 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/31062145772.shtml)
-- 2026-06-30 04:23 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/559105.shtml)
-- 2026-06-30 04:07 - [张凌赫 客串](http://www.blog.minike.top/Article/details/68511263.shtml)
-- 2026-06-30 04:19 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/89070909170.shtml)
-- 2026-06-30 03:59 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/6620362.shtml)
-- 2026-06-30 03:54 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/21951456716.shtml)
-- 2026-06-30 04:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/2991315693.shtml)
-- 2026-06-30 03:59 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/4122914666.shtml)
-- 2026-06-30 04:19 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/9171755.shtml)
+- 2026-06-30 04:20 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/982343885233.shtml)
+- 2026-06-30 04:14 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/675265619070.shtml)
+- 2026-06-30 04:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/3379585882.shtml)
+- 2026-06-30 04:26 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/224323634.shtml)
+- 2026-06-30 04:13 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/17559264.shtml)
+- 2026-06-30 04:07 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/3954761.shtml)
+- 2026-06-30 04:12 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/368133628142.shtml)
+- 2026-06-30 04:28 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/252822247.shtml)
+- 2026-06-30 04:28 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/45767.shtml)
+- 2026-06-30 04:17 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/515908524.shtml)
+- 2026-06-30 04:26 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/1628031066.shtml)
+- 2026-06-30 04:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/543185845430.shtml)
+- 2026-06-30 04:18 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/27324003.shtml)
+- 2026-06-30 04:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/37599586.shtml)
+- 2026-06-30 04:28 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/60511.shtml)

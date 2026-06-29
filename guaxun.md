@@ -1,52 +1,59 @@
-# 国产商用飞机开通第二条高高原航线 首架C909公务机投入商业运营
+# 【央视快评】以更大力度更实举措加强基础研究
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-本报北京6月23日电 (记者谷业凯)记者从中国商用飞机有限责任公司获悉：23日，随着成都航空C909飞机“天鹅号”主题航班平稳降落在海拔2506.85米的和静巴音布鲁克机场，乌鲁木齐经停和静、往返喀什的航线正式开通。这是继喀什往返塔什库尔干航线之后，国产商用飞机执飞的第二条高高原航线(指飞行在陆地海拔2438米之上的航空线)。22日，首架C909公务机CBJ(COMAC Bus
+4月30日上午，习近平总书记在上海出席加强基础研究座谈会并发表重要讲话。总书记强调，基础研究是整个科学体系的源头，是所有技术问题的总机关。要以更大力度、更实举措加强基础研究，提升我国原始创新能力，进一步打牢科技强国建设根基。 习近平总书记的重要讲话，充分肯定我国基础研究取得的历史性成就，深刻洞察全球科技竞争的新态势，对加强我国基础研究作出战略部署，为新时代新征程全面加强基础研究
 
 ## 正文
 
-本报北京6月23日电 (记者谷业凯)记者从中国商用飞机有限责任公司获悉：23日，随着成都航空C909飞机“天鹅号”主题航班平稳降落在海拔2506.85米的和静巴音布鲁克机场，乌鲁木齐经停和静、往返喀什的航线正式开通。
+4月30日上午，习近平总书记在上海出席加强基础研究座谈会并发表重要讲话。
 
-这是继喀什往返塔什库尔干航线之后，国产商用飞机执飞的第二条高高原航线(指飞行在陆地海拔2438米之上的航空线)。
+总书记强调，基础研究是整个科学体系的源头，是所有技术问题的总机关。
 
-22日，首架C909公务机CBJ(COMAC Business Jet)由上海虹桥机场飞往北京首都机场，正式投入商业运营。
+要以更大力度、更实举措加强基础研究，提升我国原始创新能力，进一步打牢科技强国建设根基。
 
-作为C909衍生机型之一，CBJ公务机定位为大型喷气式高端定制化公务机，客舱空间宽敞，可满足个性化定制需求。
+习近平总书记的重要讲话，充分肯定我国基础研究取得的历史性成就，深刻洞察全球科技竞争的新态势，对加强我国基础研究作出战略部署，为新时代新征程全面加强基础研究指明了前进方向、提供了根本遵循。
 
-《人民日报》(2026年06月24日 第 07 版)
+党的十八大以来，以习近平同志为核心的党中央把提升基础研究能力摆在更加突出的位置。
+
+习近平总书记先后就加强基础研究的理论和实践问题作出一系列重要论述，深刻揭示基础研究发展规律，就做好基础研究这篇大文章明确了方法路径。
+
+当前，我国基础研究整体水平迈上新台阶，在量子科技、空间科学、人工智能等基础前沿领域产出一批重大原创成果。
+
+我国创新指数排名上升至世界第9位，正在从“点的突破”迈向“系统能力提升”，部分领域实现了从“跟跑”“并跑”向“领跑”的历史性跨越。
 
 ## 相关推荐
 
-- 2026-06-30 04:18 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 04:18 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 04:08 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 04:00 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 04:15 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 04:22 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 04:11 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 03:54 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-30 04:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 04:18 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 04:21 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 03:55 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 04:11 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 04:20 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 04:06 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 04:00 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 04:01 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 04:29 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 04:07 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 04:09 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 04:01 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 04:14 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 04:17 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 04:24 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 04:24 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:14 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/7673710.shtml)
-- 2026-06-30 04:15 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/4289790361.shtml)
-- 2026-06-30 04:01 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/27859641972.shtml)
-- 2026-06-30 04:19 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/5209465124.shtml)
-- 2026-06-30 03:58 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/39449585844.shtml)
-- 2026-06-30 04:15 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/53591875858.shtml)
-- 2026-06-30 03:55 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/12997.shtml)
-- 2026-06-30 04:00 - [恋与深空 巧合](http://www.share.minike.top/Article/details/656856672116.shtml)
-- 2026-06-30 04:17 - [沉睡花园](https://www.blog.minike.top/Article/details/8090996.shtml)
-- 2026-06-30 04:07 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/0887305.shtml)
-- 2026-06-30 04:01 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/397212607068.shtml)
-- 2026-06-30 04:09 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/875630434616.shtml)
-- 2026-06-30 04:14 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/787808345.shtml)
-- 2026-06-30 04:12 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/559660.shtml)
-- 2026-06-30 04:03 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/2855230.shtml)
+- 2026-06-30 04:28 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/1745685.shtml)
+- 2026-06-30 04:24 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/653894685.shtml)
+- 2026-06-30 04:05 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/246281.shtml)
+- 2026-06-30 04:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/9448497836.shtml)
+- 2026-06-30 04:17 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/15746268892.shtml)
+- 2026-06-30 04:20 - [一见倾心](https://www.blog.minike.top/Article/details/283102752.shtml)
+- 2026-06-30 04:04 - [爱很美味](https://www.blog.minike.top/Article/details/70771715.shtml)
+- 2026-06-30 04:28 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/560205.shtml)
+- 2026-06-30 04:19 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/78668.shtml)
+- 2026-06-30 04:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/032170655633.shtml)
+- 2026-06-30 04:18 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/61266456.shtml)
+- 2026-06-30 04:13 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/820862900548.shtml)
+- 2026-06-30 04:23 - [金牌调解](https://www.share.kurohicncr.top/Article/details/5643048570.shtml)
+- 2026-06-30 04:29 - [日本16强魔咒](https://www.share.minike.top/Article/details/43105467712.shtml)
+- 2026-06-30 04:08 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/117722645800.shtml)

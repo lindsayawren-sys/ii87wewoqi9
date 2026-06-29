@@ -1,61 +1,60 @@
-# 今年前5个月全国财政收支“成绩单”反映什么 专家解读→
+# Alphabet股东要求公司解释如何管理和控制技术和云服务用途
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-原标题：视频丨今年前5个月全国财政收支“成绩单”反映什么 专家解读→ 昨天(22日)，财政部发布了今年1-5月的全国财政收支运行情况，数据显示，前五个月，全国一般公共预算收入超过10万亿元。 财政部数据显示，今年1-5月，全国一般公共预算收入100465亿元，同比增长4%，增幅比1-4月提高0.5个百分点。全国税收收入82617亿元，同比增长4.4%，增幅比1-4月提高0.5个
+登录新浪财经APP 搜索【信披】查看更多考评等级 一群Alphabet股东正在向这家科技巨头施压，要求其解释如何管理和控制各国政府将其技术和云服务用于监控目的。此前，该公司拒绝了投资者要求加强信息披露的呼吁。 在一封致Alphabet的信中，投资者要求与管理层会面。此前，这家谷歌母公司反对了一项股东决议，该决议要求公司就如何监管相关风险出具报告。负责起草这封信的Zevin资产管
 
 ## 正文
 
-原标题：视频丨今年前5个月全国财政收支“成绩单”反映什么 专家解读→ 昨天(22日)，财政部发布了今年1-5月的全国财政收支运行情况，数据显示，前五个月，全国一般公共预算收入超过10万亿元。
+登录新浪财经APP 搜索【信披】查看更多考评等级 一群Alphabet股东正在向这家科技巨头施压，要求其解释如何管理和控制各国政府将其技术和云服务用于监控目的。
 
-财政部数据显示，今年1-5月，全国一般公共预算收入100465亿元，同比增长4%，增幅比1-4月提高0.5个百分点。
+此前，该公司拒绝了投资者要求加强信息披露的呼吁。
 
-全国税收收入82617亿元，同比增长4.4%，增幅比1-4月提高0.5个百分点。
+在一封致Alphabet的信中，投资者要求与管理层会面。
 
-中央财经大学财税学院教授 白彦锋：这次的财政收入数据改善，是中央到地方，财政到经济全方位全面改善，这还是非常可喜的，财政收支的紧平衡的状态得到了非常大的缓解。
+此前，这家谷歌母公司反对了一项股东决议，该决议要求公司就如何监管相关风险出具报告。
 
-税收收入的增速超过一般公共预算的增速，也就是税收占比在提高。
+负责起草这封信的Zevin资产管理公司可持续投资总监表示：“云服务是一个不断增长的领域，而且正变得越来越军事化。
 
-这其实体现的是财政收入质量在改善，另外反映了经济增长的潜质得到进一步的释放和提升。
+我们没有看到他们对高风险环境下的干预有严格的控制。
 
-从主体税种来看，1-5月，受工业服务业持续增长、工业生产者出厂价格上行等带动，国内增值税增长6.2%，增幅连续4个月提高。
+” 这封信由42家机构和14位个人签署，管理的资产总额达1.15万亿美元，共持有Alphabet约22亿美元的股份。
 
-中央财经大学财税学院教授 白彦锋：增值税和国民经济、工业生产以及服务消费都是密切相关的，这是税收收入中的主体税种，也反映了经济的压舱石在不断改善。
+此次投资者行动是针对Alphabet在Project Nimbus、向美国移民局提供服务以及在沙特阿拉伯运营等事宜表达担忧。
 
 ## 相关推荐
 
-- 2026-06-30 04:07 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 04:10 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 04:12 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 04:03 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 04:12 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 03:58 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 04:18 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 04:04 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 04:24 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 04:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-30 04:02 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 04:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 04:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 04:05 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-30 03:59 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 04:25 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 04:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 04:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 04:18 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 04:05 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 04:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 04:16 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 04:18 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 04:12 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 04:12 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 04:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-30 04:15 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 04:20 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 04:03 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:57 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/20816181240.shtml)
-- 2026-06-30 04:17 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/756374.shtml)
-- 2026-06-30 04:19 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/86969.shtml)
-- 2026-06-30 04:19 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/9789615774.shtml)
-- 2026-06-30 04:19 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/0457016.shtml)
-- 2026-06-30 04:19 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/9906112539.shtml)
-- 2026-06-30 04:13 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/65984595704.shtml)
-- 2026-06-30 04:13 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/929735485380.shtml)
-- 2026-06-30 04:04 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/73876093.shtml)
-- 2026-06-30 04:15 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/672133025037.shtml)
-- 2026-06-30 04:00 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/068298.shtml)
-- 2026-06-30 03:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/49433.shtml)
-- 2026-06-30 04:18 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/9912829.shtml)
-- 2026-06-30 04:16 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/25100.shtml)
-- 2026-06-30 03:55 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/948623715.shtml)
+- 2026-06-30 04:09 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/6696098.shtml)
+- 2026-06-30 04:25 - [蔚来车主罚站](https://www.share.minike.top/Article/details/717557638119.shtml)
+- 2026-06-30 04:27 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/6571168.shtml)
+- 2026-06-30 04:20 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/618639740584.shtml)
+- 2026-06-30 04:20 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/562870.shtml)
+- 2026-06-30 04:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/69028416.shtml)
+- 2026-06-30 04:01 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/3258065866.shtml)
+- 2026-06-30 04:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/60896.shtml)
+- 2026-06-30 04:19 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/5619536.shtml)
+- 2026-06-30 04:01 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/34976336188.shtml)
+- 2026-06-30 04:27 - [毒液2](http://www.blog.kurohicncr.top/Article/details/62041.shtml)
+- 2026-06-30 04:13 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/567366967.shtml)
+- 2026-06-30 04:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/8062660242.shtml)
+- 2026-06-30 04:19 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/58630.shtml)
+- 2026-06-30 04:16 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/930187573623.shtml)

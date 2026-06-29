@@ -1,61 +1,57 @@
-# 嘉年华邮轮：伊朗战事冲击预订业务，下调业绩预期
+# 中方：日本拥核问题已是现实而非潜在威胁
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 内容速览 受地缘政治剧烈波动冲击邮轮预订量叠加燃油成本走高影响，嘉年华邮轮给出本季度偏弱的业绩预期。 嘉年华邮轮表示，激烈的地缘冲突打乱了邮轮预订节奏，燃油成本持续攀升不断挤压企业利润，因此下调了本季度业绩预期。 这家邮轮公司于周二披露，上一财季的邮轮预订业务在欧洲地区受冲击最为严重，地中海航线遭遇的影响尤为突出。 公司首席执行官乔希・温斯
+中新社联合国4月29日电 中国代表团29日在纽约联合国总部举行的《不扩散核武器条约》缔约方第11次审议大会上进行答辩发言时表示，日本拥核问题已经是现实而非潜在威胁，国际社会必须高度警惕。 中国代表团说，日本是国际公认的核门槛国家，是《不扩散核武器条约》成员国中唯一掌握后处理技术、有能力提取武器级钚、拥有可运行后处理设施的无核武器国家。高市早苗政府上台以来，日本拥核问题已经是现实
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 内容速览 受地缘政治剧烈波动冲击邮轮预订量叠加燃油成本走高影响，嘉年华邮轮给出本季度偏弱的业绩预期。
+中新社联合国4月29日电 中国代表团29日在纽约联合国总部举行的《不扩散核武器条约》缔约方第11次审议大会上进行答辩发言时表示，日本拥核问题已经是现实而非潜在威胁，国际社会必须高度警惕。
 
-嘉年华邮轮表示，激烈的地缘冲突打乱了邮轮预订节奏，燃油成本持续攀升不断挤压企业利润，因此下调了本季度业绩预期。
+中国代表团说，日本是国际公认的核门槛国家，是《不扩散核武器条约》成员国中唯一掌握后处理技术、有能力提取武器级钚、拥有可运行后处理设施的无核武器国家。
 
-这家邮轮公司于周二披露，上一财季的邮轮预订业务在欧洲地区受冲击最为严重，地中海航线遭遇的影响尤为突出。
+高市早苗政府上台以来，日本拥核问题已经是现实而非潜在威胁，对二战后国际秩序及核不扩散体系构成严重挑战，国际社会必须高度警惕以下消极动向。
 
-公司首席执行官乔希・温斯坦表示，集团旗下全航线旺盛的出行需求与游客消费能力，一定程度对冲了地缘冲突带来的业务负面影响。
+一是日本首相官邸官员扬言“日本应该拥有核武器”，右翼势力谋求修改“无核三原则”，不断试探国际社会反应，为政策转向做准备。
 
-上一财季公司营收同比上涨 5.3%，达到 66.6 亿美元，略低于华尔街机构预期的 66.9 亿美元。
+二是日本长期囤积大量远超民用需求的钚材料，在国内外管理的分离钚总量约44.4吨。
 
-尽管嘉年华持续推行降本举措，但仍未能完全抵消燃油涨价带来的压力，当期利润出现下滑。
+日本具备研发核武器技术能力，可在短期内实现核突破。
 
-周二公司股价大跌 7.3%，报收 27.96 美元，今年以来该股累计跌幅已达 9.7%。
+三是日本在核不扩散问题上立场自相矛盾。
 
-展望后市，随着近期国际油价回落，嘉年华预计 2026 年剩余运营周期的燃油开支将小幅下行。
+日本一边在国际上长期以“核爆受害者”自居，以无核世界支持者迷惑世人，一边不断强化盟友“延伸威慑”合作，急切渴望复制“核共享”安排、将盟国核武器引入日本。
 
 ## 相关推荐
 
-- 2026-06-30 03:57 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 04:23 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 04:10 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-30 03:59 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 03:54 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 04:08 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 04:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 04:09 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 03:56 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 03:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-30 04:09 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 03:59 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 04:09 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 04:22 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 04:14 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-30 04:07 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 04:03 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 04:29 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 04:28 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 04:19 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 04:27 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 04:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 04:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 04:23 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 04:13 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 04:05 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:05 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/53916.shtml)
-- 2026-06-30 04:08 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/62862677003.shtml)
-- 2026-06-30 04:00 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/60244290.shtml)
-- 2026-06-30 03:59 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/111047447785.shtml)
-- 2026-06-30 03:58 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/89869872.shtml)
-- 2026-06-30 04:10 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/47814.shtml)
-- 2026-06-30 04:22 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/39775825832.shtml)
-- 2026-06-30 04:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/24151.shtml)
-- 2026-06-30 03:56 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/63047.shtml)
-- 2026-06-30 04:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/76772346.shtml)
-- 2026-06-30 03:59 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/536309409.shtml)
-- 2026-06-30 04:23 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/9725393692.shtml)
-- 2026-06-30 04:10 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/014306856.shtml)
-- 2026-06-30 04:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/500792.shtml)
-- 2026-06-30 04:01 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/10349.shtml)
+- 2026-06-30 04:20 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/3330607606.shtml)
+- 2026-06-30 04:19 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/821511.shtml)
+- 2026-06-30 04:09 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/16638934.shtml)
+- 2026-06-30 04:11 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/0851269.shtml)
+- 2026-06-30 04:29 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/436053.shtml)
+- 2026-06-30 04:18 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/910684.shtml)
+- 2026-06-30 04:13 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/0174110116.shtml)
+- 2026-06-30 04:03 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/5484743633.shtml)
+- 2026-06-30 04:15 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/84484.shtml)
+- 2026-06-30 04:23 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/11148131.shtml)
+- 2026-06-30 04:14 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/4324388096.shtml)
+- 2026-06-30 04:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/22135345582.shtml)
+- 2026-06-30 04:28 - [月亮](http://www.blog.kurohicncr.top/Article/details/986507569866.shtml)
+- 2026-06-30 04:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/372940278.shtml)
+- 2026-06-30 04:12 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/195278.shtml)

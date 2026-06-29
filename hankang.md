@@ -1,54 +1,57 @@
-# 香港书展7月15日开幕 活动逾600项首设东盟文学节
+# 达索系统CEO：深耕创新源泉中国 不融入将失竞争力
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-中新社香港6月23日电 (记者 魏华都)记者23日从发布会上获悉，由香港贸易发展局主办的第36届香港书展将于7月15日至21日在香港会议展览中心举行，并与香港运动消闲博览及零食世界同期举办，三大展览预计汇聚来自近30个国家和地区的逾770家展商。 本届书展以“文创传承·旅悦人生”为主题，将举办超过600项文化活动。香港贸易发展局副总裁古静敏表示，该主题是希望鼓励读者通过阅读，探
+中新社北京4月30日电 (记者 尹倩芸)“我们之所以深耕中国，不仅是为了服务本土市场，更因为如今创新正源源不断地诞生自中国。”法国工业软件公司达索系统董事会主席兼CEO帕斯卡·达洛兹(Pascal Daloz)近日在北京接受中新社等媒体采访时说。他以新能源汽车产业为例指出，如果企业不能融入中国这一活跃的创新生态，长远来看将难以保持全球竞争力。 达洛兹透露，此次中国之行在三天内走
 
 ## 正文
 
-中新社香港6月23日电 (记者 魏华都)记者23日从发布会上获悉，由香港贸易发展局主办的第36届香港书展将于7月15日至21日在香港会议展览中心举行，并与香港运动消闲博览及零食世界同期举办，三大展览预计汇聚来自近30个国家和地区的逾770家展商。
+中新社北京4月30日电 (记者 尹倩芸)“我们之所以深耕中国，不仅是为了服务本土市场，更因为如今创新正源源不断地诞生自中国。
 
-本届书展以“文创传承·旅悦人生”为主题，将举办超过600项文化活动。
+”法国工业软件公司达索系统董事会主席兼CEO帕斯卡·达洛兹(Pascal Daloz)近日在北京接受中新社等媒体采访时说。
 
-香港贸易发展局副总裁古静敏表示，该主题是希望鼓励读者通过阅读，探索传统文化在当代社会的传承和创新，并希望大家通过文化和生态旅游，深度体验人文和自然之美，在旅途中丰富人生视野、滋养心灵。
+他以新能源汽车产业为例指出，如果企业不能融入中国这一活跃的创新生态，长远来看将难以保持全球竞争力。
 
-今年书展再度设立“名作家讲座系列”，多位华文世界极具影响力的作家将亲临现场与书迷互动交流，包括刘震云、苏童、毕飞宇、刘家琨和茹国烈等。
+达洛兹透露，此次中国之行在三天内走访了六座城市，拜访多家中国客户和合作伙伴。
 
-此外，大会今年与香港-东盟协会合作，首次增设东盟文学节，希望促进香港与东盟地区的文化交流。
+在他看来，中国新一代企业家已“完全做好进军全球市场的准备”。
 
-多位东盟地区的知名作家将参与，包括被誉为印尼当代最具国际影响力的小说家埃卡·古尼阿弯(Eka Kurniawan)，以及作品被翻译为12种语言的印尼裔新加坡作家克拉丽莎·古纳万(Clarissa Goenawan)等。
+“几年前，当我拜访吉利、上汽这些大型企业时，他们的核心议题是如何在技术能力、最佳实践和组织架构上奋起直追。
 
-(完)
+时至今日，他们的核心议程已经不止于追赶，而是领航业界。
+
+”达洛兹认为，中国已孕育出一批真正准备好冲击未来格局的卓越企业。
 
 ## 相关推荐
 
-- 2026-06-30 04:09 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 04:23 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 04:20 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-30 04:10 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 04:22 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 04:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 03:56 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 04:16 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 04:19 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 03:54 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 04:21 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 04:15 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 04:26 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 04:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 04:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 04:23 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 04:26 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 04:02 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 04:20 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 04:28 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 04:05 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:02 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/97648155026.shtml)
-- 2026-06-30 04:02 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/46779755998.shtml)
-- 2026-06-30 04:14 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/01680.shtml)
-- 2026-06-30 04:15 - [一生一世](https://www.blog.minike.top/Article/details/6555657.shtml)
-- 2026-06-30 04:16 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/92123686637.shtml)
-- 2026-06-30 04:01 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/500954.shtml)
-- 2026-06-30 04:10 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/982533.shtml)
-- 2026-06-30 04:16 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/29639.shtml)
-- 2026-06-30 04:07 - [请回答王牌2019](https://www.share.minike.top/Article/details/908117870201.shtml)
-- 2026-06-30 04:18 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/53682.shtml)
-- 2026-06-30 04:05 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/1416020981.shtml)
-- 2026-06-30 04:08 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/1349087100.shtml)
-- 2026-06-30 03:59 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/5284559.shtml)
-- 2026-06-30 04:10 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/61452248.shtml)
-- 2026-06-30 04:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/02164635.shtml)
+- 2026-06-30 04:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/7323594908.shtml)
+- 2026-06-30 04:13 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/05813.shtml)
+- 2026-06-30 04:27 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/551138.shtml)
+- 2026-06-30 04:20 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/4092142.shtml)
+- 2026-06-30 04:19 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/182015.shtml)
+- 2026-06-30 04:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/6961544.shtml)
+- 2026-06-30 04:04 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/95507395.shtml)
+- 2026-06-30 04:11 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/4708693821.shtml)
+- 2026-06-30 04:04 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/85853324.shtml)
+- 2026-06-30 04:20 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/556451333.shtml)
+- 2026-06-30 04:18 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/224780.shtml)
+- 2026-06-30 04:18 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/58276024689.shtml)
+- 2026-06-30 04:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/368111473352.shtml)
+- 2026-06-30 04:14 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/77983.shtml)
+- 2026-06-30 04:25 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/32846407.shtml)

@@ -1,60 +1,47 @@
-# 老顾客一天没来 面馆老板报警救回一命
+# 视频｜人民币要大幅升值？
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-日前，在浙江嘉兴，一家面馆老板顾先生，发现老顾客芦师傅没有像平时一样来店里吃面。芦师傅年过六旬且独居，顾先生多次致电无人接听，便赶往其家中。 面馆老板 顾伟光：前一天吃面他说吃不下，我就怀疑了。早上九点多他没来，我就打电话给他。电话打过去没动静，我再赶去他家，敲门也没动静。 敲门无人应答后，顾伟光随即报警。辖区派出所民警迅速赶到现场。 嘉兴市公安局南湖区分局新嘉派出所民警 万晓
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：汤山小王 责任编辑：张乔松
 
 ## 正文
 
-日前，在浙江嘉兴，一家面馆老板顾先生，发现老顾客芦师傅没有像平时一样来店里吃面。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-芦师傅年过六旬且独居，顾先生多次致电无人接听，便赶往其家中。
-
-面馆老板 顾伟光：前一天吃面他说吃不下，我就怀疑了。
-
-早上九点多他没来，我就打电话给他。
-
-电话打过去没动静，我再赶去他家，敲门也没动静。
-
-敲门无人应答后，顾伟光随即报警。
-
-辖区派出所民警迅速赶到现场。
-
-嘉兴市公安局南湖区分局新嘉派出所民警 万晓煜：敲门里面是没有声音的，我们也通过隔壁的窗户去看里面是否有人，看到一个老人在床上，喊不应，当时我们也不确定具体是什么情况。
+来源：汤山小王 责任编辑：张乔松
 
 ## 相关推荐
 
-- 2026-06-30 04:20 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 03:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 04:03 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 04:00 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 04:00 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-30 04:12 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-30 04:23 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 04:01 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 04:22 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 04:05 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 04:07 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 04:05 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 04:05 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 04:10 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 04:21 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 04:17 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 04:05 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-30 04:20 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 04:24 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 04:23 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 04:20 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 04:16 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 04:14 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 04:01 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 04:20 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 04:22 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 04:00 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:11 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/28041902432.shtml)
-- 2026-06-30 04:13 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/671863605.shtml)
-- 2026-06-30 04:09 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/7551889.shtml)
-- 2026-06-30 04:14 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/47762.shtml)
-- 2026-06-30 04:20 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/604188.shtml)
-- 2026-06-30 04:02 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/461348965.shtml)
-- 2026-06-30 04:21 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/86519445998.shtml)
-- 2026-06-30 04:07 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/895185125102.shtml)
-- 2026-06-30 04:00 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/3060202252.shtml)
-- 2026-06-30 04:00 - [急先锋](https://www.share.minike.top/Article/details/961560994.shtml)
-- 2026-06-30 04:17 - [女心理师](https://www.blog.kurohicncr.top/Article/details/31365688870.shtml)
-- 2026-06-30 04:07 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/978510811767.shtml)
-- 2026-06-30 04:05 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/033536.shtml)
-- 2026-06-30 04:20 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/560802.shtml)
-- 2026-06-30 04:12 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/0032384.shtml)
+- 2026-06-30 04:07 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/7285018191.shtml)
+- 2026-06-30 04:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/26594520728.shtml)
+- 2026-06-30 04:16 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/503882269.shtml)
+- 2026-06-30 04:07 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/6977802113.shtml)
+- 2026-06-30 04:09 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/32108355.shtml)
+- 2026-06-30 04:21 - [天道](https://www.blog.minike.top/Article/details/508594.shtml)
+- 2026-06-30 04:04 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/526509055.shtml)
+- 2026-06-30 04:04 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/96902369505.shtml)
+- 2026-06-30 04:06 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/753154471.shtml)
+- 2026-06-30 04:19 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/26500455.shtml)
+- 2026-06-30 04:26 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/779716.shtml)
+- 2026-06-30 04:16 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/0892986804.shtml)
+- 2026-06-30 04:14 - [我们的少年时代2](http://www.blog.minike.top/Article/details/90567026.shtml)
+- 2026-06-30 04:24 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/096414423.shtml)
+- 2026-06-30 04:17 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/505998797136.shtml)

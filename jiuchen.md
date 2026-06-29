@@ -1,58 +1,56 @@
-# 盘前：市场对芯片热情仍在延续 纳指期货涨0.29%
+# 立夏将至心火易旺 中药师教你晚睡早起、养心护脾
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-截至发稿，道指期货涨0.2%，标普500指数期货涨0.03%，纳指期货涨0.29%。 在美伊外交取得进展迹象的背景下，油价下跌，这一进展缓解了市场对结束伊朗战争的脆弱进程可能破裂的担忧。周一美国股指期货小幅攀升。 欧洲斯托克600指数盘中震荡，最新下跌0.1%。科技股上涨，但消费敏感型股票走弱。伦敦富时100指数持平，法国CAC 40指数下跌0.1%，科技股占比较高的荷兰AEX
+中新网广州4月30日电 (记者 蔡敏婕)立夏将至，气温攀升、阳气渐盛，人体易出现心火旺盛、烦躁乏力等不适。今年5月5日迎来立夏节气，作为夏季首个节气，此后日照增多、雷雨频发，人体新陈代谢加快，养生方式需及时调整。广州医科大学附属第二医院主管中药师詹慧瑜30日支招，市民可从起居、情志、运动、饮食四方面顺应时节，遵循晚睡早起节律、践行增酸减苦原则，养心护脾安然入夏。 立夏素有吃立夏
 
 ## 正文
 
-截至发稿，道指期货涨0.2%，标普500指数期货涨0.03%，纳指期货涨0.29%。
+中新网广州4月30日电 (记者 蔡敏婕)立夏将至，气温攀升、阳气渐盛，人体易出现心火旺盛、烦躁乏力等不适。
 
-在美伊外交取得进展迹象的背景下，油价下跌，这一进展缓解了市场对结束伊朗战争的脆弱进程可能破裂的担忧。
+今年5月5日迎来立夏节气，作为夏季首个节气，此后日照增多、雷雨频发，人体新陈代谢加快，养生方式需及时调整。
 
-周一美国股指期货小幅攀升。
+广州医科大学附属第二医院主管中药师詹慧瑜30日支招，市民可从起居、情志、运动、饮食四方面顺应时节，遵循晚睡早起节律、践行增酸减苦原则，养心护脾安然入夏。
 
-欧洲斯托克600指数盘中震荡，最新下跌0.1%。
+立夏素有吃立夏蛋、称人、尝三鲜等传统民俗。
 
-科技股上涨，但消费敏感型股票走弱。
+在中医看来，立夏过后正式步入“心火渐旺”时段，养生核心重在养护心脏，同时兼顾脾胃调理，为整个夏季健康打下基础。
 
-伦敦富时100指数持平，法国CAC 40指数下跌0.1%，科技股占比较高的荷兰AEX指数上涨0.35%，德国DAX指数上涨0.3%，西班牙IBEX 35指数持平，意大利富时MIB指数下跌0.25%。
+起居养生方面，专家建议顺应夏季昼长夜短的特点，“立夏后日照时间变长，晚上我们可以稍微晚一点睡，但不超过23时，早上早点起床以顺应阳气的充盈。
 
-亚洲股市隔夜上涨，受和平谈判进展提振。
+”詹慧瑜称，随着气温升高，日常使用空调建议设置26摄氏度以上，避免出风口直吹颈部、腰背及腹部，减少寒湿侵入；早晚温差较大时多开窗通风，保持室内空气流通，兼顾防暑与保暖。
 
-日本日经指数上涨1.6%，韩国股市上涨0.7%，此前因半导体板块需求推动，上周累计上涨超过11%。
+情志调养是立夏养生的关键。
 
 ## 相关推荐
 
-- 2026-06-30 03:59 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 04:13 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 04:11 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 04:04 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 04:00 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 04:01 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-30 04:11 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 04:04 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 04:21 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-30 04:08 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 03:55 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 04:22 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 04:28 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 04:19 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 04:05 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 04:15 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 04:24 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 04:04 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-30 04:13 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 04:02 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 04:18 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 04:23 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:20 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/9089197.shtml)
-- 2026-06-30 04:11 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/9852119.shtml)
-- 2026-06-30 03:57 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/51543199028.shtml)
-- 2026-06-30 04:14 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/73898258.shtml)
-- 2026-06-30 04:12 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/694458.shtml)
-- 2026-06-30 03:59 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/4948514557.shtml)
-- 2026-06-30 03:54 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/670114788.shtml)
-- 2026-06-30 03:57 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/80524.shtml)
-- 2026-06-30 04:14 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/6947099565.shtml)
-- 2026-06-30 03:55 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/3200352045.shtml)
-- 2026-06-30 04:02 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/2800807107.shtml)
-- 2026-06-30 03:55 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/15852404905.shtml)
-- 2026-06-30 03:54 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/65788.shtml)
-- 2026-06-30 04:12 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/3171227074.shtml)
-- 2026-06-30 04:19 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/30127246.shtml)
+- 2026-06-30 04:05 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/56493490959.shtml)
+- 2026-06-30 04:11 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/294532893.shtml)
+- 2026-06-30 04:17 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/800618006.shtml)
+- 2026-06-30 04:09 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/5426218116.shtml)
+- 2026-06-30 04:08 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/6740056.shtml)
+- 2026-06-30 04:25 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/91575599.shtml)
+- 2026-06-30 04:12 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/73420635.shtml)
+- 2026-06-30 04:24 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/2218071137.shtml)
+- 2026-06-30 04:27 - [日本淘汰](http://www.share.minike.top/Article/details/365279647.shtml)
+- 2026-06-30 04:04 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/38014154.shtml)
+- 2026-06-30 04:04 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/3740948.shtml)
+- 2026-06-30 04:00 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/208037583.shtml)
+- 2026-06-30 04:17 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/29146590.shtml)
+- 2026-06-30 04:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/67094136.shtml)
+- 2026-06-30 04:14 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/42190.shtml)

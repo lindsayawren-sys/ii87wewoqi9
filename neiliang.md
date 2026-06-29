@@ -1,58 +1,56 @@
-# 紫晶存储追偿案开庭 光大银行等5家银行涉嫌配合造假遭起诉
+# 校车接送作息规律 成都“宠物幼儿园”精细化托管堪比人类幼托
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-“紫晶存储财务造假追偿案近日开庭，光大银行、广州银行等5家银行涉嫌故意隐瞒资金受限的事实，配合上市公司提供虚假的银行函证回函被要求承担相应的赔偿责任。” 6月22日，备受关注的紫晶存储财务造假追偿案在上海金融法院开庭。 紫晶存储曾是“光存储第一股”，2020年2月登陆科创板，募资净额8.84亿元，市值一度超过160亿元。然而由于系统性财务造假，紫晶存储被强制退市，1.7万名投资
+中新网成都4月30日电(何美锟)随着“它经济”持续升温，宠主对宠物的养护需求从“吃饱睡好”向精细化、品质化升级。近日，四川成都一家宠物幼儿园因标准化托管服务走红网络，校车接送、每小时实况反馈、定制下午茶等精细化服务，被网友戏称“堪比人类幼儿园”，精准破解职场宠主“无暇陪伴”的痛点，成为城市养宠人的新选择。 早上8点40分，一辆印着萌宠图案的“狗狗校车”缓缓停靠在指定接送点，园区
 
 ## 正文
 
-“紫晶存储财务造假追偿案近日开庭，光大银行、广州银行等5家银行涉嫌故意隐瞒资金受限的事实，配合上市公司提供虚假的银行函证回函被要求承担相应的赔偿责任。
+中新网成都4月30日电(何美锟)随着“它经济”持续升温，宠主对宠物的养护需求从“吃饱睡好”向精细化、品质化升级。
 
-” 6月22日，备受关注的紫晶存储财务造假追偿案在上海金融法院开庭。
+近日，四川成都一家宠物幼儿园因标准化托管服务走红网络，校车接送、每小时实况反馈、定制下午茶等精细化服务，被网友戏称“堪比人类幼儿园”，精准破解职场宠主“无暇陪伴”的痛点，成为城市养宠人的新选择。
 
-紫晶存储曾是“光存储第一股”，2020年2月登陆科创板，募资净额8.84亿元，市值一度超过160亿元。
+早上8点40分，一辆印着萌宠图案的“狗狗校车”缓缓停靠在指定接送点，园区“老师”有序引导狗狗下车、入园，开启一天的“校园生活”。
 
-然而由于系统性财务造假，紫晶存储被强制退市，1.7万名投资者损失将近11亿。
+不同于传统宠物寄养，这家宠物幼儿园以标准化服务为核心，构建了一套堪比人类幼托的服务体系。
 
-中信建投证券等四家中介机构对投资者随时进行了先行赔付，随后在2024年6月，四家中介机构正式将48名责任主体诉至上海金融法院。
+“家长需提前1到2天预约校车，我们没有固定路线，会根据小狗的预约情况提前规划。
 
-除紫晶存储自身及相关责任人外，上述4家机构认为，河南卢氏农村商业银行、光大银行珠海拱北支行、广州银行惠州仲恺支行、五华惠民村镇银行、广东五华农村商业银行五家银行明知紫晶存储或其子公司存在违规对外担保，但仍故意隐瞒资金受限的事实，配合上市公司提供虚假的银行函证回函或故意不配合回函，存在明显故意，应承担相应的赔偿责任。
+”该宠物幼儿园园长李女士介绍，校车上配备了完善的安全保障，爱乱动的小狗会安排航空箱，乖巧的小狗则用安全扣固定，确保出行安全。
 
-本案是国内证券虚假陈述责任纠纷领域，首次将多家涉嫌配合上市公司造假的商业银行列为共同被告，备受业内关注。
+正式入园前，园区“老师”会为每只狗狗进行严格晨检，逐一检查皮肤、眼睛、鼻子、口腔状态及体温，确认健康无异常后，才能进入园区。
 
-2022年3月，紫晶存储曾发布一则自查公告揭开巨额违规担保乱象。
+上午9点入园、10点早餐、12点午休、下午游戏互动、定制下午茶、晚上8点放学，规律的作息让狗狗的一天井然有序。
 
 ## 相关推荐
 
-- 2026-06-30 04:04 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 03:57 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 04:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 04:22 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 04:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 04:17 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 04:21 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 04:11 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 04:16 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 04:12 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 04:15 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 04:11 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-30 04:17 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 04:15 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 04:01 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 04:10 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 04:23 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 04:04 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 04:12 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 04:12 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 04:00 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 04:20 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/0912994309.shtml)
-- 2026-06-30 04:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/27601.shtml)
-- 2026-06-30 03:58 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/93940871764.shtml)
-- 2026-06-30 04:03 - [天道](http://www.blog.minike.top/Article/details/08958.shtml)
-- 2026-06-30 04:23 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/35448.shtml)
-- 2026-06-30 04:08 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/908272.shtml)
-- 2026-06-30 04:13 - [斗破苍穹](https://www.blog.minike.top/Article/details/0367015.shtml)
-- 2026-06-30 04:13 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/99326.shtml)
-- 2026-06-30 04:21 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/3404402315.shtml)
-- 2026-06-30 03:59 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/480060.shtml)
-- 2026-06-30 04:23 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/391605503.shtml)
-- 2026-06-30 04:03 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/32614.shtml)
-- 2026-06-30 04:04 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/5139939.shtml)
-- 2026-06-30 04:09 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/45160832.shtml)
-- 2026-06-30 04:05 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/13085055642.shtml)
+- 2026-06-30 04:09 - [《共患难》](http://www.share.minike.top/Article/details/16280675.shtml)
+- 2026-06-30 04:06 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/519366169.shtml)
+- 2026-06-30 04:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/82617.shtml)
+- 2026-06-30 04:07 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/116373415334.shtml)
+- 2026-06-30 04:16 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/174053981055.shtml)
+- 2026-06-30 04:01 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/8324569.shtml)
+- 2026-06-30 04:03 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/960661981.shtml)
+- 2026-06-30 04:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/125063.shtml)
+- 2026-06-30 04:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/363986471.shtml)
+- 2026-06-30 04:11 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/789231456787.shtml)
+- 2026-06-30 04:24 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/039142.shtml)
+- 2026-06-30 04:05 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/03239600.shtml)
+- 2026-06-30 04:25 - [刘必安等16人非法集资案二审宣判](https://www.blog.kurohicncr.top/Article/details/742043725.shtml)
+- 2026-06-30 04:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/26527476886.shtml)
+- 2026-06-30 04:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/8423843.shtml)

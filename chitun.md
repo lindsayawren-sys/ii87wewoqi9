@@ -1,58 +1,56 @@
-# 甲骨文本财年员工人数已减少2.1万人，更多采用人工智能
+# 梦龙冰淇淋开局业绩稳健，确认全年业绩展望
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-随着甲骨文持续进行业务重组，在其运营中广泛采用人工智能技术，该公司的员工总数在2026财年减少了13%，即约21000人。 根据该公司周一发布的年度报告，截至2026年5月31日，甲骨文的员工总数为14.1万人，而去年同期约为16.2万人。 文件显示，甲骨文公司在 2026 财年支付了18.4亿美元的遣散费和其他与重组活动相关的退出成本，远高于上一财年的 3.74 亿美元。 该
+专题：聚焦美股2026年第一季度财报 公司预计 2026 年内生销售额增长 3%–5% 梦龙冰淇淋表示，尽管当前地缘政治局势带来不确定性，但公司今年开局业绩向好，并维持全年业绩指引不变。 这家旗下拥有本杰瑞、布雷耶、可尼多等品牌的冰淇淋企业，一季度营收录得17.7 亿欧元（折合 20.7 亿美元）。 财报口径名义营收同比下滑 1.2%，但内生销售额增长 4.5%。 公司首席执行
 
 ## 正文
 
-随着甲骨文持续进行业务重组，在其运营中广泛采用人工智能技术，该公司的员工总数在2026财年减少了13%，即约21000人。
+专题：聚焦美股2026年第一季度财报 公司预计 2026 年内生销售额增长 3%–5% 梦龙冰淇淋表示，尽管当前地缘政治局势带来不确定性，但公司今年开局业绩向好，并维持全年业绩指引不变。
 
-根据该公司周一发布的年度报告，截至2026年5月31日，甲骨文的员工总数为14.1万人，而去年同期约为16.2万人。
+这家旗下拥有本杰瑞、布雷耶、可尼多等品牌的冰淇淋企业，一季度营收录得17.7 亿欧元（折合 20.7 亿美元）。
 
-文件显示，甲骨文公司在 2026 财年支付了18.4亿美元的遣散费和其他与重组活动相关的退出成本，远高于上一财年的 3.74 亿美元。
+财报口径名义营收同比下滑 1.2%，但内生销售额增长 4.5%。
 
-该公司在提交的文件中还表示，这些人员调整是出于多种因素的考虑，包括管理层和产品变动、业绩问题、战略转型和收购。
+公司首席执行官彼得・特尔库尔夫表示：“我们已为夏季销售旺季做好充分准备。
 
-人工智能带来的颠覆性变革引发的失业担忧正在迅速加剧。
+” 公司目标实现营收增长与盈利能力提升，预计 2026 年内生销售额增长 3%–5%，调整后息税折旧摊销前利润率将提升 40 至 60 个基点。
 
-据追踪整个行业裁员情况的网站Layoffs.fyi统计，今年迄今为止，已有196家科技公司裁员超过119800人。
+CEO 坦言：“我们留意到全球不确定性加剧，尤其是中东局势带来的风险。
 
-长期以来，甲骨文在云计算行业规模较小，但近几个月来，该公司与OpenAI和Meta签署了巨额数据中心协议，以期与亚马逊和微软等竞争对手展开更强有力的较量。
+” 但他同时指出，公司在该地区直接业务敞口有限，且已出台相关对冲应对措施。
 
-然而，与那些依靠巨额现金流来支付巨额支出的科技巨头不同，甲骨文公司不得不依靠烧钱和发行债券来维持运营。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 04:12 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 04:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 04:13 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 03:56 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 04:05 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 04:04 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 03:57 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 04:14 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 04:13 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 04:17 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 04:23 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 04:13 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 04:07 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-30 04:23 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 04:09 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 04:26 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 04:05 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 04:05 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 04:04 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 04:02 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 04:02 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-30 04:16 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/9624416997.shtml)
-- 2026-06-30 04:13 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/6610122.shtml)
-- 2026-06-30 04:11 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/52982.shtml)
-- 2026-06-30 04:08 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/49700655842.shtml)
-- 2026-06-30 03:57 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/061615329.shtml)
-- 2026-06-30 03:57 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/194900349.shtml)
-- 2026-06-30 04:19 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/4930127493.shtml)
-- 2026-06-30 04:11 - [刘念回应](https://www.share.kurohicncr.top/Article/details/83238.shtml)
-- 2026-06-30 04:11 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/0258469558.shtml)
-- 2026-06-30 03:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/850495883.shtml)
-- 2026-06-30 03:54 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/797078.shtml)
-- 2026-06-30 03:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/33221177913.shtml)
-- 2026-06-30 04:22 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/390823896681.shtml)
-- 2026-06-30 03:54 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/573474252.shtml)
-- 2026-06-30 03:58 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/89397485175.shtml)
+- 2026-06-30 04:15 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/8623797913.shtml)
+- 2026-06-30 04:16 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/44569401.shtml)
+- 2026-06-30 04:11 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/1743490.shtml)
+- 2026-06-30 04:02 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/38885797.shtml)
+- 2026-06-30 04:24 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/959976578390.shtml)
+- 2026-06-30 04:13 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/21141.shtml)
+- 2026-06-30 04:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/618690825.shtml)
+- 2026-06-30 04:21 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/5556541.shtml)
+- 2026-06-30 04:20 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/32559631.shtml)
+- 2026-06-30 04:19 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/0669767.shtml)
+- 2026-06-30 04:06 - [起风了](http://www.share.minike.top/Article/details/0522090.shtml)
+- 2026-06-30 04:00 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/6243133164.shtml)
+- 2026-06-30 04:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/506602.shtml)
+- 2026-06-30 04:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/459710.shtml)
+- 2026-06-30 04:16 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/557654135348.shtml)

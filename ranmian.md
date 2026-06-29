@@ -1,61 +1,58 @@
-# 前国脚陈涛挂帅“西北狼” 出任陕西联合一线队主教练
+# 深康佳A明起复牌变“*ST康佳A”！巨亏125亿，退市风险压顶
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-中新网西安6月22日电 (记者 党田野 张一辰)陕西联合足球俱乐部官方21日晚间官宣教练组调整消息，前国脚陈涛正式出任球队一线队主教练。范柏群、关震同步加入教练组，分别担任助理教练、守门员教练，新教练组将全权负责球队2026赛季剩余赛程的训练备战与赛事指挥工作。俱乐部表示，本次教练组调整是立足球队长期发展规划做出的优化举措，球队抢抓联赛间歇期窗口期完成阵容升级，为赛季下半程蓄力
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！延期4天后，深康佳A的年报姗姗来迟，随之一同披露的是退市风险警示公告。 4月28日晚间，深康佳A公告称，由于公司2025年度经审计的期末归母净资产已转为负值，并触及其他风险警示情形，其股票将自4月30日开市起，正式被实施退市风险警示及其他风险警示。 同日披露的年报数据显示，2025年，深康佳A实现营业收入9
 
 ## 正文
 
-中新网西安6月22日电 (记者 党田野 张一辰)陕西联合足球俱乐部官方21日晚间官宣教练组调整消息，前国脚陈涛正式出任球队一线队主教练。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-范柏群、关震同步加入教练组，分别担任助理教练、守门员教练，新教练组将全权负责球队2026赛季剩余赛程的训练备战与赛事指挥工作。
+延期4天后，深康佳A的年报姗姗来迟，随之一同披露的是退市风险警示公告。
 
-俱乐部表示，本次教练组调整是立足球队长期发展规划做出的优化举措，球队抢抓联赛间歇期窗口期完成阵容升级，为赛季下半程蓄力备战。
+4月28日晚间，深康佳A公告称，由于公司2025年度经审计的期末归母净资产已转为负值，并触及其他风险警示情形，其股票将自4月30日开市起，正式被实施退市风险警示及其他风险警示。
 
-资料显示，陈涛出生于1985年，球员生涯曾入选中国国奥队、中国男足国家队，效力过多家国内职业俱乐部。
+同日披露的年报数据显示，2025年，深康佳A实现营业收入98.35亿元，同比下降11.51%；归属于上市公司股东的净亏损高达125.82亿元，同比降幅达237.73%；经营活动产生的现金流量净额为-16.11亿元，同比暴跌1026%。
 
-执教方面，陈涛起步于深圳足坛，历任梯队及一线队教练，2025年11月至2026年5月担任深圳新鹏城一线队主教练，带队征战中超联赛。
+具体来看，深康佳A此次被实施风险警示主要基于两方面原因： 其一，公司2025年度经审计的期末归母净资产为负数，直接触发了退市风险警示。
 
-2023年，他曾担任中国U18男足助理教练，并入选中国男足教练组，参与世预赛相关备战工作。
+根据《深圳证券交易所股票上市规则》第9.3.1条的规定，其“最近一个会计年度经审计的期末净资产为负值”，深交所将对其股票交易实施退市风险警示。
 
-俱乐部技术总监埃德温·彼得森对陈涛的加盟表示欢迎。
+其二，公司最近三个会计年度经审计扣除非经常性损益前后净利润孰低者均为负值，且信永中和会计师事务所对公司2025年年度财务报告出具了带持续经营重大不确定性段落的无保留意见审计报告。
 
-他透露，俱乐部早在2025年便与陈涛接洽，其先进的足球理念与职业素养得到俱乐部认可。
+因此，公司股票同时被实施其他风险警示。
 
 ## 相关推荐
 
-- 2026-06-30 04:19 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 04:03 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 04:11 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 04:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 03:56 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 04:08 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 04:23 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 03:57 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 04:21 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 03:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 04:00 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 04:22 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 04:06 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 04:20 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-30 04:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 04:28 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 04:16 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 04:24 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 04:14 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 04:08 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 04:09 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 04:22 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 04:23 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 04:09 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 04:11 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-30 04:06 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 04:18 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:16 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/449478804039.shtml)
-- 2026-06-30 03:56 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/99932737212.shtml)
-- 2026-06-30 03:56 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/401914796.shtml)
-- 2026-06-30 04:21 - [一生一世](http://www.share.minike.top/Article/details/405390194799.shtml)
-- 2026-06-30 04:02 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/56667623421.shtml)
-- 2026-06-30 04:02 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/483528658.shtml)
-- 2026-06-30 04:02 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/97354.shtml)
-- 2026-06-30 03:58 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/606354.shtml)
-- 2026-06-30 03:59 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/49633330.shtml)
-- 2026-06-30 04:01 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/58033.shtml)
-- 2026-06-30 04:03 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/935069180427.shtml)
-- 2026-06-30 03:54 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/445935205175.shtml)
-- 2026-06-30 04:00 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/76429921.shtml)
-- 2026-06-30 04:01 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/301736733263.shtml)
-- 2026-06-30 03:55 - [《贺子珍》](https://www.share.minike.top/Article/details/00484.shtml)
+- 2026-06-30 04:29 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/125730771215.shtml)
+- 2026-06-30 04:19 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/2162975115.shtml)
+- 2026-06-30 04:27 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/086510035250.shtml)
+- 2026-06-30 04:21 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/4083845886.shtml)
+- 2026-06-30 04:18 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/936803404.shtml)
+- 2026-06-30 04:14 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/90495517119.shtml)
+- 2026-06-30 04:14 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/4002707.shtml)
+- 2026-06-30 04:10 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/5832012702.shtml)
+- 2026-06-30 04:23 - [乔家的儿女](http://www.blog.minike.top/Article/details/00433.shtml)
+- 2026-06-30 04:28 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/69283837145.shtml)
+- 2026-06-30 04:18 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/28015203.shtml)
+- 2026-06-30 04:29 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/77370142645.shtml)
+- 2026-06-30 04:00 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/87546382539.shtml)
+- 2026-06-30 04:16 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/861345.shtml)
+- 2026-06-30 04:17 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/1978212376.shtml)

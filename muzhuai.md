@@ -1,56 +1,57 @@
-# 此行间·“七一勋章”的这个设计细节，由总书记亲自提议
+# 以侨为桥 26家新西兰采购商来穗集中采购
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-“七一勋章”是党内最高荣誉。有别于国家勋章等使用的金属章链，“七一勋章”使用的是织物绶带，朴素、庄重。改用织物绶带，是习近平总书记亲自提议的。这个细节，是总书记关心关爱功勋荣誉表彰工作的生动体现。 2026年，党中央决定，在中国共产党成立105周年之际，以中共中央名义颁授“七一勋章”。共同关注！
+中新网广州5月1日电 (记者 许青青)由广州国际商会主办，广州市海珠区侨务局、海珠区科工商信局等单位承办的“广货行天下 名品世界行”新西兰采购团专项对接会4月30日在广州举行，广州市食品企业协会、服装行业协会等与新西兰采购团现场签署合作协议。 据了解，本次对接会依托广州市侨办、市贸促会及新西兰粤商会等侨务网络特邀26家新西兰采购商。新西兰采购团在广交会期间达成60余项意向合作项
 
 ## 正文
 
-“七一勋章”是党内最高荣誉。
+中新网广州5月1日电 (记者 许青青)由广州国际商会主办，广州市海珠区侨务局、海珠区科工商信局等单位承办的“广货行天下 名品世界行”新西兰采购团专项对接会4月30日在广州举行，广州市食品企业协会、服装行业协会等与新西兰采购团现场签署合作协议。
 
-有别于国家勋章等使用的金属章链，“七一勋章”使用的是织物绶带，朴素、庄重。
+据了解，本次对接会依托广州市侨办、市贸促会及新西兰粤商会等侨务网络特邀26家新西兰采购商。
 
-改用织物绶带，是习近平总书记亲自提议的。
+新西兰采购团在广交会期间达成60余项意向合作项目，意向成交额突破1000万美元，覆盖绿色能源、智能家电、日用消费等多个板块。
 
-这个细节，是总书记关心关爱功勋荣誉表彰工作的生动体现。
+本次对接会特设参展企业推介环节，海葳特、博笠斯、金庄食品、芯宠工场等30家广州本土优秀企业依次携拳头产品亮相，面向新西兰采购团进行集中推介，展示了包含潮玩产品、潮流服饰、智能数码、广府美食在内的“广货优品”设计、创新、品质等。
 
-2026年，党中央决定，在中国共产党成立105周年之际，以中共中央名义颁授“七一勋章”。
+对接会现场还发布了食品农产品国际贸易垂直AI大模型平台场景化应用解决方案—云食慧AI-v2.1，现场全面演示了该大模型在供需智能匹配、多语种翻译辅助、采购需求精准推送等核心功能。
 
-共同关注！
+广州市食品企业协会、服装行业协会等与新西兰采购团现场签署合作协议，打通广州优势产业与新西兰市场的对接通道，助力更多广货走进新西兰。
+
+主办方相关负责人表示，未来将持续联动侨商、外商资源，深入推进外商走进广州，全力为中外企业经贸合作保驾护航、搭建桥梁。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:12 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 04:10 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 04:20 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 04:06 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 04:13 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 04:01 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 04:12 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 03:58 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 04:11 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-30 04:10 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 04:08 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 04:01 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 04:04 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 04:17 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 04:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 04:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 04:16 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-30 04:04 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 04:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 04:05 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 04:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 04:22 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 04:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 04:04 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 04:05 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:01 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/648583589957.shtml)
-- 2026-06-30 04:03 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/762383636297.shtml)
-- 2026-06-30 04:19 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/742063883.shtml)
-- 2026-06-30 03:57 - [送你一朵小红花](https://www.share.minike.top/Article/details/67937613.shtml)
-- 2026-06-30 04:00 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/31726.shtml)
-- 2026-06-30 03:59 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/874284281892.shtml)
-- 2026-06-30 03:59 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/546639906.shtml)
-- 2026-06-30 04:06 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/3341275.shtml)
-- 2026-06-30 04:01 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/873123199.shtml)
-- 2026-06-30 04:23 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/39312497.shtml)
-- 2026-06-30 04:19 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/258331.shtml)
-- 2026-06-30 04:23 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/799467218923.shtml)
-- 2026-06-30 04:12 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/056598955344.shtml)
-- 2026-06-30 04:00 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/46056.shtml)
-- 2026-06-30 04:19 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/350795431982.shtml)
+- 2026-06-30 04:21 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/01716673210.shtml)
+- 2026-06-30 04:21 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/868197058070.shtml)
+- 2026-06-30 04:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/047132015360.shtml)
+- 2026-06-30 04:23 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/506206170341.shtml)
+- 2026-06-30 04:26 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/1004409287.shtml)
+- 2026-06-30 04:28 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/62749414.shtml)
+- 2026-06-30 04:27 - [女心理师](http://www.share.kurohicncr.top/Article/details/4298654.shtml)
+- 2026-06-30 04:19 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/8552755754.shtml)
+- 2026-06-30 04:16 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/5377378144.shtml)
+- 2026-06-30 04:15 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/6731068551.shtml)
+- 2026-06-30 04:07 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/866755174909.shtml)
+- 2026-06-30 04:23 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/96710913187.shtml)
+- 2026-06-30 04:20 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/7205523.shtml)
+- 2026-06-30 04:01 - [一生一世](https://www.blog.minike.top/Article/details/949453390184.shtml)
+- 2026-06-30 04:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/568587.shtml)

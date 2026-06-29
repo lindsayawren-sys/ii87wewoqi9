@@ -1,44 +1,61 @@
-# 热浪侵袭 欧洲多国发布高温警报
+# 事关网售食品、无人机激活等 一批新规下月起施行
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 13:45 来源：央视新闻 责任编辑：【姜媛媛】
+一批新规将于 5月1日起施行 一起来看↓↓↓ 解决民用无人机“谁能飞”“谁在飞”等问题，新国标将实施强制性国家标准《民用无人驾驶航空器实名登记和激活要求》和《民用无人驾驶航空器系统运行识别规范》5月1日起实施。《民用无人驾驶航空器实名登记和激活要求》规定了无人机实名登记和激活的工作流程，明确要求无人机在激活前和取消激活后均不能具备飞行能力。新生产的无人机自5月1日起必须满足新国
 
 ## 正文
 
-发布时间：2026年06月22日 13:45 来源：央视新闻 责任编辑：【姜媛媛】
+一批新规将于 5月1日起施行 一起来看↓↓↓ 解决民用无人机“谁能飞”“谁在飞”等问题，新国标将实施强制性国家标准《民用无人驾驶航空器实名登记和激活要求》和《民用无人驾驶航空器系统运行识别规范》5月1日起实施。
+
+《民用无人驾驶航空器实名登记和激活要求》规定了无人机实名登记和激活的工作流程，明确要求无人机在激活前和取消激活后均不能具备飞行能力。
+
+新生产的无人机自5月1日起必须满足新国标要求；对于已售在用的存量无人机，自实施之日起第13个月开始执行。
+
+《民用无人驾驶航空器系统运行识别规范》规定，无人机应在开机后和飞行全过程中主动向监管方报送自身身份、位置、速度、状态等信息。
+
+促进渔业高质量发展 新修订的《中华人民共和国渔业法》5月1日起施行 新修订的《中华人民共和国渔业法》5月1日起施行。
+
+法律规定，国家鼓励单位和个人科学合理利用适于养殖的水域、滩涂发展养殖业，支持资源节约、环境友好、质量安全的养殖模式。
+
+国家对水域、滩涂利用进行统一规划，确定可以用于养殖业的水域、滩涂，建立养殖水域、滩涂保护制度。
+
+禁止违反禁渔区、禁渔期的规定从事捕捞活动，禁止违规垂钓。
 
 ## 相关推荐
 
-- 2026-06-30 04:22 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 03:55 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 04:15 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 03:58 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 04:06 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 04:08 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 04:04 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 04:18 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 04:20 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 03:54 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 04:10 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 03:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 04:27 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 04:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 04:28 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 04:13 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 04:10 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 04:13 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 04:29 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 04:16 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 04:20 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 04:20 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 04:09 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 04:07 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 04:15 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 04:02 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 04:22 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:06 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/0977558.shtml)
-- 2026-06-30 04:13 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/83661.shtml)
-- 2026-06-30 04:01 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/713710.shtml)
-- 2026-06-30 04:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/064129.shtml)
-- 2026-06-30 03:56 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/5437669582.shtml)
-- 2026-06-30 04:15 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/43409820665.shtml)
-- 2026-06-30 03:58 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/393249383.shtml)
-- 2026-06-30 04:02 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/05505178496.shtml)
-- 2026-06-30 04:07 - [日本 高位逼抢](https://www.share.minike.top/Article/details/1467367715.shtml)
-- 2026-06-30 04:01 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/63302237.shtml)
-- 2026-06-30 04:01 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/0598342123.shtml)
-- 2026-06-30 04:07 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/026911325.shtml)
-- 2026-06-30 04:21 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/7505111.shtml)
-- 2026-06-30 04:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/3167879.shtml)
-- 2026-06-30 04:12 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/346395.shtml)
+- 2026-06-30 04:19 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/2998645443.shtml)
+- 2026-06-30 04:13 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/28087262748.shtml)
+- 2026-06-30 04:12 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/821523539.shtml)
+- 2026-06-30 04:15 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/3307912253.shtml)
+- 2026-06-30 04:01 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/44078433.shtml)
+- 2026-06-30 04:07 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/30063592.shtml)
+- 2026-06-30 04:06 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/789253824.shtml)
+- 2026-06-30 04:17 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/247131238736.shtml)
+- 2026-06-30 04:17 - [女心理师](https://www.share.kurohicncr.top/Article/details/66403133.shtml)
+- 2026-06-30 04:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/1058406380.shtml)
+- 2026-06-30 04:29 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/74018925.shtml)
+- 2026-06-30 04:14 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/35039679.shtml)
+- 2026-06-30 04:17 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/7679425827.shtml)
+- 2026-06-30 04:28 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/7007639.shtml)
+- 2026-06-30 04:11 - [毒液2](https://www.blog.minike.top/Article/details/0291018171.shtml)

@@ -1,50 +1,59 @@
-# 国际马铃薯中心主任：中国是全球农业科研创新高地，拥有丰富经验与成果供各国借鉴
+# 中央宣传部、全国总工会联合发布2026年“最美职工”
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 21:30 来源：国是直通车 6月23日，2026亚太地区薯业合作国际研讨会在北京举行。薯类作物是保障全球粮食安全、优化居民膳食营养结构的重要战略性农作物，对农业可持续发展、发展中国家民生及全球粮食供应链至关重要。中新社国是直通车采访国际马铃薯中心主任西蒙·埃克、国际马铃薯中心理事会主席海伦·汉布利，解读国际马铃薯中心在中国的合作布局与惠农成果
+中新网北京4月30日电 (记者 余湛奕)在“五一”国际劳动节来临之际，中央宣传部、全国总工会向全社会发布2026年“最美职工”先进事迹。 高丰、肖素枝、楼雅佳、肖冬样、邓述东、吴琦、杨平原、拉毛叶忠、马丛、桑南才等10位同志光荣入选。他们有的潜心攻关人工智能、新型材料，以创新赋能产业转型升级；有的扎根泥土探索农技革新，为乡村振兴增添动力；有的胸怀大爱情暖童心，倾情呵护特殊儿童成
 
 ## 正文
 
-发布时间：2026年06月23日 21:30 来源：国是直通车 6月23日，2026亚太地区薯业合作国际研讨会在北京举行。
+中新网北京4月30日电 (记者 余湛奕)在“五一”国际劳动节来临之际，中央宣传部、全国总工会向全社会发布2026年“最美职工”先进事迹。
 
-薯类作物是保障全球粮食安全、优化居民膳食营养结构的重要战略性农作物，对农业可持续发展、发展中国家民生及全球粮食供应链至关重要。
+高丰、肖素枝、楼雅佳、肖冬样、邓述东、吴琦、杨平原、拉毛叶忠、马丛、桑南才等10位同志光荣入选。
 
-中新社国是直通车采访国际马铃薯中心主任西蒙·埃克、国际马铃薯中心理事会主席海伦·汉布利，解读国际马铃薯中心在中国的合作布局与惠农成果。
+他们有的潜心攻关人工智能、新型材料，以创新赋能产业转型升级；有的扎根泥土探索农技革新，为乡村振兴增添动力；有的胸怀大爱情暖童心，倾情呵护特殊儿童成长；有的传承发展非遗技艺，带动乡亲就业致富；有的常年坚守深山密林，精心守护珍稀鸟类种群；有的翻山岭、战风浪，保障边海疆通信畅通；有的努力提升服务技能，细致周到满足群众所需……他们坚守初心、躬身奋斗、默默奉献、成就不凡，生动唱响了“社会主义是干出来的，幸福是奋斗出来的”时代主旋律。
 
-(汪俐辰) 责任编辑：【罗攀】
+广大职工群众表示，美好生活不会从天而降，一切幸福都需要靠辛勤的劳动来创造。
+
+要以“最美职工”为榜样，立足本职岗位，把小事做精、把难事做实、把平凡工作干出彩，在新征程上始终以奋斗姿态展现劳动之美。
+
+据悉，2026年“最美职工”发布仪式专题节目将于近期播出。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:59 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 04:00 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 03:58 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 04:12 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-30 03:59 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 04:03 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 04:21 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 03:58 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 04:19 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 04:10 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 04:04 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 04:09 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 04:15 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 04:10 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 04:05 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 04:13 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 04:22 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 04:07 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-30 04:16 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 04:17 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 04:05 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 04:23 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-30 04:21 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 04:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 04:15 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 04:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 04:13 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:58 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/04220817.shtml)
-- 2026-06-30 04:18 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/78284.shtml)
-- 2026-06-30 04:18 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/6272635010.shtml)
-- 2026-06-30 04:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/156793371873.shtml)
-- 2026-06-30 04:12 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/316711934.shtml)
-- 2026-06-30 04:18 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/558658337654.shtml)
-- 2026-06-30 04:09 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/241178323.shtml)
-- 2026-06-30 04:16 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/003828507.shtml)
-- 2026-06-30 04:08 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/375420799406.shtml)
-- 2026-06-30 04:10 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/6043965358.shtml)
-- 2026-06-30 04:22 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/837866165510.shtml)
-- 2026-06-30 03:57 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/30760.shtml)
-- 2026-06-30 04:20 - [扫黑风暴](http://www.blog.minike.top/Article/details/8465790.shtml)
-- 2026-06-30 04:12 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/45485829547.shtml)
-- 2026-06-30 04:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/43129832680.shtml)
+- 2026-06-30 04:24 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/046215586519.shtml)
+- 2026-06-30 04:06 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/10427.shtml)
+- 2026-06-30 04:11 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/239043.shtml)
+- 2026-06-30 04:26 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/1693569.shtml)
+- 2026-06-30 04:15 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/26732.shtml)
+- 2026-06-30 04:22 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/39768913490.shtml)
+- 2026-06-30 04:18 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/063813.shtml)
+- 2026-06-30 04:02 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/1427567.shtml)
+- 2026-06-30 04:23 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/640178.shtml)
+- 2026-06-30 04:16 - [锐评T1零封KC](https://www.share.minike.top/Article/details/4905162.shtml)
+- 2026-06-30 04:11 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/978841953.shtml)
+- 2026-06-30 04:24 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/30865.shtml)
+- 2026-06-30 04:22 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/60058661192.shtml)
+- 2026-06-30 04:15 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/284858861.shtml)
+- 2026-06-30 04:13 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/980104429.shtml)

@@ -1,61 +1,55 @@
-# 关于准予华安陆家嘴封闭式商业不动产证券投资基金注册的批复
+# 防城港海事局高效保障电煤海上运输 保障电网平稳运行
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 华安基金管理有限公司：你公司报送的《关于申请募集华安陆家嘴封闭式商业不动产证券投资基金的请示》及相关文件收悉。根据《证券投资基金法》《公开募集证券投资基金运作管理办法》（证监会令第104号）和《中国证监会关于推出商业不动产投资信托基金试点的公告》（证监会公告〔2025〕21号）等有关规定，经审查，现批复如下：一、准予你公司注册华
+中新网防城港4月30日电(李梓媛)4月30日，装载7.5万吨煤炭的巴拿马籍“NENG YUAN”轮在防城港码头顺利完成卸货作业，该批煤炭将全部运往防城港电厂，充实迎峰度夏能源储备。 据悉，当前正值迎峰度夏备煤关键窗口期，海运电煤保供压力持续加大，作为西部陆海新通道重要门户，防城港承担着区域电煤海上调运的关键枢纽角色，水路电煤运输保障任务繁重而紧迫。 为守牢水上能源运输安全防线、
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 华安基金管理有限公司：你公司报送的《关于申请募集华安陆家嘴封闭式商业不动产证券投资基金的请示》及相关文件收悉。
+中新网防城港4月30日电(李梓媛)4月30日，装载7.5万吨煤炭的巴拿马籍“NENG YUAN”轮在防城港码头顺利完成卸货作业，该批煤炭将全部运往防城港电厂，充实迎峰度夏能源储备。
 
-根据《证券投资基金法》《公开募集证券投资基金运作管理办法》（证监会令第104号）和《中国证监会关于推出商业不动产投资信托基金试点的公告》（证监会公告〔2025〕21号）等有关规定，经审查，现批复如下：一、准予你公司注册华安陆家嘴封闭式商业不动产证券投资基金，基金类型为契约型封闭式，基金合同期限为38年。
+据悉，当前正值迎峰度夏备煤关键窗口期，海运电煤保供压力持续加大，作为西部陆海新通道重要门户，防城港承担着区域电煤海上调运的关键枢纽角色，水路电煤运输保障任务繁重而紧迫。
 
-二、准予基金的募集份额总额为10亿份。
+为守牢水上能源运输安全防线、保障电力供应平稳，防城港海事局主动履职、靠前服务，开辟电煤运输水上绿色通道，精准对接港口、发电企业及航运单位，实时掌握船舶航行、靠泊及作业计划，推动多方协同联动，持续优化电煤船舶进出港审批流程，压缩办理时限、提升通关效率，保障电煤船舶快进快卸。
 
-三、同意你公司为基金的基金管理人，上海浦东发展银行股份有限公司为基金的基金托管人。
+据统计，2026年以来，防城港海事局已累计保障231艘次电煤运输船舶安全进出港，运输电煤约947万吨，为地方电力平稳供应筑牢水上运输保障。
 
-四、你公司应自本批复下发之日起6个月内进行基金的募集活动，募集期限自基金份额发售之日起不得超过3个月。
+下一步，该局将持续优化电煤运输保障举措，常态化做好水路运输保通保畅工作，坚守水上交通安全底线，全力保障电网平稳运行。
 
-五、你公司应会同基金的销售机构和上海证券交易所等，认真做好基金的信息披露、路演推介、询价、定价、配售、认购、上市交易、登记、会计核算、客户服务和募集准备等工作。
-
-通过建立和完善内部合规控制制度、风险防范机制和应急计划等措施，防范和化解基金募集和运作过程中的风险，保护基金份额持有人的合法权益。
-
-六、你公司及基金销售机构在销售活动中应当遵守《公开募集证券投资基金销售机构监督管理办法》（证监会令第175号）及其他相关规定，不得损害投资人的合法权益，不得有虚假陈述或欺骗性宣传，不得误导投资人买卖基金。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:18 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 04:21 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 04:03 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 04:23 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-30 04:02 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 04:02 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 04:08 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 04:01 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 04:12 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 04:08 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 03:59 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 04:12 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 04:06 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 04:07 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 04:22 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 04:22 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 04:26 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 04:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 04:29 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 04:05 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 04:01 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 04:03 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-30 04:06 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 04:24 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 04:07 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 04:19 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 04:16 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 04:18 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:54 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/834636092.shtml)
-- 2026-06-30 04:00 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/817040921.shtml)
-- 2026-06-30 04:13 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/61918351535.shtml)
-- 2026-06-30 04:05 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/4867428.shtml)
-- 2026-06-30 04:18 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/775168.shtml)
-- 2026-06-30 04:19 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/3087823.shtml)
-- 2026-06-30 04:01 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/289327490.shtml)
-- 2026-06-30 04:10 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/90645254463.shtml)
-- 2026-06-30 04:00 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/5811027.shtml)
-- 2026-06-30 04:12 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/58605015.shtml)
-- 2026-06-30 04:07 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/420671882.shtml)
-- 2026-06-30 04:21 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/99205.shtml)
-- 2026-06-30 04:08 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/8494927786.shtml)
-- 2026-06-30 04:21 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/109712717.shtml)
-- 2026-06-30 04:17 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/768107931779.shtml)
+- 2026-06-30 04:15 - [巴西扳平比分](https://www.share.minike.top/Article/details/741132.shtml)
+- 2026-06-30 04:18 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/803078.shtml)
+- 2026-06-30 04:00 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/075311885512.shtml)
+- 2026-06-30 04:02 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/37750419.shtml)
+- 2026-06-30 04:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/174702.shtml)
+- 2026-06-30 04:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/9563076.shtml)
+- 2026-06-30 04:24 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/6719036.shtml)
+- 2026-06-30 04:04 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/02702.shtml)
+- 2026-06-30 04:04 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/754137500867.shtml)
+- 2026-06-30 04:14 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/922344508.shtml)
+- 2026-06-30 04:26 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/720504154887.shtml)
+- 2026-06-30 04:24 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/25967480.shtml)
+- 2026-06-30 04:20 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/80737877797.shtml)
+- 2026-06-30 04:00 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/5905628609.shtml)
+- 2026-06-30 04:19 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/20983.shtml)

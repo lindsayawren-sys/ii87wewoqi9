@@ -1,58 +1,56 @@
-# 南方多地强降雨持续 未来三天部分地区有大暴雨
+# 阿迪达斯季度业绩亮眼 股价大涨
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-中新网6月22日电 据应急管理部网站消息，6月22日，国家防总办公室、应急管理部组织中国气象局、水利部、自然资源部、住房和城乡建设部、交通运输部等多部门滚动会商，研判近期降雨趋势，督促指导重点省份做好江河洪水防御和强降雨防范应对工作。国家防总继续维持针对江苏、安徽、江西、湖北、湖南、广西、重庆、贵州的防汛四级应急响应。会商指出，未来三天，主雨带仍将维持在贵州、广西至长江中下游地
+专题：聚焦美股2026年第一季度财报 公司维持 2026 年固定汇率销售额高个位数增长预期，营业利润约 23 亿欧元 阿迪达斯首席执行官表示，借助第二季度世界杯赛事，品牌曝光度有望进一步提升。 德国运动服饰集团阿迪达斯一季度销售额大增，并维持全年业绩指引，给投资者吃下定心丸，市场避险情绪有所缓解，股价应声走高。 公司于周三公布，一季度名义净销售额同比增长 7.1%，至 65.9
 
 ## 正文
 
-中新网6月22日电 据应急管理部网站消息，6月22日，国家防总办公室、应急管理部组织中国气象局、水利部、自然资源部、住房和城乡建设部、交通运输部等多部门滚动会商，研判近期降雨趋势，督促指导重点省份做好江河洪水防御和强降雨防范应对工作。
+专题：聚焦美股2026年第一季度财报 公司维持 2026 年固定汇率销售额高个位数增长预期，营业利润约 23 亿欧元 阿迪达斯首席执行官表示，借助第二季度世界杯赛事，品牌曝光度有望进一步提升。
 
-国家防总继续维持针对江苏、安徽、江西、湖北、湖南、广西、重庆、贵州的防汛四级应急响应。
+德国运动服饰集团阿迪达斯一季度销售额大增，并维持全年业绩指引，给投资者吃下定心丸，市场避险情绪有所缓解，股价应声走高。
 
-会商指出，未来三天，主雨带仍将维持在贵州、广西至长江中下游地区，西南地区东部和南部、江淮、江南、华南西部等地有大到暴雨，部分地区有大暴雨，局地特大暴雨。
+公司于周三公布，一季度名义净销售额同比增长 7.1%，至 65.9 亿欧元（折合 77.2 亿美元）。
 
-珠江流域柳江编号洪水正向下游演进，西江部分江段将出现涨水过程。
+剔除汇率波动影响后，销售额大涨 14%，远高于市场分析师预期的 8.3%。
 
-会商强调，相关地区和部门要保持高度警惕，加强组织领导，全力做好珠江流域柳江编号洪水防范应对工作，重点关注超警超保堤段、历史险工线段的巡查防守。
+德意志银行分析师评价称，阿迪达斯再度交出亮眼季度财报。
 
-要紧盯山洪和地质灾害、中小河流洪水等防范应对薄弱环节，落实落细临灾预警“叫应”直达基层责任一线的闭环机制，及时果断组织人员转移避险，全力保障人民群众生命安全。
+其在研报中表示：“我们认为阿迪达斯本季表现强劲，在多个核心品类实现市场领跑。
 
-要加强应急值守，做好突发洪涝险情灾情的核查报送工作。
+” 阿迪达斯法兰克福盘中股价涨幅超 7%；不过年内该股仍累计下跌超 10%，投资者持续评估地缘政治紧张局势与关税政策，对运动服饰消费需求带来的潜在冲击。
+
+首席执行官比约恩・古尔登坦言，当前市场波动剧烈，尤其生活方式鞋履板块尤为明显。
 
 ## 相关推荐
 
-- 2026-06-30 04:06 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 03:58 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 03:55 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 03:58 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 04:02 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 04:20 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 03:59 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 04:18 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 04:20 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 03:55 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 04:07 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 04:13 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 04:09 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 04:14 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 04:24 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 04:09 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 04:25 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 04:13 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-30 04:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 04:25 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 04:21 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 04:08 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 04:26 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 04:27 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:08 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/42633.shtml)
-- 2026-06-30 04:03 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/938679207082.shtml)
-- 2026-06-30 03:59 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/65047.shtml)
-- 2026-06-30 03:54 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/164722217.shtml)
-- 2026-06-30 04:20 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/1467495.shtml)
-- 2026-06-30 03:58 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/10763134.shtml)
-- 2026-06-30 03:56 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/61231517256.shtml)
-- 2026-06-30 04:09 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/035771772443.shtml)
-- 2026-06-30 04:08 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/21433611.shtml)
-- 2026-06-30 04:20 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/79512375729.shtml)
-- 2026-06-30 04:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/9108749177.shtml)
-- 2026-06-30 04:19 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/7361447360.shtml)
-- 2026-06-30 04:04 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/618222848988.shtml)
-- 2026-06-30 04:03 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/2037089223.shtml)
-- 2026-06-30 03:57 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/93909967.shtml)
+- 2026-06-30 04:21 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/846145898.shtml)
+- 2026-06-30 04:08 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/497237828.shtml)
+- 2026-06-30 04:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/8139418515.shtml)
+- 2026-06-30 04:24 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/675067.shtml)
+- 2026-06-30 04:06 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/78210.shtml)
+- 2026-06-30 04:25 - [月亮](https://www.share.minike.top/Article/details/4334965.shtml)
+- 2026-06-30 04:15 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/73476.shtml)
+- 2026-06-30 04:04 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/9325403235.shtml)
+- 2026-06-30 04:10 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/370626.shtml)
+- 2026-06-30 04:23 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/77037.shtml)
+- 2026-06-30 04:00 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/09201068863.shtml)
+- 2026-06-30 04:05 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/135829083037.shtml)
+- 2026-06-30 04:29 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/29714.shtml)
+- 2026-06-30 04:00 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/7121674788.shtml)
+- 2026-06-30 04:25 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/9951845865.shtml)

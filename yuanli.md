@@ -1,52 +1,56 @@
-# 特朗普：我很快能解决黎巴嫩问题
+# 特朗普称乌克兰在军事上已被击败 外媒指其疑似将乌克兰与伊朗混淆
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-中新网6月23日电 当地时间22日，美国总统特朗普在白宫接受记者提问时表示，他很快就能解决黎巴嫩问题。 特朗普表示他有信心管控围绕最近达成的美伊协议而出现的紧张局势。 当被问及以色列总理内塔尼亚胡表示将让以军继续驻留黎巴嫩的言论时，特朗普表示：“他跟谁说的？” 特朗普随后补充道，“我不会告诉你我要做什么，但问题总会解决，我是个问题解决者，我能很快解决问题，包括内塔尼亚胡的问题。
+中新网4月30日电 据俄罗斯卫星通讯社报道，美国总统特朗普4月29日表示，从军事角度来看乌克兰已经被击败，但其疑似将乌克兰与伊朗混淆。 据报道，记者在白宫向特朗普提问“俄乌冲突和伊朗战事哪一个会更快结束”。特朗普说：“我不知道。也许它们结束的时间会大致相同。我认为，从军事角度来看，乌克兰已经被击败。” 然而，在说完这番话后，特朗普立即给出了一组数据。他表示：“从军事角度看，他们
 
 ## 正文
 
-中新网6月23日电 当地时间22日，美国总统特朗普在白宫接受记者提问时表示，他很快就能解决黎巴嫩问题。
+中新网4月30日电 据俄罗斯卫星通讯社报道，美国总统特朗普4月29日表示，从军事角度来看乌克兰已经被击败，但其疑似将乌克兰与伊朗混淆。
 
-特朗普表示他有信心管控围绕最近达成的美伊协议而出现的紧张局势。
+据报道，记者在白宫向特朗普提问“俄乌冲突和伊朗战事哪一个会更快结束”。
 
-当被问及以色列总理内塔尼亚胡表示将让以军继续驻留黎巴嫩的言论时，特朗普表示：“他跟谁说的？
+特朗普说：“我不知道。
 
-” 特朗普随后补充道，“我不会告诉你我要做什么，但问题总会解决，我是个问题解决者，我能很快解决问题，包括内塔尼亚胡的问题。
+也许它们结束的时间会大致相同。
 
-”
+我认为，从军事角度来看，乌克兰已经被击败。
+
+” 然而，在说完这番话后，特朗普立即给出了一组数据。
+
+他表示：“从军事角度看，他们的舰队共159艘舰艇，目前它们全部都沉在水下。
+
+”报道指出，数据表明他这里所描述的可能是伊朗。
 
 ## 相关推荐
 
-- 2026-06-30 03:54 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 03:54 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 04:21 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 04:09 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 04:03 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-30 04:04 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 04:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 04:10 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 04:20 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 04:03 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 03:55 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 04:18 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 04:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 04:27 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 04:10 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 04:28 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 04:18 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 04:04 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 04:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 04:28 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 04:26 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 04:07 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:56 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/248340216.shtml)
-- 2026-06-30 04:07 - [点菜也要教吗](https://www.share.minike.top/Article/details/5257749.shtml)
-- 2026-06-30 04:12 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/740798.shtml)
-- 2026-06-30 03:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/1565699454.shtml)
-- 2026-06-30 03:54 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/632214775872.shtml)
-- 2026-06-30 04:04 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/41478721452.shtml)
-- 2026-06-30 04:17 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/4673526.shtml)
-- 2026-06-30 04:03 - [苗族银饰](http://www.blog.minike.top/Article/details/32917526.shtml)
-- 2026-06-30 03:58 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/777060.shtml)
-- 2026-06-30 04:07 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/6505482.shtml)
-- 2026-06-30 04:21 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/5633427.shtml)
-- 2026-06-30 04:09 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/969129.shtml)
-- 2026-06-30 04:19 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/93232860335.shtml)
-- 2026-06-30 04:05 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/047137.shtml)
-- 2026-06-30 04:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/7828053.shtml)
+- 2026-06-30 04:08 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/91117996912.shtml)
+- 2026-06-30 04:00 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/328014548.shtml)
+- 2026-06-30 04:22 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/2833032544.shtml)
+- 2026-06-30 04:29 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/89482.shtml)
+- 2026-06-30 04:18 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/692716.shtml)
+- 2026-06-30 04:03 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/887073547.shtml)
+- 2026-06-30 04:13 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/186515839525.shtml)
+- 2026-06-30 04:03 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/478943420251.shtml)
+- 2026-06-30 04:27 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/35013294457.shtml)
+- 2026-06-30 04:11 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/185179.shtml)
+- 2026-06-30 04:01 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/052223460.shtml)
+- 2026-06-30 04:29 - [王欣瑜2-1击败科恰雷托](http://www.share.kurohicncr.top/Article/details/67207.shtml)
+- 2026-06-30 04:26 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/909124558228.shtml)
+- 2026-06-30 04:10 - [千香](http://www.share.kurohicncr.top/Article/details/627599743.shtml)
+- 2026-06-30 04:29 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/64919.shtml)

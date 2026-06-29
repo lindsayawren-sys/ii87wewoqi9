@@ -1,58 +1,61 @@
-# 庆祝建党105周年：《为共产党员画像》出版发行，十二维度勾勒党员“标准像”
+# 华泰证券紧急澄清
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-中新网北京6月23日电 (记者 徐皇冠)在庆祝中国共产党成立105周年之际，由中央党校(国家行政学院)青年党建学者王士龙编著的《为共产党员画像》一书，近日由广东教育出版社正式出版发行。该书聚焦“党员的标准和样子”这一主题，从政治忠诚、理想信念、为民服务等十二个维度系统勾勒共产党员的“标准像”，旨在为全体党员树立行为标杆，也为广大群众提供可感知的评判参照。 据出版方介绍，全书注重
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【导读】华泰证券发布澄清公告 中国基金报记者 莫琳 4月30日午间，华泰证券紧急发布澄清公告。 公告称，近日，公司关注到有市场媒体报道称华泰证券因基金销售违规遭监管责令改正并暂停业务12个月。经与各方核实，截至目前，公司未收到中国证监会江苏监管局任何有关基金
 
 ## 正文
 
-中新网北京6月23日电 (记者 徐皇冠)在庆祝中国共产党成立105周年之际，由中央党校(国家行政学院)青年党建学者王士龙编著的《为共产党员画像》一书，近日由广东教育出版社正式出版发行。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该书聚焦“党员的标准和样子”这一主题，从政治忠诚、理想信念、为民服务等十二个维度系统勾勒共产党员的“标准像”，旨在为全体党员树立行为标杆，也为广大群众提供可感知的评判参照。
+【导读】华泰证券发布澄清公告 中国基金报记者 莫琳 4月30日午间，华泰证券紧急发布澄清公告。
 
-据出版方介绍，全书注重“用故事讲道理”，既收录了刘志丹、陈树湘、谷文昌、郭永怀等革命先烈和英雄模范的感人事迹，也选取了郭明义、张桂梅、李保国、黄大发等身边榜样的鲜活案例，以通俗笔触和真挚情感，展现不同时期共产党人共有的红色基因和精神血脉。
+公告称，近日，公司关注到有市场媒体报道称华泰证券因基金销售违规遭监管责令改正并暂停业务12个月。
 
-作者王士龙表示，党员的形象就是党的形象，党员好样子，党才会充满生机与力量。
+经与各方核实，截至目前，公司未收到中国证监会江苏监管局任何有关基金销售业务暂停12个月的行政监管措施。
 
-本书着力做到见人见事、可知可感，力求使每一名党员都能在书中找到对照自身的一面镜子。
+前述媒体报道系不实信息，公司已要求相关媒体平台立即删除上述不实信息报告并消除影响。
 
-业内人士认为，该书兼具思想性与感染力、历史性与时代感，通过描绘一个个共产党员的先进形象，将党员形象标准化、党的形象具象化。
+公司表示，正密切关注该事件的进展并保留追究其法律责任的权利。
 
-特别是在建党105周年这一重要时间节点，该书为广大党员、干部和大众读者学习党史知识、传承红色基因、弘扬英模精神、汲取奋进力量提供了生动鲜活的学习读本。
+目前，公司经营一切正常，不存在《上海证券交易所股票上市规则》等相关法规所规定的应予以披露而未披露的重大事项，公司不存在违反公平信息披露规定的其他情形。
 
-(完)
+据记者了解，今日早些时候，有媒体报道称，华泰证券因在基金销售业务中存在多项违规行为，被中国证券监督管理委员会江苏监管局采取责令改正并暂停办理相关业务12个月的行政监管措施。
 
 ## 相关推荐
 
-- 2026-06-30 04:05 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 04:09 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 04:09 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 04:14 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 04:08 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 04:07 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-30 03:55 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 04:02 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 04:10 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 04:08 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 04:02 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 04:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 04:24 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-30 04:01 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 04:09 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 04:13 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 04:15 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 04:04 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 04:16 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 04:05 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 04:02 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 04:26 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 04:17 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 04:20 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 04:22 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 04:22 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 04:14 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:17 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/940887078715.shtml)
-- 2026-06-30 04:13 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/945939321.shtml)
-- 2026-06-30 03:58 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/47391.shtml)
-- 2026-06-30 04:03 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/3811153.shtml)
-- 2026-06-30 04:13 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/193564.shtml)
-- 2026-06-30 03:59 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/62080394.shtml)
-- 2026-06-30 03:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/980728486146.shtml)
-- 2026-06-30 04:20 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/018869.shtml)
-- 2026-06-30 04:21 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/995863423.shtml)
-- 2026-06-30 04:23 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/95094825375.shtml)
-- 2026-06-30 04:01 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/303201480651.shtml)
-- 2026-06-30 03:56 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/65376429.shtml)
-- 2026-06-30 04:12 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/791802682744.shtml)
-- 2026-06-30 04:18 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/165424.shtml)
-- 2026-06-30 04:17 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/63813606.shtml)
+- 2026-06-30 04:06 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/1412289.shtml)
+- 2026-06-30 04:18 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/63993.shtml)
+- 2026-06-30 04:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/12781.shtml)
+- 2026-06-30 04:08 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/35419089.shtml)
+- 2026-06-30 04:14 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/6807738438.shtml)
+- 2026-06-30 04:11 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/3512279.shtml)
+- 2026-06-30 04:19 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/92190551602.shtml)
+- 2026-06-30 04:13 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/9044758.shtml)
+- 2026-06-30 04:17 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/6698576.shtml)
+- 2026-06-30 04:20 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/563520688.shtml)
+- 2026-06-30 04:22 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/54008775927.shtml)
+- 2026-06-30 04:08 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/5571130.shtml)
+- 2026-06-30 04:24 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/466380579.shtml)
+- 2026-06-30 04:10 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/8353716.shtml)
+- 2026-06-30 04:15 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/5163118.shtml)

@@ -1,57 +1,49 @@
-# 城堡证券：美联储主席沃什的改革或有助于降低长期美债波动性
+# 张凌赫到台湾会爱上“自由民主”？台湾媒体人嘲讽：忘了胡歌赴台受限的闹剧了吗？
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-城堡证券表示，美联储主席沃什致力于压低通胀的立场有助于增强美联储的信誉，从而支撑长期美国国债收益率，压低期限溢价。 该公司欧洲、中东和非洲固定收益销售主管Nohshad Shah表示，自上周美联储会议以来，美国国债市场交易特征是长期收益率相对两年期国债更为稳定，一个高度可信的美联储应当有利于长期利率表现。” 自上周会议以来，收益率曲线趋于平坦，长期债券表现优于短端债券，两年期与
+发布时间：2026年04月29日 19:54 来源：中国新闻网 台湾媒体人陈凤馨近日谈及“张凌赫赴台”这一话题时，质疑民进党当局所谓“自由民主”的“双标”闹剧。她提到，胡歌2024年历经波折到台湾交流，却遭遇民进党当局设置的诸多限制，甚至“不准离开所住饭店”，导致原本想见面的台湾朋友都无法相聚。陈凤馨直言，民进党当局连正常交流都层层设限，“还好意思说自由吗？”(策划/制作：燕新
 
 ## 正文
 
-城堡证券表示，美联储主席沃什致力于压低通胀的立场有助于增强美联储的信誉，从而支撑长期美国国债收益率，压低期限溢价。
+发布时间：2026年04月29日 19:54 来源：中国新闻网 台湾媒体人陈凤馨近日谈及“张凌赫赴台”这一话题时，质疑民进党当局所谓“自由民主”的“双标”闹剧。
 
-该公司欧洲、中东和非洲固定收益销售主管Nohshad Shah表示，自上周美联储会议以来，美国国债市场交易特征是长期收益率相对两年期国债更为稳定，一个高度可信的美联储应当有利于长期利率表现。
+她提到，胡歌2024年历经波折到台湾交流，却遭遇民进党当局设置的诸多限制，甚至“不准离开所住饭店”，导致原本想见面的台湾朋友都无法相聚。
 
-” 自上周会议以来，收益率曲线趋于平坦，长期债券表现优于短端债券，两年期与10年期美债收益率利差从会议前约40个基点收窄至27个基点。
+陈凤馨直言，民进党当局连正常交流都层层设限，“还好意思说自由吗？
 
-两年期与30年期美债收益率利差也从约90个基点缩窄至约71个基点。
-
-部分市场人士认为，美联储沟通方式的转变将导致利率出现更大波动，并促使债券投资者要求更高期限溢价。
-
-Shah认为这种看法可能有误。
-
-他说，如果美联储能够根据经济数据迅速且果断地采取行动，反而会增强其公信力，“这意味着市场需要适应一个不会等到加息或降息被完全消化后才行动的美联储。
-
-” Shah认为，在这种背景下，对美国房贷和企业融资成本至关重要的10年期国债收益率将“更加稳定”，波动率将趋于下降，最终“央行的公信力应当压缩而非扩大期限溢价”。
+”(策划/制作：燕新台 君言晚 中新网“燕新台”工作室出品) 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-30 04:15 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-30 03:54 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 04:22 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 04:07 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 04:19 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 04:04 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 04:15 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 04:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 04:07 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 04:17 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-30 03:55 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 04:17 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 04:06 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 04:24 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 04:05 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 04:14 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 04:08 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 04:15 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 04:12 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 04:03 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 04:16 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 04:19 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:20 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/75184184.shtml)
-- 2026-06-30 03:59 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/1471452.shtml)
-- 2026-06-30 04:03 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/67012814741.shtml)
-- 2026-06-30 04:20 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/14740755.shtml)
-- 2026-06-30 04:01 - [天道](http://www.share.minike.top/Article/details/754737705.shtml)
-- 2026-06-30 04:17 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/35963422.shtml)
-- 2026-06-30 04:14 - [刘念回应](http://www.share.kurohicncr.top/Article/details/75793387074.shtml)
-- 2026-06-30 03:54 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/60819.shtml)
-- 2026-06-30 04:19 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/34501123468.shtml)
-- 2026-06-30 03:55 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/9066187.shtml)
-- 2026-06-30 03:56 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/58632.shtml)
-- 2026-06-30 04:11 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/37991307.shtml)
-- 2026-06-30 04:23 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/304461203.shtml)
-- 2026-06-30 03:55 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/4294519810.shtml)
-- 2026-06-30 04:00 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/85298.shtml)
+- 2026-06-30 04:17 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/867410268837.shtml)
+- 2026-06-30 04:21 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/48193.shtml)
+- 2026-06-30 04:10 - [请回答王牌2019](http://www.blog.minike.top/Article/details/026362.shtml)
+- 2026-06-30 04:10 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/8712906728.shtml)
+- 2026-06-30 04:12 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/9052054.shtml)
+- 2026-06-30 04:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/002220923.shtml)
+- 2026-06-30 04:11 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/047185185414.shtml)
+- 2026-06-30 04:05 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/956795.shtml)
+- 2026-06-30 04:21 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/68332529.shtml)
+- 2026-06-30 04:28 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/3349253.shtml)
+- 2026-06-30 04:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/94011690.shtml)
+- 2026-06-30 04:07 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/81140.shtml)
+- 2026-06-30 04:05 - [青春环游记第三季](https://www.blog.minike.top/Article/details/37445199.shtml)
+- 2026-06-30 04:05 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/3206491123.shtml)
+- 2026-06-30 04:18 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/2644836.shtml)

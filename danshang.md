@@ -1,52 +1,56 @@
-# 湖北恩施大清江：星河揽夜幕 云海漫朝晖
+# 江西高校连续八年重走长征路 以青春步履赓续红色血脉
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 21:31 来源：中国新闻网 湖北恩施大清江，蕴藏峡谷山野独有的山水诗意。入夜之后，世间喧嚣悄然消散，漫天星河垂落山谷，拥抱整片沉沉夜幕，满目星光静谧悠远，抚慰人心。待到破晓时分，星光缓缓隐匿天际，层层云海在群峰之间翻涌奔腾，初升朝阳挥洒万丈霞光，温柔浸染千山万壑。一夜一朝，星河与云海交替亮相，每一帧风光都动人心弦，尽显大清江得天独厚的山水风姿
+中新网南昌4月30日电 (熊锦阳)4月30日，南昌职业大学2026年重走红军二万五千里长征路暨长征文化育人思政实践教学活动启动仪式举行。2026年是中国工农红军长征胜利90周年，也是这所扎根于江西这片红土圣地的高校，第八年举办此项红色育人思政实践活动。 据了解，该校将中央红军二万五千里长征路划分为18段，规划以18年为一个完整周期，每年组织师生沿长征路前行，把思政课堂“搬”到长
 
 ## 正文
 
-发布时间：2026年06月23日 21:31 来源：中国新闻网 湖北恩施大清江，蕴藏峡谷山野独有的山水诗意。
+中新网南昌4月30日电 (熊锦阳)4月30日，南昌职业大学2026年重走红军二万五千里长征路暨长征文化育人思政实践教学活动启动仪式举行。
 
-入夜之后，世间喧嚣悄然消散，漫天星河垂落山谷，拥抱整片沉沉夜幕，满目星光静谧悠远，抚慰人心。
+2026年是中国工农红军长征胜利90周年，也是这所扎根于江西这片红土圣地的高校，第八年举办此项红色育人思政实践活动。
 
-待到破晓时分，星光缓缓隐匿天际，层层云海在群峰之间翻涌奔腾，初升朝阳挥洒万丈霞光，温柔浸染千山万壑。
+据了解，该校将中央红军二万五千里长征路划分为18段，规划以18年为一个完整周期，每年组织师生沿长征路前行，把思政课堂“搬”到长征路上。
 
-一夜一朝，星河与云海交替亮相，每一帧风光都动人心弦，尽显大清江得天独厚的山水风姿。
+“重走红军二万五千里长征路是淬炼信仰的‘必修课’、砥砺品格的‘大练兵’、传承精神的‘接力赛’。
 
-(王关政 制作 税浪) 责任编辑：【罗攀】
+”南昌职业大学党委书记、督导专员刘志刚表示，希望参与活动的师生在追寻红色足迹中筑牢信仰之基，在沉浸式研学中汲取奋进之力，在践行使命中彰显青春之为，在砥砺前行中展现青年学子的良好风貌。
+
+据介绍，自2019年该项活动启动以来，南昌职业大学师生队伍从江西于都启程，足迹已遍及赣、粤、湘、桂、黔、川、滇等长征途经省份，累计编印活动资料9卷约120万字，还出版了专项成果书籍《淬火青春长征如歌——南昌职业大学思政教育实践手记》。
+
+根据活动安排，今年该校师生重走的是1935年中央红军“巧渡金沙江”的长征路段，沿途串联云南省内12个县(市、区)。
+
+师生队伍将每天步行10公里以上，并在曲靖、昆明举办“曜阳笑脸”公益活动，在皎平渡镇为老区群众义诊，在金沙江渡口与云南民族大学、云南新兴职业学院师生开展交流，同上一堂大思政课。
 
 ## 相关推荐
 
-- 2026-06-30 04:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 04:02 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 03:55 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 04:18 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 04:18 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 04:16 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 03:58 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 04:23 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 04:05 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 03:56 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 04:04 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 03:55 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 04:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 04:22 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 04:20 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 04:10 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 04:20 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 04:03 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 04:15 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 04:06 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 04:20 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 04:11 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:14 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/743688509.shtml)
-- 2026-06-30 04:06 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/8635514.shtml)
-- 2026-06-30 04:09 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/343651271492.shtml)
-- 2026-06-30 04:20 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/49359524.shtml)
-- 2026-06-30 03:55 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/1893281096.shtml)
-- 2026-06-30 04:21 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/0574604.shtml)
-- 2026-06-30 04:02 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/09584546215.shtml)
-- 2026-06-30 04:21 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/60014489.shtml)
-- 2026-06-30 04:08 - [日本进球](http://www.blog.minike.top/Article/details/09040286886.shtml)
-- 2026-06-30 04:06 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/781059159970.shtml)
-- 2026-06-30 04:00 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/660981.shtml)
-- 2026-06-30 04:00 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/147883716113.shtml)
-- 2026-06-30 04:03 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/7574590168.shtml)
-- 2026-06-30 04:23 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/238745.shtml)
-- 2026-06-30 04:20 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/32261542498.shtml)
+- 2026-06-30 04:21 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/034142476.shtml)
+- 2026-06-30 04:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/77099.shtml)
+- 2026-06-30 04:28 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/575142144971.shtml)
+- 2026-06-30 04:05 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/488762471441.shtml)
+- 2026-06-30 04:06 - [美人鱼](https://www.share.kurohicncr.top/Article/details/29557338.shtml)
+- 2026-06-30 04:05 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/9778243.shtml)
+- 2026-06-30 04:24 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/0818174.shtml)
+- 2026-06-30 04:24 - [巴西扳平比分](http://www.blog.minike.top/Article/details/6358848.shtml)
+- 2026-06-30 04:18 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/404493811924.shtml)
+- 2026-06-30 04:04 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/309692812.shtml)
+- 2026-06-30 04:08 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/97929620328.shtml)
+- 2026-06-30 04:10 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/89601.shtml)
+- 2026-06-30 04:19 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/75621345678.shtml)
+- 2026-06-30 04:14 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/94276915.shtml)
+- 2026-06-30 04:10 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/401009452.shtml)

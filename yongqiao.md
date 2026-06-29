@@ -1,60 +1,52 @@
-# 伊朗与阿曼将研究霍尔木兹海峡航行服务费用问题
+# 小摩：中国平安维持“增持”评级 目标价为90港元
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-伊朗和阿曼表示，双方将开始着手就霍尔木兹海峡的未来管理达成协议，其中包括管理通行的成本。目前，交易员和船东正担心未来可能引入收费机制。 根据两国发表的联合声明，作为波斯湾狭窄出口两侧的沿岸国家，伊朗和阿曼将就航运相关服务展开讨论，包括“与之相关的符合国际标准的费用”。双方还表示致力于确保霍尔木兹海峡安全，并保持国际航运畅通。 自本月早些时候与美国达成临时和平协议以来，伊朗一直寻
+摩根大通发布研报称，维持中国平安（02318）“增持”评级，目标价为90港元。该行认为，以2027财年预测7倍市盈率及6%的股息率计算，估值仍属合理。该行认为，集团今年首季业绩很大程度上缓解了市场相关的忧虑。期内新业务价值（NBV）达156亿元人民币，同比增21%； 核心盈利（营运利润OPAT）为408亿元人民币，同比增长7.6%，双双达到或超越该行预期。该行表示，对寿险销售量
 
 ## 正文
 
-伊朗和阿曼表示，双方将开始着手就霍尔木兹海峡的未来管理达成协议，其中包括管理通行的成本。
+摩根大通发布研报称，维持中国平安（02318）“增持”评级，目标价为90港元。
 
-目前，交易员和船东正担心未来可能引入收费机制。
+该行认为，以2027财年预测7倍市盈率及6%的股息率计算，估值仍属合理。
 
-根据两国发表的联合声明，作为波斯湾狭窄出口两侧的沿岸国家，伊朗和阿曼将就航运相关服务展开讨论，包括“与之相关的符合国际标准的费用”。
+该行认为，集团今年首季业绩很大程度上缓解了市场相关的忧虑。
 
-双方还表示致力于确保霍尔木兹海峡安全，并保持国际航运畅通。
+期内新业务价值（NBV）达156亿元人民币，同比增21%； 核心盈利（营运利润OPAT）为408亿元人民币，同比增长7.6%，双双达到或超越该行预期。
 
-自本月早些时候与美国达成临时和平协议以来，伊朗一直寻求确立对霍尔木兹海峡的控制。
+该行表示，对寿险销售量的强劲增长及产品利润率的韧性感到惊喜。
 
-伊朗上周表示，船只通过该水道需要获得伊方许可，并且需要强制性保险单。
-
-目前保单免费，但未来可能为征收相关费用铺平道路。
-
-一位高级官员当时表示，以英国为首的美国盟友正极力敦促特朗普政府不要接受或默认伊朗试图对通过霍尔木兹海峡船只收费的做法。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:23 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-30 04:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 03:57 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-30 04:11 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 04:21 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 04:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 04:02 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 04:18 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 04:10 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 04:04 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 04:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 03:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 04:09 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 04:19 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 04:27 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 04:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 04:14 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-30 04:25 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 04:08 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 04:30 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 04:24 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 04:18 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 04:10 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 04:17 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:01 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/73218.shtml)
-- 2026-06-30 04:13 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/72641651055.shtml)
-- 2026-06-30 04:19 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/183748099.shtml)
-- 2026-06-30 04:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/89588501.shtml)
-- 2026-06-30 04:08 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/0610462575.shtml)
-- 2026-06-30 03:57 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/27029.shtml)
-- 2026-06-30 04:12 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/302196616493.shtml)
-- 2026-06-30 04:02 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/502469.shtml)
-- 2026-06-30 03:58 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/9970270.shtml)
-- 2026-06-30 04:21 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/75413789061.shtml)
-- 2026-06-30 04:21 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/8149636648.shtml)
-- 2026-06-30 04:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/036249534.shtml)
-- 2026-06-30 04:03 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/27944964.shtml)
-- 2026-06-30 03:57 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/0648982983.shtml)
-- 2026-06-30 04:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/71092208474.shtml)
+- 2026-06-30 04:27 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/4633925321.shtml)
+- 2026-06-30 04:01 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/00770656.shtml)
+- 2026-06-30 04:02 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/9746273321.shtml)
+- 2026-06-30 04:02 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/53774846.shtml)
+- 2026-06-30 04:17 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/322542093.shtml)
+- 2026-06-30 04:05 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/86169848.shtml)
+- 2026-06-30 04:27 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/615661409.shtml)
+- 2026-06-30 04:07 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/709591525933.shtml)
+- 2026-06-30 04:07 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/2466780783.shtml)
+- 2026-06-30 04:28 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/4870269.shtml)
+- 2026-06-30 04:22 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/6771139.shtml)
+- 2026-06-30 04:13 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/515671.shtml)
+- 2026-06-30 04:22 - [请回答王牌2019](http://www.blog.minike.top/Article/details/4155240064.shtml)
+- 2026-06-30 04:29 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/2537252764.shtml)
+- 2026-06-30 04:08 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/36319259408.shtml)

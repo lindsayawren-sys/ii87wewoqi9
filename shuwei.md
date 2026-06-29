@@ -1,59 +1,54 @@
-# 侨见海南自贸港：“我们20多年来只做一条鱼”
+# 全国铁路今天预计发送旅客1995万人次
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-中新网海南临高6月23日电 (王晓斌 陈英清)连续14年亏损，一家企业却始终没有放弃对“一条鱼”的投入。 记者近日探访位于海南临高的侨资企业海南宝路水产科技有限公司，看到22年育种长跑换来了结果：年销售优质罗非鱼种苗超过10亿尾，业务覆盖全国20多个省份，并出口东南亚、非洲、中东等市场。 “我们20多年来只做一条鱼。”海南宝路水产科技有限公司临高分公司综合部负责人马泓波说。自2
+“五一”假期临近，今天铁路方面将出现首轮出行高峰。记者从国铁集团获悉，今天，全国铁路预计发送旅客1995万人次，预计同比增长8.9%。今天夜间到明天凌晨，京沪、京哈、京广等高铁干线，安排开行跨铁路局运输的夜间高铁，部分重点车站将开启24小时通宵运营模式，保障旅客便捷、高效出行。保障出行 北京多条地铁线今起延时运营 记者从北京市交通委员会获悉，为保障市民游客假期出行，地铁3号线、
 
 ## 正文
 
-中新网海南临高6月23日电 (王晓斌 陈英清)连续14年亏损，一家企业却始终没有放弃对“一条鱼”的投入。
+“五一”假期临近，今天铁路方面将出现首轮出行高峰。
 
-记者近日探访位于海南临高的侨资企业海南宝路水产科技有限公司，看到22年育种长跑换来了结果：年销售优质罗非鱼种苗超过10亿尾，业务覆盖全国20多个省份，并出口东南亚、非洲、中东等市场。
+记者从国铁集团获悉，今天，全国铁路预计发送旅客1995万人次，预计同比增长8.9%。
 
-“我们20多年来只做一条鱼。
+今天夜间到明天凌晨，京沪、京哈、京广等高铁干线，安排开行跨铁路局运输的夜间高铁，部分重点车站将开启24小时通宵运营模式，保障旅客便捷、高效出行。
 
-”海南宝路水产科技有限公司临高分公司综合部负责人马泓波说。
+保障出行 北京多条地铁线今起延时运营 记者从北京市交通委员会获悉，为保障市民游客假期出行，地铁3号线、7号线、10号线、14号线等多条地铁线路今天起采取延时措施，全面覆盖夜间抵京高峰时段及重点场站，确保旅客“走得顺、回得畅”。
 
-自2004年成立以来，公司业务始终高度聚焦：持续育种研发，依托优质良种赋能产业提质增效。
-
-在他看来，这一方面源于从业者对种业的战略认知，另一方面源于种业在全产业链中的重要价值。
-
-罗非鱼种业既要在育种端围绕市场需求持续改良养殖性状，也要不断提升繁育能力、提高繁育成效，以满足市场不同季节的需求。
-
-马泓波介绍，公司每年都会为数万尾核心亲鱼植入微型电子芯片，追踪其生长速度、饲料转化率及抗病表现等关键指标，为下一代选育提供数据支撑。
+(央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-30 04:09 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 03:57 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-30 03:58 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-30 03:54 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 04:20 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 04:12 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 03:59 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 04:10 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 04:03 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 04:22 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 03:55 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 04:09 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 04:21 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 04:05 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 04:08 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 04:07 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 04:01 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 04:21 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 04:18 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 04:11 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 04:07 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 04:22 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-30 04:19 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 04:23 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 04:10 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 04:03 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 04:06 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:56 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/165046656.shtml)
-- 2026-06-30 04:14 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/11339.shtml)
-- 2026-06-30 04:03 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/554554695428.shtml)
-- 2026-06-30 04:15 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/260891.shtml)
-- 2026-06-30 04:21 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/86904778.shtml)
-- 2026-06-30 04:12 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/995442696867.shtml)
-- 2026-06-30 04:01 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/61353338.shtml)
-- 2026-06-30 04:03 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/8086052458.shtml)
-- 2026-06-30 04:16 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/20718.shtml)
-- 2026-06-30 04:21 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/18051150074.shtml)
-- 2026-06-30 04:11 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/923384793.shtml)
-- 2026-06-30 04:08 - [巴西2比1日本](https://www.share.minike.top/Article/details/39966.shtml)
-- 2026-06-30 04:09 - [我们的少年时代2](https://www.share.minike.top/Article/details/123664.shtml)
-- 2026-06-30 04:07 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/50365409861.shtml)
-- 2026-06-30 04:06 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/726004.shtml)
+- 2026-06-30 04:12 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/7041704.shtml)
+- 2026-06-30 04:09 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/579269868.shtml)
+- 2026-06-30 04:25 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/548580013.shtml)
+- 2026-06-30 04:05 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/59963.shtml)
+- 2026-06-30 04:05 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/181865.shtml)
+- 2026-06-30 04:20 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/368154215.shtml)
+- 2026-06-30 04:03 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/307782701.shtml)
+- 2026-06-30 04:02 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/545114.shtml)
+- 2026-06-30 04:22 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/6935920174.shtml)
+- 2026-06-30 04:28 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/92374.shtml)
+- 2026-06-30 04:00 - [一生一世](https://www.blog.minike.top/Article/details/4680131.shtml)
+- 2026-06-30 04:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/3628153632.shtml)
+- 2026-06-30 04:23 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/68789.shtml)
+- 2026-06-30 04:10 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/686366.shtml)
+- 2026-06-30 04:27 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/1661733.shtml)

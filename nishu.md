@@ -1,59 +1,57 @@
-# 今年访韩外国游客已突破1000万大关，创历史最快纪录
+# 美国FDA拟将减肥药从复方制剂清单中剔除
 
-> 更新时间：2026-06-30 04:24:02 UTC+8
+> 更新时间：2026-06-30 04:30:03 UTC+8
 
 ## 摘要
 
-韩国政府周三公布的初步数据显示，今年迄今，韩国已接待超过1000万外国游客，这意味着该国今年的外国游客数量可能将创下年度新高。 据韩国文化体育观光部称，本月第三个周末，访韩外国游客人数突破1000万大关，比去年提前了约一个月。去年，韩国7月中旬就达到了这一数字。这也是访韩外国游客首次在上半年突破1000万。 随着入境旅游强劲反弹，韩国仅5月份就接待了195万名外国游客，比去年同
+美国食品药品监督管理局（FDA）宣布，拟将司美格鲁肽和替尔泊肽等GLP-1类减肥药物从允许复方制剂生产的清单中剔除，理由是这些药物已不再处于短缺状态。 根据联邦法律，复方药房仅在药物被列入FDA短缺清单时，才有权仿制商业可得的品牌药物。随着诺和诺德和礼来大幅提升产能，司美格鲁肽和替尔泊肽的供应紧张局面已基本缓解。FDA于2025年2月将司美格鲁肽从短缺清单中移除，替尔泊肽随后也
 
 ## 正文
 
-韩国政府周三公布的初步数据显示，今年迄今，韩国已接待超过1000万外国游客，这意味着该国今年的外国游客数量可能将创下年度新高。
+美国食品药品监督管理局（FDA）宣布，拟将司美格鲁肽和替尔泊肽等GLP-1类减肥药物从允许复方制剂生产的清单中剔除，理由是这些药物已不再处于短缺状态。
 
-据韩国文化体育观光部称，本月第三个周末，访韩外国游客人数突破1000万大关，比去年提前了约一个月。
+根据联邦法律，复方药房仅在药物被列入FDA短缺清单时，才有权仿制商业可得的品牌药物。
 
-去年，韩国7月中旬就达到了这一数字。
+随着诺和诺德和礼来大幅提升产能，司美格鲁肽和替尔泊肽的供应紧张局面已基本缓解。
 
-这也是访韩外国游客首次在上半年突破1000万。
+FDA于2025年2月将司美格鲁肽从短缺清单中移除，替尔泊肽随后也被移出。
 
-随着入境旅游强劲反弹，韩国仅5月份就接待了195万名外国游客，比去年同期增长19.4%。
+FDA在4月1日发布的最新政策说明中明确指出，任何被认定为“基本上是商业可得药品复制品”的复方制剂将不再享有豁免权。
 
-5月份，中国大陆游客人数最多，达56万人次，其次是日本游客（36万人次）和美国游客（21万人次）。
+FDA定义的“复制品”标准包括：含有与商业药品相同的活性成分、强度相同或易于替代，且给药途径一致。
 
-来自中国台湾地区的游客人数为19万人次。
+复方药物未经过FDA的安全性、有效性和质量审查。
 
-韩国政府指出，游客的来源地正在向首都圈以外的地区扩展。
+FDA已收到逾千例与复方GLP-1药物相关的不良事件报告，包括剂量错误、恶心、呕吐和低血糖。
 
 ## 相关推荐
 
-- 2026-06-30 04:07 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 04:23 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 04:23 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 04:18 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 03:59 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 04:02 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 03:56 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 04:21 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 04:13 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-30 04:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-30 03:59 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 04:16 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 04:08 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 04:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 04:12 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 04:10 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 04:26 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 04:07 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 04:14 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 04:13 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 04:26 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 04:15 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 04:21 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 04:12 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:56 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/274742.shtml)
-- 2026-06-30 04:07 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/433018.shtml)
-- 2026-06-30 04:20 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/991849.shtml)
-- 2026-06-30 03:59 - [内马尔替补](https://www.share.minike.top/Article/details/902039551978.shtml)
-- 2026-06-30 03:58 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/196719.shtml)
-- 2026-06-30 03:58 - [一生一世](https://www.blog.kurohicncr.top/Article/details/535861.shtml)
-- 2026-06-30 04:08 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/872300047095.shtml)
-- 2026-06-30 04:07 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/666771014.shtml)
-- 2026-06-30 03:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/54903.shtml)
-- 2026-06-30 04:14 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/786865896.shtml)
-- 2026-06-30 04:10 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/48144.shtml)
-- 2026-06-30 04:20 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/426760732.shtml)
-- 2026-06-30 04:18 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/0910238.shtml)
-- 2026-06-30 04:21 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/663573190.shtml)
-- 2026-06-30 04:05 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/43689.shtml)
+- 2026-06-30 04:23 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/9682157.shtml)
+- 2026-06-30 04:03 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/368502149275.shtml)
+- 2026-06-30 04:24 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/03367831813.shtml)
+- 2026-06-30 04:08 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/38400513.shtml)
+- 2026-06-30 04:00 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/08727.shtml)
+- 2026-06-30 04:12 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/430879838290.shtml)
+- 2026-06-30 04:22 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/1051446.shtml)
+- 2026-06-30 04:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/190106393226.shtml)
+- 2026-06-30 04:03 - [沉睡花园](http://www.share.minike.top/Article/details/0793832.shtml)
+- 2026-06-30 04:11 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/250804305702.shtml)
+- 2026-06-30 04:04 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/9215430.shtml)
+- 2026-06-30 04:15 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/102601747309.shtml)
+- 2026-06-30 04:03 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/01170.shtml)
+- 2026-06-30 04:03 - [青春环游记第三季](https://www.share.minike.top/Article/details/3854829.shtml)
+- 2026-06-30 04:12 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/373276.shtml)
