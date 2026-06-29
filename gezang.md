@@ -1,56 +1,53 @@
-# 中信银行员工诈骗客户数百万 保险公司被判支付“雇员忠诚险”
+# 现场直击！普京乘专机抵京 王毅到机场接机
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-来源：险联社 “中信银行一客户经理诈骗客户数百万，持保单向保险公司索赔‘雇员忠诚险’，经过多年拉锯，最终，今年2月法院判保险公司支付中信银行保险赔偿金328万余元。” 2018年，中信银行兰州分行客户经理吕某泽骗取老年客户用于购买理财产品的资金，悉数转入其个人控制的账户，用于偿还高利贷、炒股及个人消费。 短短数月，14名客户受骗，金额达到393万。 其实这样的案件这些年也屡见不
+发布时间：2026年05月20日 00:56 来源：中国新闻网 5月19日晚，俄罗斯总统普京乘坐专机抵达北京，开启对中国的国事访问。北京首都机场现场红毯铺展，礼兵列队。普京走下舷梯，中共中央政治局委员、外交部长王毅到机场接机。这是普京总统第25次到访中国。访华期间，中俄两国元首将就双边关系、各领域合作以及共同关心的国际地区问题交换意见。(记者 郭超凯 田雨昊 制作 王雪茵) 责
 
 ## 正文
 
-来源：险联社 “中信银行一客户经理诈骗客户数百万，持保单向保险公司索赔‘雇员忠诚险’，经过多年拉锯，最终，今年2月法院判保险公司支付中信银行保险赔偿金328万余元。
+发布时间：2026年05月20日 00:56 来源：中国新闻网 5月19日晚，俄罗斯总统普京乘坐专机抵达北京，开启对中国的国事访问。
 
-” 2018年，中信银行兰州分行客户经理吕某泽骗取老年客户用于购买理财产品的资金，悉数转入其个人控制的账户，用于偿还高利贷、炒股及个人消费。
+北京首都机场现场红毯铺展，礼兵列队。
 
-短短数月，14名客户受骗，金额达到393万。
+普京走下舷梯，中共中央政治局委员、外交部长王毅到机场接机。
 
-其实这样的案件这些年也屡见不鲜了。
+这是普京总统第25次到访中国。
 
-最终结果就是吕某泽锒铛入狱，中信银行向受害者垫付了386万余元。
+访华期间，中俄两国元首将就双边关系、各领域合作以及共同关心的国际地区问题交换意见。
 
-但是，由于中信银行曾向保险公司投保了“雇员忠诚保证保险”，转头向保险公司申请理赔，结果被保险公司断然拒绝。
-
-经过几年拉锯，今年2月，甘肃省高级法院采纳检察机关抗诉意见，改判保险公司支付中信银行保险赔偿金328万余元。
-
-截至3月13日，赔偿金全部支付到位。
+(记者 郭超凯 田雨昊 制作 王雪茵) 责任编辑：【张令旗】
 
 ## 相关推荐
 
-- 2026-06-29 15:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 15:36 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 15:45 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 15:29 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 15:25 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 15:37 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 15:39 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-29 15:32 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 15:53 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 15:50 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 15:57 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 15:44 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 15:48 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 15:53 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 15:38 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 15:50 - [普京介绍前线战事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 15:44 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 15:46 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 15:54 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 15:39 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 15:52 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:46 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/75247036.shtml)
-- 2026-06-29 15:52 - [汪东城回应45岁婚约](https://www.blog.minike.top/Article/details/6433862560.shtml)
-- 2026-06-29 15:27 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/185382.shtml)
-- 2026-06-29 15:50 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/76717008312.shtml)
-- 2026-06-29 15:36 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/765871.shtml)
-- 2026-06-29 15:33 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/8456906107.shtml)
-- 2026-06-29 15:24 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/607685881408.shtml)
-- 2026-06-29 15:25 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/266202.shtml)
-- 2026-06-29 15:46 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/699197015741.shtml)
-- 2026-06-29 15:34 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/34575399.shtml)
-- 2026-06-29 15:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/42885602.shtml)
-- 2026-06-29 15:47 - [国家体育总局政策法规司原副司长获刑](http://www.share.kurohicncr.top/Article/details/45879150.shtml)
-- 2026-06-29 15:49 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/904319.shtml)
-- 2026-06-29 15:31 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/120886.shtml)
-- 2026-06-29 15:41 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/30483.shtml)
+- 2026-06-29 15:34 - [5万块的威力](https://www.blog.minike.top/Article/details/129652345.shtml)
+- 2026-06-29 15:30 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/030119.shtml)
+- 2026-06-29 15:45 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/6639897.shtml)
+- 2026-06-29 15:57 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.minike.top/Article/details/253162472.shtml)
+- 2026-06-29 15:47 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.minike.top/Article/details/21865.shtml)
+- 2026-06-29 15:33 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/335483.shtml)
+- 2026-06-29 15:35 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/4507193922.shtml)
+- 2026-06-29 15:45 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/6501511.shtml)
+- 2026-06-29 15:38 - [韩国队出局是因为内讧吗](https://www.blog.minike.top/Article/details/8611862.shtml)
+- 2026-06-29 15:32 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/08557128.shtml)
+- 2026-06-29 15:37 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/02960689.shtml)
+- 2026-06-29 15:58 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/56865.shtml)
+- 2026-06-29 15:42 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/16029309.shtml)
+- 2026-06-29 15:51 - [世界杯上那些封神的门将](http://www.blog.kurohicncr.top/Article/details/16649.shtml)
+- 2026-06-29 15:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/694819927.shtml)

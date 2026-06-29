@@ -1,56 +1,59 @@
-# 查了40篇糖和代糖的权威文献，一份写给普通人关于“甜”的理性决策指南
+# 英国考虑推出“邀请制”投资签证 最低门槛500万英镑
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-近年来，随着“减糖”理念的普及，代糖市场经历了爆发式增长。从无糖气泡水到零卡烘焙，代糖产品已深入日常消费场景。然而，围绕代糖安全性的争议从未停歇：2023年7月，国际癌症研究机构(IARC)将阿斯巴甜列为“可能对人类致癌”(2B类)；同年，世界卫生组织(WHO)发布指南，建议一般人群不应使用非糖甜味剂来控制体重。这些消息引发了公众对代糖的广泛疑虑。代糖到底安不安全？不同代糖之间
+英国考虑推出一种新签证，向在英国投资至少500万英镑（约合670万美元）的富裕人士提供三年居留权，该国希望借此举恢复对全球高净值人士的吸引力。 根据政府机构近期发给财富顾问征询意见的提案文件，企业家和其他可自由迁移居住地的富裕人士若参加该项目，需要投资于所谓的重点领域，例如增长迅速的英国企业。文件显示，这类“邀请制”签证申请将接受更严格的审查，三年后可申请获得永久居留权。 近年
 
 ## 正文
 
-近年来，随着“减糖”理念的普及，代糖市场经历了爆发式增长。
+英国考虑推出一种新签证，向在英国投资至少500万英镑（约合670万美元）的富裕人士提供三年居留权，该国希望借此举恢复对全球高净值人士的吸引力。
 
-从无糖气泡水到零卡烘焙，代糖产品已深入日常消费场景。
+根据政府机构近期发给财富顾问征询意见的提案文件，企业家和其他可自由迁移居住地的富裕人士若参加该项目，需要投资于所谓的重点领域，例如增长迅速的英国企业。
 
-然而，围绕代糖安全性的争议从未停歇：2023年7月，国际癌症研究机构(IARC)将阿斯巴甜列为“可能对人类致癌”(2B类)；同年，世界卫生组织(WHO)发布指南，建议一般人群不应使用非糖甜味剂来控制体重。
+文件显示，这类“邀请制”签证申请将接受更严格的审查，三年后可申请获得永久居留权。
 
-这些消息引发了公众对代糖的广泛疑虑。
+近年来，英国作为全球高净值投资者目的地的声誉受到打击，此前英国提高了对来自海外、被称为“非本土居民”（non-dom）的富裕人士税负。
 
-代糖到底安不安全？
+相关改革于去年在斯塔默政府执政期间生效。
 
-不同代糖之间有何区别？
+随后，John Fredriksen、Nassef Sawiris和Guillaume Pousaz等亿万富豪纷纷离开英国或减少了与英国的联系。
 
-如何看待代糖在现代饮食中的角色？
+英国政府发言人在电子邮件声明中表示：“我们正尽一切努力吸引投资进入英国。
 
-本文基于WHO、联合国粮农组织/世界卫生组织食品添加剂联合专家委员会(JECFA)、美国食品药品监督管理局(FDA)、欧洲食品安全局(EFSA)等国际权威机构的评估报告，以及《自然·医学》等期刊发表的相关研究，对代糖的发展脉络、科学评估和消费选择进行系统梳理。
+Global Talent Taskforce正在评估所有选项，以识别并吸引全球最优秀的人才。
 
 ## 相关推荐
 
-- 2026-06-29 15:33 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 15:39 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 15:39 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 15:36 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 15:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 15:36 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 15:40 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 15:40 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 15:36 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 15:36 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-29 15:38 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 15:36 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 15:57 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 15:55 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 15:36 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 15:42 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 15:59 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 15:33 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 15:30 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 15:41 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 15:38 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 15:52 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 15:55 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:40 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/9192827.shtml)
-- 2026-06-29 15:29 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/333323.shtml)
-- 2026-06-29 15:25 - [金刚川](https://www.blog.minike.top/Article/details/55142288029.shtml)
-- 2026-06-29 15:29 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/93924978.shtml)
-- 2026-06-29 15:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/96321319.shtml)
-- 2026-06-29 15:38 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.kurohicncr.top/Article/details/861522.shtml)
-- 2026-06-29 15:32 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/670800.shtml)
-- 2026-06-29 15:31 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/95633176457.shtml)
-- 2026-06-29 15:33 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/0208656.shtml)
-- 2026-06-29 15:36 - [恋与深空评分暴跌至1.8](http://www.blog.kurohicncr.top/Article/details/5318439.shtml)
-- 2026-06-29 15:44 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/5699988.shtml)
-- 2026-06-29 15:28 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/2750092.shtml)
-- 2026-06-29 15:52 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/2920184350.shtml)
-- 2026-06-29 15:41 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/11281.shtml)
-- 2026-06-29 15:40 - [世界杯十大帅哥必吃榜](http://www.share.minike.top/Article/details/9783545.shtml)
+- 2026-06-29 15:31 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/652995600.shtml)
+- 2026-06-29 15:47 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/40404301790.shtml)
+- 2026-06-29 15:58 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/15623326073.shtml)
+- 2026-06-29 15:54 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/8785337.shtml)
+- 2026-06-29 15:39 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/294159651521.shtml)
+- 2026-06-29 15:50 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/20369347.shtml)
+- 2026-06-29 15:57 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/5771653828.shtml)
+- 2026-06-29 15:35 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/5105679223.shtml)
+- 2026-06-29 15:50 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/08694623060.shtml)
+- 2026-06-29 15:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/58130409371.shtml)
+- 2026-06-29 15:57 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/37670924.shtml)
+- 2026-06-29 15:43 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/58673667.shtml)
+- 2026-06-29 15:48 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/982945.shtml)
+- 2026-06-29 15:52 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/175750.shtml)
+- 2026-06-29 15:53 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/22882991.shtml)

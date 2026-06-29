@@ -1,61 +1,56 @@
-# 南宁沃柑热销海外 本产季开始以来出口货值逾7500万美元
+# 入境游“下沉” 外国游客爱上“奔县”深度游
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月12日电(周洁 郑秋霞)邕州海关12日提供的数据显示，本产季(2025年10月至2026年5月)广西南宁沃柑出口持续放量，目前累计出口3808批次，重量8.84万吨，货值7515.77万美元，保持稳步增长势头。 在南宁市正欣农业开发有限公司的自动化包装车间里，一条条高效运转的分选线正将新鲜沃柑分级处理，待邕州海关关员查检合格后发往泰国。 “目前我们日均发货量平稳，
+中新社浙江宁波5月19日电 (林波)“中国古代旅行家徐霞客就是从这里出发，游历天下。今天，我也踏上了他的足迹。”5月19日，在浙江省宁波市宁海县西门城楼，来自意大利的游客马蒂亚说。 当日，2026年“5·19中国旅游日”浙江省分会场活动暨第二十四届徐霞客开游节在《徐霞客游记》开篇地宁海举行。 中国入境游市场正呈现明显的“下沉”趋势。数据显示，2026年一季度，中国免签入境外国人
 
 ## 正文
 
-中新网南宁5月12日电(周洁 郑秋霞)邕州海关12日提供的数据显示，本产季(2025年10月至2026年5月)广西南宁沃柑出口持续放量，目前累计出口3808批次，重量8.84万吨，货值7515.77万美元，保持稳步增长势头。
+中新社浙江宁波5月19日电 (林波)“中国古代旅行家徐霞客就是从这里出发，游历天下。
 
-在南宁市正欣农业开发有限公司的自动化包装车间里，一条条高效运转的分选线正将新鲜沃柑分级处理，待邕州海关关员查检合格后发往泰国。
+今天，我也踏上了他的足迹。
 
-“目前我们日均发货量平稳，订单已排到后续周期，尤其是东南亚等传统市场需求旺盛。
+”5月19日，在浙江省宁波市宁海县西门城楼，来自意大利的游客马蒂亚说。
 
-本产季截至目前，公司沃柑出口额达1800万元人民币，同比增长12%。
+当日，2026年“5·19中国旅游日”浙江省分会场活动暨第二十四届徐霞客开游节在《徐霞客游记》开篇地宁海举行。
 
-”南宁市正欣农业开发有限公司副总经理廖亮说。
+中国入境游市场正呈现明显的“下沉”趋势。
 
-眼下已进入产季后段，南宁各主要生产企业依然有序推进沃柑采收、加工与发货，全力保障海外市场稳定供应。
+数据显示，2026年一季度，中国免签入境外国人达831.5万人次，同比上升29.3%。
 
-在巩固东南亚等传统市场的同时，南宁沃柑在加拿大、乌兹别克斯坦等新兴市场也保持稳定份额，市场多元化格局正在形成。
+相关平台数据显示，过去一年，外国网友来华旅游，足迹已覆盖中国近500座城市，二线、三线城市及县域热度显著攀升。
 
-为支持沃柑产季顺利出口，邕州海关积极运用“智慧查检”等信息化手段，压缩属地查检时间，提升整体通关效率。
+越来越多外国游客不再满足于“打卡”一线城市。
 
 ## 相关推荐
 
-- 2026-06-29 15:34 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 15:29 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 15:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 15:50 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 15:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 15:46 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 15:25 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 15:53 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 15:27 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 15:43 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 15:27 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 15:32 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 15:51 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 15:44 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 15:30 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 15:44 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 15:31 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 15:30 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 15:38 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 15:35 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 15:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 15:38 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 15:59 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 15:38 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 15:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:52 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/9143060098.shtml)
-- 2026-06-29 15:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/2612411.shtml)
-- 2026-06-29 15:44 - [袁隆平院士 不容诋毁！](http://www.blog.kurohicncr.top/Article/details/739844025.shtml)
-- 2026-06-29 15:49 - [周锡玮：做堂堂正正的中国人](http://www.blog.minike.top/Article/details/17877.shtml)
-- 2026-06-29 15:34 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/2718834082.shtml)
-- 2026-06-29 15:39 - [当我回母校教书](https://www.blog.minike.top/Article/details/097022.shtml)
-- 2026-06-29 15:25 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/30349380.shtml)
-- 2026-06-29 15:44 - [爱很美味](http://www.share.kurohicncr.top/Article/details/24575944.shtml)
-- 2026-06-29 15:49 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/9831990336.shtml)
-- 2026-06-29 15:51 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.kurohicncr.top/Article/details/1729375.shtml)
-- 2026-06-29 15:27 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/053819867.shtml)
-- 2026-06-29 15:34 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/10076.shtml)
-- 2026-06-29 15:33 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/41285060.shtml)
-- 2026-06-29 15:28 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/2866215.shtml)
-- 2026-06-29 15:44 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/1872444.shtml)
+- 2026-06-29 15:37 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.minike.top/Article/details/85079300.shtml)
+- 2026-06-29 15:38 - [撒旦的腋窝是什么比喻](http://www.share.kurohicncr.top/Article/details/16852.shtml)
+- 2026-06-29 15:32 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/67061.shtml)
+- 2026-06-29 15:58 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/4807378539.shtml)
+- 2026-06-29 15:34 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/50664381682.shtml)
+- 2026-06-29 15:41 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/7702195.shtml)
+- 2026-06-29 15:49 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/0751604680.shtml)
+- 2026-06-29 15:38 - [请回答王牌2019](http://www.share.minike.top/Article/details/9078907109.shtml)
+- 2026-06-29 15:54 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/523724744950.shtml)
+- 2026-06-29 15:51 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/00514136045.shtml)
+- 2026-06-29 15:49 - [南非老帅布罗斯的梦没能做完](http://www.share.kurohicncr.top/Article/details/14860.shtml)
+- 2026-06-29 15:41 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/1978644.shtml)
+- 2026-06-29 15:49 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/795128872.shtml)
+- 2026-06-29 15:52 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/47020883038.shtml)
+- 2026-06-29 15:44 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/476464.shtml)

@@ -1,42 +1,57 @@
-# 中消协一季度投诉分析：职业技能培训平均涉诉金额超7000元
+# 伊朗股市恢复交易
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 10:26 来源：央视新闻 责任编辑：【王祎】
+中新社北京5月19日电 德黑兰消息：伊朗德黑兰证券交易所19日恢复股票交易。 伊朗股市于3月1日起暂停交易，截至5月18日，已停市逾两个半月。 据外媒报道，19日和20日，股票、股票基金及股票挂钩衍生品将恢复交易，随后进入休市(伊朗股市周五至周六休市，周日至周四为交易日)。在交易日，交易时间将延长1小时。 伊朗证券交易组织16日曾预告称，该国股市19日将重开。该组织官员表示，受
 
 ## 正文
 
-发布时间：2026年05月12日 10:26 来源：央视新闻 责任编辑：【王祎】
+中新社北京5月19日电 德黑兰消息：伊朗德黑兰证券交易所19日恢复股票交易。
+
+伊朗股市于3月1日起暂停交易，截至5月18日，已停市逾两个半月。
+
+据外媒报道，19日和20日，股票、股票基金及股票挂钩衍生品将恢复交易，随后进入休市(伊朗股市周五至周六休市，周日至周四为交易日)。
+
+在交易日，交易时间将延长1小时。
+
+伊朗证券交易组织16日曾预告称，该国股市19日将重开。
+
+该组织官员表示，受战争影响暂停股市交易，主要目的是保护投资者资产、避免市场出现非理性波动，为市场在更加透明的信息环境下恢复运行创造条件。
+
+随着股市恢复交易，伊朗资本市场各领域运行将基本恢复完整。
+
+外媒19日报道称，暂时关闭股市阻止了“恐慌性抛售”的同时，也给焦虑的投资者增加了压力。
 
 ## 相关推荐
 
-- 2026-06-29 15:27 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 15:29 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 15:26 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 15:28 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 15:43 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 15:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 15:27 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 15:36 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 15:35 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 15:27 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 15:50 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 15:35 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 15:50 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 15:55 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 15:48 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 15:56 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 15:33 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 15:34 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 15:32 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 15:43 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 15:53 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:42 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.kurohicncr.top/Article/details/7030142.shtml)
-- 2026-06-29 15:53 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/432593662.shtml)
-- 2026-06-29 15:31 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/28956.shtml)
-- 2026-06-29 15:26 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/04890.shtml)
-- 2026-06-29 15:46 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/515563152837.shtml)
-- 2026-06-29 15:26 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/506693574.shtml)
-- 2026-06-29 15:35 - [如何“亲菌子”又“远小人儿”](https://www.share.kurohicncr.top/Article/details/6141378430.shtml)
-- 2026-06-29 15:51 - [博主：美航母沦为毒品集散窝点](http://www.blog.minike.top/Article/details/468681582.shtml)
-- 2026-06-29 15:29 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/148710.shtml)
-- 2026-06-29 15:28 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/79363673036.shtml)
-- 2026-06-29 15:39 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.minike.top/Article/details/1640063.shtml)
-- 2026-06-29 15:35 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.kurohicncr.top/Article/details/96880269.shtml)
-- 2026-06-29 15:32 - [久坐小心“死臀综合征”](https://www.share.minike.top/Article/details/0442148598.shtml)
-- 2026-06-29 15:34 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/0807645.shtml)
-- 2026-06-29 15:26 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/225132379332.shtml)
+- 2026-06-29 15:52 - [驻日美军航母沦为“毒窝”](http://www.share.minike.top/Article/details/75700502.shtml)
+- 2026-06-29 15:32 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/889558.shtml)
+- 2026-06-29 15:46 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/211379.shtml)
+- 2026-06-29 15:55 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/56389653.shtml)
+- 2026-06-29 15:59 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/69749412.shtml)
+- 2026-06-29 15:46 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/2073297822.shtml)
+- 2026-06-29 15:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/709765469211.shtml)
+- 2026-06-29 15:36 - [东方风云榜红毯](https://www.blog.minike.top/Article/details/188531064.shtml)
+- 2026-06-29 15:45 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/7655794.shtml)
+- 2026-06-29 15:46 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/5669807.shtml)
+- 2026-06-29 15:52 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/006311590404.shtml)
+- 2026-06-29 15:58 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.kurohicncr.top/Article/details/014182.shtml)
+- 2026-06-29 15:43 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/29937.shtml)
+- 2026-06-29 15:41 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/18863604185.shtml)
+- 2026-06-29 15:43 - [媒体人：警惕日本再次成战争加害国](https://www.blog.minike.top/Article/details/925499758.shtml)

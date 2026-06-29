@@ -1,60 +1,60 @@
-# 开盘：美股周二低开 美国4月CPI创3年以来新高
+# 152亿美元重磅BD交易再破历史纪录！恒生创新药ETF华泰柏瑞（520500）连续8个交易日获资金净流入
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-北京时间5月12日晚，美股周二低开，科技股领跌。美国4月消费者价格同比上涨3.8%，创2023年5月以来新高原油价格继续攀升。市场继续关注美伊局势的发展。 道指跌10.55点，跌幅为0.02%，报49693.92点；纳指跌187.99点，跌幅为0.72%，报26086.13点；标普500指数跌19.90点，跌幅为0.27%，报7392.94点。 西得克萨斯中质原油期货周二上涨3
+近期BD出海交易再迎重磅大单，叠加学术会议临近召开、财报彰显盈利拐点、政策暖风劲吹、BD出海持续提速，创新药赛道进入密集催化期，相关ETF受资金青睐。 中国创新药近期迎来重磅BD交易，金额再创历史新高！2026年5月12日，国内头部药企宣布与跨国制药巨头百时美施贵宝（BMS）达成全球战略合作及许可协议，共同推进13款涵盖肿瘤学、血液学及免疫学的早期创新药物的开发。该协议潜在交易
 
 ## 正文
 
-北京时间5月12日晚，美股周二低开，科技股领跌。
+近期BD出海交易再迎重磅大单，叠加学术会议临近召开、财报彰显盈利拐点、政策暖风劲吹、BD出海持续提速，创新药赛道进入密集催化期，相关ETF受资金青睐。
 
-美国4月消费者价格同比上涨3.8%，创2023年5月以来新高原油价格继续攀升。
+中国创新药近期迎来重磅BD交易，金额再创历史新高！
 
-市场继续关注美伊局势的发展。
+2026年5月12日，国内头部药企宣布与跨国制药巨头百时美施贵宝（BMS）达成全球战略合作及许可协议，共同推进13款涵盖肿瘤学、血液学及免疫学的早期创新药物的开发。
 
-道指跌10.55点，跌幅为0.02%，报49693.92点；纳指跌187.99点，跌幅为0.72%，报26086.13点；标普500指数跌19.90点，跌幅为0.27%，报7392.94点。
+该协议潜在交易总金额可达约152亿美元、创中国BD历史之最，包含里程碑付款及销售分成。
 
-西得克萨斯中质原油期货周二上涨3%，站上每桶101美元。
+此次与BMS的合作，凸显出中国创新药已具备系统性参与全球市场竞争的能力。
 
-布伦特原油上涨3%，突破每桶107美元。
+平安证券认为，此次交易中该头部药企拥有共同开发特定项目的选择权，并且有机会与BMS在全球范围内共同开展特定的商业化活动，因而有望借力BMS的全球网络与顶尖临床资源，积累宝贵的国际多中心临床试验（MRCT）经验，或将逐步建立起体系化的全球研发、商业化能力，加速全球化步伐。
 
-此前，美国总统特朗普称美伊之间实施了一个月的停火协议“弱得令人难以置信”，并表示在拒绝了德黑兰方面提出的“不可接受的”反提案后，该协议已“处于大规模生命维持状态”。
+全球学术舞台上，中国创新药最新成果正准备集体亮相。
 
-特朗普的最新表态助推了油价的涨势。
+2026年ASCO年会将于5月底在芝加哥举行，据统计，2026年共34项中国研究入选ASCO口头汇报。
 
 ## 相关推荐
 
-- 2026-06-29 15:44 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 15:49 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 15:29 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 15:33 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 15:47 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 15:38 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 15:27 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 15:53 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 15:27 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 15:45 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 15:49 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 15:42 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 15:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 15:33 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 15:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 15:44 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 15:49 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 15:45 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 15:45 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 15:51 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 15:42 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 15:33 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 15:51 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 15:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 15:37 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 15:40 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-29 15:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 15:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:26 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/2345161434.shtml)
-- 2026-06-29 15:29 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/065827063.shtml)
-- 2026-06-29 15:47 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/1767875.shtml)
-- 2026-06-29 15:46 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/027740756631.shtml)
-- 2026-06-29 15:25 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/639544599.shtml)
-- 2026-06-29 15:40 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/864740.shtml)
-- 2026-06-29 15:40 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/167510.shtml)
-- 2026-06-29 15:42 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/316652.shtml)
-- 2026-06-29 15:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/445839525627.shtml)
-- 2026-06-29 15:46 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/9964505572.shtml)
-- 2026-06-29 15:27 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/9975759395.shtml)
-- 2026-06-29 15:44 - [扫黑风暴](https://www.share.minike.top/Article/details/63589539581.shtml)
-- 2026-06-29 15:34 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.minike.top/Article/details/26320961.shtml)
-- 2026-06-29 15:39 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/4286971384.shtml)
-- 2026-06-29 15:24 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/3400104816.shtml)
+- 2026-06-29 15:41 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/81216.shtml)
+- 2026-06-29 15:49 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/36025985.shtml)
+- 2026-06-29 15:46 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/9955035452.shtml)
+- 2026-06-29 15:32 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/4075334704.shtml)
+- 2026-06-29 15:35 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/746339472984.shtml)
+- 2026-06-29 15:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/28956436.shtml)
+- 2026-06-29 15:31 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/3933480.shtml)
+- 2026-06-29 15:36 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.kurohicncr.top/Article/details/8751896.shtml)
+- 2026-06-29 15:47 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/80868870389.shtml)
+- 2026-06-29 15:57 - [张一山回应与杨紫友情](https://www.blog.minike.top/Article/details/57973489.shtml)
+- 2026-06-29 15:49 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/115481224314.shtml)
+- 2026-06-29 15:46 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/7809599892.shtml)
+- 2026-06-29 15:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/852735.shtml)
+- 2026-06-29 15:51 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/166632019.shtml)
+- 2026-06-29 15:47 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/455355231.shtml)

@@ -1,58 +1,58 @@
-# 广东省新生代民营企业家“青蓝接力”高素质成长班（第21期）开班
+# 算法时代，如何让阅读更加深入？
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新网梅州5月11日电 (郭军 岳桐)2026年广东省新生代民营企业家“青蓝接力”高素质成长班(第21期)11日在梅州市委党校正式开班，49名广东省新生代民营企业家参与培训。 在开班仪式上，广东省委统战部有关负责人表示，举办此次培训班是持续加大年轻一代民营经济人士教育培养、提升其政治能力和综合能力的有力举措。今后将加大力度选用年轻一代，着力构建组织领导、政治引领、梯次培养、支持
+中新网北京5月20日电(记者 上官云)“读书破万卷，下笔如有神。” 如今，人们的阅读方式十分多样，一点屏幕，海量信息出现在眼前；戴上耳机，也可以惬意地“听书”。 日前，第二十三次全国国民阅读调查主要发现公布。数据显示，2025年中国成年国民综合阅读率为82.3%，较2024年的82.1%提升了0.2个百分点。此外，45.9%的成年国民表示倾向于“拿一本纸质图书阅读”。 在算法时
 
 ## 正文
 
-中新网梅州5月11日电 (郭军 岳桐)2026年广东省新生代民营企业家“青蓝接力”高素质成长班(第21期)11日在梅州市委党校正式开班，49名广东省新生代民营企业家参与培训。
+中新网北京5月20日电(记者 上官云)“读书破万卷，下笔如有神。
 
-在开班仪式上，广东省委统战部有关负责人表示，举办此次培训班是持续加大年轻一代民营经济人士教育培养、提升其政治能力和综合能力的有力举措。
+” 如今，人们的阅读方式十分多样，一点屏幕，海量信息出现在眼前；戴上耳机，也可以惬意地“听书”。
 
-今后将加大力度选用年轻一代，着力构建组织领导、政治引领、梯次培养、支持服务的年轻一代健康成长体系。
+日前，第二十三次全国国民阅读调查主要发现公布。
 
-据悉，在为期5天的时间里，青年企业家们将参观叶剑英纪念园、叶剑英故居、三河坝战役纪念园、松口古镇和嘉元科技股份有限公司等，学习党的历史，聆听创业故事，开展“百千万工程”实践，赓续红色血脉，厚植家国情怀。
+数据显示，2025年中国成年国民综合阅读率为82.3%，较2024年的82.1%提升了0.2个百分点。
 
-在课程设置方面，此次培训班安排了广东“十五五”规划纲要解析、人工智能产业生态解读等内容，助力年轻一代拓宽视野，前瞻布局。
+此外，45.9%的成年国民表示倾向于“拿一本纸质图书阅读”。
 
-年轻一代企业家的培养是广东省委统战部重点关注的工作之一，相关工作已开展20余年，培养了20期3000余名“政治方向明、经营本领强、传承事业稳、社会形象好”的后备人才。
+在算法时代，人们被海量信息包围，也容易被碎片化的阅读方式困于信息茧房之中。
 
-此次培训班备受新生代民营企业家期待。
+面对此情此景，如何让阅读变得更加优质、深入？
 
-培训班班长、广东东联物业管理有限公司董事长王伟雄表示，希望通过此次培训，汲取精神力量、把准时代脉搏，“希望能在培训课程中，深学细悟、学以致用，进一步明晰企业发展路径、补齐自身短板，提升管理能力，服务地方经济发展。
+“读屏”，随时随地？
 
 ## 相关推荐
 
-- 2026-06-29 15:24 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 15:47 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 15:46 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 15:52 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 15:28 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 15:51 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 15:33 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 15:35 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 15:37 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 15:29 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 15:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 15:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 15:31 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 15:39 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 15:40 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 15:51 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 15:40 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 15:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 15:37 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 15:39 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 15:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 15:41 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 15:52 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 15:37 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:25 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/866821909307.shtml)
-- 2026-06-29 15:36 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/017411685.shtml)
-- 2026-06-29 15:41 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/183358549.shtml)
-- 2026-06-29 15:47 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/03444548.shtml)
-- 2026-06-29 15:34 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/879040.shtml)
-- 2026-06-29 15:25 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/9597212378.shtml)
-- 2026-06-29 15:34 - [王祖蓝现场观看美加墨世界杯](https://www.blog.minike.top/Article/details/8379572312.shtml)
-- 2026-06-29 15:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/7312942081.shtml)
-- 2026-06-29 15:49 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/1948379.shtml)
-- 2026-06-29 15:30 - [三星与SK集团或将投资2000万亿韩元](https://www.share.kurohicncr.top/Article/details/148701721.shtml)
-- 2026-06-29 15:32 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/97636.shtml)
-- 2026-06-29 15:51 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/166090480.shtml)
-- 2026-06-29 15:28 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/0891206689.shtml)
-- 2026-06-29 15:45 - [毒液2](http://www.share.kurohicncr.top/Article/details/9469797.shtml)
-- 2026-06-29 15:29 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/68283262.shtml)
+- 2026-06-29 15:32 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/50447884.shtml)
+- 2026-06-29 15:49 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/534731666.shtml)
+- 2026-06-29 15:54 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/13977.shtml)
+- 2026-06-29 15:40 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.kurohicncr.top/Article/details/42750712849.shtml)
+- 2026-06-29 15:33 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/850727234.shtml)
+- 2026-06-29 15:31 - [吴建豪老婆](https://www.blog.minike.top/Article/details/832538508973.shtml)
+- 2026-06-29 15:51 - [女心理师](http://www.blog.minike.top/Article/details/16963.shtml)
+- 2026-06-29 15:59 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/330673516536.shtml)
+- 2026-06-29 15:53 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/929352906029.shtml)
+- 2026-06-29 15:30 - [世界杯上那些封神的门将](https://www.blog.kurohicncr.top/Article/details/2014162922.shtml)
+- 2026-06-29 15:52 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/54614.shtml)
+- 2026-06-29 15:52 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/369641.shtml)
+- 2026-06-29 15:30 - [84岁英国教授成中国网红](http://www.blog.kurohicncr.top/Article/details/88412.shtml)
+- 2026-06-29 15:59 - [行程万里不忘初心](http://www.share.kurohicncr.top/Article/details/411452359928.shtml)
+- 2026-06-29 15:39 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.kurohicncr.top/Article/details/144730.shtml)

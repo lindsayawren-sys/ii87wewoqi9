@@ -1,56 +1,59 @@
-# 《表现力指数 • 2026商办暨资管卓越表现报告》：结构性修复
+# 情绪消费催生景区NPC扮演热潮 从业者呼吁划清互动界线完善用工规范
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-专题：2026观点商办暨资管大会 来源：观点指数 摘要：市场正从单边下行转向低位震荡、结构性修复阶段。 前言 今年是商办资产告别规模扩张、全面转向存量提质与价值创造的历史性拐点。 过去一年，新增供应集中释放与需求修复疲软相互叠加，重点城市写字楼空置率高位徘徊、租金持续承压，存量去化成为全行业的共识。在这样的底色之下，市场正从单边下行转向低位震荡与结构性修复阶段，区域与项目之间的
+□ 本报记者 赵 丽 □ 本报实习生 潘馨怡 浙江杭州西湖边，身着宋制长衫的“卖花郎”挑着花担款款走来，与游客对诗赠花；河南开封万岁山武侠城，身着破旧布衣的“丐帮弟子”蹲在路边搭话调侃，若游客接得住他的“江湖切口”(江湖人特有的隐语或暗语)，便能收获几张城内专属的“通用银票”……如今，越来越多真人NPC进驻景区，用一场场互动，为游客编织出沉浸式的文旅体验。 NPC，是英文Non
 
 ## 正文
 
-专题：2026观点商办暨资管大会 来源：观点指数 摘要：市场正从单边下行转向低位震荡、结构性修复阶段。
+□ 本报记者 赵 丽 □ 本报实习生 潘馨怡 浙江杭州西湖边，身着宋制长衫的“卖花郎”挑着花担款款走来，与游客对诗赠花；河南开封万岁山武侠城，身着破旧布衣的“丐帮弟子”蹲在路边搭话调侃，若游客接得住他的“江湖切口”(江湖人特有的隐语或暗语)，便能收获几张城内专属的“通用银票”……如今，越来越多真人NPC进驻景区，用一场场互动，为游客编织出沉浸式的文旅体验。
 
-前言 今年是商办资产告别规模扩张、全面转向存量提质与价值创造的历史性拐点。
+NPC，是英文Non-Player Character(非玩家角色)的缩写，最初诞生于电子游戏，指不受玩家操控、负责提供任务与信息的角色。
 
-过去一年，新增供应集中释放与需求修复疲软相互叠加，重点城市写字楼空置率高位徘徊、租金持续承压，存量去化成为全行业的共识。
+如今，这一概念走出游戏，扎根文旅场景——真人扮演特定角色与游客互动。
 
-在这样的底色之下，市场正从单边下行转向低位震荡与结构性修复阶段，区域与项目之间的分化持续加剧，核心城市优质资产展现出稀缺韧性与穿越周期的能力。
+近日，《法治日报》记者采访了几位景区NPC从业者。
 
-供给侧，商办用地投资持续低迷、新开工面积同比大幅下滑，行业已从增量扩张赛道切换至深度运营赛道。
+他们大多是“00后”，怀揣热爱走上岗位，在镜头前收获掌声与关注，却也面临着难以量化的服务标准、模糊的互动边界等困惑。
 
-需求侧，科技、金融与专业服务业保持韧性，AI、芯片、低空经济、新能源等新质生产力企业成为新增租赁主力，“地段优先”的选址逻辑正逐渐让位于“产业适配、空间灵活、绿色低碳”等高阶标准。
+这群年轻人，正在探寻着行业与自身的发展方向。
 
-运营层面，单纯“以价换量”并未挽回收入损失，行业增长逻辑正转向资产管理能力、产业导入能力与数字化运营能力的综合比拼，老旧楼宇改造与低效资产盘活成为重要增长点。
+情景互动中传播文化 湖北武汉园博园第七届汉口里花朝节现场，28岁的陈锦诚身着红裙金线的石榴花神服饰，发髻精致、仪态温婉，成为园区里一道亮眼的风景。
 
-与此同时，资本工具层面迎来里程碑式破局——商业不动产公募REITs正式开闸，写字楼、酒店、商业综合体纳入常态化申报，截至2026年4月已累计受理17单申报项目、计划募资总额超626亿元，商办资产长期以来依赖大宗交易的单一退出格局正被根本性打破。
+今年“五一”期间，他每天清晨6点多便抵达化妆间，历经2小时以上的妆造，换上厚重的服饰，开启一天4场的花车巡游，从清晨忙碌到傍晚，长时间站立与行走是工作常态。
 
 ## 相关推荐
 
-- 2026-06-29 15:26 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 15:52 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 15:44 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 15:31 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 15:41 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 15:47 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 15:26 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 15:42 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 15:31 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 15:35 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 15:44 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 15:50 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 15:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 15:49 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 15:54 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 15:40 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 15:50 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 15:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 15:32 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 15:48 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 15:49 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 15:45 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 15:43 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:48 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/344413.shtml)
-- 2026-06-29 15:30 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/529070866.shtml)
-- 2026-06-29 15:51 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/9962658.shtml)
-- 2026-06-29 15:33 - [起风了](http://www.blog.kurohicncr.top/Article/details/42768396974.shtml)
-- 2026-06-29 15:36 - [王祖蓝现场观看美加墨世界杯](https://www.share.kurohicncr.top/Article/details/96594693.shtml)
-- 2026-06-29 15:50 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/741364.shtml)
-- 2026-06-29 15:43 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/56918612114.shtml)
-- 2026-06-29 15:26 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/5369746.shtml)
-- 2026-06-29 15:39 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/357185.shtml)
-- 2026-06-29 15:53 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/1378039.shtml)
-- 2026-06-29 15:47 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/5751310.shtml)
-- 2026-06-29 15:27 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/08013930241.shtml)
-- 2026-06-29 15:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/701375337467.shtml)
-- 2026-06-29 15:34 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/5522884.shtml)
-- 2026-06-29 15:52 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/8201348.shtml)
+- 2026-06-29 15:58 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/94569.shtml)
+- 2026-06-29 15:33 - [光与夜之恋](http://www.blog.minike.top/Article/details/94468762.shtml)
+- 2026-06-29 15:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/94627520010.shtml)
+- 2026-06-29 15:56 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/01483463.shtml)
+- 2026-06-29 15:53 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/96236547.shtml)
+- 2026-06-29 15:52 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/8241202223.shtml)
+- 2026-06-29 15:42 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.kurohicncr.top/Article/details/44460413.shtml)
+- 2026-06-29 15:48 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/83136.shtml)
+- 2026-06-29 15:31 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/95573946647.shtml)
+- 2026-06-29 15:48 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/4108607.shtml)
+- 2026-06-29 15:56 - [袁隆平院士 不容诋毁！](http://www.blog.minike.top/Article/details/575310802415.shtml)
+- 2026-06-29 15:43 - [高市早苗口齿不清被质疑醉酒](http://www.blog.kurohicncr.top/Article/details/1270425644.shtml)
+- 2026-06-29 15:58 - [T1零封KC MSI](http://www.share.minike.top/Article/details/4857932.shtml)
+- 2026-06-29 15:35 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/3472064.shtml)
+- 2026-06-29 15:59 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.minike.top/Article/details/278443979.shtml)

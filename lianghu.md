@@ -1,61 +1,61 @@
-# 专访肯尼斯·奎因：“这次美中元首会晤是巨大机会”
+# 单季营收超23亿刚创历史新高 巨人网络二股东急抛17亿减持计划 谁来为此买单？
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新社华盛顿5月12日电 题：专访肯尼斯·奎因：“这次美中元首会晤是巨大机会” 中新社记者 陈孟统 “美中元首的这次北京会晤，为两国关系提供了巨大的机会，可以改变双边关系的发展轨迹，推动两国关系由竞争对抗转向合作伙伴关系。”世界粮食奖基金会荣誉主席、美国腹地中国协会战略顾问肯尼斯·奎因(Kenneth Quinn)11日接受中新社记者专访时表示。 应中国国家主席习近平邀请，美国
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月15日晚间，就在巨人网络刚刚交出一份堪称“史上最强”单季财报的半个月后，公司第二大股东、控股股东一致行动人上海腾澎投资合伙企业（有限合伙）抛出了一份令市场错愕的减持计划。公告显示，腾澎投资拟减持不超过5680.7万股，占公司总股本的2.99%，若以5月15日收盘价30.12元/股估算，套现规模超过17亿元。 这并非
 
 ## 正文
 
-中新社华盛顿5月12日电 题：专访肯尼斯·奎因：“这次美中元首会晤是巨大机会” 中新社记者 陈孟统 “美中元首的这次北京会晤，为两国关系提供了巨大的机会，可以改变双边关系的发展轨迹，推动两国关系由竞争对抗转向合作伙伴关系。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月15日晚间，就在巨人网络刚刚交出一份堪称“史上最强”单季财报的半个月后，公司第二大股东、控股股东一致行动人上海腾澎投资合伙企业（有限合伙）抛出了一份令市场错愕的减持计划。
 
-”世界粮食奖基金会荣誉主席、美国腹地中国协会战略顾问肯尼斯·奎因(Kenneth Quinn)11日接受中新社记者专访时表示。
+公告显示，腾澎投资拟减持不超过5680.7万股，占公司总股本的2.99%，若以5月15日收盘价30.12元/股估算，套现规模超过17亿元。
 
-应中国国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。
+这并非一笔寻常的套现。
 
-对于此次访问，奎因表示，无论是为了美中双边关系，还是为了维护世界和平，美中两国都必须找到合作发展关系的路径。
+减持理由直指“归还银行贷款”，而相关贷款与巨人网络的参股公司上海巨堃网络科技有限公司密切相关。
 
-美中关系是世界上最重要的双边关系，“我希望双方能够抓住这一机会，迈出决定性一步”。
+巨堃网络由巨人网络及其全资子公司合计持股49%，此前因收购Playtika母公司股权形成并购贷款，贷款即将到期。
 
-奎因曾任美国驻柬埔寨大使，拥有32年的外交工作经历。
+此次腾澎投资套现，本质上是为巨堃网络“输血”偿债。
 
-他指出，美方对于特朗普访华的最初讨论阶段，伊朗战事尚未爆发。
+巨人网络在公告中表示，这将“有利于巨人网络释放投资收益、增厚净利润”——换句话说是控股股东变卖二级市场股份，换取上市公司账面上的利润释放。
 
-他认为，在中东局势仍不明朗的当下，美中双方仍继续推进既定会晤，这说明美中关系依然稳定而积极。
+减持时机：为何选择业绩巅峰时刻？
 
 ## 相关推荐
 
-- 2026-06-29 15:45 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-29 15:48 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 15:35 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 15:30 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 15:26 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 15:39 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 15:50 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 15:51 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 15:25 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 15:50 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 15:25 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 15:27 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 15:35 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 15:43 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 15:52 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 15:33 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 15:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 15:42 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 15:52 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 15:47 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 15:39 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 15:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 15:59 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 15:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 15:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 15:57 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 15:48 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 15:48 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 15:38 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 15:56 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:29 - [世界杯看到肖战了](http://www.share.kurohicncr.top/Article/details/013350.shtml)
-- 2026-06-29 15:24 - [王祖蓝现场观看美加墨世界杯](https://www.blog.minike.top/Article/details/48814973.shtml)
-- 2026-06-29 15:35 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/745112569043.shtml)
-- 2026-06-29 15:41 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/31910040.shtml)
-- 2026-06-29 15:45 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/121965.shtml)
-- 2026-06-29 15:30 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/099040662.shtml)
-- 2026-06-29 15:38 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.kurohicncr.top/Article/details/766960978885.shtml)
-- 2026-06-29 15:50 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/05556416087.shtml)
-- 2026-06-29 15:24 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/93214.shtml)
-- 2026-06-29 15:27 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/811023606468.shtml)
-- 2026-06-29 15:46 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/02308539.shtml)
-- 2026-06-29 15:50 - [世界杯欧美八大豪强悉数出线](https://www.share.minike.top/Article/details/403792215.shtml)
-- 2026-06-29 15:34 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/288314.shtml)
-- 2026-06-29 15:53 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/513191772.shtml)
-- 2026-06-29 15:46 - [把古诗里的动作换成加班](http://www.blog.kurohicncr.top/Article/details/941584.shtml)
+- 2026-06-29 15:45 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/3233052417.shtml)
+- 2026-06-29 15:58 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/353947317026.shtml)
+- 2026-06-29 15:44 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/451379524.shtml)
+- 2026-06-29 15:34 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/040855.shtml)
+- 2026-06-29 15:39 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/2785009.shtml)
+- 2026-06-29 15:47 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/789229194836.shtml)
+- 2026-06-29 15:41 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.kurohicncr.top/Article/details/2402282.shtml)
+- 2026-06-29 15:32 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/1724879.shtml)
+- 2026-06-29 15:55 - [媒体：高考后消费应量力而行适度有度](https://www.blog.minike.top/Article/details/65150.shtml)
+- 2026-06-29 15:39 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/4639548469.shtml)
+- 2026-06-29 15:48 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/32345291638.shtml)
+- 2026-06-29 15:52 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/4524602873.shtml)
+- 2026-06-29 15:42 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/9491099182.shtml)
+- 2026-06-29 15:37 - [42岁郭碧婷纯素颜状态](http://www.blog.kurohicncr.top/Article/details/71412014685.shtml)
+- 2026-06-29 15:38 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/9730105500.shtml)

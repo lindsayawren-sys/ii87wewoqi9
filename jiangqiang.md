@@ -1,49 +1,57 @@
-# 大美边疆看我家丨辽宁东港：数万亩花生地线条感十足
+# 网速变慢竟与境外间谍窃密有关 路由器出现这些异常需警惕
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 14:58 来源：中国新闻网 辽宁省东港市的新农镇素有“花生之乡”的美誉。截至五月上旬，数万亩花生地的地膜覆盖及播种基本完毕。在航拍镜头下，仿佛一幅极具线条感的独特图画。(作者：孙成武） 责任编辑：【魏聪聪】
+原标题：网速变慢，元凶竟是它！ 近期，国家安全机关工作发现，境外间谍情报机关利用我国境内路由器充当“跳板”，以“钓鱼邮件”为掩护，定向针对我重点单位工作人员实施网络窃密活动。 精准投送的“钓鱼邮件” 经查，某境外间谍情报机关通过控制我国境内多台路由器，向我重点单位工作人员精准投送伪装为“XX评审工作的邀请函”“XX违章催缴通知”等形式的“钓鱼邮件”。一旦用户点击链接进入伪造登录
 
 ## 正文
 
-发布时间：2026年05月12日 14:58 来源：中国新闻网 辽宁省东港市的新农镇素有“花生之乡”的美誉。
+原标题：网速变慢，元凶竟是它！
 
-截至五月上旬，数万亩花生地的地膜覆盖及播种基本完毕。
+近期，国家安全机关工作发现，境外间谍情报机关利用我国境内路由器充当“跳板”，以“钓鱼邮件”为掩护，定向针对我重点单位工作人员实施网络窃密活动。
 
-在航拍镜头下，仿佛一幅极具线条感的独特图画。
+精准投送的“钓鱼邮件” 经查，某境外间谍情报机关通过控制我国境内多台路由器，向我重点单位工作人员精准投送伪装为“XX评审工作的邀请函”“XX违章催缴通知”等形式的“钓鱼邮件”。
 
-(作者：孙成武） 责任编辑：【魏聪聪】
+一旦用户点击链接进入伪造登录页并输入密码，系统就会以“密码错误”为由，诱导用户二次输入以套取准确凭证，随后跳转至正常页面“麻痹”用户。
+
+获取登录权限后，攻击者便会定时登录邮箱窃取敏感邮件。
+
+目前，国家安全机关已指导相关人员对其邮箱进行妥善处置，并对被用作网络攻击跳板的路由器开展技术检查，相关工作正在开展中。
+
+毫不知情的“窃密帮凶” 调查发现，相关路由器使用人并未发觉受控情况，仅感觉相较之前，出现了网速变慢、频繁掉线、自动重启等问题。
+
+事实上，被侵入的路由器通常具有以下特征： ——更新维护停止。
 
 ## 相关推荐
 
-- 2026-06-29 15:25 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 15:44 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 15:38 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 15:51 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 15:32 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 15:29 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 15:41 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 15:42 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 15:50 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 15:34 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 15:31 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 15:45 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 15:58 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 15:54 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 15:38 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 15:46 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 15:51 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 15:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 15:50 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 15:46 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 15:40 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 15:36 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/03114803.shtml)
-- 2026-06-29 15:52 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/9652358.shtml)
-- 2026-06-29 15:48 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/8940958296.shtml)
-- 2026-06-29 15:29 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/872829.shtml)
-- 2026-06-29 15:40 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/62081.shtml)
-- 2026-06-29 15:40 - [张一山回应与杨紫友情](https://www.blog.kurohicncr.top/Article/details/326250.shtml)
-- 2026-06-29 15:35 - [博主：美航母沦为毒品集散窝点](http://www.share.kurohicncr.top/Article/details/96889786512.shtml)
-- 2026-06-29 15:47 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/66931.shtml)
-- 2026-06-29 15:30 - [央视起底直播诈骗连环套](https://www.share.kurohicncr.top/Article/details/36566463127.shtml)
-- 2026-06-29 15:53 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/88203.shtml)
-- 2026-06-29 15:36 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/8057601.shtml)
-- 2026-06-29 15:33 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/0477882.shtml)
-- 2026-06-29 15:37 - [中方回应对日本相关出口管制措施](https://www.blog.kurohicncr.top/Article/details/16067.shtml)
-- 2026-06-29 15:31 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/407712.shtml)
-- 2026-06-29 15:44 - [志愿选择倒计时！浙大学生送祝福](https://www.share.kurohicncr.top/Article/details/45051630.shtml)
+- 2026-06-29 15:42 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/959540.shtml)
+- 2026-06-29 15:47 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.minike.top/Article/details/77052308868.shtml)
+- 2026-06-29 15:54 - [把古诗里的动作换成加班](http://www.blog.kurohicncr.top/Article/details/1220867305.shtml)
+- 2026-06-29 15:48 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/425107.shtml)
+- 2026-06-29 15:58 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/802525.shtml)
+- 2026-06-29 15:59 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/15944105.shtml)
+- 2026-06-29 15:45 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/38865.shtml)
+- 2026-06-29 15:40 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/07481696.shtml)
+- 2026-06-29 15:44 - [BB大王横店拍戏](http://www.blog.kurohicncr.top/Article/details/95904.shtml)
+- 2026-06-29 15:46 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/93809788005.shtml)
+- 2026-06-29 15:55 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/10315709.shtml)
+- 2026-06-29 15:45 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/911128289.shtml)
+- 2026-06-29 15:51 - [千与千寻](http://www.share.kurohicncr.top/Article/details/325624954.shtml)
+- 2026-06-29 15:56 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/86896713337.shtml)
+- 2026-06-29 15:35 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/07616907.shtml)

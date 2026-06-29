@@ -1,58 +1,53 @@
-# 兰州“多巴胺”公交文创焕新 激活丝路文旅活力
+# IEA：2026年电动车份额将接近30%
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中国多地加速布局商业航天产业海外热议“Country Walk”：走向更具质感和温度的中国他信出狱，女儿佩通坦拥抱迎接 泰国政坛进入“洗牌”时刻？“洪迪厄斯”号邮轮“零号病人”是谁？专家：减肥不建议一个月减超过10斤 推荐“211”饮食法“好意同乘”出事故引发赔偿纠纷 责任该如何划分？劣质充电宝和3C认证产品差在哪儿？社会救助法7月起施行 将保障哪些群体？一文了解国际舆论关注特
+国际能源署预测，2026年全球电动汽车销量将达到约2300万辆，市场份额接近30%。中国制造商将占据主导地位，成本持续下降将进一步支撑市场需求。这一趋势将利好特斯拉等电动汽车行业领军企业。责任编辑：张俊 SF065
 
 ## 正文
 
-中国多地加速布局商业航天产业海外热议“Country Walk”：走向更具质感和温度的中国他信出狱，女儿佩通坦拥抱迎接 泰国政坛进入“洗牌”时刻？
+国际能源署预测，2026年全球电动汽车销量将达到约2300万辆，市场份额接近30%。
 
-“洪迪厄斯”号邮轮“零号病人”是谁？
+中国制造商将占据主导地位，成本持续下降将进一步支撑市场需求。
 
-专家：减肥不建议一个月减超过10斤 推荐“211”饮食法“好意同乘”出事故引发赔偿纠纷 责任该如何划分？
+这一趋势将利好特斯拉等电动汽车行业领军企业。
 
-劣质充电宝和3C认证产品差在哪儿？
-
-社会救助法7月起施行 将保障哪些群体？
-
-一文了解国际舆论关注特朗普访华：世界聚焦中美关键时刻为190元榴莲“仅退款”千里讨公道背后烧烤店主停业捐髓救陌生患儿 各地网友前往“撸串捧场”“压力越大越胖”怎么破？
-
-专家开出“三层减重法”A股三大股指高开，沪指突破4200点，半导体等板块走强“开盒”网暴等犯罪被惩治 谁在贩卖你的个人信息？
-
-国乒“新答卷”：立于高处，从无安逸可言酒店“逢假就涨” 多重约束缘何管不住“任性定价”？
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 15:34 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 15:46 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 15:40 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 15:38 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 15:46 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 15:38 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 15:32 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 15:35 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 15:34 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 15:24 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 15:25 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 15:28 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 15:50 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 15:42 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 15:47 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 15:59 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 15:35 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 15:51 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 15:51 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 15:31 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 15:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 15:42 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 15:49 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 15:56 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 15:55 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 15:32 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 15:33 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:34 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/8177100436.shtml)
-- 2026-06-29 15:39 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/63158416.shtml)
-- 2026-06-29 15:29 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/66721995246.shtml)
-- 2026-06-29 15:31 - [TI2026参赛战队出炉](https://www.blog.kurohicncr.top/Article/details/827494.shtml)
-- 2026-06-29 15:33 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/854096451.shtml)
-- 2026-06-29 15:36 - [美议员呼吁断供以色列政府](https://www.share.minike.top/Article/details/58718180.shtml)
-- 2026-06-29 15:45 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/21708.shtml)
-- 2026-06-29 15:31 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/2411644.shtml)
-- 2026-06-29 15:53 - [王楚钦3-0周启豪 晋级32强](https://www.blog.kurohicncr.top/Article/details/76602.shtml)
-- 2026-06-29 15:34 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/530298588.shtml)
-- 2026-06-29 15:25 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/333571811.shtml)
-- 2026-06-29 15:49 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/3936484.shtml)
-- 2026-06-29 15:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/1775948.shtml)
-- 2026-06-29 15:37 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/700330710567.shtml)
-- 2026-06-29 15:42 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/498046589673.shtml)
+- 2026-06-29 15:33 - [周深双眼皮贴又掉了](http://www.blog.kurohicncr.top/Article/details/22044478.shtml)
+- 2026-06-29 15:46 - [媒体：高考后消费应量力而行适度有度](https://www.share.kurohicncr.top/Article/details/63386.shtml)
+- 2026-06-29 15:32 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/60477.shtml)
+- 2026-06-29 15:30 - [送你一朵小红花](https://www.blog.minike.top/Article/details/6898466206.shtml)
+- 2026-06-29 15:30 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.kurohicncr.top/Article/details/0518839.shtml)
+- 2026-06-29 15:42 - [端午节加班工资应该怎么算](http://www.share.minike.top/Article/details/291507757.shtml)
+- 2026-06-29 15:59 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/64745420777.shtml)
+- 2026-06-29 15:33 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/02954354228.shtml)
+- 2026-06-29 15:35 - [3D打印不是工业革命，它是……](https://www.blog.minike.top/Article/details/99005568.shtml)
+- 2026-06-29 15:48 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/202202.shtml)
+- 2026-06-29 15:36 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/893416128.shtml)
+- 2026-06-29 15:59 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/0626943987.shtml)
+- 2026-06-29 15:44 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/1325134394.shtml)
+- 2026-06-29 15:51 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/257891842906.shtml)
+- 2026-06-29 15:54 - [爸爸当家](http://www.share.minike.top/Article/details/475302318.shtml)

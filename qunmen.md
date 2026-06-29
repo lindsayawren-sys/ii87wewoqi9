@@ -1,56 +1,52 @@
-# 刘国中在看望慰问一线护理工作者时强调 切实提升护理服务水平 用心用情守护人民健康
+# 安保工程控股以16.27亿港元中标香港住宅用地
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-新华社北京5月11日电 2026年“5·12”国际护士节前夕，中共中央政治局委员、国务院副总理刘国中到北京急救中心看望慰问临床一线护士，向全国600多万护理工作者致以节日问候，他勉励大家认真学习领会习近平总书记重要讲话精神，牢记初心使命，珍惜职业荣誉，切实提升护理服务水平，锤炼过硬作风，用心用情守护人民健康，为加快健康中国建设作出更大贡献。 刘国中与中心医护人员深入交流，详细了
+安保工程控股（01627）公布，于2026年5月19日，公司全资附属公司极好有限公司接获政府地政总署签发的函件，确认其就该土地（位于香港新界东涌第106A区的东涌市地段第54号）的投标已获接纳，地价为16.27亿港元。 据悉，该土地地盘面积14，152平方米，最高楼面面积49，532平方米，租期自协议备忘录日期起计50年，为私人住宅用途。 该土地将发展为私人住宅单位，而公司对此
 
 ## 正文
 
-新华社北京5月11日电 2026年“5·12”国际护士节前夕，中共中央政治局委员、国务院副总理刘国中到北京急救中心看望慰问临床一线护士，向全国600多万护理工作者致以节日问候，他勉励大家认真学习领会习近平总书记重要讲话精神，牢记初心使命，珍惜职业荣誉，切实提升护理服务水平，锤炼过硬作风，用心用情守护人民健康，为加快健康中国建设作出更大贡献。
+安保工程控股（01627）公布，于2026年5月19日，公司全资附属公司极好有限公司接获政府地政总署签发的函件，确认其就该土地（位于香港新界东涌第106A区的东涌市地段第54号）的投标已获接纳，地价为16.27亿港元。
 
-刘国中与中心医护人员深入交流，详细了解护士队伍建设、护理服务、院前急救和120调度运行等情况。
+据悉，该土地地盘面积14，152平方米，最高楼面面积49，532平方米，租期自协议备忘录日期起计50年，为私人住宅用途。
 
-他表示，护理工作是卫生健康事业的重要组成部分，“十四五”期间我国护理服务体系不断健全，队伍规模持续扩大，专业能力稳步提升，为有效防控疫情、保障人民身体健康作出了重要贡献。
+该土地将发展为私人住宅单位，而公司对此投资的长期前景持乐观态度。
 
-刘国中强调，“十五五”是健康中国建设的关键时期，对护理工作高质量发展提出了新的要求。
+收购事项使公司得以将业务分部多元化并拓展至发展房地产业务，从而扩大集团的长远收益来源，同时结合公司的核心建筑能力，创造业务协同效应。
 
-要适应人民群众日益增长的多元化健康需求，加强护士队伍建设，强化临床实践与专业技能培训，创新护理服务方式，实施康复护理扩容提升工程，努力为群众提供更加优质高效的护理服务。
-
-各地各部门要切实关心关爱护士队伍，保障护士权益，完善激励机制，宣传先进典型，营造全社会尊重护士职业、支持护理工作的良好氛围。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:31 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 15:43 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 15:28 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 15:35 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 15:45 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 15:43 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 15:35 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 15:47 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 15:44 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 15:49 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 15:45 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 15:36 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 15:49 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 15:50 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 15:49 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 15:43 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 15:45 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 15:53 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 15:35 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 15:44 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 15:44 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 15:44 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 15:36 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 15:49 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 15:37 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 15:57 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:39 - [急先锋](https://www.blog.minike.top/Article/details/494054.shtml)
-- 2026-06-29 15:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/4573129760.shtml)
-- 2026-06-29 15:48 - [王祖蓝现场观看美加墨世界杯](https://www.share.kurohicncr.top/Article/details/157143.shtml)
-- 2026-06-29 15:48 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/828504.shtml)
-- 2026-06-29 15:52 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/417844290420.shtml)
-- 2026-06-29 15:48 - [央视起底直播诈骗连环套](http://www.blog.kurohicncr.top/Article/details/743299.shtml)
-- 2026-06-29 15:36 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/60048714169.shtml)
-- 2026-06-29 15:35 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/80550329739.shtml)
-- 2026-06-29 15:43 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/276241.shtml)
-- 2026-06-29 15:50 - [端午节加班工资应该怎么算](https://www.share.kurohicncr.top/Article/details/278632056885.shtml)
-- 2026-06-29 15:27 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/320046830.shtml)
-- 2026-06-29 15:45 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/02508794.shtml)
-- 2026-06-29 15:46 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/627291349.shtml)
-- 2026-06-29 15:39 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/0918172.shtml)
-- 2026-06-29 15:53 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/69772133025.shtml)
+- 2026-06-29 15:42 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/93612944.shtml)
+- 2026-06-29 15:35 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/856246367.shtml)
+- 2026-06-29 15:56 - [血糖高的人能吃西瓜吗](http://www.share.minike.top/Article/details/25093.shtml)
+- 2026-06-29 15:35 - [流金岁月](http://www.blog.minike.top/Article/details/57821.shtml)
+- 2026-06-29 15:48 - [曝歌手第七期帮唱阵容](https://www.share.kurohicncr.top/Article/details/1113397378.shtml)
+- 2026-06-29 15:51 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/42959451697.shtml)
+- 2026-06-29 15:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/38291278729.shtml)
+- 2026-06-29 15:32 - [爱很美味](https://www.blog.minike.top/Article/details/796051765150.shtml)
+- 2026-06-29 15:42 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/3464907.shtml)
+- 2026-06-29 15:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/88140957502.shtml)
+- 2026-06-29 15:31 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/224971.shtml)
+- 2026-06-29 15:56 - [央视曝光涉黄App诈骗陷阱](https://www.blog.kurohicncr.top/Article/details/39261.shtml)
+- 2026-06-29 15:53 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/67739701044.shtml)
+- 2026-06-29 15:53 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/37159.shtml)
+- 2026-06-29 15:39 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/5414950787.shtml)

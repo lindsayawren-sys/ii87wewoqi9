@@ -1,59 +1,60 @@
-# 重庆巫山通报：对涉嫌延误诊治医护人员立案调查
+# 广合科技午前涨超5% 公司在手订单充裕算力场景需求增长强劲
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新网5月12日电 据“巫山发布”微信公众号消息，重庆巫山县联合工作组11日发布情况通报称，近日，网传“巫山县一老人喝农药后医护人员未检查即认为老人已死亡”。对此，巫山县高度重视，立即成立由卫生健康、公安等部门组成联合工作组，通过调看视频监控、查阅住院记录、询问相关人员等开展调查核查工作。现将有关情况通报如下： 经核查，5月1日15时46分许，昌泰中医院接到电话，称大昌镇长胜村
+广合科技（01989）盘中涨超6%，截至发稿，股价上涨5.16%，现报177.30港元，成交额1.53亿港元。 近日，广合科技发布投资者关系活动记录表公告指出，公司有启动针对光模块PCB产品的预研。九派基金已经启动对外投资，目前已经投出三个项目，主要围绕AI产业软硬件进行投资。PCIE7.0平台相关应用技术尚处预研阶段，预计三季度后PCIE6.0将正式进入量产。公司目前在手订单
 
 ## 正文
 
-中新网5月12日电 据“巫山发布”微信公众号消息，重庆巫山县联合工作组11日发布情况通报称，近日，网传“巫山县一老人喝农药后医护人员未检查即认为老人已死亡”。
+广合科技（01989）盘中涨超6%，截至发稿，股价上涨5.16%，现报177.30港元，成交额1.53亿港元。
 
-对此，巫山县高度重视，立即成立由卫生健康、公安等部门组成联合工作组，通过调看视频监控、查阅住院记录、询问相关人员等开展调查核查工作。
+近日，广合科技发布投资者关系活动记录表公告指出，公司有启动针对光模块PCB产品的预研。
 
-现将有关情况通报如下： 经核查，5月1日15时46分许，昌泰中医院接到电话，称大昌镇长胜村2组邹某某服用农药中毒。
+九派基金已经启动对外投资，目前已经投出三个项目，主要围绕AI产业软硬件进行投资。
 
-16时13分，昌泰中医院派出救护车及2名随车医护人员赶到现场，邹某某家属及邻居告知医护人员，邹某某已服农药4小时左右，服药量不详。
+PCIE7.0平台相关应用技术尚处预研阶段，预计三季度后PCIE6.0将正式进入量产。
 
-2名医护人员向患者家属询问了患者有关情况后，提出其救护能力有限，遂自行离开。
+公司目前在手订单充裕，算力场景需求增长强劲。
 
-18点22分，120救护车将患者送县人民医院急诊科抢救治疗。
+华安证券则表示，AI业务成为公司核心增长引擎，产品结构持续高端化。
 
-在5月1日-5日救治期间，院方反复多次与患者家属沟通并详细告知病情，建议尽快进行血液净化治疗，患者家属商议后均明确拒绝血液净化治疗。
+在通用服务器领域，公司已完成PCIE6.0平台的转批量能力。
 
-5月5日20时许，患者家属要求放弃治疗，并与县人民医院签订《知情同意书》后自行出院。
+在AI服务器领域，公司已完成PCIe交换板（30L+）、UBB/IO板（28L-46L）、OAM板（18L+，2阶-8阶HDI）、GPU主板（24L6阶HDI）、中置背板（N+M/N+N技术）等一系列高端产品的工艺能力认证。
 
 ## 相关推荐
 
-- 2026-06-29 15:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 15:35 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 15:31 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 15:45 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 15:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 15:51 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 15:43 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 15:44 - [韩国国脚无缘上亿韩元奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 15:27 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 15:45 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 15:35 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 15:43 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 15:30 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 15:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 15:57 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 15:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 15:50 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 15:56 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 15:46 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 15:58 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 15:35 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 15:55 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 15:46 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 15:49 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 15:38 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 15:55 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 15:42 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:52 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/88957406645.shtml)
-- 2026-06-29 15:27 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/53652937175.shtml)
-- 2026-06-29 15:28 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/0954082230.shtml)
-- 2026-06-29 15:51 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/1211893186.shtml)
-- 2026-06-29 15:51 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/000779643.shtml)
-- 2026-06-29 15:25 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/089055964021.shtml)
-- 2026-06-29 15:47 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/45262126.shtml)
-- 2026-06-29 15:30 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.minike.top/Article/details/633216963.shtml)
-- 2026-06-29 15:49 - [四川宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/0655117.shtml)
-- 2026-06-29 15:35 - [媒体：高考后消费应量力而行适度有度](https://www.blog.minike.top/Article/details/4812823.shtml)
-- 2026-06-29 15:38 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/04644400338.shtml)
-- 2026-06-29 15:31 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/4359701408.shtml)
-- 2026-06-29 15:48 - [T1 KC](http://www.blog.kurohicncr.top/Article/details/36326.shtml)
-- 2026-06-29 15:42 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/94933543.shtml)
-- 2026-06-29 15:38 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/4230424.shtml)
+- 2026-06-29 15:52 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/0511076656.shtml)
+- 2026-06-29 15:53 - [媒体人：警惕日本再次成战争加害国](https://www.blog.minike.top/Article/details/702691071.shtml)
+- 2026-06-29 15:58 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/326198877.shtml)
+- 2026-06-29 15:34 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/08886937.shtml)
+- 2026-06-29 15:42 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/447857.shtml)
+- 2026-06-29 15:34 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.kurohicncr.top/Article/details/464185760916.shtml)
+- 2026-06-29 15:51 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/56952750.shtml)
+- 2026-06-29 15:52 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/16750149244.shtml)
+- 2026-06-29 15:34 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/8850427875.shtml)
+- 2026-06-29 15:57 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/65725.shtml)
+- 2026-06-29 15:40 - [欧盟为什么越来越倾向贸易保护](http://www.blog.minike.top/Article/details/040353156.shtml)
+- 2026-06-29 15:31 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/3485132.shtml)
+- 2026-06-29 15:35 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/943839985992.shtml)
+- 2026-06-29 15:46 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/73887.shtml)
+- 2026-06-29 15:59 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/71776341443.shtml)

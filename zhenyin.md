@@ -1,60 +1,59 @@
-# 南宁邮局海关2026年5月份“关领导接待日”公告
+# 广西柳州再发生3.6级地震
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-为了解社会各界的建议和意见，并切实解决实际问题和困难，现就南宁邮局海关2026年5月份“关领导接待日”有关事项预告如下： 一、接待时间：2026年5月22日(工作时间，上午9:00-12:00；下午14:00-17:00)。 二、当值关领导：南宁邮局海关党委委员、副关长余泳。 三、接待地点：高新金海大厦2217室。四、有关要求： (一)为做好接待工作，请来访者提前预约，预约的主
+中新网柳州5月20日电(林馨)据中国地震台网正式测定，北京时间2026年5月20日8时13分在广西柳州市柳南区(北纬24.41度，东经109.26度)发生3.6级地震，震源深度8公里。 此次震中位于柳南区洛满镇，距离柳南区城区14公里，柳州市城区18公里。地震灾害情况正在进一步了解当中。 5月17日至19日，柳州市柳南区接连发生多起地震。在18日同一天内，更是先后发生两次5.2
 
 ## 正文
 
-为了解社会各界的建议和意见，并切实解决实际问题和困难，现就南宁邮局海关2026年5月份“关领导接待日”有关事项预告如下： 一、接待时间：2026年5月22日(工作时间，上午9:00-12:00；下午14:00-17:00)。
+中新网柳州5月20日电(林馨)据中国地震台网正式测定，北京时间2026年5月20日8时13分在广西柳州市柳南区(北纬24.41度，东经109.26度)发生3.6级地震，震源深度8公里。
 
-二、当值关领导：南宁邮局海关党委委员、副关长余泳。
+此次震中位于柳南区洛满镇，距离柳南区城区14公里，柳州市城区18公里。
 
-三、接待地点：高新金海大厦2217室。
+地震灾害情况正在进一步了解当中。
 
-四、有关要求： (一)为做好接待工作，请来访者提前预约，预约的主要内容包括： 1.来访者的姓名、人数、单位、联系电话或其他联系方式、身份证号码； 2.来访目的、如反映问题、咨询业务、提供工作建议等； 3.其他需要预约的事项。
+5月17日至19日，柳州市柳南区接连发生多起地震。
 
-(二)来访者可通过拨打电话(0771-4898193)告知相关预约信息，也可以填写预约表(详见附件)发至传真(0771-4898193)或邮箱(nnyjhg@customs.gov.cn)进行预约。
+在18日同一天内，更是先后发生两次5.2级地震。
 
-(注：若您选择电子邮箱发送，务必请您在发送邮件后拨打电话与我们确认您的邮件是否发送成功。
+据柳州市抗震救灾指挥部5月19日晚通报，已设置临时安置点7个，集中安置群众4100余人，累计调拨帐篷1428顶、毛巾被7200床、垫被7000张、折叠床7500张、手电筒600个、发电机12台。
 
-)预约截止时间：2026年5月19日下午17点前。
+目前安置点物资准备充分，社会秩序平稳安定。
 
-特此公告。
+截至5月19日17时，已收到爱心企业、爱心人士善款272余万元，捐赠物资折合367余万元。
 
 ## 相关推荐
 
-- 2026-06-29 15:50 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 15:35 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 15:47 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 15:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 15:32 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 15:53 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 15:37 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 15:29 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 15:35 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 15:35 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 15:34 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 15:30 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 15:41 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 15:52 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 15:45 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 15:57 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 15:39 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 15:38 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 15:31 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 15:54 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 15:36 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 15:42 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 15:59 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 15:50 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 15:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 15:47 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 15:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/565597.shtml)
-- 2026-06-29 15:50 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/2140415574.shtml)
-- 2026-06-29 15:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/74975.shtml)
-- 2026-06-29 15:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/5179905.shtml)
-- 2026-06-29 15:44 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/58172853.shtml)
-- 2026-06-29 15:46 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/043672067249.shtml)
-- 2026-06-29 15:29 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/4717480622.shtml)
-- 2026-06-29 15:52 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/49621.shtml)
-- 2026-06-29 15:33 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/27658613178.shtml)
-- 2026-06-29 15:46 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/7336481909.shtml)
-- 2026-06-29 15:42 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/653412881769.shtml)
-- 2026-06-29 15:44 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/93611275733.shtml)
-- 2026-06-29 15:52 - [媒体：网络测评不能只剩“生意”](http://www.blog.minike.top/Article/details/728668905.shtml)
-- 2026-06-29 15:51 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.kurohicncr.top/Article/details/55824759.shtml)
-- 2026-06-29 15:24 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/5318861186.shtml)
+- 2026-06-29 15:56 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.kurohicncr.top/Article/details/5699195078.shtml)
+- 2026-06-29 15:53 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/9548285907.shtml)
+- 2026-06-29 15:34 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/295288.shtml)
+- 2026-06-29 15:52 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/914023296044.shtml)
+- 2026-06-29 15:44 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/8959406025.shtml)
+- 2026-06-29 15:41 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/121100832694.shtml)
+- 2026-06-29 15:50 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/2607392.shtml)
+- 2026-06-29 15:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/78544.shtml)
+- 2026-06-29 15:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/662751.shtml)
+- 2026-06-29 15:31 - [中餐厅南北饮食差异](https://www.blog.minike.top/Article/details/142029358488.shtml)
+- 2026-06-29 15:47 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/2457220.shtml)
+- 2026-06-29 15:51 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/790352.shtml)
+- 2026-06-29 15:48 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/36437931405.shtml)
+- 2026-06-29 15:50 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/7916501.shtml)
+- 2026-06-29 15:53 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/934424604.shtml)

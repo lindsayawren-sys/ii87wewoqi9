@@ -1,60 +1,61 @@
-# SoFi拟收购PrimaryBid多数资产，股价应声上涨
+# 普京“旋风式”访华 中俄取得多项重磅成果
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-SoFi Technologies周一宣布，已同意收购英国金融科技公司PrimaryBid的多数资产。受此消息提振，该股当日上涨约1.7%。 据天空新闻报道，PrimaryBid在致投资者的信中披露了这一交易。PrimaryBid表示，尽管公司财务状况依然健康且拥有多年的现金储备，但鉴于当前英国国内市场状况，此举被视为对股东而言的最佳结果。交易完成后，PrimaryBid将停止
+中新社北京5月20日电 题：普京“旋风式”访华 中俄取得多项重磅成果 中新社记者 李京泽 5月19日至20日，俄罗斯总统普京展开“旋风式”中国行。这是普京第25次访华，中俄元首密集互动，取得丰硕成果。 《中俄睦邻友好合作条约》继续延期 元首引领始终是中俄关系高水平发展的最大优势和根本保障。十多年来，中国国家主席习近平和普京以多种方式保持密切沟通，两人在不同场合会面超40次。有评
 
 ## 正文
 
-SoFi Technologies周一宣布，已同意收购英国金融科技公司PrimaryBid的多数资产。
+中新社北京5月20日电 题：普京“旋风式”访华 中俄取得多项重磅成果 中新社记者 李京泽 5月19日至20日，俄罗斯总统普京展开“旋风式”中国行。
 
-受此消息提振，该股当日上涨约1.7%。
+这是普京第25次访华，中俄元首密集互动，取得丰硕成果。
 
-据天空新闻报道，PrimaryBid在致投资者的信中披露了这一交易。
+《中俄睦邻友好合作条约》继续延期 元首引领始终是中俄关系高水平发展的最大优势和根本保障。
 
-PrimaryBid表示，尽管公司财务状况依然健康且拥有多年的现金储备，但鉴于当前英国国内市场状况，此举被视为对股东而言的最佳结果。
+十多年来，中国国家主席习近平和普京以多种方式保持密切沟通，两人在不同场合会面超40次。
 
-交易完成后，PrimaryBid将停止独立运营，并向其投资者进行部分资本返还。
+有评论认为，这充分展现了两国关系的高水平和特殊性。
 
-PrimaryBid的核心业务是让散户投资者能够参与上市公司的公开发行和IPO。
+今年正值中俄战略协作伙伴关系建立30周年、《中俄睦邻友好合作条约》签署25周年。
 
-此次收购并非双方首次合作，早在2024年，SoFi就曾与PrimaryBid合作推出定向股票平台，为企业提供向员工、客户及散户投资者预留IPO股份的数字化服务。
+习近平指出，中俄关系进入更有作为、更快发展的新阶段。
 
-SoFi首席执行官Anthony Noto当时将该合作称为“扩大投资者准入的自然演变”。
+普京则表示，俄方愿同中方一道，“推动两国关系迈上更高水平”。
 
 ## 相关推荐
 
-- 2026-06-29 15:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 15:27 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 15:29 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 15:49 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 15:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 15:36 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 15:48 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 15:31 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 15:52 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 15:53 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-29 15:49 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 15:39 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 15:43 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 15:32 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 15:32 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 15:40 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 15:49 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 15:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 15:42 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 15:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 15:34 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 15:45 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 15:59 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 15:43 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 15:43 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 15:57 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 15:58 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 15:54 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 15:47 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:24 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/009828078.shtml)
-- 2026-06-29 15:44 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/39286527.shtml)
-- 2026-06-29 15:33 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/78354541264.shtml)
-- 2026-06-29 15:39 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/150604.shtml)
-- 2026-06-29 15:50 - [恋与深空 731](https://www.blog.kurohicncr.top/Article/details/049394.shtml)
-- 2026-06-29 15:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/0783830.shtml)
-- 2026-06-29 15:32 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/62318.shtml)
-- 2026-06-29 15:47 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/985546522.shtml)
-- 2026-06-29 15:44 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/340187.shtml)
-- 2026-06-29 15:50 - [新一代影后杨紫](http://www.share.kurohicncr.top/Article/details/4037994.shtml)
-- 2026-06-29 15:43 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/3392558064.shtml)
-- 2026-06-29 15:50 - [周生如故](https://www.blog.kurohicncr.top/Article/details/3277258492.shtml)
-- 2026-06-29 15:37 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/295541.shtml)
-- 2026-06-29 15:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/8211106320.shtml)
-- 2026-06-29 15:40 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/04276.shtml)
+- 2026-06-29 15:46 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/918077.shtml)
+- 2026-06-29 15:52 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/42896960.shtml)
+- 2026-06-29 15:39 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/48729.shtml)
+- 2026-06-29 15:38 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/1478716.shtml)
+- 2026-06-29 15:41 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/19174963.shtml)
+- 2026-06-29 15:44 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/539029.shtml)
+- 2026-06-29 15:32 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/403324253.shtml)
+- 2026-06-29 15:50 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/103079.shtml)
+- 2026-06-29 15:51 - [驻日美军航母沦为“毒窝”](https://www.blog.kurohicncr.top/Article/details/36575.shtml)
+- 2026-06-29 15:37 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/2329413.shtml)
+- 2026-06-29 15:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/1377006124.shtml)
+- 2026-06-29 15:52 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/308850837.shtml)
+- 2026-06-29 15:37 - [四川宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/2839167208.shtml)
+- 2026-06-29 15:56 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/03621718.shtml)
+- 2026-06-29 15:52 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/5657872.shtml)

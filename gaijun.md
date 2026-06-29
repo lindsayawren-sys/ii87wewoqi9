@@ -1,54 +1,56 @@
-# 贵阳银行：有条件时可以进行中期利润分配
+# YieldMax S&P 500 0DTE备兑看涨ETF宣布每周派息0.2095美元
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-5月12日金融一线消息，贵阳银行发布该行参加2026年贵州辖区上市公司投资者集体接待日活动暨2025年度业绩说明会的记录。在互动交流环节，该行回应分红相关问题表示，本行始终高度重视投资者回报，上市以来累计现金分红 86.84 亿元。2025年度现金分红较上年度增加 3656.20 万元。本行牢固树立回报投资者意识，制定新三年股东回报规划，未来将按照监管要求和导向，根据公司实际经
+YieldMax S&P 500 0DTE备兑看涨ETF于5月19日宣布，将向股东派发每股0.2095美元的每周股息。该股息将于5月21日发放，股权登记日为5月20日，同日为除息交易日。 独特的0DTE策略 SDTY是一只主动管理型ETF，旨在通过卖出标普500指数价外虚值、当日到期的看涨期权来捕捉期权溢价，以每周为单位分配收益。“0DTE”代表“零天到期”，意味着该基金管理的
 
 ## 正文
 
-5月12日金融一线消息，贵阳银行发布该行参加2026年贵州辖区上市公司投资者集体接待日活动暨2025年度业绩说明会的记录。
+YieldMax S&P 500 0DTE备兑看涨ETF于5月19日宣布，将向股东派发每股0.2095美元的每周股息。
 
-在互动交流环节，该行回应分红相关问题表示，本行始终高度重视投资者回报，上市以来累计现金分红 86.84 亿元。
+该股息将于5月21日发放，股权登记日为5月20日，同日为除息交易日。
 
-2025年度现金分红较上年度增加 3656.20 万元。
+独特的0DTE策略 SDTY是一只主动管理型ETF，旨在通过卖出标普500指数价外虚值、当日到期的看涨期权来捕捉期权溢价，以每周为单位分配收益。
 
-本行牢固树立回报投资者意识，制定新三年股东回报规划，未来将按照监管要求和导向，根据公司实际经营情况，平衡业务稳健发展与投资者长期回报，保持持续、稳定、合理的现金分红，及时与投资者分享经营成果，增强投资者获得感。
+“0DTE”代表“零天到期”，意味着该基金管理的期权合约在交易当日即到期，这种高频策略旨在从日内波动中反复获取权利金收入。
 
-关于中期分红，该行表示，本行牢固树立回报投资者意识，已制定新三年股东回报规划，未来将按照监管要求和导向，平衡业务稳健发展与投资者长期回报，在符合利润分配原则、保证公司正常经营和持续发展的前提下，有条件时可以进行中期利润分配，及时与投资者分享经营成果。
+该策略在提供标普500指数价格回报的同时，也限制了指数的上行参与空间。
 
-责任编辑：李琳琳
+高派息率吸引收入型投资者 此次每周派息0.2095美元，按年化计算的派息率约为25.72%。
+
+该基金自2025年2月5日成立以来，截至2026年4月30日，市场价格累计回报约14.55%，资产规模约为2241万美元。
+
+值得一提的是，此次派息构成中100%来自资本返还，体现了备兑看涨期权策略的典型收益特征。
 
 ## 相关推荐
 
-- 2026-06-29 15:33 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 15:30 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 15:27 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 15:42 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 15:25 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 15:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 15:25 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 15:40 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 15:35 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 15:44 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 15:45 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 15:43 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 15:57 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 15:41 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 15:43 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 15:42 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 15:46 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 15:52 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 15:53 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 15:34 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 15:46 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 15:35 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:43 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/27130.shtml)
-- 2026-06-29 15:51 - [扫黑风暴](http://www.blog.minike.top/Article/details/827174.shtml)
-- 2026-06-29 15:47 - [挪威王储妃长子2次强奸被判4年](http://www.blog.minike.top/Article/details/9399921.shtml)
-- 2026-06-29 15:32 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/464103867964.shtml)
-- 2026-06-29 15:48 - [哈兰德这该死的胜负欲](http://www.share.minike.top/Article/details/3187052422.shtml)
-- 2026-06-29 15:28 - [行程万里不忘初心](https://www.blog.kurohicncr.top/Article/details/646154.shtml)
-- 2026-06-29 15:53 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/4342104.shtml)
-- 2026-06-29 15:37 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/3459618674.shtml)
-- 2026-06-29 15:37 - [Agent带来token消耗爆炸](https://www.blog.minike.top/Article/details/081176476371.shtml)
-- 2026-06-29 15:49 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/287205626.shtml)
-- 2026-06-29 15:48 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.minike.top/Article/details/181538.shtml)
-- 2026-06-29 15:27 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/037839537637.shtml)
-- 2026-06-29 15:49 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/8624204345.shtml)
-- 2026-06-29 15:31 - [发反科学内容为何会有200万粉丝](http://www.blog.kurohicncr.top/Article/details/951290138260.shtml)
-- 2026-06-29 15:43 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/1129526.shtml)
+- 2026-06-29 15:34 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/54364491.shtml)
+- 2026-06-29 15:33 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/301954904153.shtml)
+- 2026-06-29 15:53 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/743868294.shtml)
+- 2026-06-29 15:41 - [我国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/35242.shtml)
+- 2026-06-29 15:57 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/87331.shtml)
+- 2026-06-29 15:44 - [中餐厅南北饮食差异](https://www.share.kurohicncr.top/Article/details/31675776304.shtml)
+- 2026-06-29 15:30 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/13875.shtml)
+- 2026-06-29 15:40 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/93321954.shtml)
+- 2026-06-29 15:38 - [博主：美航母沦为毒品集散窝点](https://www.blog.kurohicncr.top/Article/details/539268.shtml)
+- 2026-06-29 15:49 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/333012189.shtml)
+- 2026-06-29 15:42 - [四川宜宾地震致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/2104290613.shtml)
+- 2026-06-29 15:34 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/996282.shtml)
+- 2026-06-29 15:48 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/5235117087.shtml)
+- 2026-06-29 15:50 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/16240352659.shtml)
+- 2026-06-29 15:47 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/6152932.shtml)

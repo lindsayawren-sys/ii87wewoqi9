@@ -1,61 +1,59 @@
-# 社会救助法7月起施行 将保障哪些群体？一文了解
+# ATFX:内盘黄金再出乌龙指 一分钟暴跌165元/克
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-社会救助法于4月30日经十四届全国人大常委会第二十二次会议表决通过，将于2026年7月1日起施行。从纳入立法规划到落地，这部法律打磨三十年，不仅补齐社会救助领域法律短板，还新增个人信息保护、失信惩戒等群众关切条款。 新通过的社会救助法共7章78条，涵盖总则、救助对象和措施、救助程序等内容。草案审议期间，两次面向全社会公开征求意见，民意满满，公众意见聚焦隐私保护、简化审批、严惩骗
+专题：ATFX外汇专栏投稿 5月20日，ATFX：北京时间昨日21：05，沪金2606合约，开盘价996.18，最低价830.52，收盘价994.8，盘中最大跌幅156.66元，分钟级别K线形态呈现出“单针探底”的特征。 ▲ATFX图 主流观点认为，这跟不同寻常的K线，实际上是乌龙指事件，通常由于程序化交易出错或者大额订单误操作造成。不过，从持仓角度看，即便是乌龙指，价格迅速下
 
 ## 正文
 
-社会救助法于4月30日经十四届全国人大常委会第二十二次会议表决通过，将于2026年7月1日起施行。
+专题：ATFX外汇专栏投稿 5月20日，ATFX：北京时间昨日21：05，沪金2606合约，开盘价996.18，最低价830.52，收盘价994.8，盘中最大跌幅156.66元，分钟级别K线形态呈现出“单针探底”的特征。
 
-从纳入立法规划到落地，这部法律打磨三十年，不仅补齐社会救助领域法律短板，还新增个人信息保护、失信惩戒等群众关切条款。
+▲ATFX图 主流观点认为，这跟不同寻常的K线，实际上是乌龙指事件，通常由于程序化交易出错或者大额订单误操作造成。
 
-新通过的社会救助法共7章78条，涵盖总则、救助对象和措施、救助程序等内容。
+不过，从持仓角度看，即便是乌龙指，价格迅速下跌，也可能导致部分人被迫止损甚至爆仓。
 
-草案审议期间，两次面向全社会公开征求意见，民意满满，公众意见聚焦隐私保护、简化审批、严惩骗保等问题，这些诉求都在最终法律中得到回应。
+▲ATFX图 上图是昨日21：05，沪金2606合约的分笔成交图，60秒时间内，没有看到任何830.52的成交单。
 
-全国人大常委会法工委社会法室副主任高莉娜在接受记者专访时表示，立法团队深入城乡基层，倾听低保家庭、特困老人等群体心声，吸纳各地实践经验，反复打磨条文。
+实际上，60秒内所有的报价都围绕994~996元之间展开，没有异常波动。
 
-既兼顾地区差异、平衡部门衔接，更直面信息泄露、公职人员滥用职权、骗保等群众担心的痛点。
+K线图上有830.52的最低报价，而分笔成交没有纪录，意味着830.52的报价可能不是大家认为的“乌龙指事件”，更有可能是系统报价故障。
 
-这部法律来之不易，在此之前的十余年间，2014年出台的《社会救助暂行办法》是社会救助工作的主要依据，而社会救助法的落地，则标志着我国民生兜底保障迈入法治化新阶段。
+比较合理的解释是，昨日21：05分，沪金20206合约的买盘力量极为薄弱，甚至在极短的时间内出现了没有挂买盘的情况。
 
-全国人大常委会法工委社会法室副主任 高莉娜：制定社会救助法是贯彻落实习近平总书记重要指示批示精神和党中央决策部署的必然要求，社会救助是保基本、兜底线、救急难的制度。
+报价系统检索不到买盘挂单，自然以跌停价/最近的买盘挂单830.52作为最新的买价。
 
 ## 相关推荐
 
-- 2026-06-29 15:50 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 15:48 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 15:32 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 15:53 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 15:34 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 15:49 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 15:44 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 15:40 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 15:25 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 15:25 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 15:35 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 15:34 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 15:35 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 15:49 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 15:37 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 15:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 15:54 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 15:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 15:34 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 15:35 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 15:55 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 15:57 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 15:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 15:34 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 15:41 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 15:35 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 15:33 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 15:38 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:52 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/29659359860.shtml)
-- 2026-06-29 15:53 - [请回答王牌2019](https://www.blog.minike.top/Article/details/246846499958.shtml)
-- 2026-06-29 15:29 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/7055601.shtml)
-- 2026-06-29 15:45 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/515987.shtml)
-- 2026-06-29 15:29 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/56506014416.shtml)
-- 2026-06-29 15:25 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/18866689.shtml)
-- 2026-06-29 15:48 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/73557.shtml)
-- 2026-06-29 15:40 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/23259352.shtml)
-- 2026-06-29 15:38 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/519478105176.shtml)
-- 2026-06-29 15:30 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/949209031240.shtml)
-- 2026-06-29 15:30 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/664979571.shtml)
-- 2026-06-29 15:37 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/309435992.shtml)
-- 2026-06-29 15:52 - [天道](https://www.share.kurohicncr.top/Article/details/773261474.shtml)
-- 2026-06-29 15:50 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/374477050.shtml)
-- 2026-06-29 15:25 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/5010254.shtml)
+- 2026-06-29 15:48 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/74625.shtml)
+- 2026-06-29 15:44 - [久坐小心“死臀综合征”](http://www.blog.kurohicncr.top/Article/details/8614352.shtml)
+- 2026-06-29 15:35 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.minike.top/Article/details/01612658021.shtml)
+- 2026-06-29 15:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/3666258426.shtml)
+- 2026-06-29 15:48 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.minike.top/Article/details/880745797723.shtml)
+- 2026-06-29 15:42 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/526995205707.shtml)
+- 2026-06-29 15:52 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/50465408586.shtml)
+- 2026-06-29 15:35 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/16511042995.shtml)
+- 2026-06-29 15:44 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.kurohicncr.top/Article/details/675146805.shtml)
+- 2026-06-29 15:35 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/60240610302.shtml)
+- 2026-06-29 15:48 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/27968350.shtml)
+- 2026-06-29 15:39 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/764039.shtml)
+- 2026-06-29 15:35 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/166138944317.shtml)
+- 2026-06-29 15:37 - [滾石唱片要求万豪酒店道歉](http://www.share.minike.top/Article/details/91676761.shtml)
+- 2026-06-29 15:45 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/30650.shtml)

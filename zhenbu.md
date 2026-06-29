@@ -1,57 +1,58 @@
-# 由涉汉坦病毒疫情邮轮疏散的一名法国人确诊感染
+# 美联储保尔森：当前利率水平适当，但考虑加息是合理的
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新社巴黎5月11日电(记者 李洋)法国卫生部11日表示，由涉汉坦病毒疫情邮轮“洪迪厄斯”号疏散的一名法国人确诊感染汉坦病毒。 法国卫生部长里斯特(Stéphanie Rist)当天对法国媒体透露，由“洪迪厄斯”号邮轮疏散的一名法国人确诊感染，她的病毒检测结果呈阳性。 里斯特说，这名女性患者是从“洪迪厄斯”号邮轮疏散并乘坐飞机返回法国、现正在巴黎接受隔离的5名法国人中的一员，她
+费城联储行长安娜·保尔森周二表示，目前的利率水平在当前形势下是合适的，在物价压力依然高企的情况下，利率对通胀施加了下行压力。但她补充说，投资者开始考虑利率可能需要上升的情况，这是“健康的”。 保尔森在为亚特兰大联储会议准备的讲话中表示：“货币政策略微紧缩，这种紧缩性有助于控制关税和中东冲突带来的物价上涨的影响。综合考虑这些因素，我认为目前的货币政策立场是合适的。” 但她表示，她
 
 ## 正文
 
-中新社巴黎5月11日电(记者 李洋)法国卫生部11日表示，由涉汉坦病毒疫情邮轮“洪迪厄斯”号疏散的一名法国人确诊感染汉坦病毒。
+费城联储行长安娜·保尔森周二表示，目前的利率水平在当前形势下是合适的，在物价压力依然高企的情况下，利率对通胀施加了下行压力。
 
-法国卫生部长里斯特(Stéphanie Rist)当天对法国媒体透露，由“洪迪厄斯”号邮轮疏散的一名法国人确诊感染，她的病毒检测结果呈阳性。
+但她补充说，投资者开始考虑利率可能需要上升的情况，这是“健康的”。
 
-里斯特说，这名女性患者是从“洪迪厄斯”号邮轮疏散并乘坐飞机返回法国、现正在巴黎接受隔离的5名法国人中的一员，她从10日晚上开始感到非常不适。
+保尔森在为亚特兰大联储会议准备的讲话中表示：“货币政策略微紧缩，这种紧缩性有助于控制关税和中东冲突带来的物价上涨的影响。
 
-她还透露，其他4名法国人的病毒检测结果呈阴性，但他们将接受重新检测。
+综合考虑这些因素，我认为目前的货币政策立场是合适的。
 
-卫生部门表示，目前已发现了20多例汉坦病毒接触病例。
+” 但她表示，她对美国目前面临的风险的看法与近期的市场走势一致，因为市场已经押注美联储的下一步行动将是加息，而不是年初预期的降息。
 
-法国总理勒科尔尼稍早前已证实，该确诊者在返回法国的飞机上已经出现症状。
+保尔森表示：“过去几个月来，市场对经济消息的反应与我的想法基本一致。
 
-他表示这5人已被置于“严格隔离”状态。
+我想明确一点：我认为目前的货币政策处于良好状态……然而，我认为市场参与者能够考虑到联邦基金利率长期保持不变以及需要进一步收紧货币政策这两种情景，这都是健康的。
 
-这5名法国人于10日下午从西班牙搭乘飞机抵达巴黎，随后立即被送往巴黎北郊的一家医院接受隔离观察。
+” 保尔森淡化了可能导致通胀问题恶化的潜在风险，认为长期通胀预期仍然可控，经济增长也基本符合预期。
 
 ## 相关推荐
 
-- 2026-06-29 15:46 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 15:34 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 15:24 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 15:40 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 15:40 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 15:48 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 15:40 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 15:51 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 15:34 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 15:30 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 15:28 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 15:31 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 15:39 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 15:58 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 15:35 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 15:55 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 15:50 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 15:35 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 15:33 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 15:54 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 15:39 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 15:59 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 15:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:49 - [四川宜宾地震](http://www.blog.minike.top/Article/details/1461375836.shtml)
-- 2026-06-29 15:44 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/168918304.shtml)
-- 2026-06-29 15:37 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/3095634.shtml)
-- 2026-06-29 15:28 - [7款商保创新药“转道”](https://www.share.kurohicncr.top/Article/details/19918586.shtml)
-- 2026-06-29 15:44 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/2437940.shtml)
-- 2026-06-29 15:26 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/4665772796.shtml)
-- 2026-06-29 15:28 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/9803406904.shtml)
-- 2026-06-29 15:26 - [南部战区位南海海域进行例行巡航](http://www.share.kurohicncr.top/Article/details/52526261.shtml)
-- 2026-06-29 15:34 - [爸爸当家](http://www.blog.minike.top/Article/details/3701650.shtml)
-- 2026-06-29 15:42 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/47825342.shtml)
-- 2026-06-29 15:30 - [Agent带来token消耗爆炸](http://www.blog.minike.top/Article/details/835748.shtml)
-- 2026-06-29 15:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/1816159.shtml)
-- 2026-06-29 15:26 - [周深双眼皮贴又掉了](https://www.share.kurohicncr.top/Article/details/5364990.shtml)
-- 2026-06-29 15:34 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/420191.shtml)
-- 2026-06-29 15:41 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/444924206311.shtml)
+- 2026-06-29 15:50 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/392264.shtml)
+- 2026-06-29 15:34 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/526380.shtml)
+- 2026-06-29 15:49 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/783776247775.shtml)
+- 2026-06-29 15:39 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/3900587.shtml)
+- 2026-06-29 15:45 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/3269916020.shtml)
+- 2026-06-29 15:45 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/8920580722.shtml)
+- 2026-06-29 15:47 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/19701078611.shtml)
+- 2026-06-29 15:54 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/76736240498.shtml)
+- 2026-06-29 15:57 - [美人鱼](http://www.share.minike.top/Article/details/0301201518.shtml)
+- 2026-06-29 15:47 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/449542.shtml)
+- 2026-06-29 15:32 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/76565.shtml)
+- 2026-06-29 15:30 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/19011.shtml)
+- 2026-06-29 15:30 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/84311571367.shtml)
+- 2026-06-29 15:43 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/438791589355.shtml)
+- 2026-06-29 15:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/5230238.shtml)

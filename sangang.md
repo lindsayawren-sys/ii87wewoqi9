@@ -1,60 +1,60 @@
-# 天舟十号智能“通信高速路”为太空送货保驾护航
+# 全球长期债券收益率攀升至近二十年来的最高水平
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新社西安5月11日电 (李一璠 张一辰)北京时间5月11日8时14分，天舟十号货运飞船在长征七号遥十一运载火箭的托举下，从中国文昌航天发射场升空，随后船箭成功分离，飞船进入预定轨道、太阳能帆板顺利展开，发射任务取得成功。据悉，航天科技集团五院西安分院(下称：西安分院)为天舟十号货运飞船研制的中继终端、天线网络以及为中继卫星系统研制的全部有效载荷，有力保障任务顺利完成。 其中，
+长期国债遭大举抛售，推动收益率攀升至全球金融危机时期以来高位，业内策略师警示，债市跌势仍有延续空间。受油价上涨带动，全球通胀预期大幅升温，彭博统计的十年期及以上主权债券平均到期收益率，已升至2008年7月以来最高水平。伊朗局势动荡致使霍尔木兹海峡这条关键航运要道通行受阻，国际原油价格随之大涨。巴克莱银行伦敦研究部门主管帕特里克・科菲表示：“财政现状、持续存在的通胀风险、地缘政治
 
 ## 正文
 
-中新社西安5月11日电 (李一璠 张一辰)北京时间5月11日8时14分，天舟十号货运飞船在长征七号遥十一运载火箭的托举下，从中国文昌航天发射场升空，随后船箭成功分离，飞船进入预定轨道、太阳能帆板顺利展开，发射任务取得成功。
+长期国债遭大举抛售，推动收益率攀升至全球金融危机时期以来高位，业内策略师警示，债市跌势仍有延续空间。
 
-据悉，航天科技集团五院西安分院(下称：西安分院)为天舟十号货运飞船研制的中继终端、天线网络以及为中继卫星系统研制的全部有效载荷，有力保障任务顺利完成。
+受油价上涨带动，全球通胀预期大幅升温，彭博统计的十年期及以上主权债券平均到期收益率，已升至2008年7月以来最高水平。
 
-其中，天线网络是天舟十号货运飞船测控与通信分系统中连接应答机和天线的关键产品。
+伊朗局势动荡致使霍尔木兹海峡这条关键航运要道通行受阻，国际原油价格随之大涨。
 
-虽然是飞船上的一个小型信号转发器，却承担着天舟十号货运飞船天线信号“传输枢纽”的作用。
+巴克莱银行伦敦研究部门主管帕特里克・科菲表示：“财政现状、持续存在的通胀风险、地缘政治不确定性，再加上投资者投资诉求趋于严苛，多重因素正推动市场对长久期资产进行大范围重新定价。
 
-当天舟十号货运飞船接收到地面的通信信号或测控指令信号时，天线网络会将其智能分类、分通道传输到应答机，反之也会将来自应答机不同通道的各类信号汇总后送往对地天线，通过天线发出后送达地面。
+短期内，除霍尔木兹海峡恢复正常通航外，几乎没有其他利好因素能彻底扭转当前债券抛售行情。
 
-此外，天舟十号货运飞船成功发射后，由西安分院研制的相控阵中继终端在星箭分离前便进入工作模式。
+”自伊朗局势冲突爆发以来，美国30年期美债收益率飙升近60个基点，触及5.20%，创下2007年7月以来新高。
 
-它可以自主捕获并跟踪中继卫星，搭建起从天舟十号货运飞船到中继卫星再到地面的“通信高速路”，让地面可以与天舟十号货运飞船实时保持测控通信链路畅通。
+与此同时，受政治危机冲击英国国债市场影响，英国同期限债券收益率攀升至1998年以来峰值，超越澳大利亚，成为发达市场中收益率最高的品种。
 
-据西安分院介绍，相控阵天线采用电性能扫描方式，克服了机械天线转动的薄弱环节，让扫描速度、响应速度大幅提高。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 15:39 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 15:38 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 15:42 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 15:52 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 15:46 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 15:29 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 15:47 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 15:31 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 15:48 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 15:30 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 15:33 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 15:30 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 15:35 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 15:30 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 15:56 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 15:53 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 15:35 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 15:54 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 15:41 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 15:38 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 15:41 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 15:57 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 15:53 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 15:54 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 15:38 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 15:45 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 15:57 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 15:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:52 - [一见倾心](https://www.share.kurohicncr.top/Article/details/4150405.shtml)
-- 2026-06-29 15:34 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/071912783843.shtml)
-- 2026-06-29 15:34 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/6384258.shtml)
-- 2026-06-29 15:39 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/833156.shtml)
-- 2026-06-29 15:44 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/995698975722.shtml)
-- 2026-06-29 15:35 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/366527077.shtml)
-- 2026-06-29 15:48 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/63996.shtml)
-- 2026-06-29 15:49 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/91661400.shtml)
-- 2026-06-29 15:49 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/96781401892.shtml)
-- 2026-06-29 15:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/129257197525.shtml)
-- 2026-06-29 15:39 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/875174610.shtml)
-- 2026-06-29 15:26 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/2565772270.shtml)
-- 2026-06-29 15:38 - [网友飞机上偶遇肖战](https://www.blog.minike.top/Article/details/549483632.shtml)
-- 2026-06-29 15:33 - [Canna纳尔8-0对位单杀Doran](https://www.share.kurohicncr.top/Article/details/58180132.shtml)
-- 2026-06-29 15:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/12162326.shtml)
+- 2026-06-29 15:56 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/0843727938.shtml)
+- 2026-06-29 15:34 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/68512.shtml)
+- 2026-06-29 15:55 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/92436068656.shtml)
+- 2026-06-29 15:59 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/20050257412.shtml)
+- 2026-06-29 15:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/2721590.shtml)
+- 2026-06-29 15:33 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/573845245.shtml)
+- 2026-06-29 15:49 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/4179716867.shtml)
+- 2026-06-29 15:43 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/86752932676.shtml)
+- 2026-06-29 15:48 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/045783.shtml)
+- 2026-06-29 15:48 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/20793287232.shtml)
+- 2026-06-29 15:37 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/410515585.shtml)
+- 2026-06-29 15:52 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/29442696.shtml)
+- 2026-06-29 15:37 - [上班主打一个薪尽自然凉](http://www.share.minike.top/Article/details/2394646702.shtml)
+- 2026-06-29 15:32 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/149421.shtml)
+- 2026-06-29 15:44 - [王祖蓝现场观看美加墨世界杯](http://www.blog.kurohicncr.top/Article/details/801691.shtml)

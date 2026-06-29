@@ -1,61 +1,59 @@
-# 2025年末广州常住人口1910.10万人
+# 习近平同俄罗斯总统普京茶叙
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新网广州5月12日电 (记者 许青青)据广州市统计局12日消息，该局公布的2025年广州市国民经济和社会发展统计公报显示，2025年末，广州常住人口1910.10万人，城镇化率为87.56%。 其中白云区、番禺区、天河区常住人口居前三，分别为373.19万人、287.23万人、225.60万人。随后是海珠区177.07万人，花都区176.67万人，增城区162.13万人，黄埔
+新华社北京5月20日电(记者孙奕)5月20日晚，国家主席习近平在北京人民大会堂同俄罗斯总统普京举行茶叙。 习近平指出，多年来，我同普京总统保持频密交往，共同引领中俄新时代全面战略协作伙伴关系持续走深走实，推动两国睦邻友好更加深入人心，开创了相互尊重、公平正义、合作共赢的新型大国关系范式，为变乱交织的世界持续注入宝贵的稳定性。今天我同普京总统又就推进中俄全面战略协作伙伴关系达成新
 
 ## 正文
 
-中新网广州5月12日电 (记者 许青青)据广州市统计局12日消息，该局公布的2025年广州市国民经济和社会发展统计公报显示，2025年末，广州常住人口1910.10万人，城镇化率为87.56%。
+新华社北京5月20日电(记者孙奕)5月20日晚，国家主席习近平在北京人民大会堂同俄罗斯总统普京举行茶叙。
 
-其中白云区、番禺区、天河区常住人口居前三，分别为373.19万人、287.23万人、225.60万人。
+习近平指出，多年来，我同普京总统保持频密交往，共同引领中俄新时代全面战略协作伙伴关系持续走深走实，推动两国睦邻友好更加深入人心，开创了相互尊重、公平正义、合作共赢的新型大国关系范式，为变乱交织的世界持续注入宝贵的稳定性。
 
-随后是海珠区177.07万人，花都区176.67万人，增城区162.13万人，黄埔区125.08万人，荔湾区112.90万人，南沙区99.32万人，越秀区97.16万人，从化区73.75万人。
+今天我同普京总统又就推进中俄全面战略协作伙伴关系达成新的重要共识。
 
-2025年末，广州户籍人口1091.14万人，城镇化率为83.76%。
+为者常成，行者常至。
 
-其中白云区、番禺区、增城区户籍人口居全市前三，分别为129.04万人、126.66万人、116.82万人。
+相信在双方不懈努力下，中俄关系一定会延续高质量发展态势，竿头日进，更上层楼。
 
-随后为越秀区115.77万人，海珠区112.01万人，天河区111.45万人，花都区93.94万人，荔湾区82.21万人，黄埔区76.59万人，从化区67.01万人，南沙区59.64万人。
+普京表示，此访务实高效、成果丰硕。
 
-全年户籍出生人口10.80万人，出生率9.97‰；死亡人口5.56万人，死亡率5.14‰；自然增长人口5.24万人，自然增长率4.83‰。
+我同习近平主席共同回顾了俄中关系的发展历程，就广泛议题深入交换意见，明确了下一步两国合作方向，有利于确保俄中关系始终保持蓬勃发展势头。
 
-户籍迁入人口15.06万人，迁出人口4.08万人，机械增长人口10.98万人。
+俄方期待继续同中方保持密切沟通，加强战略协调，以俄中关系的确定性、稳定性为世界和平繁荣作出新贡献。
 
 ## 相关推荐
 
-- 2026-06-29 15:41 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 15:28 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 15:40 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 15:38 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 15:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 15:46 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 15:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 15:29 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 15:29 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 15:32 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 15:53 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 15:44 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 15:29 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 15:53 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 15:48 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 15:46 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 15:33 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 15:48 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 15:48 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 15:43 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 15:35 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 15:48 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 15:37 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 15:30 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 15:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 15:55 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 15:45 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 15:50 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:35 - [端午节加班工资应该怎么算](https://www.share.minike.top/Article/details/63991862712.shtml)
-- 2026-06-29 15:39 - [周深双眼皮贴又掉了](https://www.share.kurohicncr.top/Article/details/494840352.shtml)
-- 2026-06-29 15:34 - [吴磊爱上回收了](http://www.share.kurohicncr.top/Article/details/54101.shtml)
-- 2026-06-29 15:47 - [金牌调解](http://www.share.minike.top/Article/details/021056665086.shtml)
-- 2026-06-29 15:53 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/298404.shtml)
-- 2026-06-29 15:52 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/6424148976.shtml)
-- 2026-06-29 15:31 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/212754939473.shtml)
-- 2026-06-29 15:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/75418.shtml)
-- 2026-06-29 15:43 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/804486200.shtml)
-- 2026-06-29 15:41 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/0038384.shtml)
-- 2026-06-29 15:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/3125909331.shtml)
-- 2026-06-29 15:37 - [当地回应林区违规放羊遭豹啃食](https://www.share.kurohicncr.top/Article/details/963198845.shtml)
-- 2026-06-29 15:43 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/65711701021.shtml)
-- 2026-06-29 15:50 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/3316430579.shtml)
-- 2026-06-29 15:37 - [《贺子珍》](http://www.share.minike.top/Article/details/13827997915.shtml)
+- 2026-06-29 15:40 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/211244678.shtml)
+- 2026-06-29 15:59 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/99825118861.shtml)
+- 2026-06-29 15:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/3748749438.shtml)
+- 2026-06-29 15:53 - [大范围炎热天气将至](https://www.share.kurohicncr.top/Article/details/45395791.shtml)
+- 2026-06-29 15:59 - [欧盟为什么越来越倾向贸易保护](http://www.share.kurohicncr.top/Article/details/412657.shtml)
+- 2026-06-29 15:31 - [博主：美航母沦为毒品集散窝点](http://www.share.minike.top/Article/details/4118573549.shtml)
+- 2026-06-29 15:40 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/12038904.shtml)
+- 2026-06-29 15:53 - [给阿嬷的情书海外口碑](http://www.share.kurohicncr.top/Article/details/829889751428.shtml)
+- 2026-06-29 15:33 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/62838.shtml)
+- 2026-06-29 15:45 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/748258.shtml)
+- 2026-06-29 15:55 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/3721395.shtml)
+- 2026-06-29 15:30 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/172688312.shtml)
+- 2026-06-29 15:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/89106892.shtml)
+- 2026-06-29 15:33 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/60934965.shtml)
+- 2026-06-29 15:35 - [105年初心滚烫](https://www.blog.minike.top/Article/details/320949810.shtml)

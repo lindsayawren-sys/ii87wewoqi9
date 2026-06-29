@@ -1,60 +1,61 @@
-# 赖亚文当选新一届中国排球协会主席
+# 战略收缩再进一步，AIG收购Everest哥伦比亚保险业务
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新社北京5月12日电 中国排球协会第八届会员大会12日在北京举行，赖亚文当选新一届中国排球协会主席。 会议完成了协会换届选举工作，按照国家有关社会团体管理相关规定，赖亚文当选中国排协主席，薛辉、陈少军、乔云萍、张欣、陈东升、盖洋当选副主席，袁磊当选副主席兼秘书长。 赖亚文总结了第七届委员会工作，代表中国排协对为中国排球作出杰出贡献的前辈和第七届委员会成员表示衷心感谢，并对协会
+AIG近日宣布，已与Everest Group达成最终协议，收购其哥伦比亚保险子公司Everest Compañía de Seguros Generales Colombia S.A．（简称Everest Colombia）。此项交易预计将于2027年初完成，财务条款尚未披露。 强化拉美布局，瞄准高增长市场 此次收购是AIG加强拉丁美洲业务战略的重要组成部分。AIG普通保险首
 
 ## 正文
 
-中新社北京5月12日电 中国排球协会第八届会员大会12日在北京举行，赖亚文当选新一届中国排球协会主席。
+AIG近日宣布，已与Everest Group达成最终协议，收购其哥伦比亚保险子公司Everest Compañía de Seguros Generales Colombia S.A．（简称Everest Colombia）。
 
-会议完成了协会换届选举工作，按照国家有关社会团体管理相关规定，赖亚文当选中国排协主席，薛辉、陈少军、乔云萍、张欣、陈东升、盖洋当选副主席，袁磊当选副主席兼秘书长。
+此项交易预计将于2027年初完成，财务条款尚未披露。
 
-赖亚文总结了第七届委员会工作，代表中国排协对为中国排球作出杰出贡献的前辈和第七届委员会成员表示衷心感谢，并对协会下一步工作进行了展望。
+强化拉美布局，瞄准高增长市场 此次收购是AIG加强拉丁美洲业务战略的重要组成部分。
 
-公开资料显示，赖亚文出生于1970年，是中国女排的功勋球员和教练员。
+AIG普通保险首席执行官Jon Hancock表示，此举将加速其在拉美最大、增长最快的保险市场之一的发展。
 
-运动员时期，她曾担任中国女排队长，1996年帮助中国女排拿到亚特兰大奥运会银牌。
+他补充道：“Everest Colombia团队对当地市场有深刻理解，其专注于企业和中高端市场的客户，与AIG在拉美地区扩展商业保险业务的承诺高度一致。
 
-退役后，赖亚文从1999年开始转型为中国女排助理教练，经历胡进、陈忠和、蔡斌、俞觉敏、郎平等主教练，协助中国女排夺得2003年、2015年两届世界杯冠军以及2004年、2016年两届奥运会冠军。
+” 交易完成后，AIG的子公司将获得Everest Colombia 100%的股权，包括其授权业务、员工及现有保险合同。
 
-2017年，赖亚文被任命为国家体育总局排球运动管理中心副主任，2023年出任国家体育总局排球运动管理中心主任。
+交易背景：Everest全球零售业务剥离 此次出售是Everest集团执行其全球战略收缩的关键一步，旨在将业务重心聚焦于核心的全球再保险及批发与 specialty 保险业务。
 
-(完)
+在此之前，Everest已于2025年10月将其全球商业零售保险的续约权出售给AIG，并于2026年3月签署了出售其加拿大零售业务的协议。
 
 ## 相关推荐
 
-- 2026-06-29 15:40 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 15:28 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 15:50 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 15:39 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 15:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 15:35 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 15:29 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 15:43 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 15:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 15:47 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 15:43 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 15:43 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 15:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 15:53 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 15:49 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 15:45 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 15:35 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 15:48 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 15:53 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 15:31 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 15:35 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 15:33 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 15:56 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 15:54 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 15:44 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 15:56 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 15:31 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 15:59 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 15:34 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:42 - [扬名立万](https://www.share.kurohicncr.top/Article/details/8690483.shtml)
-- 2026-06-29 15:34 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/56555619.shtml)
-- 2026-06-29 15:24 - [Agent带来token消耗爆炸](https://www.share.minike.top/Article/details/64690851.shtml)
-- 2026-06-29 15:51 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/030657105460.shtml)
-- 2026-06-29 15:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/563776.shtml)
-- 2026-06-29 15:51 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/924497464.shtml)
-- 2026-06-29 15:36 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/340812671.shtml)
-- 2026-06-29 15:54 - [久坐小心“死臀综合征”](https://www.share.minike.top/Article/details/662199466.shtml)
-- 2026-06-29 15:44 - [中方将20家日本实体列入关注名单](https://www.share.kurohicncr.top/Article/details/43763266.shtml)
-- 2026-06-29 15:44 - [差点没看懂白鹿丞磊这段意识流](http://www.share.kurohicncr.top/Article/details/177619.shtml)
-- 2026-06-29 15:33 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/758581202.shtml)
-- 2026-06-29 15:37 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/22657.shtml)
-- 2026-06-29 15:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/7896496.shtml)
-- 2026-06-29 15:50 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/27179791368.shtml)
-- 2026-06-29 15:40 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/848887842.shtml)
+- 2026-06-29 15:57 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/81301398.shtml)
+- 2026-06-29 15:32 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/28787351.shtml)
+- 2026-06-29 15:36 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/6653158.shtml)
+- 2026-06-29 15:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/43664899725.shtml)
+- 2026-06-29 15:48 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/6287827982.shtml)
+- 2026-06-29 15:31 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/56268471.shtml)
+- 2026-06-29 15:33 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/0032896932.shtml)
+- 2026-06-29 15:42 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/277106901.shtml)
+- 2026-06-29 15:53 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.minike.top/Article/details/49550903.shtml)
+- 2026-06-29 15:56 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/42694263.shtml)
+- 2026-06-29 15:32 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/5478767846.shtml)
+- 2026-06-29 15:59 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/6486473588.shtml)
+- 2026-06-29 15:37 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/38118478.shtml)
+- 2026-06-29 15:43 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/10846458.shtml)
+- 2026-06-29 15:47 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.kurohicncr.top/Article/details/42674114.shtml)

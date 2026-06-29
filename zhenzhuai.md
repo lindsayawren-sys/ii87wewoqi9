@@ -1,61 +1,58 @@
-# 澳大利亚卫生官员：涉疫邮轮返澳人员将隔离至少三周
+# 闽粤港“跨境一锁”公路舱单“一单两报”业务启动
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新社悉尼5月11日电(记者 薄雯雯)澳大利亚卫生和老年护理部长马克·巴特勒11日表示，从涉汉坦病毒疫情的“洪迪厄斯”号邮轮疏散并返回澳大利亚的6人将接受至少三周隔离。 据澳大利亚广播公司报道，这6人包括4名澳大利亚公民、1名澳永久居民以及1名新西兰公民。他们预计将于11日晚些时候从西班牙特内里费岛搭乘澳政府安排的包机返澳，机上将配备医护人员。抵澳后，相关人员将被送往西澳大利亚
+中新网厦门5月19日电 (张真 冯星杰)19日，在厦门进出境邮件快件监管中心，一辆载有3吨元器件的货车缓缓驶出闸口。该票货值100万元人民币的出口货物，成为厦门海关首票应用闽粤港“跨境一锁”公路舱单“一单两报”新模式的“尝鲜者”。 当天，同样模式申报的一票进口货物也从香港启运，预计次日抵达福建泉州晋江陆地港，这标志着“一单两报”业务实现了进出口同步落地。 “以前一批货物要两地申
 
 ## 正文
 
-中新社悉尼5月11日电(记者 薄雯雯)澳大利亚卫生和老年护理部长马克·巴特勒11日表示，从涉汉坦病毒疫情的“洪迪厄斯”号邮轮疏散并返回澳大利亚的6人将接受至少三周隔离。
+中新网厦门5月19日电 (张真 冯星杰)19日，在厦门进出境邮件快件监管中心，一辆载有3吨元器件的货车缓缓驶出闸口。
 
-据澳大利亚广播公司报道，这6人包括4名澳大利亚公民、1名澳永久居民以及1名新西兰公民。
+该票货值100万元人民币的出口货物，成为厦门海关首票应用闽粤港“跨境一锁”公路舱单“一单两报”新模式的“尝鲜者”。
 
-他们预计将于11日晚些时候从西班牙特内里费岛搭乘澳政府安排的包机返澳，机上将配备医护人员。
+当天，同样模式申报的一票进口货物也从香港启运，预计次日抵达福建泉州晋江陆地港，这标志着“一单两报”业务实现了进出口同步落地。
 
-抵澳后，相关人员将被送往西澳大利亚州首府珀斯附近的隔离设施。
+“以前一批货物要两地申报、重复录入，现在一次就能搞定。
 
-巴特勒表示，目前尚无澳大利亚人出现汉坦病毒感染症状。
+”福建省美邦恒通物流有限公司负责人林培灿说，新模式实现了在内地一次录入，内地海关、香港海关同时接收相关舱单数据，彻底省去企业在香港端申报环节，使整体申报时间平均缩短30分钟以上，按该公司当前业务量测算，预计每月可节省申报时间约250小时，通关效率提升明显。
 
-他说，汉坦病毒潜伏期可能长达42天，但传播风险通常会在前两周后下降，因此澳政府决定采取“预防性措施”。
+这一变化源于内地海关与香港海关的“一单两报”数据协同机制，企业只需在内地“单一窗口”录入一次公路舱单数据，系统便会自动将信息转译并推送至香港贸易“单一窗口”，实现两地海关数据实时交互。
 
-政府将在三周隔离期结束后，根据进一步的卫生建议决定后续安排。
+据厦门海关口岸监管处副处长侯晓明介绍，该关是继广东省外首个推广“一单两报”的海关，该关在闽粤港澳“跨境一锁”快速通关模式上，叠加内地与香港公路舱单“一单两报”试点，进一步推出跨境贸易便利化举措。
 
-他还称，由于返澳人员需搭乘小型飞机进行长途飞行，旅途中存在一定传播风险。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:38 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 15:31 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 15:28 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 15:24 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 15:30 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 15:27 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 15:51 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 15:40 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 15:39 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 15:30 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 15:28 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 15:40 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 15:47 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 15:30 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 15:31 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 15:43 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 15:34 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 15:47 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 15:49 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 15:47 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 15:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 15:34 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 15:43 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 15:42 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 15:55 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 15:32 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 15:59 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:38 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.minike.top/Article/details/79455.shtml)
-- 2026-06-29 15:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/18750806386.shtml)
-- 2026-06-29 15:47 - [端午节加班工资应该怎么算](https://www.blog.kurohicncr.top/Article/details/733037557.shtml)
-- 2026-06-29 15:42 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/48697720.shtml)
-- 2026-06-29 15:52 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/997482113934.shtml)
-- 2026-06-29 15:37 - [恋与深空 731](http://www.blog.minike.top/Article/details/053712.shtml)
-- 2026-06-29 15:25 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/95608341266.shtml)
-- 2026-06-29 15:52 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/143140.shtml)
-- 2026-06-29 15:38 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/223235.shtml)
-- 2026-06-29 15:51 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/41722663169.shtml)
-- 2026-06-29 15:26 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/07994379.shtml)
-- 2026-06-29 15:26 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/74289731232.shtml)
-- 2026-06-29 15:24 - [欧洲人驾车200公里抢购中国空调](http://www.blog.kurohicncr.top/Article/details/68331.shtml)
-- 2026-06-29 15:28 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/59122.shtml)
-- 2026-06-29 15:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/50692468.shtml)
+- 2026-06-29 15:50 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/59972756.shtml)
+- 2026-06-29 15:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/481557595.shtml)
+- 2026-06-29 15:56 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/7000284366.shtml)
+- 2026-06-29 15:59 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/542644081902.shtml)
+- 2026-06-29 15:33 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/049429295.shtml)
+- 2026-06-29 15:46 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.minike.top/Article/details/78320.shtml)
+- 2026-06-29 15:47 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/89600627.shtml)
+- 2026-06-29 15:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/316542532.shtml)
+- 2026-06-29 15:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/777582.shtml)
+- 2026-06-29 15:47 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/92352.shtml)
+- 2026-06-29 15:53 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/7982747.shtml)
+- 2026-06-29 15:48 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/538649951.shtml)
+- 2026-06-29 15:50 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/35192877920.shtml)
+- 2026-06-29 15:33 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/62785007486.shtml)
+- 2026-06-29 15:44 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/921213.shtml)

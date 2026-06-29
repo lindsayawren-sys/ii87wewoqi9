@@ -1,59 +1,61 @@
-# 城市打卡点上新 这些高颜值地铁站你去过吗
+# 金价创七周新低 短期或仍将承压
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-乘地铁出行的同时，还能看到优美的景观，购买时尚的物品，这样的体验您享受过吗？跟随记者的镜头，走进各地最美地铁站。 广东深圳 地铁出站即赏灯光秀 从深圳后海地铁口缓缓走出，海风、灯火扑面而来，一场场灯光秀轮番上演。流光漫过楼宇，繁华都市与海景完美相融，满眼都是深圳的烟火与璀璨。地铁后海站位于深圳市南山区，是深圳地铁2号线、11号线、13号线的重要交汇枢纽，从H口出站步行8分钟即可
+文章来源：新华财经 新华财经北京5月20日电 周二（5月19日）国际黄金市场迎来大幅回调，现货黄金单日重挫逾1.8%，最低下探4464.85美元/盎司，创下近七周以来低点，最终收报4481.83美元/盎司。本轮下跌是宏观环境、地缘风险与政策预期共同作用的结果。 具体来看，实际利率上行与美元走强，是压制金价的核心因素。作为无息资产，黄金价格与美债收益率高度负相关，5月19日10年
 
 ## 正文
 
-乘地铁出行的同时，还能看到优美的景观，购买时尚的物品，这样的体验您享受过吗？
+文章来源：新华财经 新华财经北京5月20日电 周二（5月19日）国际黄金市场迎来大幅回调，现货黄金单日重挫逾1.8%，最低下探4464.85美元/盎司，创下近七周以来低点，最终收报4481.83美元/盎司。
 
-跟随记者的镜头，走进各地最美地铁站。
+本轮下跌是宏观环境、地缘风险与政策预期共同作用的结果。
 
-广东深圳 地铁出站即赏灯光秀 从深圳后海地铁口缓缓走出，海风、灯火扑面而来，一场场灯光秀轮番上演。
+具体来看，实际利率上行与美元走强，是压制金价的核心因素。
 
-流光漫过楼宇，繁华都市与海景完美相融，满眼都是深圳的烟火与璀璨。
+作为无息资产，黄金价格与美债收益率高度负相关，5月19日10年期美债收益率一度飙升至4.687%，创下2025年1月以来新高，30年期长债收益率更是升至5.197%，刷新近19年新高。
 
-地铁后海站位于深圳市南山区，是深圳地铁2号线、11号线、13号线的重要交汇枢纽，从H口出站步行8分钟即可直达深圳人才公园灯光秀核心观赏区。
+美债收益率曲线长端大幅上移，直接推高持有黄金的机会成本，资金更倾向于回流固定收益资产，黄金投资吸引力显著下降。
 
-此刻，高层楼宇变身巨型光影荧幕，无人机在空中变化出各种图景。
+与此同时，美元指数上涨0.34%至99.30，创下六周新高，以美元计价的黄金对非美货币持有者而言成本增加，实物黄金与投资买盘均受到抑制，“强美元+高收益率”的组合再度成为金价下行的关键驱动力。
 
-市民 温女士：心情挺好的，因为这边也可以吹到海风，在这边散步的人也蛮多的，可以欣赏到这样的夜景。
+通胀忧虑与地缘冲突叠加，形成双重利空压力。
 
-据了解，深圳人才公园灯光秀每周五、周六及法定节假日上演，每晚三场循环展演，全程免费免预约。
+中东美伊冲突持续发酵，全球石油供应担忧加剧，美原油价格站稳100美元/盎司上方。
 
 ## 相关推荐
 
-- 2026-06-29 15:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 15:32 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 15:28 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 15:48 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 15:49 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 15:43 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 15:33 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 15:48 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 15:27 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 15:26 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 15:53 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 15:39 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 15:46 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 15:52 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 15:39 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 15:53 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 15:49 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 15:56 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 15:32 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 15:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 15:51 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 15:40 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 15:54 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 15:37 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 15:31 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 15:44 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 15:30 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 15:45 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/30787.shtml)
-- 2026-06-29 15:50 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/150547187847.shtml)
-- 2026-06-29 15:49 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/990871.shtml)
-- 2026-06-29 15:53 - [TI2026参赛战队出炉](https://www.blog.kurohicncr.top/Article/details/83284636.shtml)
-- 2026-06-29 15:53 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/10432.shtml)
-- 2026-06-29 15:38 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/29689011.shtml)
-- 2026-06-29 15:47 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/45500.shtml)
-- 2026-06-29 15:27 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/71919348.shtml)
-- 2026-06-29 15:46 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/92456.shtml)
-- 2026-06-29 15:27 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/4104406918.shtml)
-- 2026-06-29 15:40 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/33178169.shtml)
-- 2026-06-29 15:30 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/24560271017.shtml)
-- 2026-06-29 15:48 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/126114429.shtml)
-- 2026-06-29 15:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/8690156501.shtml)
-- 2026-06-29 15:25 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/66706175633.shtml)
+- 2026-06-29 15:37 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/46520467288.shtml)
+- 2026-06-29 15:46 - [驻日美军航母沦为“毒窝”](https://www.blog.kurohicncr.top/Article/details/05250.shtml)
+- 2026-06-29 15:42 - [起风了](http://www.share.minike.top/Article/details/04911454732.shtml)
+- 2026-06-29 15:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/799624918388.shtml)
+- 2026-06-29 15:44 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/00102.shtml)
+- 2026-06-29 15:31 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/04539.shtml)
+- 2026-06-29 15:59 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/714168004714.shtml)
+- 2026-06-29 15:56 - [媒体：中国田径压力与期待并存](http://www.blog.kurohicncr.top/Article/details/998648198732.shtml)
+- 2026-06-29 15:44 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/4856327.shtml)
+- 2026-06-29 15:50 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/9637100.shtml)
+- 2026-06-29 15:59 - [普京介绍前线战事](http://www.blog.kurohicncr.top/Article/details/72802.shtml)
+- 2026-06-29 15:45 - [日本主帅：目标是冠军](https://www.share.minike.top/Article/details/21799228453.shtml)
+- 2026-06-29 15:36 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/613645.shtml)
+- 2026-06-29 15:42 - [世界杯上那些封神的门将](https://www.blog.kurohicncr.top/Article/details/5994982655.shtml)
+- 2026-06-29 15:40 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/580529.shtml)

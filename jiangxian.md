@@ -1,56 +1,48 @@
-# 刚刚，白银，直线拉升
+# 黄金期货瞬时波动系有某客户申报较大手数卖出指令全部成交所致
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-来源：中国基金报 【导读】白银突然暴涨 中国基金报记者 泰勒 兄弟姐妹们啊，今晚原油、股市表现平平，但是现货白银突然暴力拉升！ 5月11日晚间，没有一丝丝防备，白银价格突然直线拉升，现暴涨约7%！ 泰勒找了一圈，目前还没有找到触发白银暴涨的原因，因为此时此刻，无论是原油市场还是美股，都没有出现大幅波动。 而市场有一种解读，就是技术分析显示，银价可能正在修复。 白银价格自1月暴跌
+人民财讯5月20日电，2026年5月19日21时04分，AU2606合约出现瞬时价格下跌，行情随后快速恢复。证券时报记者5月20日从上期所获悉，经核查，系有某客户申报较大手数卖出指令全部成交所致。上期所表示，该所将持续做好市场监控工作，同时提醒投资者做好交易风险控制。责任编辑：朱赫楠
 
 ## 正文
 
-来源：中国基金报 【导读】白银突然暴涨 中国基金报记者 泰勒 兄弟姐妹们啊，今晚原油、股市表现平平，但是现货白银突然暴力拉升！
+人民财讯5月20日电，2026年5月19日21时04分，AU2606合约出现瞬时价格下跌，行情随后快速恢复。
 
-5月11日晚间，没有一丝丝防备，白银价格突然直线拉升，现暴涨约7%！
+证券时报记者5月20日从上期所获悉，经核查，系有某客户申报较大手数卖出指令全部成交所致。
 
-泰勒找了一圈，目前还没有找到触发白银暴涨的原因，因为此时此刻，无论是原油市场还是美股，都没有出现大幅波动。
+上期所表示，该所将持续做好市场监控工作，同时提醒投资者做好交易风险控制。
 
-而市场有一种解读，就是技术分析显示，银价可能正在修复。
-
-白银价格自1月暴跌，并在伊朗战争爆发初期再度下挫以来，一直表现挣扎。
-
-3月，白银一度跌至每盎司60.94美元的三个月低点，较1月29日创下的121.64美元历史高位跌去约50%。
-
-此后，白银价格已经企稳。
-
-过去六周里，白银重新站上了两个关键技术分析位，也就是所谓的下行趋势线。
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-29 15:25 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 15:40 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 15:32 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 15:39 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 15:43 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 15:32 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 15:30 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 15:35 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 15:45 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 15:36 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 15:59 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 15:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 15:45 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 15:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 15:56 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 15:49 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 15:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 15:44 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 15:47 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 15:37 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:29 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/429040630475.shtml)
-- 2026-06-29 15:49 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/452506263786.shtml)
-- 2026-06-29 15:46 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/7483885151.shtml)
-- 2026-06-29 15:40 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/435860876401.shtml)
-- 2026-06-29 15:41 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.kurohicncr.top/Article/details/5077798853.shtml)
-- 2026-06-29 15:25 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/70930750611.shtml)
-- 2026-06-29 15:44 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/89097894.shtml)
-- 2026-06-29 15:39 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/4856075009.shtml)
-- 2026-06-29 15:37 - [爱很美味](http://www.blog.minike.top/Article/details/004215837048.shtml)
-- 2026-06-29 15:30 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/792517393604.shtml)
-- 2026-06-29 15:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/833734054.shtml)
-- 2026-06-29 15:46 - [李在明称韩国足协任命了无能之人](http://www.blog.minike.top/Article/details/20355318.shtml)
-- 2026-06-29 15:40 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/63260010.shtml)
-- 2026-06-29 15:47 - [南部战区位南海海域进行例行巡航](http://www.blog.kurohicncr.top/Article/details/9822681093.shtml)
-- 2026-06-29 15:45 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/575503.shtml)
+- 2026-06-29 15:33 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/6709472.shtml)
+- 2026-06-29 15:37 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.minike.top/Article/details/7561429697.shtml)
+- 2026-06-29 15:36 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/00622.shtml)
+- 2026-06-29 15:50 - [中方回应对日本相关出口管制措施](http://www.blog.kurohicncr.top/Article/details/226384748.shtml)
+- 2026-06-29 15:36 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/78601816.shtml)
+- 2026-06-29 15:54 - [沙丘](http://www.blog.kurohicncr.top/Article/details/544205.shtml)
+- 2026-06-29 15:53 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/8884616.shtml)
+- 2026-06-29 15:33 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/40181.shtml)
+- 2026-06-29 15:58 - [中餐厅南北饮食差异](https://www.blog.minike.top/Article/details/4036236.shtml)
+- 2026-06-29 15:37 - [女生雨天开车发现雨刮条被掰走](http://www.share.minike.top/Article/details/96234346.shtml)
+- 2026-06-29 15:44 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/38572826794.shtml)
+- 2026-06-29 15:36 - [行程万里不忘初心](http://www.share.minike.top/Article/details/72747484518.shtml)
+- 2026-06-29 15:34 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/2332087.shtml)
+- 2026-06-29 15:55 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/9769463061.shtml)
+- 2026-06-29 15:32 - [当地回应林区违规放羊遭豹啃食](http://www.blog.minike.top/Article/details/3634873.shtml)

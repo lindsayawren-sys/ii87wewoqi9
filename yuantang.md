@@ -1,57 +1,59 @@
-# 接手王思聪公司后，何猷君豪赌海南
+# “小发票”何以撬动千亿“大消费”？
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-来源：时代财经APP 三亚海棠湾一场土地拍卖，让何猷君的海南布局浮出水面。 5月8日，市场上备受关注的海南三亚海棠湾HT08-09-02地块迎来出让，买家海南星聚家源置业有限公司以6.81亿元竞得地块。根据挂牌要求，该地块将打造电竞体育文旅融合商业项目，且承诺总投资不低于14亿元。 而海南星聚家源置业的背后，站着赌王之子何猷君的资本身影。 时代财经查阅工商信息可知，海南星聚家源
+丁铁《工人日报》 今年初，我国在50个城市启动为期6个月的有奖发票试点，消费满百元开票即可扫码抽奖。据央广网报道，商务部数据显示，截至5月13日，来自零售、餐饮等八大行业，超260万家商户参与有奖发票试点活动，超5.2亿人次上传发票抽奖。特别是今年春节、清明、“五一”假期，有奖发票活动顺势发力，为消费市场添活力、聚人气。 有奖发票活动热力十足，源于政策精准对接消费需求、兼顾多重
 
 ## 正文
 
-来源：时代财经APP 三亚海棠湾一场土地拍卖，让何猷君的海南布局浮出水面。
+丁铁《工人日报》 今年初，我国在50个城市启动为期6个月的有奖发票试点，消费满百元开票即可扫码抽奖。
 
-5月8日，市场上备受关注的海南三亚海棠湾HT08-09-02地块迎来出让，买家海南星聚家源置业有限公司以6.81亿元竞得地块。
+据央广网报道，商务部数据显示，截至5月13日，来自零售、餐饮等八大行业，超260万家商户参与有奖发票试点活动，超5.2亿人次上传发票抽奖。
 
-根据挂牌要求，该地块将打造电竞体育文旅融合商业项目，且承诺总投资不低于14亿元。
+特别是今年春节、清明、“五一”假期，有奖发票活动顺势发力，为消费市场添活力、聚人气。
 
-而海南星聚家源置业的背后，站着赌王之子何猷君的资本身影。
+有奖发票活动热力十足，源于政策精准对接消费需求、兼顾多重价值。
 
-时代财经查阅工商信息可知，海南星聚家源置业控股股东为宁夏新家源集团房地产开发有限公司；此外，海南星竞威武文体发展有限公司和海南寰聚商业投资有限公司分别持股20%、10%，二者均为何猷君实际控制的企业。
+此次试点以“小切口”切入民生消费场景，覆盖零售、餐饮、旅游住宿等与群众衣食住行密切相关的八大行业，单张含税100元即可参与抽奖，奖金以电子红包形式即时到账。
 
-“向海而生，首战告捷。
+用“普惠易得、即时兑现”的特点，打破以往消费者“被动接票”、商户“不愿开票”的僵局。
 
-热烈祝贺星竞威武&寰聚商业成功摘地。
+据悉，50个试点城市投入奖金48.9亿元，参与活动发票金额达2088.2亿元。
 
-”拿地当天，寰聚商业在官方公众号官宣此消息。
+这组数据背后，是政策对消费心理的精准把握，更是“小激励聚大能量”的生动实践。
 
 ## 相关推荐
 
-- 2026-06-29 15:46 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 15:31 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 15:49 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 15:43 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 15:29 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 15:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 15:51 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 15:41 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 15:24 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-29 15:41 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 15:39 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 15:43 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 15:31 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 15:52 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 16:00 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 15:36 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 15:43 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 15:48 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 15:37 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 15:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 15:57 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 15:33 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 15:33 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 15:44 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:40 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/644079122.shtml)
-- 2026-06-29 15:34 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/5396018588.shtml)
-- 2026-06-29 15:42 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/7909938.shtml)
-- 2026-06-29 15:52 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/24529106.shtml)
-- 2026-06-29 15:53 - [一生一世](http://www.blog.kurohicncr.top/Article/details/024990148283.shtml)
-- 2026-06-29 15:31 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/98542057257.shtml)
-- 2026-06-29 15:51 - [葛军谈AI时代理科生出路](http://www.blog.kurohicncr.top/Article/details/4895455.shtml)
-- 2026-06-29 15:24 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/327612.shtml)
-- 2026-06-29 15:31 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/28317931.shtml)
-- 2026-06-29 15:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/960476.shtml)
-- 2026-06-29 15:30 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/1855142.shtml)
-- 2026-06-29 15:39 - [Agent带来token消耗爆炸](https://www.share.kurohicncr.top/Article/details/30361.shtml)
-- 2026-06-29 15:33 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/0851591343.shtml)
-- 2026-06-29 15:28 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/4141898.shtml)
-- 2026-06-29 15:39 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/30934403143.shtml)
+- 2026-06-29 15:55 - [20年前的周杰伦](http://www.share.minike.top/Article/details/77816463410.shtml)
+- 2026-06-29 15:47 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/42353.shtml)
+- 2026-06-29 15:42 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.minike.top/Article/details/903836.shtml)
+- 2026-06-29 15:51 - [网警提醒4类高考查分陷阱考生速看](http://www.share.kurohicncr.top/Article/details/2450017025.shtml)
+- 2026-06-29 15:59 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/950905.shtml)
+- 2026-06-29 15:45 - [梅朗雄主张法国退出北约](http://www.blog.minike.top/Article/details/59732202.shtml)
+- 2026-06-29 15:58 - [42岁郭碧婷纯素颜状态](http://www.blog.kurohicncr.top/Article/details/10430037419.shtml)
+- 2026-06-29 15:59 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/928320394.shtml)
+- 2026-06-29 15:42 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/09347980997.shtml)
+- 2026-06-29 15:47 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/710416008.shtml)
+- 2026-06-29 15:48 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/97085959062.shtml)
+- 2026-06-29 15:46 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/07712500.shtml)
+- 2026-06-29 15:41 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/402472026223.shtml)
+- 2026-06-29 15:50 - [东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/82660851.shtml)
+- 2026-06-29 15:51 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/70858.shtml)

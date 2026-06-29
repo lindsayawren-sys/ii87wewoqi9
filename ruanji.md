@@ -1,56 +1,61 @@
-# Autodesk股价上涨 美银美林给予买入评级 称其在人工智能领域具有优势
+# SpaceX公开提交IPO文件 单季亏损42.8亿美元
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-设计软件公司欧特克（Autodesk）的股价上涨1.1%，报238.69美元。 美银全球研究重启覆盖，给予“买入”评级；目标价定为300美元，较该股上一交易日收盘价有23.1%的上行空间。 美银指出ADSK的“数据、3D场景以及长达十年的AI投资，赋予其难以复制的结构性优势”。 该券商表示，公司拥有“对几何和装配逻辑的深刻情境理解，这是公开网络上无法获得的”，这使ADSK相对于
+SpaceX公开提交首次公开募股（IPO）文件，披露数十亿美元亏损以及一项超级投票权股份计划。该计划将让埃隆·马斯克得以牢牢掌控这家火箭、卫星和人工智能巨头，并防止其在本人不同意的情况下被罢免。 根据周三提交给美国证券交易委员会（SEC）的文件，正式名称为Space Exploration Technologies Corp．的SpaceX选择在纳斯达克上市，股票代码为SPCX
 
 ## 正文
 
-设计软件公司欧特克（Autodesk）的股价上涨1.1%，报238.69美元。
+SpaceX公开提交首次公开募股（IPO）文件，披露数十亿美元亏损以及一项超级投票权股份计划。
 
-美银全球研究重启覆盖，给予“买入”评级；目标价定为300美元，较该股上一交易日收盘价有23.1%的上行空间。
+该计划将让埃隆·马斯克得以牢牢掌控这家火箭、卫星和人工智能巨头，并防止其在本人不同意的情况下被罢免。
 
-美银指出ADSK的“数据、3D场景以及长达十年的AI投资，赋予其难以复制的结构性优势”。
+根据周三提交给美国证券交易委员会（SEC）的文件，正式名称为Space Exploration Technologies Corp．的SpaceX选择在纳斯达克上市，股票代码为SPCX。
 
-该券商表示，公司拥有“对几何和装配逻辑的深刻情境理解，这是公开网络上无法获得的”，这使ADSK相对于通用AI模型更具优势。
+媒体4月报道称，SpaceX此前已保密提交上市文件。
 
-33位分析师的平均评级为“买入”，其目标价中位数为327.50美元。
+根据文件，SpaceX第一季度收入46.9亿美元，净亏损42.8亿美元；上年同期收入约40亿美元，净亏损5.28亿美元。
 
-该股今年以来累计下跌19.4%。
+知情人士此前称，这家由全球首富掌舵的最大未上市公司计划通过上市募资多达750亿美元，对公司的估值超过2万亿美元。
 
-责任编辑：李桐
+这将超过沙特阿美2019年创下的294亿美元IPO纪录。
+
+根据文件，马斯克目前持有SpaceX 12.3%的A类股和93.6%的B类股，拥有该公司85.1%的投票权。
 
 ## 相关推荐
 
-- 2026-06-29 15:49 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 15:35 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 15:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 15:26 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 15:36 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 15:26 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 15:46 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 15:46 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 15:34 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 15:39 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 15:47 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 15:48 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 15:37 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 15:40 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 15:37 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 15:55 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 15:35 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 15:57 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 15:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 15:52 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 15:31 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 15:52 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 15:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 15:47 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 15:52 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 15:43 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 15:46 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:24 - [未来5年全国能源体系将呈现这些特征](http://www.share.kurohicncr.top/Article/details/46195817966.shtml)
-- 2026-06-29 15:50 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/78014208966.shtml)
-- 2026-06-29 15:26 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/52136714915.shtml)
-- 2026-06-29 15:40 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/603689251446.shtml)
-- 2026-06-29 15:45 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/8908045.shtml)
-- 2026-06-29 15:41 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/47974225.shtml)
-- 2026-06-29 15:48 - [苹果回应恋与深空低分](https://www.share.kurohicncr.top/Article/details/81987752930.shtml)
-- 2026-06-29 15:38 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/16897646219.shtml)
-- 2026-06-29 15:25 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/024684.shtml)
-- 2026-06-29 15:51 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/0512877343.shtml)
-- 2026-06-29 15:48 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/73639074716.shtml)
-- 2026-06-29 15:39 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/8282122.shtml)
-- 2026-06-29 15:30 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.kurohicncr.top/Article/details/32335477120.shtml)
-- 2026-06-29 15:53 - [众星恭喜吴建豪](http://www.share.minike.top/Article/details/3233237.shtml)
-- 2026-06-29 15:34 - [巴基斯坦军方打死29名武装分子](http://www.share.minike.top/Article/details/167521.shtml)
+- 2026-06-29 15:45 - [84岁英国教授成中国网红](https://www.share.minike.top/Article/details/11313198402.shtml)
+- 2026-06-29 15:44 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.minike.top/Article/details/3815674.shtml)
+- 2026-06-29 15:36 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/614625153.shtml)
+- 2026-06-29 15:52 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/55363.shtml)
+- 2026-06-29 15:57 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/145316531898.shtml)
+- 2026-06-29 15:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/78578540.shtml)
+- 2026-06-29 15:56 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/09494567879.shtml)
+- 2026-06-29 15:56 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/09587463.shtml)
+- 2026-06-29 15:38 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/479550.shtml)
+- 2026-06-29 15:54 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/297297053.shtml)
+- 2026-06-29 15:55 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/2463491198.shtml)
+- 2026-06-29 15:51 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/96606.shtml)
+- 2026-06-29 15:34 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/2442754653.shtml)
+- 2026-06-29 15:54 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/20631.shtml)
+- 2026-06-29 15:52 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/541729.shtml)

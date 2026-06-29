@@ -1,61 +1,53 @@
-# 股海导航_2026年5月12日_沪深股市公告与交易提示
+# 强降雨已致湖南石门县5人死亡11人失联
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【停牌】 301288 *ST清研 300851 交大思诺 002868 *ST绿康 300268 *ST佳沃 【复牌】 601010 ST文峰 2 688496 *ST清越（维权） 3 301139 *ST元道（维权） 【品大事】 5连板福达合金：主营业务未发生调整整体经营态势稳定 福达合
+中新网长沙5月20日电 (刘曼)自5月17日以来，湖南省常德市遭遇入汛以来范围最广、强度最大、历时最长的强降雨过程。其中，澧水支流渫水流域成为暴雨中心，石门县等地遭受特大洪水袭击。 石门县应急和安全生产委员会20日最新通报称，截至目前，石门全县共有23个乡镇区场不同程度受灾，受灾人口103247人，5人死亡、11人失联。应急救援工作正在持续进行。(完)
 
 ## 正文
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网长沙5月20日电 (刘曼)自5月17日以来，湖南省常德市遭遇入汛以来范围最广、强度最大、历时最长的强降雨过程。
 
-【停牌】 301288 *ST清研 300851 交大思诺 002868 *ST绿康 300268 *ST佳沃 【复牌】 601010 ST文峰 2 688496 *ST清越（维权） 3 301139 *ST元道（维权） 【品大事】 5连板福达合金：主营业务未发生调整整体经营态势稳定 福达合金发布股票交易风险提示公告，自2026年4月29日至2026年5月8日，公司股票收盘价格累计涨幅达46.42%，并触及股价异常波动及股票交易风险提示。
+其中，澧水支流渫水流域成为暴雨中心，石门县等地遭受特大洪水袭击。
 
-2026年5月11日，公司股票再次涨停。
+石门县应急和安全生产委员会20日最新通报称，截至目前，石门全县共有23个乡镇区场不同程度受灾，受灾人口103247人，5人死亡、11人失联。
 
-公司基本面未发生重大变化，存在市场情绪过热及非理性炒作的情形，二级市场交易风险上升；公司股价短期涨幅较大，后续股票可能存在较大回调风险。
+应急救援工作正在持续进行。
 
-公司成立于1994年，深耕电接触材料生产加工领域多年，主要产品包括：触头材料、复层触头、触头组件等，能够为客户提供电接触材料一体化解决方案。
-
-经公司内部自查确认，当前公司主营业务未发生调整，整体经营态势稳定。
-
-6天4板泰晶科技：未来光模块业务开展及业绩实现均存在较大不确定性 泰晶科技发布股票交易风险提示公告，近期光模块市场关注度较高，公司主营业务为石英晶体谐振器、振荡器，其中高频差分低抖动振荡器为光模块DSP提供高精度低抖动参考时钟，主要用于保障高速传输稳定可靠。
-
-但目前公司相关业务尚处于市场推广期，业务收入占比极少，对公司近期报表影响极小。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:39 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 15:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 15:43 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 15:45 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 15:52 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 15:25 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 15:29 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 15:51 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 15:25 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 15:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 15:45 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 15:49 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 15:37 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 15:40 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 15:33 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 15:52 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 15:33 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 15:51 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 15:42 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 15:39 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 15:53 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 15:30 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 15:49 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 15:42 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 15:40 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 15:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 15:42 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 15:36 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/460980128.shtml)
-- 2026-06-29 15:53 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/41515.shtml)
-- 2026-06-29 15:24 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/62137382109.shtml)
-- 2026-06-29 15:30 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/08741.shtml)
-- 2026-06-29 15:47 - [啊啊啊](http://www.blog.minike.top/Article/details/13277.shtml)
-- 2026-06-29 15:29 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.minike.top/Article/details/943976157.shtml)
-- 2026-06-29 15:45 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.kurohicncr.top/Article/details/895967844.shtml)
-- 2026-06-29 15:43 - [周生如故](https://www.share.kurohicncr.top/Article/details/729769143958.shtml)
-- 2026-06-29 15:49 - [NBA交易](http://www.share.minike.top/Article/details/32812208415.shtml)
-- 2026-06-29 15:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/585167814.shtml)
-- 2026-06-29 15:45 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/451940572648.shtml)
-- 2026-06-29 15:44 - [四川宜宾地震](https://www.share.minike.top/Article/details/44284.shtml)
-- 2026-06-29 15:34 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/67729503695.shtml)
-- 2026-06-29 15:43 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/17374940642.shtml)
-- 2026-06-29 15:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/738691797.shtml)
+- 2026-06-29 15:31 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/85816.shtml)
+- 2026-06-29 15:52 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/0651238.shtml)
+- 2026-06-29 15:53 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.kurohicncr.top/Article/details/99639696822.shtml)
+- 2026-06-29 15:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/594778.shtml)
+- 2026-06-29 15:40 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/4165512.shtml)
+- 2026-06-29 15:32 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/193232291463.shtml)
+- 2026-06-29 15:36 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/8649855236.shtml)
+- 2026-06-29 15:50 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/35022605171.shtml)
+- 2026-06-29 15:43 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/474089.shtml)
+- 2026-06-29 15:40 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/79648326630.shtml)
+- 2026-06-29 15:35 - [行程万里不忘初心](http://www.blog.minike.top/Article/details/6601337667.shtml)
+- 2026-06-29 15:38 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/60731922.shtml)
+- 2026-06-29 15:54 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/00206.shtml)
+- 2026-06-29 15:55 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/53882126567.shtml)
+- 2026-06-29 15:51 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/964320762.shtml)

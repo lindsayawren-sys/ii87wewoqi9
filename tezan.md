@@ -1,48 +1,59 @@
-# 蒙眼扎针！一起来看兵姐姐的绝活
+# 韩国股市飙升 三星与工会达成初步协议
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 11:33 来源：中国新闻网 在第115个国际护士节来临之际，联勤保障部队第924医院开展“全能护士争霸赛”技能比武。围绕心肺复苏、微光输液、创伤包扎等科目，全面锤炼战场救护能力，激励队员投身强军卫勤事业。(作者：司灵美 韦金秀 唐海燕 刘薇） 责任编辑：【魏聪聪】
+韩国股市飙升，三星电子与工会达成初步协议，令这家全球最大存储芯片制造商在最后关头躲过了罢工危机。 基准Kospi指数周四一度上涨6.2%，三星股价飙升近7%。SK海力士一度涨8.3%。期货价格飙升后，韩国交易所短暂停止Kospi和小盘股指数Kosdaq的程序化交易。 芯片相关股票也受到英伟达财报强于预期的提振。韩国股市此前两个交易日回落，因收益率上升打击了科技股人气，罢工风险给
 
 ## 正文
 
-发布时间：2026年05月11日 11:33 来源：中国新闻网 在第115个国际护士节来临之际，联勤保障部队第924医院开展“全能护士争霸赛”技能比武。
+韩国股市飙升，三星电子与工会达成初步协议，令这家全球最大存储芯片制造商在最后关头躲过了罢工危机。
 
-围绕心肺复苏、微光输液、创伤包扎等科目，全面锤炼战场救护能力，激励队员投身强军卫勤事业。
+基准Kospi指数周四一度上涨6.2%，三星股价飙升近7%。
 
-(作者：司灵美 韦金秀 唐海燕 刘薇） 责任编辑：【魏聪聪】
+SK海力士一度涨8.3%。
+
+期货价格飙升后，韩国交易所短暂停止Kospi和小盘股指数Kosdaq的程序化交易。
+
+芯片相关股票也受到英伟达财报强于预期的提振。
+
+韩国股市此前两个交易日回落，因收益率上升打击了科技股人气，罢工风险给三星股价蒙上阴影。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 15:45 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 15:28 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 15:43 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 15:48 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 15:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 15:34 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 15:35 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 15:49 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 15:53 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 15:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 15:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 15:37 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 15:42 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 15:51 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 15:57 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 15:55 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 15:36 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 15:31 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 15:59 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 15:45 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 15:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 15:31 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 15:50 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 15:58 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 15:54 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 15:56 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 15:54 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:45 - [上海一小区水池内出现一条鳄鱼](http://www.blog.kurohicncr.top/Article/details/52049565.shtml)
-- 2026-06-29 15:30 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/169008727.shtml)
-- 2026-06-29 15:32 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/5894559.shtml)
-- 2026-06-29 15:38 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/4006868799.shtml)
-- 2026-06-29 15:39 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/5832731.shtml)
-- 2026-06-29 15:37 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/3946377.shtml)
-- 2026-06-29 15:44 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/01041.shtml)
-- 2026-06-29 15:35 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/919416.shtml)
-- 2026-06-29 15:26 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/723323244.shtml)
-- 2026-06-29 15:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/82902.shtml)
-- 2026-06-29 15:32 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/734336.shtml)
-- 2026-06-29 15:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/851316527.shtml)
-- 2026-06-29 15:37 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/414053.shtml)
-- 2026-06-29 15:54 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/581459.shtml)
-- 2026-06-29 15:31 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/93870929682.shtml)
+- 2026-06-29 15:50 - [起风了](https://www.blog.minike.top/Article/details/7109450698.shtml)
+- 2026-06-29 15:35 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/8709219895.shtml)
+- 2026-06-29 15:31 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/832473232714.shtml)
+- 2026-06-29 15:30 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/296585.shtml)
+- 2026-06-29 15:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/3776322466.shtml)
+- 2026-06-29 15:34 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/41357.shtml)
+- 2026-06-29 15:46 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/8338303.shtml)
+- 2026-06-29 15:40 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/621293.shtml)
+- 2026-06-29 15:36 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/90443695.shtml)
+- 2026-06-29 15:34 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/5487673.shtml)
+- 2026-06-29 15:31 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/25412619.shtml)
+- 2026-06-29 15:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/90605861.shtml)
+- 2026-06-29 15:40 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/62519.shtml)
+- 2026-06-29 15:41 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/985729.shtml)
+- 2026-06-29 15:55 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/0624439.shtml)

@@ -1,57 +1,61 @@
-# 创新药再爆百亿BD大单！华宝基金药ETF逆市连阳！多头提前埋伏，连续4日爆买520880！
+# Lunai Bioworks宣布1比8反向拆股，5月22日生效以维持纳斯达克上市地位
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-5月12日，AH创新药整体延续调整。午间恒瑞医药官宣重磅BD，其A股暴拉涨停，H股一度冲涨16%，带动板块直线拉升翻红。 A股制药板块午后自深水区拉起，场内唯一药ETF华宝（562050）*直线冲高1.73%根据PCF清单，恒瑞医药为药ETF华宝第一大权重股，最新权重占比14.13%。 截至收盘，药ETF华宝（562050）逆市收涨，成功连阳站上10日线。恒瑞医药A股收涨4.8
+AI驱动的生命科学公司Lunai Bioworks周三宣布，将对其普通股实施1比8的反向股票分割。该拆股将于美国东部时间2026年5月22日凌晨12：01正式生效，当日纳斯达克开盘后将以拆股调整后的价格进行交易，股票代码仍为“LNAI”，但将启用新的CUSIP编号。 拆股细节：流通股从3627万股缩减至453万股 根据公司向SEC提交的文件，此次反向拆股方案已于2026年5月8
 
 ## 正文
 
-5月12日，AH创新药整体延续调整。
+AI驱动的生命科学公司Lunai Bioworks周三宣布，将对其普通股实施1比8的反向股票分割。
 
-午间恒瑞医药官宣重磅BD，其A股暴拉涨停，H股一度冲涨16%，带动板块直线拉升翻红。
+该拆股将于美国东部时间2026年5月22日凌晨12：01正式生效，当日纳斯达克开盘后将以拆股调整后的价格进行交易，股票代码仍为“LNAI”，但将启用新的CUSIP编号。
 
-A股制药板块午后自深水区拉起，场内唯一药ETF华宝（562050）*直线冲高1.73%根据PCF清单，恒瑞医药为药ETF华宝第一大权重股，最新权重占比14.13%。
+拆股细节：流通股从3627万股缩减至453万股 根据公司向SEC提交的文件，此次反向拆股方案已于2026年5月8日召开的特别股东大会上获得批准。
 
-截至收盘，药ETF华宝（562050）逆市收涨，成功连阳站上10日线。
+股东授权董事会在1比3至1比30的区间内确定最终比例，董事会随后选定了1比8的比例。
 
-恒瑞医药A股收涨4.84%，新和成、百济神州涨逾2%。
+生效后，每8股现有普通股将自动合并为1股新股。
 
-信立泰连收2个跌停板再成主要拖累。
+公司流通股总数将从约3627万股缩减至约453万股。
 
-港股通创新药午后同步冲高回落，100%创新药研发标的——港股通创新药ETF华宝（520880）收跌0.61%，系康方生物、石药集团等权重龙头收跌拖累。
+普通股的面值及授权股份总数保持不变。
 
-不过场内延续宽幅溢价，显示买盘态度仍积极，此前4日合计逾3.88亿元连续加码。
+零碎股份将向上取整为整股，持有电子账簿形式股份的股东无需采取任何行动。
 
 ## 相关推荐
 
-- 2026-06-29 15:41 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 15:47 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 15:49 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 15:52 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 15:27 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 15:43 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 15:35 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 15:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 15:46 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 15:25 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 15:26 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 15:36 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 15:59 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 15:50 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 15:45 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 15:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 15:30 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 15:37 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 15:37 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 15:58 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 15:39 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 15:43 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 15:33 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 15:49 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 15:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 15:51 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:29 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/0893571.shtml)
-- 2026-06-29 15:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/004379989.shtml)
-- 2026-06-29 15:46 - [世界杯超牛补水广告出现了](https://www.share.kurohicncr.top/Article/details/937132.shtml)
-- 2026-06-29 15:24 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/0920425.shtml)
-- 2026-06-29 15:52 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/56922.shtml)
-- 2026-06-29 15:34 - [媒体：中国田径压力与期待并存](http://www.share.minike.top/Article/details/656601475.shtml)
-- 2026-06-29 15:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/597897406527.shtml)
-- 2026-06-29 15:36 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/74785263.shtml)
-- 2026-06-29 15:40 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.minike.top/Article/details/33885180.shtml)
-- 2026-06-29 15:27 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/73798092953.shtml)
-- 2026-06-29 15:45 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/21280360257.shtml)
-- 2026-06-29 15:31 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/395662934603.shtml)
-- 2026-06-29 15:41 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/8182627.shtml)
-- 2026-06-29 15:52 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/103077556095.shtml)
-- 2026-06-29 15:49 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/8693081118.shtml)
+- 2026-06-29 15:34 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/135160.shtml)
+- 2026-06-29 15:50 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/53278574.shtml)
+- 2026-06-29 15:59 - [《贺子珍》](http://www.share.minike.top/Article/details/7314708769.shtml)
+- 2026-06-29 15:31 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.minike.top/Article/details/617064.shtml)
+- 2026-06-29 15:37 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/59148578786.shtml)
+- 2026-06-29 15:40 - [王祖蓝现场观看美加墨世界杯](https://www.share.kurohicncr.top/Article/details/951830167908.shtml)
+- 2026-06-29 15:32 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/66655955654.shtml)
+- 2026-06-29 15:56 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/494407837193.shtml)
+- 2026-06-29 15:54 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/633525584708.shtml)
+- 2026-06-29 15:50 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/2749431.shtml)
+- 2026-06-29 15:56 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/040221438.shtml)
+- 2026-06-29 15:49 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/26030465.shtml)
+- 2026-06-29 15:31 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.minike.top/Article/details/92130.shtml)
+- 2026-06-29 15:34 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/178850.shtml)
+- 2026-06-29 15:36 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/17543.shtml)

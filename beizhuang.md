@@ -1,61 +1,58 @@
-# 江南华南将有较强降水 新疆内蒙古甘肃等地有大风降温沙尘天气
+# 超63亿元撤出“易中天”，主力资金高低切换，这些方向被加仓
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新网5月12日电 据中央气象台网站消息，昨日，云南、海南岛等局地出现暴雨或大暴雨，青藏高原东部出现小雪或雨夹雪；新疆、西藏等地部分地区风力大。预计未来三天，江南、华南等地将有较强降雨，并伴有雷暴大风、冰雹等强对流天气，注意防范局地暴雨灾害及强对流天气危害；新疆、内蒙古、甘肃等地有大风沙尘天气，关注对交通运输、人体健康等影响。 国内天气情况 1.实况 (1)云南等地出现明显降雨
+5月19日，A股市场先抑后扬。早盘创业板指一度跌超2%，午后科技成长获资金回流，带动科创50指数强势翻红。截至当日收盘，创业板指数跌幅收窄至0.16%。 资金面上，资金高低切换迹象明显。计算机、公用事业、机械设备等板块获主力资金净买入，计算机行业以25.78亿元的资金净流入额领跑全市场。而前期强势的通信、电子板块资金大幅净流出，“易中天”组合单日被抛售超63亿元。 机构认为，短
 
 ## 正文
 
-中新网5月12日电 据中央气象台网站消息，昨日，云南、海南岛等局地出现暴雨或大暴雨，青藏高原东部出现小雪或雨夹雪；新疆、西藏等地部分地区风力大。
+5月19日，A股市场先抑后扬。
 
-预计未来三天，江南、华南等地将有较强降雨，并伴有雷暴大风、冰雹等强对流天气，注意防范局地暴雨灾害及强对流天气危害；新疆、内蒙古、甘肃等地有大风沙尘天气，关注对交通运输、人体健康等影响。
+早盘创业板指一度跌超2%，午后科技成长获资金回流，带动科创50指数强势翻红。
 
-国内天气情况 1.实况 (1)云南等地出现明显降雨 昨日8时至今日6时，四川南部、云南、海南岛中部及新疆伊犁河谷等地部分地区出现中雨或大雨、局地暴雨或大暴雨，上述部分地区最大小时降雨量20～50毫米，山东日照和青岛、江苏连云港等地出现8～10级雷暴大风，局地11～12级；青海东南部、西藏东北部等地出现小雪或雨夹雪。
+截至当日收盘，创业板指数跌幅收窄至0.16%。
 
-(2)新疆西藏等地出现大风 昨日8时至今日6时，新疆、甘肃西部、西藏中西部及内蒙古东部等地部分地区出现7～9级阵风，新疆沿天山一带局地11～14级。
+资金面上，资金高低切换迹象明显。
 
-2.重点天气预报 (1)江南华南将有较强降水 12-14日，江南、华南及贵州东部等地部分地区将有大雨或暴雨，局地大暴雨，并伴有雷暴大风、冰雹等强对流天气。
+计算机、公用事业、机械设备等板块获主力资金净买入，计算机行业以25.78亿元的资金净流入额领跑全市场。
 
-为此，中央气象台5月12日06时发布暴雨蓝色预警：预计，5月12日08时至13日08时，贵州东部、湖南中南部、江西中西部、广西东北部等地部分地区有大雨，其中，湖南西南部和中东部、江西西部、广西东北部等地部分地区有暴雨(50～80毫米)。
+而前期强势的通信、电子板块资金大幅净流出，“易中天”组合单日被抛售超63亿元。
 
-上述部分地区伴有短时强降水(最大小时降雨量20～40毫米，局地可超过50毫米)，局地有雷暴大风或冰雹等强对流天气(见图1)。
+机构认为，短期市场或转向震荡消化，下一阶段胜负手在于寻找盈利持续加速的资产。
 
-另外，西藏中东部、青海、川西高原北部等地部分地区有小到中雪(雨)或雨夹雪，高海拔山区局地有大到暴雪。
+主力资金高低切换 5月19日，A股资金继续围绕高景气主线展开，但主力资金已现高低切换迹象。
 
 ## 相关推荐
 
-- 2026-06-29 15:31 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 15:43 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 15:26 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 15:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 15:31 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 15:30 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 15:29 - [世界杯上那些封神的门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 15:38 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 15:30 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 15:49 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 15:34 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 15:30 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 15:51 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 15:38 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 15:38 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 15:55 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 15:58 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 15:33 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 15:30 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 15:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 15:48 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 15:57 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 15:37 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 15:56 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 15:49 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 15:59 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 15:43 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:41 - [世界杯十大帅哥必吃榜](https://www.blog.kurohicncr.top/Article/details/796880486775.shtml)
-- 2026-06-29 15:38 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/51498.shtml)
-- 2026-06-29 15:49 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/648836030232.shtml)
-- 2026-06-29 15:41 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/99457399.shtml)
-- 2026-06-29 15:46 - [久坐小心“死臀综合征”](https://www.blog.minike.top/Article/details/100987292411.shtml)
-- 2026-06-29 15:51 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.kurohicncr.top/Article/details/0448314988.shtml)
-- 2026-06-29 15:53 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/1031002.shtml)
-- 2026-06-29 15:45 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/473756.shtml)
-- 2026-06-29 15:41 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/1514467874.shtml)
-- 2026-06-29 15:51 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/5968781.shtml)
-- 2026-06-29 15:34 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/586242.shtml)
-- 2026-06-29 15:25 - [周生如故](http://www.share.minike.top/Article/details/380151555.shtml)
-- 2026-06-29 15:37 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.minike.top/Article/details/808315851094.shtml)
-- 2026-06-29 15:52 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/40218.shtml)
-- 2026-06-29 15:25 - [南非老帅布罗斯的梦没能做完](https://www.share.minike.top/Article/details/5511326869.shtml)
+- 2026-06-29 15:41 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/64132427.shtml)
+- 2026-06-29 15:52 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/323990.shtml)
+- 2026-06-29 15:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/05106293033.shtml)
+- 2026-06-29 15:57 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/1705752.shtml)
+- 2026-06-29 15:50 - [流金岁月](http://www.share.minike.top/Article/details/0086880.shtml)
+- 2026-06-29 15:54 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/31582.shtml)
+- 2026-06-29 15:41 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/46259741.shtml)
+- 2026-06-29 15:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/97993066397.shtml)
+- 2026-06-29 15:46 - [女心理师](https://www.blog.kurohicncr.top/Article/details/192129904333.shtml)
+- 2026-06-29 15:34 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/551143311431.shtml)
+- 2026-06-29 15:39 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/06995349493.shtml)
+- 2026-06-29 15:50 - [复盘曾沛慈浪姐夺冠之路](http://www.share.kurohicncr.top/Article/details/23387103.shtml)
+- 2026-06-29 15:55 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/195673646.shtml)
+- 2026-06-29 15:33 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/936633022.shtml)
+- 2026-06-29 15:42 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/57480205148.shtml)

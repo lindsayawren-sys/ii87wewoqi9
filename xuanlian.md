@@ -1,59 +1,61 @@
-# 辽宁公安2025年破获经济案2500余起 挽回企业损失超7亿元
+# 涉嫌违法违规，301030，被证监会立案
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新网沈阳5月12日电 (记者 王景巍)5月12日，辽宁省公安厅召开新闻发布会。辽宁省公安厅经侦总队总队长赵刚在发布会上通报，2025年以来，辽宁省公安机关共破获各类经济犯罪案件2500余起，抓获犯罪嫌疑人5600余人。 经济安全是国家安全的基础。赵刚表示，辽宁公安始终将打击和防范经济犯罪作为护航全面振兴发展的重要举措，健全完善“专业+机制+大数据”新型警务运行模式，积极参与风
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】*ST仕净（维权）因涉嫌信披违法违规等被证监会立案 中国基金报记者 忆山 5月19日，*ST仕净发布公告称，公司于近日收到中国证监会下发的《中国证券监督管理委员会立案告知书》，因公司涉嫌信息披露违法违规等，根据《中华人民共和国证券法
 
 ## 正文
 
-中新网沈阳5月12日电 (记者 王景巍)5月12日，辽宁省公安厅召开新闻发布会。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-辽宁省公安厅经侦总队总队长赵刚在发布会上通报，2025年以来，辽宁省公安机关共破获各类经济犯罪案件2500余起，抓获犯罪嫌疑人5600余人。
+来源：中国基金报 【导读】*ST仕净（维权）因涉嫌信披违法违规等被证监会立案 中国基金报记者 忆山 5月19日，*ST仕净发布公告称，公司于近日收到中国证监会下发的《中国证券监督管理委员会立案告知书》，因公司涉嫌信息披露违法违规等，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。
 
-经济安全是国家安全的基础。
+*ST仕净表示，截至目前，公司经营状况正常。
 
-赵刚表示，辽宁公安始终将打击和防范经济犯罪作为护航全面振兴发展的重要举措，健全完善“专业+机制+大数据”新型警务运行模式，积极参与风险化解、严厉打击经济犯罪、严格规范执法行为，有力维护了辽宁省经济安全和市场秩序。
+立案调查期间，公司将积极配合中国证监会的各项工作，并持续关注上述事项的进展，严格按照规定及监管要求履行信息披露义务。
 
-在金融领域，辽宁公安联合金融监管、行业主管部门构建“四位一体”联动机制，发起多波次集中收网。
+值得注意的是，公司此前发布的2025年年报里，曾出现多处相互矛盾的数据和排版错落等问题。
 
-2025年以来，共破获金融“黑灰产”领域案件20余起，采取刑事强制措施142人，打掉犯罪团伙7个，成功侦办“屹腾惠民”等一批非法经营案。
+例如，在第一节摘要中，该公司提到，报告期内公司实现营业收入11.49亿元，而在第二节主要会计数据和财务指标、第三节主营业务分析部分披露的数据却均为6.16亿元，前后相差超5亿元。
 
-同时，依托“歼击”专项行动，健全警汇战略合作机制，成功侦破系列地下钱庄案；严打假币犯罪，打掉多个制售假币犯罪团伙。
+同时，公司在摘要中提到营收同比下降43.73%，在主营业务分析部分，又称同比下降69.81%，两者相差超26个百分点。
 
-护企安商是优化法治化营商环境的关键一环。
+电池业务板块数据也出现前后矛盾。
 
 ## 相关推荐
 
-- 2026-06-29 15:41 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 15:48 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 15:41 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 15:31 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 15:42 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 15:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 15:28 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 15:52 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 15:36 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 15:49 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 15:53 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 15:46 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 15:43 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 15:55 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 15:52 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 15:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 15:52 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 15:52 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 15:41 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 15:41 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 15:58 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 15:33 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 15:59 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 15:37 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 15:40 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 15:52 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 15:52 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 15:41 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:44 - [中餐厅南北饮食差异](http://www.blog.kurohicncr.top/Article/details/119335884471.shtml)
-- 2026-06-29 15:27 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/962963.shtml)
-- 2026-06-29 15:49 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/76334653344.shtml)
-- 2026-06-29 15:29 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/411711510.shtml)
-- 2026-06-29 15:43 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/6115325.shtml)
-- 2026-06-29 15:37 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/4693235.shtml)
-- 2026-06-29 15:51 - [哈兰德之歌火到国外](https://www.blog.minike.top/Article/details/4600189.shtml)
-- 2026-06-29 15:26 - [送你一朵小红花](http://www.blog.minike.top/Article/details/9008573067.shtml)
-- 2026-06-29 15:30 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/0560008.shtml)
-- 2026-06-29 15:38 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/443811407.shtml)
-- 2026-06-29 15:41 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/632918.shtml)
-- 2026-06-29 15:38 - [一生一世](http://www.share.minike.top/Article/details/71811480561.shtml)
-- 2026-06-29 15:31 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/0174515092.shtml)
-- 2026-06-29 15:29 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/546571252869.shtml)
-- 2026-06-29 15:33 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/520611960.shtml)
+- 2026-06-29 15:54 - [小娘惹](https://www.share.minike.top/Article/details/85918397871.shtml)
+- 2026-06-29 15:56 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/240984616904.shtml)
+- 2026-06-29 15:56 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.minike.top/Article/details/5739032493.shtml)
+- 2026-06-29 15:43 - [周深双眼皮贴又掉了](http://www.blog.minike.top/Article/details/061022089.shtml)
+- 2026-06-29 15:48 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/416933014741.shtml)
+- 2026-06-29 15:45 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/3139724077.shtml)
+- 2026-06-29 15:40 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/251190653.shtml)
+- 2026-06-29 15:57 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/49591.shtml)
+- 2026-06-29 15:35 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/667650.shtml)
+- 2026-06-29 15:49 - [记者率先试乘西十高铁](https://www.share.minike.top/Article/details/167339.shtml)
+- 2026-06-29 15:53 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/361519.shtml)
+- 2026-06-29 15:39 - [医院大厅放钢琴是形式主义吗](http://www.blog.kurohicncr.top/Article/details/53980765394.shtml)
+- 2026-06-29 15:54 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/125350.shtml)
+- 2026-06-29 15:57 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/479489.shtml)
+- 2026-06-29 15:40 - [德国VS巴拉圭前瞻](http://www.blog.minike.top/Article/details/35864767.shtml)

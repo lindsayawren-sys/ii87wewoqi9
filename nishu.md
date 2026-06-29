@@ -1,60 +1,59 @@
-# 沪粤文脉双向奔赴 展示海丝千年风华
+# 家得宝低开高走现涨0.3% 一季度利润下滑，业主暂缓大型家装项目
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-原标题：“百川汇海：海丝帆影下的文明互鉴”特展在上海大学博物馆开幕 沪粤文脉双向奔赴 展示海丝千年风华 羊城晚报讯 记者何文涛、何晶报道：5月9日，“百川汇海：海丝帆影下的文明互鉴”特展在上海大学博物馆开幕。该展览由上海大学主办，上海大学博物馆、广东省文物考古研究院、广州市文物考古研究院、南越王博物院(西汉南越国史研究中心)、广东民间工艺博物馆联合承办。展期持续至7月31日。
+专题：聚焦美股2026年第一季度财报 公司一季度净销售额同比增长 4.8%，达 417.7 亿美元 内容速览 受经济形势不明朗影响，房主缩减大型家装改造工程，家得宝公布财年一季度利润同比走低。 家居建材零售商家得宝公布财年一季度利润下滑。公司首席财务官理查德・麦克菲尔受访时表示，受经济不确定性影响，购房者持续缩减大型居家装修改造项目。 家得宝低开高走，开盘一度下跌3.3%，现涨
 
 ## 正文
 
-原标题：“百川汇海：海丝帆影下的文明互鉴”特展在上海大学博物馆开幕 沪粤文脉双向奔赴 展示海丝千年风华 羊城晚报讯 记者何文涛、何晶报道：5月9日，“百川汇海：海丝帆影下的文明互鉴”特展在上海大学博物馆开幕。
+专题：聚焦美股2026年第一季度财报 公司一季度净销售额同比增长 4.8%，达 417.7 亿美元 内容速览 受经济形势不明朗影响，房主缩减大型家装改造工程，家得宝公布财年一季度利润同比走低。
 
-该展览由上海大学主办，上海大学博物馆、广东省文物考古研究院、广州市文物考古研究院、南越王博物院(西汉南越国史研究中心)、广东民间工艺博物馆联合承办。
+家居建材零售商家得宝公布财年一季度利润下滑。
 
-展期持续至7月31日。
+公司首席财务官理查德・麦克菲尔受访时表示，受经济不确定性影响，购房者持续缩减大型居家装修改造项目。
 
-谈到这次展览的初衷，执行策展人梅海涛表示：“希望通过这次展览，让上海观众清晰认知广州作为海上丝绸之路核心始发港之一不可替代的历史地理地位，厘清海丝沿线城市间的互动逻辑。
+家得宝低开高走，开盘一度下跌3.3%，现涨0.3%。
 
-”“广州与上海，一依南海、一临东海，两座因海兴盛的港口城市，皆具备向海而生、兼容并蓄的文化传统。
+麦克菲尔称：“我们和消费者沟通后发现，大家普遍对经济前景、购房负担能力心存顾虑。
 
-”上海大学博物馆馆长李明斌说，广东外贸一千年的海风，吹过珠江，也吹过黄浦江。
+燃油价格上涨，房贷利率在 2025 年整体回落之后再度走高，裁员现象也不断增多。
 
-文物从广州来到上海，是重逢，也是延续。
+因此民众纷纷选择暂缓大额家装工程。
 
-广东民间工艺博物馆馆长黄海妍在展览现场向记者介绍，本次特展汇聚广东四大文博机构，各家纷纷甄选最具广东特色的馆藏珍品、首度亮相的库房文物以及最新考古发掘成果赴沪参展。
+” 他表示，消费者依旧有家装焕新意愿，户外用品、涂料品类销量表现亮眼；但大家不愿动工大型项目，直接导致木材、地板、灯具及定制木作等品类销售疲软。
 
 ## 相关推荐
 
-- 2026-06-29 15:39 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 15:44 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 15:38 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 15:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 15:36 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 15:44 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 15:44 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 15:46 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 15:49 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 15:42 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 15:38 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 15:52 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 15:28 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 15:37 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 15:39 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 15:56 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 15:49 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 15:34 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 15:50 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 15:41 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 15:33 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 15:38 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 15:43 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 15:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 15:59 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 15:46 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 15:31 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:48 - [龟梨和也田中美奈实结婚](https://www.blog.kurohicncr.top/Article/details/33576178435.shtml)
-- 2026-06-29 15:46 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/46615756.shtml)
-- 2026-06-29 15:42 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/039299575.shtml)
-- 2026-06-29 15:50 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/49945219966.shtml)
-- 2026-06-29 15:40 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.minike.top/Article/details/659092662973.shtml)
-- 2026-06-29 15:53 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/6786332260.shtml)
-- 2026-06-29 15:36 - [流金岁月](https://www.share.kurohicncr.top/Article/details/0790791827.shtml)
-- 2026-06-29 15:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/745082892802.shtml)
-- 2026-06-29 15:29 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/72507235.shtml)
-- 2026-06-29 15:53 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.minike.top/Article/details/322302840875.shtml)
-- 2026-06-29 15:25 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/9447198262.shtml)
-- 2026-06-29 15:36 - [汪东城回应45岁婚约](http://www.share.minike.top/Article/details/5323704.shtml)
-- 2026-06-29 15:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/747373136.shtml)
-- 2026-06-29 15:45 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/6342934566.shtml)
-- 2026-06-29 15:26 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/68207121465.shtml)
+- 2026-06-29 15:35 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.kurohicncr.top/Article/details/7606439816.shtml)
+- 2026-06-29 15:53 - [新能源车能当外接空调用吗](http://www.share.minike.top/Article/details/80141.shtml)
+- 2026-06-29 15:40 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/61079192.shtml)
+- 2026-06-29 15:33 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/176196811.shtml)
+- 2026-06-29 15:45 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/39622820618.shtml)
+- 2026-06-29 15:30 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/16157034.shtml)
+- 2026-06-29 15:57 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.kurohicncr.top/Article/details/7488362472.shtml)
+- 2026-06-29 15:31 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/444684.shtml)
+- 2026-06-29 15:50 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/129999498.shtml)
+- 2026-06-29 15:51 - [永远有话聊的原因](http://www.blog.kurohicncr.top/Article/details/190444.shtml)
+- 2026-06-29 15:52 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/72997834522.shtml)
+- 2026-06-29 15:57 - [斛珠夫人](http://www.blog.minike.top/Article/details/174967944696.shtml)
+- 2026-06-29 15:37 - [欧盟为什么越来越倾向贸易保护](http://www.blog.minike.top/Article/details/86627.shtml)
+- 2026-06-29 15:56 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/13114217907.shtml)
+- 2026-06-29 15:47 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/511658030.shtml)

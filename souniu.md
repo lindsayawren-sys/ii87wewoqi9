@@ -1,51 +1,59 @@
-# 第三届海峡两岸中华文化峰会开幕 台湾嘉宾：共同文化基础是两岸交流的特色
+# Golar LNG Q1 2026财报前瞻：市场预期每股收益0.41美元
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 13:09 来源：中国新闻网 5月11日，第三届海峡两岸中华文化峰会在北京开幕，两岸文化领域等各界代表人士800余人出席。多位与会的两岸文艺界人士在开幕式现场表示，两岸人民血脉相连、文化相通，峰会为两岸提供了一种具体的对话和合作空间，而两岸越来越多民间的、年轻的交流交往亦不断迸发出中华文化的新火花。 记者 刘子衿 范思忆 朱贺 北京报道 责任编
+Golar LNG将于周三（5月20日）盘前发布2026年第一季度财报。市场普遍预期公司受益于全球LNG供需紧张局势，本季度业绩或将实现显著增长。 核心财务预期 根据公开数据，分析师普遍预计Golar LNG Q1每股收益为0.41美元，营收预计为1.2796亿美元。值得注意的是，过去三个月内EPS预估出现三次上修、无下修，反映市场对公司盈利前景的乐观情绪。Fintel数据显示
 
 ## 正文
 
-发布时间：2026年05月12日 13:09 来源：中国新闻网 5月11日，第三届海峡两岸中华文化峰会在北京开幕，两岸文化领域等各界代表人士800余人出席。
+Golar LNG将于周三（5月20日）盘前发布2026年第一季度财报。
 
-多位与会的两岸文艺界人士在开幕式现场表示，两岸人民血脉相连、文化相通，峰会为两岸提供了一种具体的对话和合作空间，而两岸越来越多民间的、年轻的交流交往亦不断迸发出中华文化的新火花。
+市场普遍预期公司受益于全球LNG供需紧张局势，本季度业绩或将实现显著增长。
 
-记者 刘子衿 范思忆 朱贺 北京报道 责任编辑：【李季】
+核心财务预期 根据公开数据，分析师普遍预计Golar LNG Q1每股收益为0.41美元，营收预计为1.2796亿美元。
+
+值得注意的是，过去三个月内EPS预估出现三次上修、无下修，反映市场对公司盈利前景的乐观情绪。
+
+Fintel数据显示，5位分析师对Q1 EPS的预估均值为0.53美元，略高于Seeking Alpha的共识数据。
+
+全球LNG供需紧张支撑业绩 全球LNG市场近期呈现供需紧缩态势，主要由卡塔尔生产中断和中东地缘冲突推动。
+
+现货价格上涨使Golar能够提高短期租船费率，改善盈利能力。
+
+公司拥有FLNG和FSRU等专业资产，在结构性供应短缺环境中被视为潜在受益者。
 
 ## 相关推荐
 
-- 2026-06-29 15:39 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 15:34 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 15:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 15:36 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 15:45 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 15:48 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 15:51 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 15:52 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 15:40 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 15:39 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 15:49 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 15:36 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 15:25 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 15:34 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 15:28 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 15:46 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 15:31 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 15:32 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 15:41 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 15:58 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 15:41 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 15:41 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 15:39 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 15:41 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 15:58 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 15:48 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 15:33 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 15:33 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:51 - [媒体人：警惕日本再次成战争加害国](http://www.share.minike.top/Article/details/84703714.shtml)
-- 2026-06-29 15:30 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.minike.top/Article/details/1543413.shtml)
-- 2026-06-29 15:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/04619517.shtml)
-- 2026-06-29 15:47 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/32742.shtml)
-- 2026-06-29 15:51 - [毒液2](https://www.share.minike.top/Article/details/318633313.shtml)
-- 2026-06-29 15:39 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/14784610.shtml)
-- 2026-06-29 15:38 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/6863196.shtml)
-- 2026-06-29 15:40 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/613761.shtml)
-- 2026-06-29 15:53 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/185304274.shtml)
-- 2026-06-29 15:34 - [差点没看懂白鹿丞磊这段意识流](http://www.share.kurohicncr.top/Article/details/34608.shtml)
-- 2026-06-29 15:49 - [工作靠AI算不算职场作弊](https://www.share.minike.top/Article/details/454158673262.shtml)
-- 2026-06-29 15:34 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/00840.shtml)
-- 2026-06-29 15:45 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/1310210.shtml)
-- 2026-06-29 15:38 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/24207320338.shtml)
-- 2026-06-29 15:51 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/2432526157.shtml)
+- 2026-06-29 15:36 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/848416985091.shtml)
+- 2026-06-29 15:43 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/923994.shtml)
+- 2026-06-29 15:55 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/7301576917.shtml)
+- 2026-06-29 15:52 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/9363824.shtml)
+- 2026-06-29 15:38 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/00689888.shtml)
+- 2026-06-29 15:51 - [7款商保创新药“转道”](https://www.share.minike.top/Article/details/663139856.shtml)
+- 2026-06-29 15:46 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/75762.shtml)
+- 2026-06-29 15:34 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/01428.shtml)
+- 2026-06-29 15:59 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.share.kurohicncr.top/Article/details/52320805605.shtml)
+- 2026-06-29 15:59 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/09256.shtml)
+- 2026-06-29 15:53 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/94553583968.shtml)
+- 2026-06-29 15:51 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/633053422.shtml)
+- 2026-06-29 15:51 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/291519464929.shtml)
+- 2026-06-29 15:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/640809903426.shtml)
+- 2026-06-29 15:47 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/99182891112.shtml)

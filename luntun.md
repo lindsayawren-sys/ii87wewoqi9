@@ -1,56 +1,58 @@
-# 加强政策协同配合 维护金融市场平稳运行
+# 广东发布旅游业发展十项举措 打造“旅游友好型城市”
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-本报记者 欧阳剑环 彭扬 中国人民银行5月11日发布2026年第一季度中国货币政策执行报告。报告提出，把握好政策实施的力度、节奏和时机，加强货币财政政策协同配合，畅通货币政策传导机制，促进经济稳定增长和物价合理回升。拓展丰富中央银行宏观审慎和金融稳定功能，完善宏观审慎和金融稳定管理工具箱，维护金融市场平稳运行。 报告强调，下阶段，中国人民银行将坚持以习近平新时代中国特色社会主义
+中新网广州5月19日电 (记者 程景伟)2026年“5·19中国旅游日”主会场活动启动仪式19日晚在广州举行。广东省文化和旅游厅党组书记郭大杰现场发布《广东省推动旅游业高质量发展十项重点举措》(以下简称《举措》)，提出全力打造有温情、有品质、有底蕴的旅游友好型城市，让广东成为山海可赴、烟火可亲、久念于心的旅游优选地。 十项举措以“主客共享、全域友好”为核心理念，从城市建设、文旅
 
 ## 正文
 
-本报记者 欧阳剑环 彭扬 中国人民银行5月11日发布2026年第一季度中国货币政策执行报告。
+中新网广州5月19日电 (记者 程景伟)2026年“5·19中国旅游日”主会场活动启动仪式19日晚在广州举行。
 
-报告提出，把握好政策实施的力度、节奏和时机，加强货币财政政策协同配合，畅通货币政策传导机制，促进经济稳定增长和物价合理回升。
+广东省文化和旅游厅党组书记郭大杰现场发布《广东省推动旅游业高质量发展十项重点举措》(以下简称《举措》)，提出全力打造有温情、有品质、有底蕴的旅游友好型城市，让广东成为山海可赴、烟火可亲、久念于心的旅游优选地。
 
-拓展丰富中央银行宏观审慎和金融稳定功能，完善宏观审慎和金融稳定管理工具箱，维护金融市场平稳运行。
+十项举措以“主客共享、全域友好”为核心理念，从城市建设、文旅廊道、业态创新、入境便利等多维度发力，加快构建现代旅游业体系，绘制出广东推动旅游业高质量发展的路线图。
 
-报告强调，下阶段，中国人民银行将坚持以习近平新时代中国特色社会主义思想为指导，全面贯彻落实党的二十届四中全会、中央经济工作会议和全国“两会”精神，牢牢把握高质量发展首要任务，扎实推进中国式现代化，坚持稳中求进工作总基调，完整准确全面贯彻新发展理念，加快构建新发展格局，更好统筹国内国际两个大局，精准有效实施适度宽松的货币政策，着力扩大内需、优化供给，做优增量、盘活存量，增强经济发展内生动力，不断巩固拓展经济稳中向好势头。
+与聚焦景区建设、线路推广不同，广东此次将“温润岭南城邑，建设旅游友好型城市”置于十项举措之首。
 
-坚定不移走中国特色金融发展之路，进一步深化金融改革和高水平对外开放，加快建设金融强国，完善中央银行制度，构建科学稳健的货币政策体系和覆盖全面的宏观审慎管理体系，畅通货币政策传导机制。
+从交通接驳的便利度，到公共厕所的洁净度；从商家服务的诚信度，到突发事件的应急处理能力，每一个细节都将被纳入“友好”的评价体系。
 
-报告提出，继续实施好适度宽松的货币政策。
+《举措》提出，广东要打造四大文旅廊道。
 
-增强政策前瞻性灵活性针对性，根据国内外经济金融形势和金融市场运行情况，把握好政策实施的力度、节奏和时机，加强货币财政政策协同配合，畅通货币政策传导机制，促进经济稳定增长和物价合理回升。
+其中，粤港澳大湾区内地九市打造“湾区烟火、古今共生”文旅廊道，粤东打造“山海侨韵”文旅廊道，粤西打造“海丝风情”文旅廊道，粤北打造“生态画廊”文旅廊道，将原本分散的文旅项目串珠成线、编织成网，让游客无论身处广东何地，都能找到具有标志性和独特性的旅游体验。
 
-灵活运用多种货币政策工具，保持流动性充裕和社会融资条件相对宽松，引导金融总量合理增长、信贷均衡投放，使社会融资规模、货币供应量增长同经济增长、价格总水平预期目标相匹配。
+《举措》提出“繁荣演艺赛事，点燃文旅消费热潮”。
 
 ## 相关推荐
 
-- 2026-06-29 15:33 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 15:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 15:26 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 15:28 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 15:51 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 15:46 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 15:27 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 15:52 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 15:34 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 15:41 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 15:51 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 15:49 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 15:33 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 15:39 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 15:56 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 15:41 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 15:42 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 15:44 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 15:48 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 15:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 15:44 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 15:54 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:28 - [上班主打一个薪尽自然凉](http://www.share.minike.top/Article/details/016027405868.shtml)
-- 2026-06-29 15:37 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/259294227369.shtml)
-- 2026-06-29 15:36 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/708616.shtml)
-- 2026-06-29 15:29 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/58654144003.shtml)
-- 2026-06-29 15:47 - [美议员呼吁断供以色列政府](https://www.share.minike.top/Article/details/93024.shtml)
-- 2026-06-29 15:50 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/47902.shtml)
-- 2026-06-29 15:30 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/329196.shtml)
-- 2026-06-29 15:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/10690.shtml)
-- 2026-06-29 15:47 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/80464081139.shtml)
-- 2026-06-29 15:38 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/134039459.shtml)
-- 2026-06-29 15:37 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/03534.shtml)
-- 2026-06-29 15:50 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/38067.shtml)
-- 2026-06-29 15:30 - [周杰伦演唱会真的好多人啊](http://www.blog.kurohicncr.top/Article/details/51830.shtml)
-- 2026-06-29 15:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/33424961892.shtml)
-- 2026-06-29 15:46 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/5313923402.shtml)
+- 2026-06-29 15:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/74316963.shtml)
+- 2026-06-29 15:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/655351842353.shtml)
+- 2026-06-29 15:58 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/361034645873.shtml)
+- 2026-06-29 15:50 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/417589.shtml)
+- 2026-06-29 15:52 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/28560229747.shtml)
+- 2026-06-29 15:30 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/107965490101.shtml)
+- 2026-06-29 15:54 - [恋与深空发放补偿未得到玩家认可](https://www.share.kurohicncr.top/Article/details/38254032321.shtml)
+- 2026-06-29 15:41 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/8951558.shtml)
+- 2026-06-29 15:51 - [中国战机大片上新](http://www.share.minike.top/Article/details/4190284.shtml)
+- 2026-06-29 15:32 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/5121454.shtml)
+- 2026-06-29 15:45 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/080032587.shtml)
+- 2026-06-29 15:31 - [爸爸当家](http://www.blog.minike.top/Article/details/95214148.shtml)
+- 2026-06-29 15:42 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/6558096.shtml)
+- 2026-06-29 15:55 - [驻日美军航母沦为“毒窝”](https://www.share.minike.top/Article/details/156677798390.shtml)
+- 2026-06-29 15:51 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/207952061.shtml)

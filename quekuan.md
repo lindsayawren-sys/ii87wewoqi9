@@ -1,58 +1,61 @@
-# Cerebras上调IPO发行区间，目标融资额高达48亿美元
+# 补税5.24亿，爱尔眼科通关合规大考
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-人工智能芯片制造商Cerebras Systems已上调其首次公开募股的预估价格区间。根据周一的一份文件，公司目前预计每股售价在150至160美元之间，高于上周披露的115至125美元区间。 若按新区间的上限计算，Cerebras将通过此次IPO募资高达48亿美元。按fully diluted（完全稀释后）口径计算，公司估值最高可达488亿美元，这高于公司2月份在一轮融资中宣布
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：斑马消费 昨日，爱尔眼科自查补缴税款及滞纳金合计超5亿元的消息披露后，引发业内外广泛关注。 此次补税为合规风险一次性出清，长期来看属于利好，但不少投资者担忧其影响2026年整体盈利水平。而且，超亿元的滞纳金折射出其涉税周期较长，也引发市场对公司过往税务合规管理的关注。 这些情绪迅速反映到二级市场上，公
 
 ## 正文
 
-人工智能芯片制造商Cerebras Systems已上调其首次公开募股的预估价格区间。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-根据周一的一份文件，公司目前预计每股售价在150至160美元之间，高于上周披露的115至125美元区间。
+来源：斑马消费 昨日，爱尔眼科自查补缴税款及滞纳金合计超5亿元的消息披露后，引发业内外广泛关注。
 
-若按新区间的上限计算，Cerebras将通过此次IPO募资高达48亿美元。
+此次补税为合规风险一次性出清，长期来看属于利好，但不少投资者担忧其影响2026年整体盈利水平。
 
-按fully diluted（完全稀释后）口径计算，公司估值最高可达488亿美元，这高于公司2月份在一轮融资中宣布的230亿美元估值。
+而且，超亿元的滞纳金折射出其涉税周期较长，也引发市场对公司过往税务合规管理的关注。
 
-在希望训练和运行生成式人工智能模型（如为OpenAI的ChatGPT提供动力的模型）的公司中，英伟达的图形处理器（GPU）一直是行业标准。
+这些情绪迅速反映到二级市场上，公司昨日全天收跌4.15%。
 
-Cerebras声称其芯片比GPU运行速度更快且成本更低。
+自查补税超3亿 正值冲刺港股市场的关键时期，爱尔眼科日前披露自查补缴税款情况，引发业内外强烈关注。
 
-Cerebras所宣传的高速度帮助公司获得了来自OpenAI超过200亿美元的承诺——OpenAI依赖Cerebras的芯片来运行一个用于编写代码的模型。
+昨日盘前，爱尔眼科（300015.SZ）公告披露，根据国家税收法律法规的相关要求，公司对涉税事项开展自查后，确认需补缴税款3.48亿元、滞纳金1.76亿元，合计5.24亿元。
 
-Cerebras并未主要专注于销售硬件，而是一直在用自家芯片填充数据中心，并向客户提供云服务。
+截至公告日，已将上述税款及滞纳金缴纳完毕。
 
 ## 相关推荐
 
-- 2026-06-29 15:25 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 15:50 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 15:43 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 15:33 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 15:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 15:29 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 15:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 15:30 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 15:40 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 15:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 15:38 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 15:46 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 15:58 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 15:46 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 15:59 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 15:33 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 15:43 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 15:53 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 15:57 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 15:35 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 15:50 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 15:48 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 15:49 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 15:57 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 15:58 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 15:50 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 15:59 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:46 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/317286169572.shtml)
-- 2026-06-29 15:32 - [斛珠夫人](http://www.share.minike.top/Article/details/655681.shtml)
-- 2026-06-29 15:31 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/970508.shtml)
-- 2026-06-29 15:29 - [我和我的家乡](http://www.blog.minike.top/Article/details/818918409.shtml)
-- 2026-06-29 15:26 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/1749388134.shtml)
-- 2026-06-29 15:41 - [时光音乐会](http://www.share.minike.top/Article/details/1006483617.shtml)
-- 2026-06-29 15:48 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.kurohicncr.top/Article/details/50737.shtml)
-- 2026-06-29 15:29 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/860997830.shtml)
-- 2026-06-29 15:38 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/950261.shtml)
-- 2026-06-29 15:49 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/014551.shtml)
-- 2026-06-29 15:32 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/742864443.shtml)
-- 2026-06-29 15:45 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/2285909491.shtml)
-- 2026-06-29 15:49 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/8148491.shtml)
-- 2026-06-29 15:27 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/37582914315.shtml)
-- 2026-06-29 15:29 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/4386653.shtml)
+- 2026-06-29 15:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/43977.shtml)
+- 2026-06-29 15:58 - [20年前的周杰伦](http://www.share.minike.top/Article/details/22713.shtml)
+- 2026-06-29 15:39 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/426871.shtml)
+- 2026-06-29 15:37 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/165708146.shtml)
+- 2026-06-29 15:30 - [恋与深空发放补偿未得到玩家认可](http://www.blog.kurohicncr.top/Article/details/644836700624.shtml)
+- 2026-06-29 15:57 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/7427231266.shtml)
+- 2026-06-29 15:37 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/530050.shtml)
+- 2026-06-29 15:37 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/92510.shtml)
+- 2026-06-29 15:41 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/64854.shtml)
+- 2026-06-29 15:50 - [金牌调解](https://www.blog.minike.top/Article/details/48478397.shtml)
+- 2026-06-29 15:40 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/56124648.shtml)
+- 2026-06-29 15:50 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/752715342.shtml)
+- 2026-06-29 15:40 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.minike.top/Article/details/544333519956.shtml)
+- 2026-06-29 15:59 - [发反科学内容为何会有200万粉丝](https://www.share.kurohicncr.top/Article/details/8608505.shtml)
+- 2026-06-29 15:33 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/2668106.shtml)

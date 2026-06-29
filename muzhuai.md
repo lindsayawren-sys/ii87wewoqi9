@@ -1,55 +1,61 @@
-# 汉莎航空斥资近4亿美元收购意大利ITA航空多数股权
+# 邦达亚洲:美联储官员发表鹰派言论 美元指数反弹收涨
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-德国汉莎航空宣布，将斥资近 4 亿美元收购意大利 ITA 航空多数股权，进一步把这家原意大利航空（Alitalia）整合纳入自身运营体系。 2023 年意大利政府推动航空公司私有化之际，汉莎航空与意大利经济财政部达成协议，已持有 ITA 航空 41% 股份，同时获得后续增持股权的选择权。 汉莎航空表示，将于下月行使该项选择权，以3.25 亿欧元（约 3.83 亿美元） 再收购
+5月20日，受能源价格冲击与通胀反复影响，美联储年内降息预期已大幅降温。根据一项最新调查，多数经济学家认为美联储今年将避免降息，并将降息预期推迟至明年。受访者普遍认为，当前由伊朗冲突引发的通胀抬头是“暂时性”的。自去年12月以来，联邦基金利率一直维持在3.50%-3.75%的区间。如今，仅有不到半数经济学家预计今年内该利率会下调——这与上个月超过三分之二的人预期至少会有一次降息
 
 ## 正文
 
-德国汉莎航空宣布，将斥资近 4 亿美元收购意大利 ITA 航空多数股权，进一步把这家原意大利航空（Alitalia）整合纳入自身运营体系。
+5月20日，受能源价格冲击与通胀反复影响，美联储年内降息预期已大幅降温。
 
-2023 年意大利政府推动航空公司私有化之际，汉莎航空与意大利经济财政部达成协议，已持有 ITA 航空 41% 股份，同时获得后续增持股权的选择权。
+根据一项最新调查，多数经济学家认为美联储今年将避免降息，并将降息预期推迟至明年。
 
-汉莎航空表示，将于下月行使该项选择权，以3.25 亿欧元（约 3.83 亿美元） 再收购 49% 股权，持股比例将升至90%，实现绝对控股。
+受访者普遍认为，当前由伊朗冲突引发的通胀抬头是“暂时性”的。
 
-汉莎航空称，本次交易需获得欧盟及美国司法部监管审批，预计于 2027 年第一季度正式完成交割。
+自去年12月以来，联邦基金利率一直维持在3.50%-3.75%的区间。
 
-责任编辑：郭明煜
+如今，仅有不到半数经济学家预计今年内该利率会下调——这与上个月超过三分之二的人预期至少会有一次降息的情况形成鲜明对比。
+
+尽管如此，经济学家对利率前景的整体判断仍偏温和，继续认为自两个半月前伊朗战事爆发以来由能源价格飙升引发的通胀是暂时性的，不太可能更广泛地蔓延至其他消费品价格。
+
+另外，受中东局势冲击欧洲能源市场影响，英国家庭能源账单今夏将迎来近三年来最大幅度上涨，进一步加剧经济通胀压力。
+
+据能源咨询机构Cornwall Insight预测，英国能源价格上限将从7月起上调至每年1850英镑，此次涨幅将是2023年以来最大单次调整。
 
 ## 相关推荐
 
-- 2026-06-29 15:32 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 15:33 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 15:39 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 15:34 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 15:48 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 15:29 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 15:38 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 15:29 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 15:52 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 15:40 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 15:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 15:48 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 15:27 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 15:48 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 15:34 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 15:54 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 15:48 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 15:30 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 15:39 - [韩国国脚无缘上亿韩元奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 15:35 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 15:31 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 15:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 15:33 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 15:46 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 15:49 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 15:42 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 15:47 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 15:42 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 15:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 15:41 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:29 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/949236893356.shtml)
-- 2026-06-29 15:51 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/51274.shtml)
-- 2026-06-29 15:43 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/488375.shtml)
-- 2026-06-29 15:37 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/04151962619.shtml)
-- 2026-06-29 15:25 - [重度抑郁女孩没钱去做心理咨询](https://www.share.minike.top/Article/details/4128547.shtml)
-- 2026-06-29 15:34 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/67976.shtml)
-- 2026-06-29 15:38 - [吴建豪老婆](https://www.share.minike.top/Article/details/65725.shtml)
-- 2026-06-29 15:48 - [医院大厅放钢琴是形式主义吗](https://www.share.kurohicncr.top/Article/details/281840048.shtml)
-- 2026-06-29 15:33 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/51937760.shtml)
-- 2026-06-29 15:46 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/6433041675.shtml)
-- 2026-06-29 15:26 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/9943540.shtml)
-- 2026-06-29 15:33 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/437477.shtml)
-- 2026-06-29 15:25 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/36999.shtml)
-- 2026-06-29 15:46 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/947720.shtml)
-- 2026-06-29 15:35 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/815887987.shtml)
+- 2026-06-29 15:50 - [未来5年全国能源体系将呈现这些特征](https://www.share.minike.top/Article/details/90816.shtml)
+- 2026-06-29 15:39 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/94632.shtml)
+- 2026-06-29 15:47 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/726039.shtml)
+- 2026-06-29 15:36 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/17233.shtml)
+- 2026-06-29 15:34 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/654502992.shtml)
+- 2026-06-29 15:53 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/3134480988.shtml)
+- 2026-06-29 15:46 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/12046.shtml)
+- 2026-06-29 15:56 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/917223146.shtml)
+- 2026-06-29 15:46 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/42322224150.shtml)
+- 2026-06-29 15:32 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/19091163.shtml)
+- 2026-06-29 15:45 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/70217262459.shtml)
+- 2026-06-29 15:58 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/33848.shtml)
+- 2026-06-29 15:31 - [绘画区你赢了](http://www.share.minike.top/Article/details/313109560.shtml)
+- 2026-06-29 15:47 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/108095.shtml)
+- 2026-06-29 15:35 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/215216770.shtml)

@@ -1,56 +1,58 @@
-# 北京推进数据跨境流动便利化改革 负面清单机制惠及全市企业
+# 中国发布AI伦理指引 与东盟合作添“安全阀”
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新网北京5月11日电 (记者 陈杭)11日，《中国(北京)自由贸易试验区、国家服务业扩大开放综合示范区数据出境管理清单(负面清单)(2025版)》及配套管理办法发布，在全国范围内首批将数据出境负面清单管理机制由自贸区拓展至省级行政区全域，数据出境安全管理制度的稳定性、清晰度和便利度进一步提升，标志着北京数据跨境流动便利化改革实现了从“试点探索”到“全域治理”的系统性跃升。负面
+【东盟专线】中国发布AI伦理指引 与东盟合作添“安全阀” 中新社南宁5月19日电 (张广权)《人工智能应用伦理安全指引1.0》19日在广西南宁发布。这份指引被视为中国与东盟在AI(人工智能)领域建立伦理安全共识、实现规则对接的重要参考文件。 参与该指引研究的中国政法大学人工智能法研究院院长张凌寒在接受采访时透露，她在与东盟国家专家交流中注意到，对方对AI发展存在多重担忧：本土小
 
 ## 正文
 
-中新网北京5月11日电 (记者 陈杭)11日，《中国(北京)自由贸易试验区、国家服务业扩大开放综合示范区数据出境管理清单(负面清单)(2025版)》及配套管理办法发布，在全国范围内首批将数据出境负面清单管理机制由自贸区拓展至省级行政区全域，数据出境安全管理制度的稳定性、清晰度和便利度进一步提升，标志着北京数据跨境流动便利化改革实现了从“试点探索”到“全域治理”的系统性跃升。
+【东盟专线】中国发布AI伦理指引 与东盟合作添“安全阀” 中新社南宁5月19日电 (张广权)《人工智能应用伦理安全指引1.0》19日在广西南宁发布。
 
-负面清单“倍增扩面”持续领跑全国 所谓“两区”，即国家服务业扩大开放综合示范区和中国(北京)自由贸易试验区。
+这份指引被视为中国与东盟在AI(人工智能)领域建立伦理安全共识、实现规则对接的重要参考文件。
 
-北京市“两区”负面清单政策由北京市互联网信息办公室、北京市商务局、北京市政务和数据局联合发布，按照“1+9”的制度设计，即1套“两区”管理办法和9个领域负面清单，一次性构建适用于全市域的数据出境负面清单管理体系。
+参与该指引研究的中国政法大学人工智能法研究院院长张凌寒在接受采访时透露，她在与东盟国家专家交流中注意到，对方对AI发展存在多重担忧：本土小众语言和文化能否存续、既有的数字鸿沟是否会进一步拉大、中小国家能否在全球AI治理中为本国价值观发声。
 
-在适用区域上，“两区”负面清单的适用范围由自贸试验区扩展至国家服务业扩大开放综合示范区，即北京全市域，从而实现面的扩展，让优势政策惠及全市所有企业。
+张凌寒认为，中国此次发布的指引强调“普惠共享”与“以人为本”，恰恰回应了上述来自全球南方国家的共性关切。
 
-在覆盖领域上，“两区”负面清单共涵盖9个行业领域、67个业务场景和612个字段，主要包括两类：一是首批自贸区负面清单直接转为“两区”清单，涵盖汽车、医药、民航、零售、人工智能等5个领域。
+张凌寒称，已有不少全球南方国家通过不同渠道表达了希望参照中国治理理念的意愿。
 
-二是新编制的“两区”负面清单，着眼北京市生物医药、高级别自动驾驶、双机场国际物流枢纽、国际金融服务等重点产业发展方向，新编制了医疗器械、自动驾驶(智能网联汽车)、贸易物流、银行业等4个领域负面清单。
+中国电子技术标准化研究院副院长范科峰在发布现场指出，随着智能体、具身智能等新形态发展，AI应用正从内容生成向辅助决策、交互控制方向拓展，就业替代、情感依赖等伦理安全问题日益凸显。
 
-同时，按照国家“一地创新、多地适用”原则，建立外省市负面清单应用机制，对于北京市企业后续确有使用需求的外省市负面清单，履行评估备案程序后动态纳入北京市负面清单体系。
+该指引面向应用开发、服务提供、应用使用等环节提出了实践建议。
 
-后续将按照动态管理机制，持续丰富拓展清单覆盖领域，成熟一批发布一批。
+当前，广西正加快建设中国—东盟国家人工智能应用合作中心，致力于打造“北上广研发+广西集成+东盟应用”的差异化发展路径。
 
 ## 相关推荐
 
-- 2026-06-29 15:52 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 15:26 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 15:48 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 15:43 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 15:53 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 15:29 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 15:34 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 15:50 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 15:53 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 15:32 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 15:35 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 15:54 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 15:49 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 15:40 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 15:35 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 15:35 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 15:47 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 15:58 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 15:36 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 15:48 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 15:34 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 15:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:50 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/401246740.shtml)
-- 2026-06-29 15:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/071313624235.shtml)
-- 2026-06-29 15:26 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/724238.shtml)
-- 2026-06-29 15:37 - [Agent带来token消耗爆炸](https://www.blog.kurohicncr.top/Article/details/45724794.shtml)
-- 2026-06-29 15:42 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/6079264.shtml)
-- 2026-06-29 15:33 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/132508785.shtml)
-- 2026-06-29 15:45 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/640075974320.shtml)
-- 2026-06-29 15:47 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/9811098.shtml)
-- 2026-06-29 15:45 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/549367665980.shtml)
-- 2026-06-29 15:45 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/1375147087.shtml)
-- 2026-06-29 15:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/917575644059.shtml)
-- 2026-06-29 15:43 - [智界V9成为高端圈层共同选择](http://www.share.kurohicncr.top/Article/details/92864348481.shtml)
-- 2026-06-29 15:37 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/13011.shtml)
-- 2026-06-29 15:29 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/3125925209.shtml)
-- 2026-06-29 15:41 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.kurohicncr.top/Article/details/9139031973.shtml)
+- 2026-06-29 15:45 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/291764171.shtml)
+- 2026-06-29 15:33 - [众星恭喜吴建豪](https://www.blog.kurohicncr.top/Article/details/267191.shtml)
+- 2026-06-29 15:56 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/82719480.shtml)
+- 2026-06-29 15:33 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/07007560.shtml)
+- 2026-06-29 15:50 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/415581.shtml)
+- 2026-06-29 15:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/9345661.shtml)
+- 2026-06-29 15:51 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/1782601769.shtml)
+- 2026-06-29 15:32 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/661639.shtml)
+- 2026-06-29 15:50 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/79359.shtml)
+- 2026-06-29 15:52 - [未来5年全国能源体系将呈现这些特征](http://www.blog.kurohicncr.top/Article/details/65020400.shtml)
+- 2026-06-29 15:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/03930.shtml)
+- 2026-06-29 15:33 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/826429982.shtml)
+- 2026-06-29 15:54 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/546295308.shtml)
+- 2026-06-29 15:34 - [内马尔能上场15分钟](https://www.blog.minike.top/Article/details/85543.shtml)
+- 2026-06-29 15:50 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/69807357031.shtml)

@@ -1,58 +1,61 @@
-# 对话：资本赋能・智创未来：机器人产业投融资热点与商业化破局
+# 美国EIA原油库存骤降786万桶，降幅远超预期
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日-9日在北京举行。凯联资本硬科技行业合伙人姚宁波，启银资本董事长、启智具身智能科技创始人宋炎，融创投资执行合伙人、天津大学博士生导李翔宇出席并围绕“资本赋能・智创未来：机器人产业投融资热点与商业化破局”展开讨论，鼎旭投资管理合伙人，中关村高企协会副会长，创投委专职副主任郭海涛担任主持
+美国能源信息署(EIA)周三公布的数据显示，截至5月15日当周，美国商业原油库存大幅减少786.3万桶，远超市场预期的减少294.2万桶。此次降幅创下2026年2月13日当周以来最大纪录。 成品油库存分化，战略储备释放创历史纪录 成品油方面，汽油库存减少154.8万桶，略低于市场预期的209.6万桶；而馏分油库存意外增加37.2万桶，与市场预期的减少107.2万桶形成反差。 更
 
 ## 正文
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日-9日在北京举行。
+美国能源信息署(EIA)周三公布的数据显示，截至5月15日当周，美国商业原油库存大幅减少786.3万桶，远超市场预期的减少294.2万桶。
 
-凯联资本硬科技行业合伙人姚宁波，启银资本董事长、启智具身智能科技创始人宋炎，融创投资执行合伙人、天津大学博士生导李翔宇出席并围绕“资本赋能・智创未来：机器人产业投融资热点与商业化破局”展开讨论，鼎旭投资管理合伙人，中关村高企协会副会长，创投委专职副主任郭海涛担任主持。
+此次降幅创下2026年2月13日当周以来最大纪录。
 
-以下为对话实录： 主持人/郭海涛：各位来宾，大家下午好！
+成品油库存分化，战略储备释放创历史纪录 成品油方面，汽油库存减少154.8万桶，略低于市场预期的209.6万桶；而馏分油库存意外增加37.2万桶，与市场预期的减少107.2万桶形成反差。
 
-我是鼎旭投资的管理合伙人，同时担任中关村高新技术企业协会副会长及中关村创投协会创投委副主任。
+更受关注的是战略石油储备的动态。
 
-本次展会，我们在2062展位设立了展台，携手中关村众多优秀的人工智能企业共同参展。
+EIA数据显示，上周SPR库存减少992万桶，降至3.742亿桶，为2024年7月以来最低水平。
 
-非常荣幸能够主持本场《资本赋能・智创未来：机器人产业投融资热点与商业化破局》圆桌会议。
+此次单周降幅创下1982年8月以来的历史最大值，也是SPR连续第8周录得下降。
 
-刚才通过嘉宾的分享，我们看到从合十思维赵普做的仿脑机器人，再到非夕科技胡总，包括思灵的陈尉总做的力控的机器人，在百花齐放的过程中，我们今天开始这一次圆桌的交流。
+供需基本面：产量微降，出口小幅增加 供给端方面，上周美国国内原油产量减少0.8万桶/日，至1370.2万桶/日。
 
-有请各位嘉宾先介绍一下自身机构的情况，包括谈一谈对当前机器人产业投融资现状的看法，大家做一个简要的三分钟的解读，先从姚宁波总开始。
+原油出口量增加11.2万桶/日，至560.4万桶/日。
 
 ## 相关推荐
 
-- 2026-06-29 15:49 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 15:38 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 15:33 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 15:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 15:45 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 15:38 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 15:46 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 15:52 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 15:43 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 15:47 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 15:40 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 15:53 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-29 15:42 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 15:45 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 15:40 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 15:58 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 15:32 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 15:51 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 15:56 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 15:41 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 15:36 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 15:59 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 15:37 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 15:58 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 15:52 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 15:48 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 15:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:33 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/6444411.shtml)
-- 2026-06-29 15:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/5119243457.shtml)
-- 2026-06-29 15:33 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/167190441914.shtml)
-- 2026-06-29 15:38 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/94634625.shtml)
-- 2026-06-29 15:40 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/8709828.shtml)
-- 2026-06-29 15:36 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/456989.shtml)
-- 2026-06-29 15:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/691485687746.shtml)
-- 2026-06-29 15:27 - [105年初心滚烫](http://www.blog.minike.top/Article/details/4523097370.shtml)
-- 2026-06-29 15:25 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/85001.shtml)
-- 2026-06-29 15:25 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/0730623663.shtml)
-- 2026-06-29 15:49 - [毕业群都在出什么东西](https://www.blog.kurohicncr.top/Article/details/5522111708.shtml)
-- 2026-06-29 15:39 - [恋与深空 731](https://www.share.minike.top/Article/details/704903.shtml)
-- 2026-06-29 15:31 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/72665.shtml)
-- 2026-06-29 15:32 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/15678666332.shtml)
-- 2026-06-29 15:44 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/2789072.shtml)
+- 2026-06-29 15:55 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/45023533.shtml)
+- 2026-06-29 15:47 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/78607206.shtml)
+- 2026-06-29 15:46 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/61665593.shtml)
+- 2026-06-29 15:37 - [送你一朵小红花](http://www.share.minike.top/Article/details/4842829368.shtml)
+- 2026-06-29 15:43 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/23953834.shtml)
+- 2026-06-29 15:33 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/5401815746.shtml)
+- 2026-06-29 15:48 - [新能源车能当外接空调用吗](http://www.share.minike.top/Article/details/79676390496.shtml)
+- 2026-06-29 15:51 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/27233.shtml)
+- 2026-06-29 15:34 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/08941414026.shtml)
+- 2026-06-29 15:30 - [国家体育总局政策法规司原副司长获刑](http://www.share.minike.top/Article/details/84130687767.shtml)
+- 2026-06-29 15:49 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/37591893741.shtml)
+- 2026-06-29 15:33 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/061209.shtml)
+- 2026-06-29 15:34 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/50935890.shtml)
+- 2026-06-29 15:50 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/904690140.shtml)
+- 2026-06-29 15:35 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/854110556.shtml)

@@ -1,44 +1,49 @@
-# 白宫记者协会晚宴枪击案嫌疑人不认罪
+# 叶刘淑仪：香港是动荡世界中充满机遇的“绿洲”
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 11:14 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年05月19日 20:19 来源：中国新闻网 5月19日，由汇贤智库政策研究中心、上海国际问题研究院和香港欧洲商务协会联合举办的“2026全球繁荣峰会”在香港举行。峰会聚焦粤港澳大湾区创新药物研发、香港作为体育文化及休闲枢纽的定位、加密货币的演变格局、全球秩序变革下的国际贸易，以及香港在推动商业航天经济中的角色。香港行政会议非官守议员召集人、汇贤智库理事会主席
 
 ## 正文
 
-发布时间：2026年05月12日 11:14 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年05月19日 20:19 来源：中国新闻网 5月19日，由汇贤智库政策研究中心、上海国际问题研究院和香港欧洲商务协会联合举办的“2026全球繁荣峰会”在香港举行。
+
+峰会聚焦粤港澳大湾区创新药物研发、香港作为体育文化及休闲枢纽的定位、加密货币的演变格局、全球秩序变革下的国际贸易，以及香港在推动商业航天经济中的角色。
+
+香港行政会议非官守议员召集人、汇贤智库理事会主席叶刘淑仪在开幕致辞中表示，在地缘政治紧张、国际环境日趋不明朗的当下，香港依然是一个局势稳定、充满机遇的独特所在。
+
+(记者 陈子彦） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 15:27 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 15:41 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 15:44 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 15:35 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 15:38 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 15:40 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 15:50 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 15:35 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 15:29 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 15:47 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 15:32 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 15:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 15:31 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 15:44 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 15:43 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 15:48 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 15:54 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 15:31 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 15:48 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 15:31 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 15:43 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 15:39 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 15:35 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:51 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/96890.shtml)
-- 2026-06-29 15:50 - [未来5年全国能源体系将呈现这些特征](http://www.blog.kurohicncr.top/Article/details/790793990.shtml)
-- 2026-06-29 15:41 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/26979.shtml)
-- 2026-06-29 15:36 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/69006184.shtml)
-- 2026-06-29 15:25 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/56956886.shtml)
-- 2026-06-29 15:42 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/405163.shtml)
-- 2026-06-29 15:51 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/238889.shtml)
-- 2026-06-29 15:41 - [宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/14307600.shtml)
-- 2026-06-29 15:44 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/90500623840.shtml)
-- 2026-06-29 15:32 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/58543642531.shtml)
-- 2026-06-29 15:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/2234651.shtml)
-- 2026-06-29 15:34 - [恋与深空失控领地](https://www.blog.minike.top/Article/details/011369994094.shtml)
-- 2026-06-29 15:50 - [7款商保创新药“转道”](https://www.share.minike.top/Article/details/713516913153.shtml)
-- 2026-06-29 15:42 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/0603007.shtml)
-- 2026-06-29 15:26 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/03907805859.shtml)
+- 2026-06-29 15:58 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/8799896.shtml)
+- 2026-06-29 15:59 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/6677839.shtml)
+- 2026-06-29 15:38 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/696337647.shtml)
+- 2026-06-29 15:49 - [发反科学内容为何会有200万粉丝](https://www.share.kurohicncr.top/Article/details/678480.shtml)
+- 2026-06-29 15:38 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/0519410.shtml)
+- 2026-06-29 15:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/667813487.shtml)
+- 2026-06-29 15:52 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/63641603490.shtml)
+- 2026-06-29 15:47 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/140487697641.shtml)
+- 2026-06-29 15:45 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/28806668.shtml)
+- 2026-06-29 15:47 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/4316638.shtml)
+- 2026-06-29 15:32 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/9177556.shtml)
+- 2026-06-29 15:43 - [NBA交易](http://www.blog.minike.top/Article/details/972766.shtml)
+- 2026-06-29 15:44 - [AG冠军五人组轮换](https://www.blog.minike.top/Article/details/16157655108.shtml)
+- 2026-06-29 15:47 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/36737890317.shtml)
+- 2026-06-29 15:34 - [四川宜宾地震](https://www.blog.minike.top/Article/details/09855.shtml)

@@ -1,59 +1,60 @@
-# 两年巨亏30亿，昆仑万维豪赌AI的执念为何如此深？
+# 海富通的千亿家底
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：翠鸟资本 昆仑万维（维权）董事长兼总经理方汉（图片来源于互联网） 文|翠鸟资本 赶在年报季的尾巴，昆仑万维（300418.SZ）交出了一份令市场五味杂陈的成绩单。 财报数据显示，公司2025年营业收入达81.98亿元，归母净亏损为15.93亿元，扣非归母净亏损为17.25亿元。 这已经是昆仑万维连续第
+来源：资管风铃 作者：宫何 2020年之前，美国短久期国债ETF还是一个不太起眼的品类。 道富资管旗下的SPDR 1-3月期国债ETF（BIL）长期规模在两三百亿美元徘徊，贝莱德的iShares 0-1年期国债ETF（SHV）也不过百亿出头。 这类产品管理费只有十几个基点，收益率低到可以忽略，每天的净值波动肉眼几乎看不见，毕竟权益投资当道的年代里，这类产品约等于共同基金构建的自
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：资管风铃 作者：宫何 2020年之前，美国短久期国债ETF还是一个不太起眼的品类。
 
-来源：翠鸟资本 昆仑万维（维权）董事长兼总经理方汉（图片来源于互联网） 文|翠鸟资本 赶在年报季的尾巴，昆仑万维（300418.SZ）交出了一份令市场五味杂陈的成绩单。
+道富资管旗下的SPDR 1-3月期国债ETF（BIL）长期规模在两三百亿美元徘徊，贝莱德的iShares 0-1年期国债ETF（SHV）也不过百亿出头。
 
-财报数据显示，公司2025年营业收入达81.98亿元，归母净亏损为15.93亿元，扣非归母净亏损为17.25亿元。
+这类产品管理费只有十几个基点，收益率低到可以忽略，每天的净值波动肉眼几乎看不见，毕竟权益投资当道的年代里，这类产品约等于共同基金构建的自来水管，重要但无人谈论。
 
-这已经是昆仑万维连续第二年陷入巨额亏损的泥潭。
+后来的变化众所周知。
 
-昆仑万维在AI战略之下延续着2024年以来的大幅亏损。
+美元进入加息周期，无风险利率飙升，机构投资者突然发现短久期国债ETF是绝佳的现金管理工具——流动性好、T+0交易、可做质押、收益率随利率上行自动跟涨。
 
-在刚刚过去的2026年第一季度，昆仑万维这一亏损态势并未得到有效遏制，甚至同比亏损规模继续扩大，单季归母净利润-8.87亿元。
+BIL的规模从200多亿美元一路膨胀至460亿美元，SHV升至超过200亿美元。
 
-曾几何时，昆仑万维是资本市场眼中的“出海之王”与“游戏巨头”。
+短久期债券ETF一举从自来水管变成蓄水池，养老金、保险公司、企业财务部排着队往里灌钱。
 
-然而，自从董事长方汉喊出“All in AGI与AIGC”的口号，并高调宣称要做“AI现实主义者”以来，这家老牌互联网企业的命运似乎就与一场巨大的豪赌绑定了。
+蹊跷的是，中国市场正在发生一个结构相似但路径不同的故事，尤其利率环境是相反的，十年期国债收益率持续走低，货币基金年化跌破1%，但终点殊途同归： 机构资金涌向场内短久期债券ETF做现金管理和流动性配置。
 
 ## 相关推荐
 
-- 2026-06-29 15:34 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 15:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 15:42 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 15:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 15:51 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 15:50 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 15:42 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 15:28 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 15:31 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 15:25 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 15:46 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 15:36 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 15:27 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 15:47 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 15:32 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 15:56 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 15:51 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 15:58 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 15:48 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 15:47 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 15:42 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 15:57 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 15:34 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 15:44 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 15:57 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 15:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 15:35 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:36 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/22178.shtml)
-- 2026-06-29 15:30 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.kurohicncr.top/Article/details/74811019.shtml)
-- 2026-06-29 15:42 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.minike.top/Article/details/3753977.shtml)
-- 2026-06-29 15:40 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/5559901.shtml)
-- 2026-06-29 15:36 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/46349356190.shtml)
-- 2026-06-29 15:45 - [袁隆平院士 不容诋毁！](http://www.blog.kurohicncr.top/Article/details/431545179322.shtml)
-- 2026-06-29 15:34 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/320364.shtml)
-- 2026-06-29 15:53 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/0538247591.shtml)
-- 2026-06-29 15:30 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.minike.top/Article/details/738990243.shtml)
-- 2026-06-29 15:31 - [沙丘](http://www.blog.kurohicncr.top/Article/details/733846.shtml)
-- 2026-06-29 15:36 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/228406927498.shtml)
-- 2026-06-29 15:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/6352588.shtml)
-- 2026-06-29 15:42 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/13555677971.shtml)
-- 2026-06-29 15:31 - [流金岁月](https://www.share.minike.top/Article/details/9854575.shtml)
-- 2026-06-29 15:50 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/935498742096.shtml)
+- 2026-06-29 15:51 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/33490158.shtml)
+- 2026-06-29 15:36 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/69449694795.shtml)
+- 2026-06-29 15:46 - [小娘惹](https://www.share.kurohicncr.top/Article/details/753219217218.shtml)
+- 2026-06-29 15:39 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/35767.shtml)
+- 2026-06-29 15:38 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/011854622990.shtml)
+- 2026-06-29 15:51 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/408680129.shtml)
+- 2026-06-29 15:51 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/777797089.shtml)
+- 2026-06-29 15:35 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/94398.shtml)
+- 2026-06-29 15:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/54867037076.shtml)
+- 2026-06-29 15:33 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/1697261.shtml)
+- 2026-06-29 15:35 - [沙丘](https://www.blog.minike.top/Article/details/8455436.shtml)
+- 2026-06-29 15:33 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/77802.shtml)
+- 2026-06-29 15:56 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/55504016.shtml)
+- 2026-06-29 15:30 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/9036641.shtml)
+- 2026-06-29 15:37 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/471078.shtml)

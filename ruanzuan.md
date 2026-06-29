@@ -1,56 +1,56 @@
-# 宗馥莉被曝罢免销售负责人，直管营销
+# 基流科技港股IPO：收入规模仅同行一半市场份额反高0.1个点 研发费用率仅个位数过半发明专利系受让取得
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-据界面新闻，娃哈哈和宏胜饮料在去年经历一系列人事波动后，今年再次迎来核心部门人员的变动。 据报道，5月11日，宏胜饮料集团发布一份组织架构调整及人员任免通知。其中一个重点是：将营销中心划归总裁统筹直管；营销中心总监兼销售公司总经理吴汀燕被免职。宏胜饮料集团的总裁即为宗馥莉。 同时，对销售公司内设科室整合重组，组成两大科室：商超特通管理科和渠道管理科，新科室承接原有全部业务职能。
+出品：新浪财经上市公司研究院 作者：渚 4月29日，上海基流科技股份有限公司（以下简称“基流科技”或“公司”）向联交所主板提交上市申请，国泰君安国际为独家保荐人。 成立短短3年时间，基流科技估值暴涨至91.6亿元，PE高达294倍，远超行业平均水平。估值大涨之际，实控人胡效赫累计减持套现3600万元。 业绩层面，基流科技净利润与现金流严重背离，经调整净利润的增长更多是“纸面富贵
 
 ## 正文
 
-据界面新闻，娃哈哈和宏胜饮料在去年经历一系列人事波动后，今年再次迎来核心部门人员的变动。
+出品：新浪财经上市公司研究院 作者：渚 4月29日，上海基流科技股份有限公司（以下简称“基流科技”或“公司”）向联交所主板提交上市申请，国泰君安国际为独家保荐人。
 
-据报道，5月11日，宏胜饮料集团发布一份组织架构调整及人员任免通知。
+成立短短3年时间，基流科技估值暴涨至91.6亿元，PE高达294倍，远超行业平均水平。
 
-其中一个重点是：将营销中心划归总裁统筹直管；营销中心总监兼销售公司总经理吴汀燕被免职。
+估值大涨之际，实控人胡效赫累计减持套现3600万元。
 
-宏胜饮料集团的总裁即为宗馥莉。
+业绩层面，基流科技净利润与现金流严重背离，经调整净利润的增长更多是“纸面富贵”，而非真金白银的流入。
 
-同时，对销售公司内设科室整合重组，组成两大科室：商超特通管理科和渠道管理科，新科室承接原有全部业务职能。
+与此同时，大量资金滞留在基流科技的应收账款中，造成营运资金持续承压。
 
-简单说，宏胜饮料集团和娃哈哈品牌的“营销中心”更像是管理和运营体系，“销售公司”则是具体承接经销商、渠道和回款的实体公司，两者是前后台的关系。
+此外，截至目前，基流科技共持有9项授权发明专利，其中有5项系受让取得，而非公司自主研发取得。
 
-此外，宏胜饮料还宣布了这些科室的相关负责人及相关人士变动。
+且该部分专利属可编程网络及软件定义网络领域，与公司主营的AI算力集群并无强相关。
 
-其中大部分人员都是升职，而只有吴汀燕和吴潘潘（原计划中心生产管理科科长）被免职。
+PE高达294倍 估值大涨之际实控人减持套现3600万 2023年2月，基流科技正式成立，定义为全栈自主的算力建筑商，专注搭建智算系统的软硬件全栈基础设施。
 
 ## 相关推荐
 
-- 2026-06-29 15:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 15:46 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 15:26 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 15:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 15:46 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 15:41 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 15:42 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 15:50 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 15:40 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 15:52 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 15:30 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 15:48 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 15:30 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 15:50 - [博主：全球股市进入“AI极端共振”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 15:42 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 15:57 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 15:34 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 15:34 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 15:52 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 15:38 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:41 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/310141484.shtml)
-- 2026-06-29 15:27 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/6732217.shtml)
-- 2026-06-29 15:30 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/0377023254.shtml)
-- 2026-06-29 15:47 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/4243633863.shtml)
-- 2026-06-29 15:30 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/377872128.shtml)
-- 2026-06-29 15:29 - [王楚钦3-0周启豪 晋级32强](http://www.share.kurohicncr.top/Article/details/100384221.shtml)
-- 2026-06-29 15:25 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/33441906.shtml)
-- 2026-06-29 15:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/11558539.shtml)
-- 2026-06-29 15:47 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/2856369662.shtml)
-- 2026-06-29 15:31 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.minike.top/Article/details/340376792.shtml)
-- 2026-06-29 15:30 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/45599.shtml)
-- 2026-06-29 15:31 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/76102542195.shtml)
-- 2026-06-29 15:40 - [F1奥地利正赛战报](http://www.blog.kurohicncr.top/Article/details/901401929175.shtml)
-- 2026-06-29 15:45 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/922055083282.shtml)
-- 2026-06-29 15:45 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/922794740462.shtml)
+- 2026-06-29 15:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/305761.shtml)
+- 2026-06-29 15:52 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/02678480.shtml)
+- 2026-06-29 15:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/91362741.shtml)
+- 2026-06-29 15:38 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/674655788167.shtml)
+- 2026-06-29 15:47 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/21246900881.shtml)
+- 2026-06-29 15:42 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/04426664.shtml)
+- 2026-06-29 15:46 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/87629291147.shtml)
+- 2026-06-29 15:36 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/45609805.shtml)
+- 2026-06-29 15:33 - [南部战区位南海海域进行例行巡航](http://www.blog.kurohicncr.top/Article/details/5918583.shtml)
+- 2026-06-29 15:46 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/99855.shtml)
+- 2026-06-29 15:50 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/830108956539.shtml)
+- 2026-06-29 15:34 - [《贺子珍》](http://www.blog.minike.top/Article/details/85161192018.shtml)
+- 2026-06-29 15:44 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/619198679091.shtml)
+- 2026-06-29 15:40 - [上海一小区水池内出现一条鳄鱼](https://www.blog.minike.top/Article/details/33545407717.shtml)
+- 2026-06-29 15:53 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/799778526.shtml)

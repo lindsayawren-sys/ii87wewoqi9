@@ -1,56 +1,61 @@
-# 京沪高铁部分动车组列车公布票价上浮20%
+# 创新药继续筑底，华宝基金药ETF、港股通创新药ETF再探历史新低！“抄底”资金狂涌，520880近10日吸金7.7亿
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新社上海5月11日电 (范宇斌)京沪高速铁路股份有限公司11日发布公告称，对京沪高速线和合蚌高速线开行的时速300~350km/h、200~250km/h及以下的动车组列车的公布票价上浮20%。 公告表示，各站间执行票价将以公布票价为上限，在公布票价基础上实行不同幅度的折扣浮动，满足旅客差异化出行需求。 公告指出，公司将持续提升客运服务品质。此次票价优化调整对公司业绩的影响具
+5月20日，AH创新药再度走低，重仓A股创新药的药ETF华宝（562050）、100%创新药研发标的——港股通创新药ETF华宝（520880）场内价格再刷历史新低。 A股制药板块普跌，药ETF华宝（562050）核心权重股恒瑞医药股价创近1年新低，华东医药、长春高新跟跌逾1%。 港股通创新药权重龙头跌多涨少，百济神州涨超1%，信达生物、石药集团、中国生物制药等齐跌逾1%。港股通
 
 ## 正文
 
-中新社上海5月11日电 (范宇斌)京沪高速铁路股份有限公司11日发布公告称，对京沪高速线和合蚌高速线开行的时速300~350km/h、200~250km/h及以下的动车组列车的公布票价上浮20%。
+5月20日，AH创新药再度走低，重仓A股创新药的药ETF华宝（562050）、100%创新药研发标的——港股通创新药ETF华宝（520880）场内价格再刷历史新低。
 
-公告表示，各站间执行票价将以公布票价为上限，在公布票价基础上实行不同幅度的折扣浮动，满足旅客差异化出行需求。
+A股制药板块普跌，药ETF华宝（562050）核心权重股恒瑞医药股价创近1年新低，华东医药、长春高新跟跌逾1%。
 
-公告指出，公司将持续提升客运服务品质。
+港股通创新药权重龙头跌多涨少，百济神州涨超1%，信达生物、石药集团、中国生物制药等齐跌逾1%。
 
-此次票价优化调整对公司业绩的影响具有一定的不确定性，公司董事会提醒广大投资者谨慎决策，注意投资风险。
+港股通创新药ETF华宝（520880）跌逾1.5%，持续溢价交易。
 
-京沪高铁连接京津冀和长三角两大经济区，区域经济增长快，人口密度大，城市化程度高，具有良好的客流基础。
+场内价格迭创新低之际，520880迎来资金密集增仓。
 
-作为“中国高铁第一股”，京沪高铁已于2020年1月16日在A股上市。
+截至上日，520880近10日内有9日吸金，金额合计超7.7亿元，最新份额升至58.9亿份新高。
 
-据京沪高铁财报显示，2026年一季度实现营收105.59亿元(人民币，下同)，同比增长3.29%；实现归母净利润31.43亿元，同比增长6.03%。
+从本轮调整来看，港股通创新药板块或已跌出性价比。
 
-(完)
+自去年9月中旬进入阶段调整期，截至5月19日，港股通创新药ETF华宝（520880）标的指数区间累计跌幅超过30%，调整充分，估值风险释放到位。
 
 ## 相关推荐
 
-- 2026-06-29 15:39 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 15:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 15:48 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 15:49 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 15:25 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 15:25 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 15:26 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 15:52 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 15:49 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 15:43 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 15:51 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 15:54 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 15:53 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 15:58 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 15:56 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 15:37 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 15:34 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 15:33 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 15:53 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 15:30 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 15:34 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 15:50 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 15:30 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 15:41 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 15:53 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:47 - [网警提醒4类高考查分陷阱考生速看](http://www.share.minike.top/Article/details/769288088738.shtml)
-- 2026-06-29 15:47 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/35340148361.shtml)
-- 2026-06-29 15:45 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/32287485.shtml)
-- 2026-06-29 15:46 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/8312325620.shtml)
-- 2026-06-29 15:37 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/4816471556.shtml)
-- 2026-06-29 15:49 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/3951262.shtml)
-- 2026-06-29 15:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/62799.shtml)
-- 2026-06-29 15:35 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/408845.shtml)
-- 2026-06-29 15:34 - [当我回母校教书](http://www.share.minike.top/Article/details/86795757.shtml)
-- 2026-06-29 15:34 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/091462448940.shtml)
-- 2026-06-29 15:31 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/221454364962.shtml)
-- 2026-06-29 15:26 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.minike.top/Article/details/114725469766.shtml)
-- 2026-06-29 15:50 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/90968709.shtml)
-- 2026-06-29 15:49 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/48840.shtml)
-- 2026-06-29 15:50 - [当地回应林区违规放羊遭豹啃食](http://www.share.kurohicncr.top/Article/details/3805158.shtml)
+- 2026-06-29 15:31 - [爸爸当家](http://www.share.kurohicncr.top/Article/details/26113038.shtml)
+- 2026-06-29 15:39 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/9749781906.shtml)
+- 2026-06-29 15:52 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/723504975.shtml)
+- 2026-06-29 15:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/14544.shtml)
+- 2026-06-29 15:34 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/775714059.shtml)
+- 2026-06-29 15:38 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/3279830.shtml)
+- 2026-06-29 15:59 - [美的空调 卡bug](http://www.share.minike.top/Article/details/89213.shtml)
+- 2026-06-29 15:40 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/5672415299.shtml)
+- 2026-06-29 15:44 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/2436470.shtml)
+- 2026-06-29 15:42 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/15486416286.shtml)
+- 2026-06-29 15:47 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/27415.shtml)
+- 2026-06-29 15:35 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/4055055363.shtml)
+- 2026-06-29 15:30 - [沙丘](https://www.blog.minike.top/Article/details/686401.shtml)
+- 2026-06-29 15:43 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/738641.shtml)
+- 2026-06-29 15:33 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/12237.shtml)

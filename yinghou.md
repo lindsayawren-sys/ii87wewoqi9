@@ -1,52 +1,61 @@
-# 天舟十号货运飞船与空间站组合体完成交会对接
+# 【好评中国】“数”瞰这份成绩单，“新质动能”正澎湃
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新网海南文昌5月11日电 (记者马帅莎)据中国载人航天工程办公室消息，天舟十号货运飞船入轨后顺利完成状态设置，于北京时间5月11日13时11分，成功对接于空间站天和核心舱后向端口。交会对接完成后，天舟十号将转入组合体飞行段。 后续，神舟二十一号航天员乘组将进入天舟十号货运飞船，按计划开展货物转运等相关工作。(完)
+近日，国家统计局发布1—4月份国民经济“成绩单”。在这份稳中有进的经济数据中，含“新”量足成为鲜明特点。装备制造业增加值同比增长8.7%，高技术制造业增加值增长12.6%，分别快于全部规模以上工业增加值3.1和7.0个百分点；信息传输、软件和信息技术服务业，租赁和商务服务业，金融业生产指数同比分别增长10.9%、9.3%、6.7%；3D打印设备、锂离子电池、工业机器人产品产量增
 
 ## 正文
 
-中新网海南文昌5月11日电 (记者马帅莎)据中国载人航天工程办公室消息，天舟十号货运飞船入轨后顺利完成状态设置，于北京时间5月11日13时11分，成功对接于空间站天和核心舱后向端口。
+近日，国家统计局发布1—4月份国民经济“成绩单”。
 
-交会对接完成后，天舟十号将转入组合体飞行段。
+在这份稳中有进的经济数据中，含“新”量足成为鲜明特点。
 
-后续，神舟二十一号航天员乘组将进入天舟十号货运飞船，按计划开展货物转运等相关工作。
+装备制造业增加值同比增长8.7%，高技术制造业增加值增长12.6%，分别快于全部规模以上工业增加值3.1和7.0个百分点；信息传输、软件和信息技术服务业，租赁和商务服务业，金融业生产指数同比分别增长10.9%、9.3%、6.7%；3D打印设备、锂离子电池、工业机器人产品产量增速一路上扬……触摸新出炉的经济数据，新动能成长壮大，高质量发展向新向优，成为我国经济的基本态势。
 
-(完)
+科技创新正持续由我国经济高质量发展的“助推器”升级为“主引擎”，经济发展跑出“新质感”，中国经济巨轮动能澎湃，驶向更加辽阔的水域。
+
+牢牢牵住科技创新的“牛鼻子”，中国经济不断开辟新空间。
+
+从载人登月任务取得重要阶段性突破，到机器人登上舞台展现高超“武功”；从“爱达”姐妹船历史性同框，到“本源悟空-180”第四代自主超导量子计算机上线运行；从全球首艘2.4万箱甲醇双燃料集装箱船建造完工，到AI深度赋能千行百业……今年以来，我国科技创新成果亮点纷呈，展现出硬核实力与蓬勃生机，为经济前行注入更强劲的动力。
+
+走稳走实创新之路，一次次突破科技“瓶颈”，实现“从0到1”的跃迁，亮眼成绩单的背后，正是我国持续稳定的创新投入与日益完善的创新体系，让我国经济的底气越来越足，动能越来越强。
+
+经济花繁果硕，关键在于产业拔节生长、向阳绽放。
 
 ## 相关推荐
 
-- 2026-06-29 15:52 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 15:30 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 15:47 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 15:27 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 15:27 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-29 15:45 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 15:53 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 15:39 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 15:26 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 15:36 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 15:52 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 15:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 15:30 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 15:29 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 15:45 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 15:48 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 15:42 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 15:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 15:49 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 15:44 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 15:44 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 15:52 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 15:37 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 15:50 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 15:58 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 15:56 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 15:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 15:36 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 15:36 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:34 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/65702217029.shtml)
-- 2026-06-29 15:47 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/72233806685.shtml)
-- 2026-06-29 15:38 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/29353581.shtml)
-- 2026-06-29 15:29 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/018550649.shtml)
-- 2026-06-29 15:38 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/089331154498.shtml)
-- 2026-06-29 15:29 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/2968708.shtml)
-- 2026-06-29 15:28 - [世界杯十大帅哥必吃榜](http://www.blog.kurohicncr.top/Article/details/6448153834.shtml)
-- 2026-06-29 15:35 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/506344992.shtml)
-- 2026-06-29 15:33 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/911745.shtml)
-- 2026-06-29 15:36 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/973765530862.shtml)
-- 2026-06-29 15:44 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/083415.shtml)
-- 2026-06-29 15:43 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/5447460.shtml)
-- 2026-06-29 15:33 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/16278.shtml)
-- 2026-06-29 15:41 - [永远保持对人民的赤子之心](https://www.share.minike.top/Article/details/3511381.shtml)
-- 2026-06-29 15:38 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/550259963449.shtml)
+- 2026-06-29 15:38 - [啊啊啊](https://www.blog.minike.top/Article/details/916358704.shtml)
+- 2026-06-29 15:34 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/919769.shtml)
+- 2026-06-29 15:44 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/4337337.shtml)
+- 2026-06-29 15:42 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.minike.top/Article/details/953246.shtml)
+- 2026-06-29 15:32 - [四川宜宾地震](http://www.blog.minike.top/Article/details/499478430827.shtml)
+- 2026-06-29 15:49 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/7469955824.shtml)
+- 2026-06-29 15:30 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/142345.shtml)
+- 2026-06-29 15:54 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/9972869.shtml)
+- 2026-06-29 15:30 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/030529046286.shtml)
+- 2026-06-29 15:49 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/2147042.shtml)
+- 2026-06-29 15:57 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/1296438.shtml)
+- 2026-06-29 15:53 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/0531415491.shtml)
+- 2026-06-29 15:32 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/686123200.shtml)
+- 2026-06-29 15:49 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/153502.shtml)
+- 2026-06-29 15:40 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/487637906.shtml)

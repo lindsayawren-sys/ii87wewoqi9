@@ -1,58 +1,56 @@
-# 美股三大指数集体收涨，纳指、标普500指数续创新高，芯片股多数上涨
+# 七国集团财长和央行行长会议联合公报关注金融安全议题
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新经纬5月12日电 美东时间周一，美股三大指数集体上涨，纳指、标普500指数续创盘中和收盘新高。截至收盘，道指涨0.19%，报49704.47点；纳指涨0.1%，报26274.13点；标普500指数涨0.19%，报7412.84点。 来源：Wind 盘面上，大型科技股多数下跌，谷歌跌超3%，脸书、亚马逊跌逾1%，微软跌0.59%，苹果跌0.13%，特斯拉涨近4%，英伟达涨近2
+中新网巴黎5月20日电 七国集团财长和央行行长会议当地时间19日在法国巴黎闭幕并发布联合公报。公报重点关注全球债务治理以及人工智能、网络安全等金融安全议题。 法国经济与财政部长莱斯屈尔当天表示，尽管外界此前一度担忧七国集团在当前国际局势紧张背景下难以形成统一立场，但各方最终仍“在若干重要议题上达成共识”。 在全球债务与发展融资方面，公报关注发展中国家债务压力，呼吁完善二十国集团
 
 ## 正文
 
-中新经纬5月12日电 美东时间周一，美股三大指数集体上涨，纳指、标普500指数续创盘中和收盘新高。
+中新网巴黎5月20日电 七国集团财长和央行行长会议当地时间19日在法国巴黎闭幕并发布联合公报。
 
-截至收盘，道指涨0.19%，报49704.47点；纳指涨0.1%，报26274.13点；标普500指数涨0.19%，报7412.84点。
+公报重点关注全球债务治理以及人工智能、网络安全等金融安全议题。
 
-来源：Wind 盘面上，大型科技股多数下跌，谷歌跌超3%，脸书、亚马逊跌逾1%，微软跌0.59%，苹果跌0.13%，特斯拉涨近4%，英伟达涨近2%。
+法国经济与财政部长莱斯屈尔当天表示，尽管外界此前一度担忧七国集团在当前国际局势紧张背景下难以形成统一立场，但各方最终仍“在若干重要议题上达成共识”。
 
-银行股多数下跌，富国银行跌超2%，摩根士丹利、美国银行跌逾1%，摩根大通跌0.71%，高盛涨近1%，花旗涨0.28%。
+在全球债务与发展融资方面，公报关注发展中国家债务压力，呼吁完善二十国集团“债务处理共同框架”，并强调加强国际融资合作，以应对当前国际经济环境下面临的融资与债务挑战。
 
-航空股普遍下跌，美国航空跌超4%，西南航空跌超3%，达美航空、美联航跌近3%，波音涨0.35%。
+金融安全与新技术风险也成为此次会议讨论重点。
 
-芯片股多数上涨，高通涨超8%，美光科技涨逾6%，恩智浦半导体涨近4%，英特尔涨超3%，超威半导体涨0.79%，台积电、阿斯麦跌逾1%。
+公报表示，各方将继续深化对人工智能在金融领域影响的研究，同时关注网络攻击、量子技术发展以及虚拟资产可能带来的金融安全挑战。
 
-能源股集体上涨，西方石油、埃克森美孚、斯伦贝谢涨逾3%，康菲石油涨超2%，雪佛龙涨逾1%。
+各方还表示将继续推动跨境支付体系朝着更加快捷、低成本、透明和普惠的方向发展。
 
-中概股多数上涨，纳斯达克中国金龙指数涨1.03%。
+在乌克兰问题上，公报重申对乌方的支持。
 
 ## 相关推荐
 
-- 2026-06-29 15:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 15:33 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 15:36 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 15:36 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 15:50 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 15:40 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 15:43 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 15:39 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 15:38 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 15:33 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 15:24 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 15:29 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 15:34 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 15:53 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 15:41 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 15:36 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 15:33 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 15:31 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 15:52 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 15:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 15:36 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 15:52 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:40 - [志愿选择倒计时！浙大学生送祝福](https://www.share.minike.top/Article/details/6929848111.shtml)
-- 2026-06-29 15:34 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/5232373.shtml)
-- 2026-06-29 15:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/8407151148.shtml)
-- 2026-06-29 15:42 - [给阿嬷的情书海外口碑](http://www.share.kurohicncr.top/Article/details/24044282.shtml)
-- 2026-06-29 15:27 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/72637.shtml)
-- 2026-06-29 15:47 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/036460.shtml)
-- 2026-06-29 15:36 - [毒液2](https://www.blog.kurohicncr.top/Article/details/9140161766.shtml)
-- 2026-06-29 15:26 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/52269442.shtml)
-- 2026-06-29 15:24 - [德国VS巴拉圭前瞻](http://www.blog.kurohicncr.top/Article/details/4330644463.shtml)
-- 2026-06-29 15:31 - [妹妹的正确用法！](http://www.share.minike.top/Article/details/48189020.shtml)
-- 2026-06-29 15:45 - [灿如繁星定档](https://www.share.minike.top/Article/details/76391594.shtml)
-- 2026-06-29 15:44 - [血糖高的人能吃西瓜吗](https://www.share.kurohicncr.top/Article/details/063309.shtml)
-- 2026-06-29 15:51 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/965445518.shtml)
-- 2026-06-29 15:29 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/04707935.shtml)
-- 2026-06-29 15:49 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/035852074082.shtml)
+- 2026-06-29 15:47 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/43993.shtml)
+- 2026-06-29 15:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/620582285.shtml)
+- 2026-06-29 15:48 - [第一炉香](https://www.blog.minike.top/Article/details/0828231113.shtml)
+- 2026-06-29 15:30 - [世界杯欧美八大豪强悉数出线](http://www.share.kurohicncr.top/Article/details/957906947278.shtml)
+- 2026-06-29 15:44 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/699947260.shtml)
+- 2026-06-29 15:37 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/08593.shtml)
+- 2026-06-29 15:55 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/0832843008.shtml)
+- 2026-06-29 15:30 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/1888017290.shtml)
+- 2026-06-29 15:58 - [极限挑战第一季](https://www.share.minike.top/Article/details/9050672277.shtml)
+- 2026-06-29 15:34 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/58852313246.shtml)
+- 2026-06-29 15:33 - [苹果ultra2阔折叠已开模测试](http://www.share.kurohicncr.top/Article/details/546341628.shtml)
+- 2026-06-29 15:54 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/275888094306.shtml)
+- 2026-06-29 15:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/97784113731.shtml)
+- 2026-06-29 15:42 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/97101440308.shtml)
+- 2026-06-29 15:42 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/740809.shtml)

@@ -1,48 +1,60 @@
-# 四川宝兴蜂桶寨今年首只人工繁育绿尾虹雉孵化出壳
+# 韩国三星电子工会宣布明起罢工！国产芯片逆市崛起，规模最大港股通信息技术ETF华宝（159131）放量大涨3%
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 15:04 来源：中国新闻网 近日，四川蜂桶寨国家级自然保护区管护中心(雅安市宝兴县绿尾虹雉保护研究中心)2026年首只人工繁育的绿尾虹雉成功孵化出壳。 据介绍，截至目前，四川蜂桶寨国家级自然保护区管护中心确认受精卵有6枚，已成功孵化1只绿尾虹雉雏鸟，雏鸟健康状况良好。 四川蜂桶寨国家级自然保护区管护中心相关负责人表示，此次孵化延续了“失重法”
+5月20日午后，港股芯片产业链强势崛起，中芯国际、华虹半导体双双大涨超10%。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）全天震荡上行，放量收涨3%，单日成交额9.73亿元！全天溢价明显，资金实时申购800万份。 消息面上，三星电子工会因与资方在奖金分配问题上未能达成协议，计划于2026年5月21日启动为期18天的大规模罢工，这将是该公司历史上规模最大的
 
 ## 正文
 
-发布时间：2026年05月12日 15:04 来源：中国新闻网 近日，四川蜂桶寨国家级自然保护区管护中心(雅安市宝兴县绿尾虹雉保护研究中心)2026年首只人工繁育的绿尾虹雉成功孵化出壳。
+5月20日午后，港股芯片产业链强势崛起，中芯国际、华虹半导体双双大涨超10%。
 
-据介绍，截至目前，四川蜂桶寨国家级自然保护区管护中心确认受精卵有6枚，已成功孵化1只绿尾虹雉雏鸟，雏鸟健康状况良好。
+同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）全天震荡上行，放量收涨3%，单日成交额9.73亿元！
 
-四川蜂桶寨国家级自然保护区管护中心相关负责人表示，此次孵化延续了“失重法”人工授精与仿原生境孵化技术，是继2024年“子四代”繁育成功后的又一成果，标志着该中心绿尾虹雉人工繁育技术已进入稳定阶段。
+全天溢价明显，资金实时申购800万份。
 
-(周琦 向波 李小川 仁争多吉 制作 乐小敏） 责任编辑：【刘湃】
+消息面上，三星电子工会因与资方在奖金分配问题上未能达成协议，计划于2026年5月21日启动为期18天的大规模罢工，这将是该公司历史上规模最大的罢工行动，可能对全球存储芯片供应链产生重大冲击‌。
+
+‌ 平安证券指出，中芯国际&华虹公司发布2026Q1业绩，晶圆代工欣欣向荣。
+
+根据SEMI报告，2025年全球半导体材料市场销售额同比增长6.8%，达到732亿美元。
+
+晶圆制造材料和封装材料两大板块均实现增长，反映出更高的工艺复杂度、先进制程需求，以及高性能计算和高带宽存储制造领域的持续投资。
+
+国内来看，包括逻辑、存储在内的晶圆产能供给紧俏，晶圆厂潜在扩产空间可观。
 
 ## 相关推荐
 
-- 2026-06-29 15:46 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 15:53 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 15:53 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 15:29 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 15:28 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 15:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 15:45 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 15:42 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 15:32 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 15:46 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 15:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 15:30 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 15:46 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 15:38 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 15:45 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 15:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 15:30 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 15:38 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 15:46 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 15:36 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 15:32 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 15:55 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 15:53 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 15:57 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:28 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/13011721016.shtml)
-- 2026-06-29 15:33 - [绘画区你赢了](http://www.blog.minike.top/Article/details/6902788.shtml)
-- 2026-06-29 15:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/128543173.shtml)
-- 2026-06-29 15:29 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/149042.shtml)
-- 2026-06-29 15:51 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.minike.top/Article/details/93076556.shtml)
-- 2026-06-29 15:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/69717.shtml)
-- 2026-06-29 15:50 - [哈兰德之歌火到国外](http://www.blog.minike.top/Article/details/612336.shtml)
-- 2026-06-29 15:52 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/1062763625.shtml)
-- 2026-06-29 15:45 - [中餐厅南北饮食差异](https://www.share.kurohicncr.top/Article/details/365600.shtml)
-- 2026-06-29 15:34 - [爱很美味](https://www.share.kurohicncr.top/Article/details/40180.shtml)
-- 2026-06-29 15:49 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/81806460739.shtml)
-- 2026-06-29 15:34 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/9462101172.shtml)
-- 2026-06-29 15:31 - [美媒：空警-3000服役即成全球最强](https://www.share.kurohicncr.top/Article/details/888245498.shtml)
-- 2026-06-29 15:51 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/84026970.shtml)
-- 2026-06-29 15:37 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/176158248.shtml)
+- 2026-06-29 15:53 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/136017564094.shtml)
+- 2026-06-29 15:48 - [抓特务票房破亿](http://www.blog.kurohicncr.top/Article/details/7397369.shtml)
+- 2026-06-29 15:45 - [德国VS巴拉圭前瞻](http://www.blog.minike.top/Article/details/50471440.shtml)
+- 2026-06-29 15:56 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/10642103827.shtml)
+- 2026-06-29 15:59 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/8454009418.shtml)
+- 2026-06-29 15:41 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/4882529.shtml)
+- 2026-06-29 15:35 - [医院大厅放钢琴是形式主义吗](https://www.share.minike.top/Article/details/16383057.shtml)
+- 2026-06-29 15:59 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/338762905401.shtml)
+- 2026-06-29 15:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/7452115729.shtml)
+- 2026-06-29 15:43 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/2645061.shtml)
+- 2026-06-29 15:41 - [爱很美味](http://www.blog.minike.top/Article/details/1578619377.shtml)
+- 2026-06-29 15:48 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/4643591.shtml)
+- 2026-06-29 15:37 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/73318090.shtml)
+- 2026-06-29 15:55 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/6641441.shtml)
+- 2026-06-29 15:41 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/023423.shtml)

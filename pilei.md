@@ -1,57 +1,55 @@
-# 王祥基：将力邀张凌赫、刘宇宁等大陆艺人赴台交流
+# 范式智能与欢喜传媒订立战略合作 拟签订2000万美元API服务框架协议
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 22:10 来源：中国新闻网 5月11日下午，第三届海峡两岸中华文化峰会两岸演艺合作论坛在北京举办。台北演艺经纪文化交流协会创会理事长王祥基在接受中新社采访时表示，两岸同文同种、语言相通、情感相连，天然拥有深厚的文化共鸣，这份文化情感根基难以割裂。他认为，包括《沉默的荣耀》《逐玉》等在内的大陆影视剧，成为台湾青年了解大陆生活方式、婚恋观念与社会
+范式智能（06682）发布公告，于2026年5月19日（收市后），本公司与欢喜传媒集团有限公司（欢喜传媒）订立战略合作及合资框架协议书（框架协议），据此，双方拟透过结合本公司在人工智能的专业能力以及欢喜传媒在影视领域的产业优势，在影视创作、互动文娱、游戏开发、知识产权周边衍生等领域方面以成立合资企业为合作平台建立战略合作伙伴关系。 双方将有机会在以下领域合作：（i）数据合作：欢
 
 ## 正文
 
-发布时间：2026年05月11日 22:10 来源：中国新闻网 5月11日下午，第三届海峡两岸中华文化峰会两岸演艺合作论坛在北京举办。
+范式智能（06682）发布公告，于2026年5月19日（收市后），本公司与欢喜传媒集团有限公司（欢喜传媒）订立战略合作及合资框架协议书（框架协议），据此，双方拟透过结合本公司在人工智能的专业能力以及欢喜传媒在影视领域的产业优势，在影视创作、互动文娱、游戏开发、知识产权周边衍生等领域方面以成立合资企业为合作平台建立战略合作伙伴关系。
 
-台北演艺经纪文化交流协会创会理事长王祥基在接受中新社采访时表示，两岸同文同种、语言相通、情感相连，天然拥有深厚的文化共鸣，这份文化情感根基难以割裂。
+双方将有机会在以下领域合作：（i）数据合作：欢喜传媒将提供用于影视领域AI 解决方案及模型训练的相关数据；（ii）模型及代理研发：推进影视领域大模型和代理的研发；（iii）场景合作：在新文娱领域探索AI解决方案落地；（iv）联合出品及制作：利用AI技术完成影视内容的联合制作，以及相关知识产权的衍生开发，开展数位人演员开发及演员经纪、AI仿真人剧集、互动影游等；（v）资源合作：探索建立资源合作；及（vi）大模型API服务：欢喜传媒意向使用本公司平台上大模型API的许可权，并根据Token消耗量向本公司支付费用，自框架协议生效后叁年内，按Token消耗量向本公司支付费用的总目标服务金额预计不低于二亿美元（2亿美元）。
 
-他认为，包括《沉默的荣耀》《逐玉》等在内的大陆影视剧，成为台湾青年了解大陆生活方式、婚恋观念与社会风貌的重要窗口，两岸民众也能借此看清彼此差异、互相借鉴学习，在潜移默化中增进理解与认同。
+于2026年5月19日（交易时段后），本公司的全资附属公司Phancy International Limited（Phancy International）就大模型应用程式介面（API）服务事项与欢喜传媒订立大模型API服务框架协议（API服务框架协议），据此Phancy International 向欢喜传媒提供各项大模型API服务，总价为2000万美元（按1.00美元兑港币 7.85元的汇率换算，相当于约港币1.57亿元，服务费），按欢喜传媒及其附属公司应用AI于影视制作时所消耗Token量计费，协议有效期为两年。
 
-王祥基举例称，张凌赫、刘宇宁等大陆艺人在台湾人气极高，相关动态一经传出便备受民众关注追捧，大陆艺人身上深厚的文化底蕴也值得台湾演艺界学习。
+欢喜传媒将在收到本集团的付款通知书之日起五个工作日向Phancy International指定主体预付该等服务费。
 
-他透露，协会今年将持续发力推动两岸文化交流，力邀大陆高人气知名艺人赴台开展演出、合作座谈、签名会等活动。
+API服务框架协议为双方首度正式订立的采购合作协议，后续双方将依据Token 实际消耗规模及业务推进进度，适时另行磋商订立后续采购协议。
 
-据他介绍，协会此前已在台北小巨蛋、大巨蛋等地成功举办四五十场两岸大型演艺交流活动，收获了扎实的交流成果，未来也将继续深耕两岸演艺文化融合事业。
-
-记者 范思忆 北京报道 责任编辑：【李骏】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:39 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 15:42 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 15:41 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 15:24 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 15:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 15:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 15:42 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 15:46 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 15:26 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 15:53 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 15:29 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 15:24 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 15:48 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 15:34 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 15:46 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 15:41 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 15:33 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 15:33 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 15:52 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 15:49 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 15:57 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 15:44 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 15:58 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 15:35 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 15:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 15:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:52 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/590237864880.shtml)
-- 2026-06-29 15:53 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/865354783707.shtml)
-- 2026-06-29 15:24 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.kurohicncr.top/Article/details/1618000211.shtml)
-- 2026-06-29 15:26 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/5771114.shtml)
-- 2026-06-29 15:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/9466177710.shtml)
-- 2026-06-29 15:27 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/33885228.shtml)
-- 2026-06-29 15:32 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.kurohicncr.top/Article/details/62879.shtml)
-- 2026-06-29 15:37 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/530888438240.shtml)
-- 2026-06-29 15:46 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/07400112920.shtml)
-- 2026-06-29 15:49 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/5149906.shtml)
-- 2026-06-29 15:46 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/74616801165.shtml)
-- 2026-06-29 15:39 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/052431892.shtml)
-- 2026-06-29 15:38 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/9485967.shtml)
-- 2026-06-29 15:43 - [斗破苍穹](http://www.share.minike.top/Article/details/10851.shtml)
-- 2026-06-29 15:45 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/87984.shtml)
+- 2026-06-29 15:52 - [世界杯超牛补水广告出现了](http://www.share.minike.top/Article/details/12315588801.shtml)
+- 2026-06-29 15:42 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/5355989455.shtml)
+- 2026-06-29 15:42 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/38623167129.shtml)
+- 2026-06-29 15:40 - [TLAW vs DCG MSI](https://www.blog.minike.top/Article/details/2451778.shtml)
+- 2026-06-29 15:40 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/05157512149.shtml)
+- 2026-06-29 15:41 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/59535.shtml)
+- 2026-06-29 15:56 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/9546048940.shtml)
+- 2026-06-29 15:50 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.kurohicncr.top/Article/details/0322980.shtml)
+- 2026-06-29 15:49 - [四川宜宾地震](https://www.blog.minike.top/Article/details/5655482055.shtml)
+- 2026-06-29 15:53 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/93392.shtml)
+- 2026-06-29 15:32 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/27169.shtml)
+- 2026-06-29 15:49 - [世界杯看到肖战了](https://www.share.kurohicncr.top/Article/details/8182187.shtml)
+- 2026-06-29 15:59 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/65183.shtml)
+- 2026-06-29 15:44 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/43088650043.shtml)
+- 2026-06-29 15:56 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/110967058.shtml)

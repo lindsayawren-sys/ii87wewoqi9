@@ -1,58 +1,59 @@
-# 152亿美元重磅合作！恒瑞医药联手BMS加速13款新药研发，股价一度暴拉15%
+# 英国4月通胀率降至2.8%，但降温势头料难以持久
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-恒瑞医药于12日午间公告，已与百时美施贵宝（BMS）达成全球战略合作及许可协议，双方将共同推进涵盖肿瘤学、血液学及免疫学的13款早期项目以加速创新药物研发；根据协议条款，BMS需向恒瑞支付高达9.5亿美元的明确款项，包括6亿美元首付款、1.75亿美元第一笔周年付款及1.75亿美元第二笔有条件的2028年周年付款，而若行使共同研发项目选择权并完成各项开发、注册及商业化里程碑，协议
+核心要点 路透社调查的经济学家此前预计，英国通胀率将从 3 月的 3.3% 回落至 3%。 此次通胀回落主要得益于英国能源监管机构 4 月 1 日正式实施的能源价格上限政策。 不过受伊朗局势推高能源成本影响，英国居民消费物价后续仍将继续上涨。 英国国家统计局周三公布初步数据显示，英国 4 月通胀率回落至 2.8%。 路透社受访经济学家此前预测通胀从 3 月 3.3% 降至 3%
 
 ## 正文
 
-恒瑞医药于12日午间公告，已与百时美施贵宝（BMS）达成全球战略合作及许可协议，双方将共同推进涵盖肿瘤学、血液学及免疫学的13款早期项目以加速创新药物研发；根据协议条款，BMS需向恒瑞支付高达9.5亿美元的明确款项，包括6亿美元首付款、1.75亿美元第一笔周年付款及1.75亿美元第二笔有条件的2028年周年付款，而若行使共同研发项目选择权并完成各项开发、注册及商业化里程碑，协议潜在总交易额可达约152亿美元。
+核心要点 路透社调查的经济学家此前预计，英国通胀率将从 3 月的 3.3% 回落至 3%。
 
-热点追踪 港股恒瑞医药在5月12日盘中表现强势，股价一度涨幅超过15%，反映出市场对其重大利好消息的积极反应。
+此次通胀回落主要得益于英国能源监管机构 4 月 1 日正式实施的能源价格上限政策。
 
-公司当日午间发布重磅公告，宣布与全球制药巨头百时美施贵宝（BMS）达成全球战略合作及许可协议，旨在共同推进13款涵盖肿瘤学、血液学及免疫学领域的早期创新药物项目。
+不过受伊朗局势推高能源成本影响，英国居民消费物价后续仍将继续上涨。
 
-此次合作不仅有助于加速创新药物的研发进程，更体现了恒瑞医药在国际化布局上的重大突破，力求惠及全球患者。
+英国国家统计局周三公布初步数据显示，英国 4 月通胀率回落至 2.8%。
 
-根据协议条款，潜在交易总交易额可达约152亿美元，其中百时美施贵宝向恒瑞支付的付款部分最高可达9.5亿美元。
+路透社受访经济学家此前预测通胀从 3 月 3.3% 降至 3%，本次数据低于市场预期，回落主因是英国能源监管局 4 月 1 日落地能源价格上限机制。
 
-这一巨额交易金额不仅彰显了国际合作伙伴对恒瑞研发实力的认可，也将为恒瑞带来可观的资金回流，进一步巩固其在创新药领域的领先地位。
+但随着伊朗局势带来的能源涨价影响持续显现，英国物价上涨压力仍存。
 
-对于投资者而言，这一合作标志着恒瑞医药从“仿创结合”向“原创出海”的战略转型取得了实质性进展，有望提升其长期估值逻辑与全球竞争力。
+英国国家统计局首席经济学家格兰特・菲茨纳在社交平台 X 上表示：“受燃气、电力价格下调带动，英国年度通胀明显走低。
 
-热点解读 创新药出海趋势加速，头部药企国际化进程显著提速。
+一方面政府出台能源费用补贴政策下调浮动及固定能源资费，另一方面中东冲突爆发前国际能源批发价格走低，共同推动能源监管局下调能源价格上限。
 
 ## 相关推荐
 
-- 2026-06-29 15:25 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 15:44 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 15:49 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 15:45 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 15:34 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 15:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 15:42 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 15:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 15:25 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 15:30 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 15:53 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 15:45 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 15:36 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 15:53 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 15:47 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 15:41 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 15:52 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 15:35 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 15:57 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 15:47 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 15:46 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 15:49 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 15:46 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 15:50 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 15:39 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:30 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/8050255021.shtml)
-- 2026-06-29 15:43 - [爸爸当家](https://www.blog.kurohicncr.top/Article/details/50592.shtml)
-- 2026-06-29 15:25 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/649161857361.shtml)
-- 2026-06-29 15:28 - [张一山回应与杨紫友情](https://www.blog.kurohicncr.top/Article/details/09462812.shtml)
-- 2026-06-29 15:43 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/92928647.shtml)
-- 2026-06-29 15:26 - [中国战机大片上新](http://www.share.minike.top/Article/details/448521805.shtml)
-- 2026-06-29 15:49 - [金牌调解](http://www.share.minike.top/Article/details/8073061602.shtml)
-- 2026-06-29 15:24 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/1398988.shtml)
-- 2026-06-29 15:32 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.minike.top/Article/details/49965234.shtml)
-- 2026-06-29 15:40 - [苹果ultra2阔折叠已开模测试](http://www.blog.minike.top/Article/details/823207510.shtml)
-- 2026-06-29 15:45 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/0669257103.shtml)
-- 2026-06-29 15:46 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/597933985.shtml)
-- 2026-06-29 15:36 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/181050.shtml)
-- 2026-06-29 15:33 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/782312939.shtml)
-- 2026-06-29 15:25 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/11828.shtml)
+- 2026-06-29 15:42 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/34065100140.shtml)
+- 2026-06-29 15:42 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/4411147936.shtml)
+- 2026-06-29 15:35 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.minike.top/Article/details/34970.shtml)
+- 2026-06-29 15:30 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/68410911.shtml)
+- 2026-06-29 15:41 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/994122219851.shtml)
+- 2026-06-29 15:34 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/89814283477.shtml)
+- 2026-06-29 15:44 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/706636.shtml)
+- 2026-06-29 15:47 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/2227429427.shtml)
+- 2026-06-29 15:48 - [撒旦的腋窝是什么比喻](https://www.share.minike.top/Article/details/8969139171.shtml)
+- 2026-06-29 15:48 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/8234117218.shtml)
+- 2026-06-29 15:46 - [欧盟为什么越来越倾向贸易保护](https://www.share.minike.top/Article/details/0584535.shtml)
+- 2026-06-29 15:37 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/677318270.shtml)
+- 2026-06-29 15:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/36764.shtml)
+- 2026-06-29 15:34 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/92901860.shtml)
+- 2026-06-29 15:35 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.kurohicncr.top/Article/details/670242505709.shtml)

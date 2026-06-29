@@ -1,57 +1,60 @@
-# 中际旭创成为千元股！光模块+半导体携手猛攻，华宝基金双创50ETF标的近一年暴涨119%！17只成份股翻倍！
+# 从发票数据看经济走势 今年前四个月全国企业销售收入稳步增长
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-今日（5月12日）光模块龙头中际旭创持续拉升，盘中股价突破1000元/股，再创历史新高，继爱美客之后，中际旭创成为创业板历史上第二只千元股。 拉长时间来看，中际旭创近1年累计暴涨897.88%，于此同时，同为双创50ETF华宝（588330）成份股合计17只个股近1年实现股价翻倍，光模块龙头新易盛累计上涨625.55%，存储芯片龙头江波龙累计上涨617.72%，表现居前。 受益
+国家税务总局今天(19日)发布的最新发票数据显示，今年前4个月，全国企业销售收入实现稳步增长，呈现多方面亮点。 全国工业销售收入同比增长6.6% 1至4月份，全国工业保持较快增长，销售收入同比增长6.6%。 发票数据显示，今年1至4月，全国制造业、采矿业销售收入同比分别增长6.9%、6.4%，均保持较快增长态势。在贵州贵阳的一家电线电缆制造企业，铜丝拉丝、绞线、成缆等工序在自动
 
 ## 正文
 
-今日（5月12日）光模块龙头中际旭创持续拉升，盘中股价突破1000元/股，再创历史新高，继爱美客之后，中际旭创成为创业板历史上第二只千元股。
+国家税务总局今天(19日)发布的最新发票数据显示，今年前4个月，全国企业销售收入实现稳步增长，呈现多方面亮点。
 
-拉长时间来看，中际旭创近1年累计暴涨897.88%，于此同时，同为双创50ETF华宝（588330）成份股合计17只个股近1年实现股价翻倍，光模块龙头新易盛累计上涨625.55%，存储芯片龙头江波龙累计上涨617.72%，表现居前。
+全国工业销售收入同比增长6.6% 1至4月份，全国工业保持较快增长，销售收入同比增长6.6%。
 
-受益于硬科技成份股强势拉升，双创50ETF华宝（588330）标的指数（科创创业50指数）近1年累计上涨119.43%，跑赢创业板50（111.75%）、创业板指（95.30%）、科创综指（78.26%）、科创50（70.59%）等主要指数，领跑一众硬科技宽基！
+发票数据显示，今年1至4月，全国制造业、采矿业销售收入同比分别增长6.9%、6.4%，均保持较快增长态势。
 
-数据统计区间：2025.5.11-2026.5.11，中证科创创业50指数2021-2025分年度涨跌幅为：0.37%、-28.32%、-18.83%、13.63%、60.86%，指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
+在贵州贵阳的一家电线电缆制造企业，铜丝拉丝、绞线、成缆等工序在自动化生产线上高效运转。
 
-强者恒强，今日（5月12日）盘面上，百分百布局新质生产力的硬科技宽基——双创50ETF华宝（588330）场内价格再涨1.75%续创历史新高。
+负责人告诉记者，他们攻克了兆瓦闪充技术，研发出专门应对新能源车高压系统“大电流、高电压、高散热”等要求的线缆产品。
 
-成份股沪硅产业领涨超9%，寒武纪涨逾7%，中际旭创涨超6%，新易盛涨逾5%，天孚通信、芯原股份等个股跟涨。
+目前，已经应用到了新能源汽车闪充领域。
 
-中信建投判断，2026年下半年A股将演绎结构性慢牛行情，结构性景气和资金抱团推动结构性牛市，建议投资者遵循“景气为纲”的投资策略，聚焦“算力牛”和“复苏牛”两大景气主线。
+中安科技集团有限公司财务负责人 段继宏：受益于国内新能源政策鼓励和发展，今年我们营业收入达到了8.8亿元，相比去年同比增长了66%。
 
-AI算力主线关注全产业链景气扩散。
+国家税务总局贵阳市税务局收入核算和税收经济分析科科长 梅燕：今年1至4月，贵阳全市制造业销售收入同比增长7.3%，航空相关设备制造、通信设备制造分别增长了119.8%和112%，先进制造业势头强劲。
 
 ## 相关推荐
 
-- 2026-06-29 15:37 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 15:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 15:47 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 15:40 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 15:24 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 15:33 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 15:41 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 15:26 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 15:49 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 15:27 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 15:42 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 15:41 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 15:46 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 15:37 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 15:35 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 15:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 15:50 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 15:32 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 15:48 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 15:37 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 15:41 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 15:48 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 15:49 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 15:46 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 15:42 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:49 - [吴磊爱上回收了](https://www.share.kurohicncr.top/Article/details/823157.shtml)
-- 2026-06-29 15:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/11012.shtml)
-- 2026-06-29 15:51 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/704443861.shtml)
-- 2026-06-29 15:48 - [袁隆平院士 不容诋毁！](http://www.blog.minike.top/Article/details/6965234.shtml)
-- 2026-06-29 15:26 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/46172534.shtml)
-- 2026-06-29 15:43 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/641720094462.shtml)
-- 2026-06-29 15:39 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/47740559.shtml)
-- 2026-06-29 15:52 - [四川宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/9928688.shtml)
-- 2026-06-29 15:47 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/41578922499.shtml)
-- 2026-06-29 15:24 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/0754240.shtml)
-- 2026-06-29 15:33 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/18104606820.shtml)
-- 2026-06-29 15:26 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/8801520.shtml)
-- 2026-06-29 15:28 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.kurohicncr.top/Article/details/53130.shtml)
-- 2026-06-29 15:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/854447333.shtml)
-- 2026-06-29 15:29 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/492901499377.shtml)
+- 2026-06-29 15:41 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/997986.shtml)
+- 2026-06-29 15:36 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/04786.shtml)
+- 2026-06-29 15:30 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/02883557.shtml)
+- 2026-06-29 15:36 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/39185.shtml)
+- 2026-06-29 15:47 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/80506223034.shtml)
+- 2026-06-29 15:53 - [复盘曾沛慈浪姐夺冠之路](https://www.share.minike.top/Article/details/652104667481.shtml)
+- 2026-06-29 15:53 - [BB大王横店拍戏](http://www.share.minike.top/Article/details/02922.shtml)
+- 2026-06-29 15:53 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/4181894834.shtml)
+- 2026-06-29 15:53 - [Canna纳尔8-0对位单杀Doran](http://www.share.minike.top/Article/details/45098.shtml)
+- 2026-06-29 15:44 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/5540660719.shtml)
+- 2026-06-29 15:47 - [恋与深空发放补偿未得到玩家认可](https://www.share.kurohicncr.top/Article/details/4236642661.shtml)
+- 2026-06-29 15:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/64240.shtml)
+- 2026-06-29 15:31 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/6580914.shtml)
+- 2026-06-29 15:30 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/867578605.shtml)
+- 2026-06-29 15:59 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/14002778.shtml)

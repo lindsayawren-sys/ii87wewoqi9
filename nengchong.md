@@ -1,59 +1,58 @@
-# 大幅溢价！两只ETF，明日停牌一小时
+# 谷歌升级搜索体验迎接AI时代 并推出新编程工具
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！01 5月12日，A股主要指数表现分化。半导体板块ETF领涨，8只产品跻身涨幅榜前十，且今年以来涨幅均超40%。 02 中韩半导体ETF华泰柏瑞（513310）、全球芯片LOF（501225）5月12日公告称，基金二级市场交易价格明显高于基金份额参考净值，出现较大幅度溢价，将于5月13日开市起至当日10：3
+Alphabet旗下谷歌正在重新设计其标志性的搜索框，并添加新的人工智能编程工具，这是该公司为在人工智能时代扩大影响力而展开的耗资数十亿美元行动中的最新举措。 谷歌对搜索框进行了改造，以更好地处理用户向聊天机器人提出的更长、更复杂的查询。该公司还计划用智能体对搜索引擎进行升级，从而协助用户追踪感兴趣的话题、进行预订以及监测健康状况等。部分功能最初将仅限于付费订阅用户。 对AI的
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+Alphabet旗下谷歌正在重新设计其标志性的搜索框，并添加新的人工智能编程工具，这是该公司为在人工智能时代扩大影响力而展开的耗资数十亿美元行动中的最新举措。
 
-01 5月12日，A股主要指数表现分化。
+谷歌对搜索框进行了改造，以更好地处理用户向聊天机器人提出的更长、更复杂的查询。
 
-半导体板块ETF领涨，8只产品跻身涨幅榜前十，且今年以来涨幅均超40%。
+该公司还计划用智能体对搜索引擎进行升级，从而协助用户追踪感兴趣的话题、进行预订以及监测健康状况等。
 
-02 中韩半导体ETF华泰柏瑞（513310）、全球芯片LOF（501225）5月12日公告称，基金二级市场交易价格明显高于基金份额参考净值，出现较大幅度溢价，将于5月13日开市起至当日10：30停牌。
+部分功能最初将仅限于付费订阅用户。
 
-03 前一交易日（5月11日），ETF市场资金净流出超500亿元。
+对AI的关注正在“点亮公司的每一个角落”，首席执行官Sundar Pichai周二在加州山景城举行的年度开发者大会上演讲时表示。
 
-宽基ETF资金净流出明显，9只宽基ETF单日净流出额超17亿元。
+“所有这些持续不断的交付，技术快速进步，这是一段飞速发展的时期。
 
-5月以来，截至5月11日，已有4只宽基ETF净流出超百亿元。
+” 谷歌在周二的活动中推出了多款为开发人员设计的新工具，用于利用AI编写代码以及管理智能体。
 
-半导体板块ETF领涨 5月12日，半导体板块表现亮眼。
+谷歌还发布了旗舰AI模型的新版本Gemini 3.5 Flash，称是其目前最适合编程的模型。
 
 ## 相关推荐
 
-- 2026-06-29 15:51 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 15:32 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 15:24 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 15:26 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 15:27 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 15:38 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 15:53 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 15:48 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 15:34 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 15:25 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 15:47 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 15:33 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 15:35 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 15:33 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 15:40 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 15:34 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 15:31 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 15:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 15:45 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 15:56 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 15:30 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 15:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 15:50 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 15:35 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 15:43 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:27 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/532869.shtml)
-- 2026-06-29 15:29 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/34090779327.shtml)
-- 2026-06-29 15:48 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/712599631668.shtml)
-- 2026-06-29 15:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/39087.shtml)
-- 2026-06-29 15:28 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/42391898.shtml)
-- 2026-06-29 15:32 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/231713.shtml)
-- 2026-06-29 15:29 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/18964854098.shtml)
-- 2026-06-29 15:51 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/039876.shtml)
-- 2026-06-29 15:40 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/98990.shtml)
-- 2026-06-29 15:46 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/465552.shtml)
-- 2026-06-29 15:42 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/03114345.shtml)
-- 2026-06-29 15:35 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/04259203946.shtml)
-- 2026-06-29 15:43 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/40098883.shtml)
-- 2026-06-29 15:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/5994651984.shtml)
-- 2026-06-29 15:43 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/464265.shtml)
+- 2026-06-29 15:52 - [沙丘](https://www.blog.kurohicncr.top/Article/details/71362996.shtml)
+- 2026-06-29 15:35 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/02483.shtml)
+- 2026-06-29 15:46 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/290716078.shtml)
+- 2026-06-29 15:40 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/122143.shtml)
+- 2026-06-29 15:31 - [教育部发布高考志愿填报预警](https://www.share.kurohicncr.top/Article/details/911373195655.shtml)
+- 2026-06-29 15:59 - [疑似吴建豪老婆正脸照](http://www.blog.minike.top/Article/details/079328.shtml)
+- 2026-06-29 15:38 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/46835104927.shtml)
+- 2026-06-29 15:55 - [世界杯看到肖战了](http://www.share.minike.top/Article/details/04472380424.shtml)
+- 2026-06-29 15:58 - [女生雨天开车发现雨刮条被掰走](http://www.share.minike.top/Article/details/040129.shtml)
+- 2026-06-29 15:38 - [教育部发布高考志愿填报预警](https://www.share.kurohicncr.top/Article/details/3480244.shtml)
+- 2026-06-29 15:31 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/5306564.shtml)
+- 2026-06-29 15:35 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/88902193.shtml)
+- 2026-06-29 15:56 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/941790.shtml)
+- 2026-06-29 15:59 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/7835941588.shtml)
+- 2026-06-29 15:44 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/77942.shtml)

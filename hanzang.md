@@ -1,59 +1,59 @@
-# AI会取代哪些职业？多个AI意见不统一
+# 赴港上市前夕：爱尔眼科大额补税或拖累盈利
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-新华社北京5月11日电 当前，人们日益担忧人工智能(AI)将影响就业市场。美国近期一项研究显示，多个人工智能模型在预测哪些职业容易被人工智能取代时，给出的答案并不一致。 据美国《华尔街日报》10日报道，美国经济学者对一项职业所包含的任务中哪些可能被人工智能更高效地完成进行评估，并据此得出该职业被人工智能取代的“风险暴露评分”。美国劳工部建立了相关数据库，列出各职业所包含的具体任
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！21世纪经济报道 记者 韩利明 5月20日早盘前，曾有“眼茅”之称的爱尔眼科（300015.SZ）发布补税公告称，经税务自查，公司需补缴税款3.48亿元、滞纳金1.76亿元，合计5.24亿元，该税款及滞纳金已缴纳完毕；同时公司需增加2025年度企业所得税汇算清缴纳税申报金额2.32亿元。 公告落地迅速引发资
 
 ## 正文
 
-新华社北京5月11日电 当前，人们日益担忧人工智能(AI)将影响就业市场。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-美国近期一项研究显示，多个人工智能模型在预测哪些职业容易被人工智能取代时，给出的答案并不一致。
+21世纪经济报道 记者 韩利明 5月20日早盘前，曾有“眼茅”之称的爱尔眼科（300015.SZ）发布补税公告称，经税务自查，公司需补缴税款3.48亿元、滞纳金1.76亿元，合计5.24亿元，该税款及滞纳金已缴纳完毕；同时公司需增加2025年度企业所得税汇算清缴纳税申报金额2.32亿元。
 
-据美国《华尔街日报》10日报道，美国经济学者对一项职业所包含的任务中哪些可能被人工智能更高效地完成进行评估，并据此得出该职业被人工智能取代的“风险暴露评分”。
+公告落地迅速引发资本市场反应。
 
-美国劳工部建立了相关数据库，列出各职业所包含的具体任务。
+当日爱尔眼科开盘后低开低走，盘中跌幅一度逼近5%，股价最低下探至9.42元/股。
 
-例如，烘焙师职业包括揉制面团并将其放入烤箱等任务，金融分析师需评估企业状况等。
+截至当日收盘，公司股价报9.47元/股，单日下跌4.15%，对应总市值约883亿元。
 
-一项职业所包含的任务能被人工智能取代的比例越高，该职业的“风险暴露评分”越高。
+图片来源：爱尔眼科公告 针对本次补税事项，爱尔眼科方面在投资者互动平台回应称，“根据企业会计准则相关规定，本次税收事项不属于前期会计差错，不涉及前期财务数据追溯调整，不涉及行政处罚，不影响公司正常经营。
 
-目前，研究人员主要通过3种方法评估各职业的“风险暴露评分”，但3种方法各有缺陷：人为评分过于主观；根据员工使用人工智能情况打分往往只涉及单一平台，代表性不足；用人工智能评分，也存在不少问题。
+” 爱尔眼科方面同时说明，该税收事项的影响将计入2026年当期损益。
 
-据报道，美国全国经济研究所网站4月发表的一项研究显示，研究人员向ChatGPT-5、“双子座2.5”和“克劳德4.5”等3个人工智能模型提问，就“哪种职业较危险”得到了不同答案。
+从盈利影响来看，本次补缴税费规模，接近爱尔眼科2026年一季度归母净利润的一半。
 
 ## 相关推荐
 
-- 2026-06-29 15:29 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 15:39 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 15:52 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 15:53 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 15:50 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 15:33 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 15:32 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 15:38 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 15:36 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 15:52 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 15:36 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 15:38 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 15:44 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 15:47 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 15:33 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 15:52 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 15:46 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 15:33 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 15:36 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 15:52 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 15:50 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 15:37 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 15:52 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 15:43 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 15:37 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 15:48 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/989148164.shtml)
-- 2026-06-29 15:46 - [四川宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/63669279580.shtml)
-- 2026-06-29 15:48 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/652641567326.shtml)
-- 2026-06-29 15:46 - [20年前的周杰伦](http://www.share.kurohicncr.top/Article/details/358406379752.shtml)
-- 2026-06-29 15:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/141943001365.shtml)
-- 2026-06-29 15:30 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.kurohicncr.top/Article/details/79044.shtml)
-- 2026-06-29 15:29 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/96312581.shtml)
-- 2026-06-29 15:25 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/972568564175.shtml)
-- 2026-06-29 15:47 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/396222885163.shtml)
-- 2026-06-29 15:52 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/28826776716.shtml)
-- 2026-06-29 15:45 - [《贺子珍》](https://www.blog.minike.top/Article/details/756327909.shtml)
-- 2026-06-29 15:29 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/17906194.shtml)
-- 2026-06-29 15:38 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/90231.shtml)
-- 2026-06-29 15:47 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/61937.shtml)
-- 2026-06-29 15:28 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/15952.shtml)
+- 2026-06-29 15:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/99183239.shtml)
+- 2026-06-29 15:31 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/22829510059.shtml)
+- 2026-06-29 15:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/71902306524.shtml)
+- 2026-06-29 15:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/618227965966.shtml)
+- 2026-06-29 15:51 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/6161938.shtml)
+- 2026-06-29 15:39 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/1118754.shtml)
+- 2026-06-29 15:41 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/81592.shtml)
+- 2026-06-29 15:31 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/878643420.shtml)
+- 2026-06-29 15:47 - [哈兰德之歌火到国外](http://www.blog.minike.top/Article/details/2839423040.shtml)
+- 2026-06-29 15:51 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/071348.shtml)
+- 2026-06-29 15:39 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/6835165114.shtml)
+- 2026-06-29 15:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/08759.shtml)
+- 2026-06-29 15:49 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/9630156.shtml)
+- 2026-06-29 15:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/09387.shtml)
+- 2026-06-29 15:47 - [小娘惹](http://www.share.minike.top/Article/details/2442672.shtml)

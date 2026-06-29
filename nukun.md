@@ -1,57 +1,57 @@
-# A股成交额连续5天破3万亿元，资金加仓名单曝光
+# 中越联合举行2026年北部湾渔业资源增殖放流活动
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨李益文 5月12日，A股市场再度迎来历史性一刻，全市场成交额再度突破3万亿元，连续第5个交易日维持在3万亿元以上规模，打破了此前连续4天成交额突破3万亿元的纪录。 与此同时，A股融资余额攀升至2.81万亿元，为历史最高纪录，较4月初低点增加2218.3亿元，增幅达8.56%。资金入场的积极信号持续释放
+中新社防城港5月19日电 (刘芷邑)2026年中越北部湾渔业资源联合增殖放流活动19日在广西防城港东兴市举行。本次活动放流黄鳍鲷、真鲷等7个水生生物品种的苗种和亲本共计2.7亿尾，采用分子遗传、体外标志等技术，对长毛对虾、黑鲷苗种进行动态追踪，实现对放流效果的科学评估。 中国农业农村部渔业渔政管理局有关负责人在致辞时表示，中方愿与越方一道，携手并进，推进磋商，协商完善管理制度，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社防城港5月19日电 (刘芷邑)2026年中越北部湾渔业资源联合增殖放流活动19日在广西防城港东兴市举行。
 
-记者丨李益文 5月12日，A股市场再度迎来历史性一刻，全市场成交额再度突破3万亿元，连续第5个交易日维持在3万亿元以上规模，打破了此前连续4天成交额突破3万亿元的纪录。
+本次活动放流黄鳍鲷、真鲷等7个水生生物品种的苗种和亲本共计2.7亿尾，采用分子遗传、体外标志等技术，对长毛对虾、黑鲷苗种进行动态追踪，实现对放流效果的科学评估。
 
-与此同时，A股融资余额攀升至2.81万亿元，为历史最高纪录，较4月初低点增加2218.3亿元，增幅达8.56%。
+中国农业农村部渔业渔政管理局有关负责人在致辞时表示，中方愿与越方一道，携手并进，推进磋商，协商完善管理制度，在尊重历史、理解互信基础上，加快推进中越北部湾渔业可持续发展合作协定签署。
 
-资金入场的积极信号持续释放，市场热度攀升至年内高点。
+持续合作，共同养护渔业资源。
 
-从成交额来看，本轮“万亿级”交易热潮始于“五一”假期之后。
+协同治理，守护海上生产秩序，持续深化两国海上执法部门的协作机制，合力构筑平安和谐的海上环境。
 
-5月6日，A股成交额突破3万亿元关口，此后5月7日、8日、11日、12日连续维持在3万亿元以上。
+越南驻南宁总领事馆总领事阮氏红表示，举办第九次渔业资源增殖放流活动，有助于北部湾渔业资源的恢复和可持续发展，提高民众保护渔业资源的意识，改善沿海渔民生计，深化越中传统友谊和合作。
 
-其中，5月11日全天成交额达3.57万亿元，为A股历史第四高。
+据了解，自2017年以来，中方累计向北部湾放流各类水产苗种超过7.7亿尾。
 
-融资余额的攀升更为迅猛。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:41 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 15:38 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 15:50 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 15:36 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 15:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 15:30 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 15:40 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 15:41 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 15:50 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 15:50 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 15:24 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 15:32 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 15:59 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 15:42 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 15:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 15:46 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 15:46 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 15:58 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 15:57 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 15:53 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 15:53 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 15:59 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:45 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/8997784709.shtml)
-- 2026-06-29 15:36 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/42851.shtml)
-- 2026-06-29 15:49 - [84岁英国教授成中国网红](http://www.share.minike.top/Article/details/602473715280.shtml)
-- 2026-06-29 15:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/45537253201.shtml)
-- 2026-06-29 15:24 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/38307.shtml)
-- 2026-06-29 15:29 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/774491.shtml)
-- 2026-06-29 15:24 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/28961.shtml)
-- 2026-06-29 15:49 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/3833703.shtml)
-- 2026-06-29 15:49 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/750712761.shtml)
-- 2026-06-29 15:44 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/581374295.shtml)
-- 2026-06-29 15:34 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/4952485.shtml)
-- 2026-06-29 15:28 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/6005525633.shtml)
-- 2026-06-29 15:50 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/649819822884.shtml)
-- 2026-06-29 15:25 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/566605.shtml)
-- 2026-06-29 15:42 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/8136525.shtml)
+- 2026-06-29 15:36 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/11125.shtml)
+- 2026-06-29 15:37 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/2524105.shtml)
+- 2026-06-29 15:51 - [周生如故](https://www.blog.minike.top/Article/details/5318679090.shtml)
+- 2026-06-29 15:58 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.minike.top/Article/details/13431634.shtml)
+- 2026-06-29 15:55 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/80459856696.shtml)
+- 2026-06-29 15:59 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/845541281438.shtml)
+- 2026-06-29 15:58 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/201195.shtml)
+- 2026-06-29 15:36 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/8402008186.shtml)
+- 2026-06-29 15:49 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/02242974401.shtml)
+- 2026-06-29 15:55 - [国家体育总局政策法规司原副司长获刑](https://www.blog.minike.top/Article/details/425955.shtml)
+- 2026-06-29 15:40 - [波兰创该国高温纪录](https://www.blog.kurohicncr.top/Article/details/7799324267.shtml)
+- 2026-06-29 15:33 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/71695.shtml)
+- 2026-06-29 15:53 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/72180666.shtml)
+- 2026-06-29 15:44 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/1535582.shtml)
+- 2026-06-29 15:53 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/59752164.shtml)

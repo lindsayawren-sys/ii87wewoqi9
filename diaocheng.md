@@ -1,48 +1,57 @@
-# 原来穿校服跳“裁判舞”这么帅！学生在操场组团展示“裁判舞” 朝气蓬勃 又美又飒
+# 新交所与中国银行进一步深化合作，签署新版战略合作备忘录
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 15:39 来源：中国新闻网 原来穿校服跳“裁判舞”这么帅！学生在操场组团展示“裁判舞” 朝气蓬勃 又美又飒 责任编辑：【李光伟】
+来源：新交所SGX 5月19日，新加坡交易所集团（以下简称“新交所”）与中国银行股份有限公司（以下简称“中国银行”）签署战略合作备忘录，进一步深化双方长期合作关系。 从左至右依次为：新加坡交易所集团中国区主席陈庆，新加坡交易所集团首席执行官罗文才，中国银行党委书记、董事长葛海蛟，中国银行金融机构部总经理李可欣（图片来源：中国银行） 此次深化合作将依托新加坡作为连接中国、国际投资
 
 ## 正文
 
-发布时间：2026年05月12日 15:39 来源：中国新闻网 原来穿校服跳“裁判舞”这么帅！
+来源：新交所SGX 5月19日，新加坡交易所集团（以下简称“新交所”）与中国银行股份有限公司（以下简称“中国银行”）签署战略合作备忘录，进一步深化双方长期合作关系。
 
-学生在操场组团展示“裁判舞” 朝气蓬勃 又美又飒 责任编辑：【李光伟】
+从左至右依次为：新加坡交易所集团中国区主席陈庆，新加坡交易所集团首席执行官罗文才，中国银行党委书记、董事长葛海蛟，中国银行金融机构部总经理李可欣（图片来源：中国银行） 此次深化合作将依托新加坡作为连接中国、国际投资者与全球市场的重要门户，支持中国与东盟之间不断增长的商业、贸易和投资机遇。
+
+双方将进一步发挥资源互补作用，携手打造连接中国与东盟的双向金融桥梁。
+
+根据备忘录，双方将在以下重点领域深化合作： 支持中国银行及其客户 把握国际资本与东盟机遇 依托新交所的国际多资产平台、股票市场及东盟网络，中国银行及其客户将能够通过新加坡更便捷地连接国际投资者、新加坡资本市场、跨境融资渠道和区域增长机遇。
+
+此次深化合作将支持有国际化发展需求的中国企业在新交所首次上市或二次上市，包括来自上海证券交易所和深圳证券交易所的中国企业。
+
+通过新加坡资本市场，中国企业将能够连接国际资本，拓展更多融资渠道，并为其进一步进入东盟市场提供支持。
+
+与此同时，双方将进一步深化中国投资者参与新加坡上市股票的渠道。
+
+通过旗下证券机构中银国际证券，中国银行可进一步参与新加坡资本市场生态。
 
 ## 相关推荐
 
-- 2026-06-29 15:48 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 15:52 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 15:41 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 15:48 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 15:30 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 15:30 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 15:50 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 15:45 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 15:38 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 15:44 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 15:33 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 15:38 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 15:45 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 15:50 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 15:54 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 15:39 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 15:31 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 15:51 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 15:56 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 15:58 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 15:45 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 15:41 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 15:53 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 15:58 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 15:43 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:51 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/52959331.shtml)
-- 2026-06-29 15:48 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/722377.shtml)
-- 2026-06-29 15:36 - [汪东城回应45岁婚约](http://www.blog.minike.top/Article/details/955838650.shtml)
-- 2026-06-29 15:39 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/35128828745.shtml)
-- 2026-06-29 15:32 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/799020470846.shtml)
-- 2026-06-29 15:49 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/10822.shtml)
-- 2026-06-29 15:53 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.minike.top/Article/details/667394747545.shtml)
-- 2026-06-29 15:28 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/627820501473.shtml)
-- 2026-06-29 15:25 - [久坐小心“死臀综合征”](http://www.blog.minike.top/Article/details/6361190778.shtml)
-- 2026-06-29 15:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/86908.shtml)
-- 2026-06-29 15:28 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/37634590620.shtml)
-- 2026-06-29 15:44 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/380117755.shtml)
-- 2026-06-29 15:25 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/6282181212.shtml)
-- 2026-06-29 15:43 - [女心理师](https://www.blog.kurohicncr.top/Article/details/783262201.shtml)
-- 2026-06-29 15:29 - [世界杯上那些封神的门将](http://www.share.minike.top/Article/details/74041789690.shtml)
+- 2026-06-29 15:34 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/67659.shtml)
+- 2026-06-29 15:50 - [爱很美味](https://www.blog.minike.top/Article/details/985257370534.shtml)
+- 2026-06-29 15:53 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/231094194373.shtml)
+- 2026-06-29 15:45 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/988222307.shtml)
+- 2026-06-29 15:46 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.minike.top/Article/details/35956655.shtml)
+- 2026-06-29 15:50 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/0200417786.shtml)
+- 2026-06-29 15:57 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/965962951644.shtml)
+- 2026-06-29 15:37 - [梅朗雄主张法国退出北约](https://www.blog.minike.top/Article/details/4562029.shtml)
+- 2026-06-29 15:39 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.minike.top/Article/details/856392857856.shtml)
+- 2026-06-29 15:47 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/929396463671.shtml)
+- 2026-06-29 15:43 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/43508.shtml)
+- 2026-06-29 15:48 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/208145.shtml)
+- 2026-06-29 15:37 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/35909502.shtml)
+- 2026-06-29 15:48 - [TFING全员黑西装](http://www.share.minike.top/Article/details/809830.shtml)
+- 2026-06-29 15:52 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.kurohicncr.top/Article/details/06590096862.shtml)

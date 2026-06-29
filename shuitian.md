@@ -1,59 +1,46 @@
-# （粤港澳大湾区）江西有24家企业在港交所上市 首发募资逾310亿元
+# 大国外交最前线丨熟悉的旋律、熟悉的中国、熟悉的老朋友
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新社南昌5月12日电 (记者 吴鹏泉)江西省委金融办副主任、省委金融工委副书记邹常军12日在南昌表示，截至目前，江西有24家企业在香港交易及结算所有限公司(简称“港交所”)上市，占该省境外上市企业超70%，首发募资312.42亿元(人民币，下同)，港交所成为江西企业境外上市首选地。当日，2026年江西—粤港澳大湾区经贸活动周新闻发布会在南昌举行。邹常军在会上介绍，截至目前，江
+发布时间：2026年05月20日 16:36 来源：央视新闻客户端 责任编辑：【杨彦宇】
 
 ## 正文
 
-中新社南昌5月12日电 (记者 吴鹏泉)江西省委金融办副主任、省委金融工委副书记邹常军12日在南昌表示，截至目前，江西有24家企业在香港交易及结算所有限公司(简称“港交所”)上市，占该省境外上市企业超70%，首发募资312.42亿元(人民币，下同)，港交所成为江西企业境外上市首选地。
-
-当日，2026年江西—粤港澳大湾区经贸活动周新闻发布会在南昌举行。
-
-邹常军在会上介绍，截至目前，江西54家企业在深圳证券交易所(简称“深交所”)上市，首发募资336.87亿元。
-
-粤港澳大湾区是中国金融开放程度最高、创新活力最强的区域之一。
-
-邹常军说，目前，广东15家证券公司在赣设立分支机构，各类粤港澳大湾区金融机构深耕江西市场，助力江西制造业转型、民营企业发展、普惠金融扩容。
-
-江西还引导粤港澳大湾区银行机构优化金融资源配置，加大在赣信贷供给。
-
-据统计，截至今年一季度末，广发、平安、招商三家湾区商业银行在赣贷款余额达1846亿元，四家外资银行在赣贷款余额22.71亿元，有效缓解了江西实体经济资金压力。
-
-江西将于5月中下旬在广东、香港、澳门等地举办2026年江西—粤港澳大湾区经贸活动周。
+发布时间：2026年05月20日 16:36 来源：央视新闻客户端 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-29 15:43 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 15:33 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 15:37 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 15:45 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-29 15:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 15:46 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 15:24 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 15:35 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 15:49 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 15:39 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 15:33 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 15:30 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 15:26 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 15:47 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 15:37 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 15:45 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 15:42 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 15:48 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 15:54 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 15:30 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 15:31 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 15:37 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 15:39 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 15:40 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 15:48 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 15:40 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 15:52 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:49 - [请回答王牌2019](http://www.share.minike.top/Article/details/660907929155.shtml)
-- 2026-06-29 15:42 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/65040.shtml)
-- 2026-06-29 15:46 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/620266872635.shtml)
-- 2026-06-29 15:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/53500067148.shtml)
-- 2026-06-29 15:36 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/14876.shtml)
-- 2026-06-29 15:43 - [沙丘](http://www.blog.kurohicncr.top/Article/details/9624320292.shtml)
-- 2026-06-29 15:35 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/49706.shtml)
-- 2026-06-29 15:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/89587.shtml)
-- 2026-06-29 15:44 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/051215082198.shtml)
-- 2026-06-29 15:46 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/674665493.shtml)
-- 2026-06-29 15:28 - [高考公平需要延伸到志愿填报这一环](http://www.share.minike.top/Article/details/92658.shtml)
-- 2026-06-29 15:53 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/0849799860.shtml)
-- 2026-06-29 15:43 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/780243212587.shtml)
-- 2026-06-29 15:53 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/38354.shtml)
-- 2026-06-29 15:43 - [上海一小区水池内出现一条鳄鱼](http://www.share.minike.top/Article/details/74555254.shtml)
+- 2026-06-29 15:51 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/03747524638.shtml)
+- 2026-06-29 15:51 - [恋与深空发放补偿未得到玩家认可](http://www.blog.minike.top/Article/details/609929679314.shtml)
+- 2026-06-29 15:31 - [小娘惹](http://www.share.kurohicncr.top/Article/details/88387012260.shtml)
+- 2026-06-29 15:45 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.minike.top/Article/details/8430720.shtml)
+- 2026-06-29 15:38 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/046199.shtml)
+- 2026-06-29 15:40 - [毒液2](http://www.share.kurohicncr.top/Article/details/1274240.shtml)
+- 2026-06-29 15:31 - [Agent带来token消耗爆炸](https://www.share.minike.top/Article/details/266079964.shtml)
+- 2026-06-29 15:35 - [教育部发布高考志愿填报预警](http://www.share.kurohicncr.top/Article/details/129990724895.shtml)
+- 2026-06-29 15:54 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/01667240.shtml)
+- 2026-06-29 15:36 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/687247789.shtml)
+- 2026-06-29 15:32 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/231127089062.shtml)
+- 2026-06-29 15:52 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/3561863.shtml)
+- 2026-06-29 15:34 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/706406259.shtml)
+- 2026-06-29 15:34 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/3791873.shtml)
+- 2026-06-29 15:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/660799.shtml)

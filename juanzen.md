@@ -1,56 +1,60 @@
-# 粤东城际铁路浮洋站站房主体结构封顶
+# 信用通关更顺畅 青海AEO认证助外贸发展提速
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新网潮州5月12日电 (记者 蔡敏婕)随着最后一车混凝土浇筑完成，粤东城际铁路8标首座车站(浮洋站)站房主体结构12日封顶，为后续二次结构施工、机电安装施工和装饰装修打下基础。 粤东城际铁路是粤东地区“一环一射线”城际铁路网的重要组成部分，线路贯通汕头站、潮汕站等核心交通枢纽，深度覆盖汕潮揭中心城区。项目建成后，将实现粤东地区与粤港澳大湾区、厦漳泉、赣南、闽西等区域主要城市的
+中新网西宁5月19日电 (记者 孙睿)记者19日从西宁海关获悉，最新统计显示，目前青海省共有海关AEO(经认证的经营者)企业8家，覆盖锂电新能源、盐湖化工、高原特色农产品等重点外贸产业，形成具有青海特色的AEO企业梯队。 AEO认证被外贸企业视为全球通行的“金字招牌”，获得这一认证的企业，不仅可以在国内享受优先办理、低查验率、免除担保、实验室优先检测等45项便利措施，还能在全球
 
 ## 正文
 
-中新网潮州5月12日电 (记者 蔡敏婕)随着最后一车混凝土浇筑完成，粤东城际铁路8标首座车站(浮洋站)站房主体结构12日封顶，为后续二次结构施工、机电安装施工和装饰装修打下基础。
+中新网西宁5月19日电 (记者 孙睿)记者19日从西宁海关获悉，最新统计显示，目前青海省共有海关AEO(经认证的经营者)企业8家，覆盖锂电新能源、盐湖化工、高原特色农产品等重点外贸产业，形成具有青海特色的AEO企业梯队。
 
-粤东城际铁路是粤东地区“一环一射线”城际铁路网的重要组成部分，线路贯通汕头站、潮汕站等核心交通枢纽，深度覆盖汕潮揭中心城区。
+AEO认证被外贸企业视为全球通行的“金字招牌”，获得这一认证的企业，不仅可以在国内享受优先办理、低查验率、免除担保、实验室优先检测等45项便利措施，还能在全球52个互认国家(地区)享受通关便利。
 
-项目建成后，将实现粤东地区与粤港澳大湾区、厦漳泉、赣南、闽西等区域主要城市的便捷联通，助力粤东与大湾区高水平联动发展，对构建汕潮揭“30分钟通勤圈”、推动粤东地区高质量发展具有重要战略意义。
+同时，这些企业被纳入省、市两级守信联合激励范围，在融资信贷、项目审批、市场准入、监管抽查等方面享受政策倾斜。
 
-粤东城际铁路浮洋站位于潮州市潮安区浮洋镇中心位置，由广东省铁投集团投资、中铁南方牵头施工管理、中铁一局承建，全长114.8米，车站为地下1层，地上3层框架混凝土结构，设计混凝土1555方，本次封顶浇筑混凝土248立方米。
+据介绍，西宁海关立足青海产业结构特点，推行“一企一策、一产一策”培育机制，同时联合省商务厅、青海省发展和改革委员会等部门建立AEO企业联合培育、联合激励、联合服务机制，推动海关信用结果在行政审批、金融授信、项目扶持、政府采购等领域广泛应用。
 
-施工浇筑开始前，项目部明确了工序责任、节点要求与作业流程，并对混凝土生产、运输、浇筑全流程进行全程跟踪管控。
+与此同时，西宁海关依托海关工作服务站，将信用培育延伸至基层，构建起“省——综保区——市州”三级AEO培育网络，让“金字招牌”从省会走向高原腹地。
 
-据项目负责人介绍，项目在施工过程中克服了集中居民区拆迁、三电迁改、改路改渠、交通疏解等困难，紧紧围绕安全、质量、工期等目标，将对周边居民的日常生活、出行影响降到最低，同时优化施工方案，合理调配各类资源，严格落实各项管理要求，推进现场施工作业，确保了站房主体结构按期顺利封顶。
+统计显示，2026年前4个月，青海省AEO企业数量仅占全省有进出口实绩企业的6.1%，但其贸易额占同期全省外贸总值的22.4%，成为青海外贸发展中最具活力、最具规范、最具国际竞争力的骨干力量，有效带动产业链上下游20余家企业提升合规管理水平，信用赋能的溢出效应持续显现。
+
+“信用越好、通关越顺、服务越优、发展越快”的良性循环正在青海成为现实。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 15:31 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 15:39 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 15:53 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 15:29 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 15:25 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 15:37 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 15:40 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 15:42 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 15:50 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 15:40 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 15:37 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 15:30 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 15:57 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 15:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 15:38 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 15:32 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 15:31 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 15:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 15:40 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 15:48 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 15:42 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 15:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 15:33 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 15:35 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 15:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 15:38 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:51 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/960119001.shtml)
-- 2026-06-29 15:29 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/30280646.shtml)
-- 2026-06-29 15:38 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/283571462676.shtml)
-- 2026-06-29 15:33 - [滾石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/1379298.shtml)
-- 2026-06-29 15:46 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.minike.top/Article/details/905513.shtml)
-- 2026-06-29 15:52 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/9824129.shtml)
-- 2026-06-29 15:51 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/53423.shtml)
-- 2026-06-29 15:29 - [韩国国脚无缘上亿韩元奖金](https://www.share.minike.top/Article/details/5674033.shtml)
-- 2026-06-29 15:40 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/152085.shtml)
-- 2026-06-29 15:47 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/25679470.shtml)
-- 2026-06-29 15:53 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/261565.shtml)
-- 2026-06-29 15:45 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/919127938.shtml)
-- 2026-06-29 15:45 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/8272534246.shtml)
-- 2026-06-29 15:37 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/734196.shtml)
-- 2026-06-29 15:51 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/1137506965.shtml)
+- 2026-06-29 15:47 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/425654734.shtml)
+- 2026-06-29 15:30 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/799631322.shtml)
+- 2026-06-29 15:53 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/180335874.shtml)
+- 2026-06-29 15:40 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/70867674536.shtml)
+- 2026-06-29 15:54 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/171850.shtml)
+- 2026-06-29 15:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/42032.shtml)
+- 2026-06-29 15:38 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/903116092758.shtml)
+- 2026-06-29 15:58 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/2824487.shtml)
+- 2026-06-29 15:31 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/41833.shtml)
+- 2026-06-29 15:56 - [巴基斯坦军方打死29名武装分子](http://www.share.minike.top/Article/details/73540.shtml)
+- 2026-06-29 15:38 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/17942508.shtml)
+- 2026-06-29 15:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/359421000493.shtml)
+- 2026-06-29 15:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/9780203668.shtml)
+- 2026-06-29 15:44 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/744337.shtml)
+- 2026-06-29 15:44 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.minike.top/Article/details/62672.shtml)

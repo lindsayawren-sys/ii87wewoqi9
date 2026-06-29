@@ -1,60 +1,57 @@
-# 内塔尼亚胡接受哥伦比亚广播公司采访时表示，希望以色列逐步摆脱对美国军事援助的依赖
+# 黄金已变成风险资产
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-以色列总理本雅明・内塔尼亚胡在周日播出的采访中表示，随着以色列努力加强与海湾国家的关系，他希望在十年内让以色列不再依赖美国的军事支持。 内塔尼亚胡在美国哥电视节目中说： “我希望把美国的财政支持 —— 也就是我们军事合作中的资金部分 ——逐步削减至零。” 他透露，以色列每年获得约38 亿美元的美国军事援助。根据美以协议，2018 至 2028 年间，美国承诺向以色列提供总额38
+来源：经济日报 随着国际金价在历史高位间剧烈波动，黄金已由传统意义上的避险资产蜕变为全球波动性最强的风险资产之一。同时，国际机构对金价走势的预期也出现较大分歧。 今年1月，国际金价从4300多美元/盎司加速上涨到近5600美元/盎司，随后出现断崖式下跌。3月下旬跌破4100美元/盎司，4月虽有所反弹，波动性却越来越强。相关数据显示，3月2日至3月23日，现货黄金累计跌幅达到17
 
 ## 正文
 
-以色列总理本雅明・内塔尼亚胡在周日播出的采访中表示，随着以色列努力加强与海湾国家的关系，他希望在十年内让以色列不再依赖美国的军事支持。
+来源：经济日报 随着国际金价在历史高位间剧烈波动，黄金已由传统意义上的避险资产蜕变为全球波动性最强的风险资产之一。
 
-内塔尼亚胡在美国哥电视节目中说： “我希望把美国的财政支持 —— 也就是我们军事合作中的资金部分 ——逐步削减至零。
+同时，国际机构对金价走势的预期也出现较大分歧。
 
-” 他透露，以色列每年获得约38 亿美元的美国军事援助。
+今年1月，国际金价从4300多美元/盎司加速上涨到近5600美元/盎司，随后出现断崖式下跌。
 
-根据美以协议，2018 至 2028 年间，美国承诺向以色列提供总额380 亿美元的军事援助。
+3月下旬跌破4100美元/盎司，4月虽有所反弹，波动性却越来越强。
 
-但内塔尼亚胡称，现在 “完全正确” 的时机，来重新调整美以之间的资金关系。
+相关数据显示，3月2日至3月23日，现货黄金累计跌幅达到17.45%，同期纳斯达克指数仅下跌3.18%，恒生指数下跌8.44%。
 
-“我不想等到下一届美国国会，我想从现在就开始。
+当投资者最需要避风港时，黄金不仅没能独善其身，反而跌得比股票还猛。
 
-” 长期以来，美国国会两党一直一致支持对以色列的军事援助。
+此前部分将黄金作为组合对冲基石的FOF基金经理陷入被动，他们奉为圭臬的配置策略——“黄金+纳指+红利”等组合，在黄金与权益市场同频暴跌的行情里彻底失灵。
 
-但自 2023 年 10 月加沙战争爆发后，美国议员及民众对以色列的支持明显减弱。
+黄金为何不再避险？
 
 ## 相关推荐
 
-- 2026-06-29 15:43 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 15:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 15:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 15:51 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 15:30 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 15:39 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 15:27 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 15:49 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 15:24 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 15:53 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 15:34 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 15:40 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 15:40 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 15:43 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 15:57 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 15:33 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 15:43 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 15:46 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 15:36 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 15:34 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 15:56 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 15:54 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 15:46 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 15:48 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 15:39 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:39 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.kurohicncr.top/Article/details/427742.shtml)
-- 2026-06-29 15:39 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/147036.shtml)
-- 2026-06-29 15:29 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/3101002.shtml)
-- 2026-06-29 15:35 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/3459868.shtml)
-- 2026-06-29 15:28 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/614738747.shtml)
-- 2026-06-29 15:41 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/85666636353.shtml)
-- 2026-06-29 15:44 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/96454103171.shtml)
-- 2026-06-29 15:41 - [周生如故](http://www.blog.kurohicncr.top/Article/details/327489022.shtml)
-- 2026-06-29 15:36 - [新一代影后杨紫](https://www.blog.kurohicncr.top/Article/details/529366.shtml)
-- 2026-06-29 15:40 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/6757724.shtml)
-- 2026-06-29 15:35 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/10428539614.shtml)
-- 2026-06-29 15:38 - [医院大厅放钢琴是形式主义吗](https://www.share.minike.top/Article/details/955334952.shtml)
-- 2026-06-29 15:29 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/23130.shtml)
-- 2026-06-29 15:25 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/7208813355.shtml)
-- 2026-06-29 15:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/98839128.shtml)
+- 2026-06-29 15:52 - [崔韩率还以为韩娱来新人了](https://www.share.kurohicncr.top/Article/details/060046.shtml)
+- 2026-06-29 15:53 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/93179852205.shtml)
+- 2026-06-29 15:34 - [志愿选择倒计时！浙大学生送祝福](http://www.share.minike.top/Article/details/8719146.shtml)
+- 2026-06-29 15:35 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.minike.top/Article/details/232388335.shtml)
+- 2026-06-29 15:31 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/18850.shtml)
+- 2026-06-29 15:34 - [斛珠夫人](http://www.blog.minike.top/Article/details/789241156501.shtml)
+- 2026-06-29 15:36 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/953768388.shtml)
+- 2026-06-29 15:34 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/3433383.shtml)
+- 2026-06-29 15:33 - [评论员：日菲勾连各有盘算](https://www.blog.kurohicncr.top/Article/details/73372795323.shtml)
+- 2026-06-29 15:39 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/740452.shtml)
+- 2026-06-29 15:44 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/98372594226.shtml)
+- 2026-06-29 15:45 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/50023518.shtml)
+- 2026-06-29 15:48 - [请回答王牌2019](https://www.share.minike.top/Article/details/857256556.shtml)
+- 2026-06-29 15:30 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/64720380.shtml)
+- 2026-06-29 15:57 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/57913.shtml)

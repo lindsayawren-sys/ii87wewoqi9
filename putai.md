@@ -1,58 +1,56 @@
-# 知情人士：快手计划分拆可灵AI视频业务 估值达200亿美元
+# 健身不“蛮练” 北京市政协倡科学运动
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-据两位知情人士透露，快手科技计划在明年启动IPO前，分拆旗下可灵（Kling）AI视频业务，借市场对AI概念股的投资热潮抢抓资本机遇。 知情人士称，快手已就可灵IPO前融资与潜在投资方展开洽谈，本轮对可灵的估值定为200亿美元。可灵主打AI视频生成大模型，与字节跳动、谷歌、阿里同类产品形成直接竞争。 快手官方对此未予置评。 快手曾在3月披露，按1月营收测算，可灵年化营收已突破3
+今年3月以来，北京市政协围绕重点协商议题“倡导健康生活方式，进一步提升首都文明风尚”开展调研。调研成员中有不少医药卫生领域专家，其中数名委员接受本报记者采访时表示，科学健身不能“蛮练”，倡导科学健身需多方协同发力，完善服务供给、信息传播等机制，共同推动全民健身成为稳定持久的社会风尚。 “我国发布了面向各年龄段人群的健身指南，对于如何科学运动有详尽的建议。”北京市政协课题组专家、
 
 ## 正文
 
-据两位知情人士透露，快手科技计划在明年启动IPO前，分拆旗下可灵（Kling）AI视频业务，借市场对AI概念股的投资热潮抢抓资本机遇。
+今年3月以来，北京市政协围绕重点协商议题“倡导健康生活方式，进一步提升首都文明风尚”开展调研。
 
-知情人士称，快手已就可灵IPO前融资与潜在投资方展开洽谈，本轮对可灵的估值定为200亿美元。
+调研成员中有不少医药卫生领域专家，其中数名委员接受本报记者采访时表示，科学健身不能“蛮练”，倡导科学健身需多方协同发力，完善服务供给、信息传播等机制，共同推动全民健身成为稳定持久的社会风尚。
 
-可灵主打AI视频生成大模型，与字节跳动、谷歌、阿里同类产品形成直接竞争。
+“我国发布了面向各年龄段人群的健身指南，对于如何科学运动有详尽的建议。
 
-快手官方对此未予置评。
+”北京市政协课题组专家、民革北京市委会妇委会副主任、首都医科大学宣武医院内分泌科主任医师高珊说，科学运动有章可循，瓶颈在于这些“章法”如何顺利传递、落地执行。
 
-快手曾在3月披露，按1月营收测算，可灵年化营收已突破3亿美元，并预计2026年全年营收将实现翻倍。
+高珊长期从事肥胖、糖尿病防治与临床研究。
 
-知情人士透露，今年一季度可灵营收达7500万美元，收入主要来自北美等海外市场。
+她在工作中发现，有些糖尿病患者听说减重有利于控制病情，便跟着网络上那些宣称“快速掉秤”的短视频过度运动并节食，结果病情加重。
 
-对比来看，快手2025年整体营收同比增长12.5%，至1427.8亿元人民币（约201亿美元）。
+“无论有没有糖尿病，减重都应在科学指导下进行。
 
-作为国内仅次于抖音的短视频平台，快手去年四季度月活跃用户均值达7.36亿。
+”鉴于越来越多人从网络平台寻求健康指导，高珊建议，由有关部门牵头，完善传播渠道，打通专业信息抵达普通人的“最后一公里”，让民众更易获得权威信源的个性化健康建议。
 
 ## 相关推荐
 
-- 2026-06-29 15:25 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 15:49 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 15:40 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 15:30 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 15:49 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 15:29 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 15:30 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 15:45 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 15:53 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 15:49 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 15:43 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 15:25 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 15:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 15:36 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 15:42 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 15:40 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 15:57 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 15:40 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 15:30 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 15:50 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 15:30 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 15:40 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:30 - [毒液2](https://www.share.minike.top/Article/details/04258.shtml)
-- 2026-06-29 15:47 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/864071666175.shtml)
-- 2026-06-29 15:44 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/6793815.shtml)
-- 2026-06-29 15:37 - [美媒：空警-3000服役即成全球最强](http://www.blog.kurohicncr.top/Article/details/968078711.shtml)
-- 2026-06-29 15:39 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/655387.shtml)
-- 2026-06-29 15:36 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/821583395.shtml)
-- 2026-06-29 15:49 - [BB大王横店拍戏](https://www.share.minike.top/Article/details/09032771.shtml)
-- 2026-06-29 15:32 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/371117923.shtml)
-- 2026-06-29 15:49 - [AG 宫斗](http://www.blog.minike.top/Article/details/05535832.shtml)
-- 2026-06-29 15:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/221668304.shtml)
-- 2026-06-29 15:43 - [AG 宫斗](http://www.blog.minike.top/Article/details/60400954.shtml)
-- 2026-06-29 15:50 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/4814461481.shtml)
-- 2026-06-29 15:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/2712753.shtml)
-- 2026-06-29 15:46 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/1049636.shtml)
-- 2026-06-29 15:35 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/687599.shtml)
+- 2026-06-29 15:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/74360093.shtml)
+- 2026-06-29 15:41 - [欧盟为什么越来越倾向贸易保护](https://www.blog.minike.top/Article/details/6972261.shtml)
+- 2026-06-29 15:37 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/781346736105.shtml)
+- 2026-06-29 15:31 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/829076030508.shtml)
+- 2026-06-29 15:50 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/738479.shtml)
+- 2026-06-29 15:33 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/569005.shtml)
+- 2026-06-29 15:31 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/48196462.shtml)
+- 2026-06-29 15:32 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/504994523.shtml)
+- 2026-06-29 15:49 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/0408733467.shtml)
+- 2026-06-29 15:43 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/093077.shtml)
+- 2026-06-29 15:40 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/685816166.shtml)
+- 2026-06-29 15:37 - [毒液2](http://www.share.kurohicncr.top/Article/details/67774.shtml)
+- 2026-06-29 15:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/74223166.shtml)
+- 2026-06-29 15:45 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/5118627.shtml)
+- 2026-06-29 15:39 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/96838.shtml)

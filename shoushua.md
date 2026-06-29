@@ -1,61 +1,61 @@
-# 长江有色：资金多空博弈加剧铅价区间整理 11日铅价或小跌
+# 美债大幅反弹 特朗普称美伊谈判进入“最后阶段”
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-【ccmn.cn铅期货市场】隔周伦铅持平，开盘报1974美元/吨，高点报1979美元，低点报1958美元，尾盘收于1977.5美元，涨跌持平，成交量为6453手，持仓量报180225手。 长江铅业网（pb.ccmn.cn）今日现货铅价行情预估：在美元指数于 98附近高位震荡、多数工业金属普遍承压的大背景下，铅价区间窄幅震荡为主。这背后是两大核心力量的共振：一方面，中东地缘局势急
+美国国债价格大幅上涨，投资者乐观预期美伊接近达成协议，有望缓解全球能源价格的上涨势头。 在白宫记者团报道称特朗普表示美伊谈判已处于“最后阶段”后，2年期至10年期国债收益率下跌约10个基点。美元即期指数下跌0.3%。 据白宫记者团报道，特朗普在谈及伊朗问题时表示“我们将拭目以待”，并补充道，要么达成协议，要么“我们将采取一些有点令人不快的行动，但希望这种情况不会发生”。 自2月
 
 ## 正文
 
-【ccmn.cn铅期货市场】隔周伦铅持平，开盘报1974美元/吨，高点报1979美元，低点报1958美元，尾盘收于1977.5美元，涨跌持平，成交量为6453手，持仓量报180225手。
+美国国债价格大幅上涨，投资者乐观预期美伊接近达成协议，有望缓解全球能源价格的上涨势头。
 
-长江铅业网（pb.ccmn.cn）今日现货铅价行情预估：在美元指数于 98附近高位震荡、多数工业金属普遍承压的大背景下，铅价区间窄幅震荡为主。
+在白宫记者团报道称特朗普表示美伊谈判已处于“最后阶段”后，2年期至10年期国债收益率下跌约10个基点。
 
-这背后是两大核心力量的共振：一方面，中东地缘局势急剧升温，美伊谈判陷入僵局，霍尔木兹海峡航运风险陡增，避险资金纷纷流入兼具工业属性与避险属性的铅品种对冲风险；另一方面，国内稳增长政策持续发力，国常会部署六大基建建设，叠加前 4 月外贸数据大幅超预期，工业金属需求预期显著回暖，为铅价提供了坚实支撑。
+美元即期指数下跌0.3%。
 
-铅供需现状：再生铅供应收缩成核心矛盾 供应端，国内再生铅企业集中进入检修期，开工率环比大幅下滑，废铅回收体系不畅进一步加剧原料短缺，市场现货供应明显收紧。
+据白宫记者团报道，特朗普在谈及伊朗问题时表示“我们将拭目以待”，并补充道，要么达成协议，要么“我们将采取一些有点令人不快的行动，但希望这种情况不会发生”。
 
-同时铅精矿进口利润倒挂，港口到港量持续偏低，原料端对铅价形成强力支撑。
+自2月下旬美以对伊朗发动袭击以来，债券市场一直承受着压力。
 
-需求端，五一假期后铅蓄电池企业全面复工复产，储能电池需求稳步增长，下游存在集中补库需求，现货交投氛围明显改善。
+霍尔木兹海峡的瘫痪令能源价格出现飙升，不仅加剧了通胀压力，还导致债券收益率大幅上扬。
 
-产业链现状：成本支撑强劲 下游按需采购 当前铅产业链呈现 “上游紧、中游稳、下游旺” 的格局。
+投资者一直在焦虑等待有关这场冲突的潜在解决方案。
 
-上游铅精矿加工费维持历史低位，冶炼企业利润空间被严重压缩，挺价意愿强烈。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 15:31 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 15:26 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 15:48 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 15:32 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 15:50 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 15:45 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 15:46 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 15:33 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 15:40 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 15:47 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 15:31 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 15:24 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 15:39 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 15:24 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 15:50 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 15:48 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 15:40 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 15:46 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 15:37 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 15:35 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 15:54 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 15:44 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 15:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 15:53 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 15:40 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 15:48 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 15:56 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 15:40 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 15:41 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 15:39 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:52 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/072432045730.shtml)
-- 2026-06-29 15:26 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.minike.top/Article/details/973796398675.shtml)
-- 2026-06-29 15:32 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/94660.shtml)
-- 2026-06-29 15:24 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/7251826965.shtml)
-- 2026-06-29 15:49 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/1121803031.shtml)
-- 2026-06-29 15:44 - [恋与深空发放补偿未得到玩家认可](http://www.blog.kurohicncr.top/Article/details/959368311546.shtml)
-- 2026-06-29 15:31 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/80316030.shtml)
-- 2026-06-29 15:25 - [医院大厅放钢琴是形式主义吗](http://www.share.kurohicncr.top/Article/details/770617644.shtml)
-- 2026-06-29 15:47 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/556202632.shtml)
-- 2026-06-29 15:35 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/387386224463.shtml)
-- 2026-06-29 15:37 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/975211288.shtml)
-- 2026-06-29 15:25 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/0817460.shtml)
-- 2026-06-29 15:35 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/28919720069.shtml)
-- 2026-06-29 15:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/981605888.shtml)
-- 2026-06-29 15:30 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/755163782.shtml)
+- 2026-06-29 15:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/549159749.shtml)
+- 2026-06-29 15:50 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/5417763.shtml)
+- 2026-06-29 15:55 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/6319929241.shtml)
+- 2026-06-29 15:54 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/00450.shtml)
+- 2026-06-29 15:35 - [河南考699分女生已接到清华大学电话](http://www.share.minike.top/Article/details/59278.shtml)
+- 2026-06-29 15:45 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/09078158266.shtml)
+- 2026-06-29 15:54 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/385760355.shtml)
+- 2026-06-29 15:58 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/735306.shtml)
+- 2026-06-29 15:49 - [黄金也扛不住了](https://www.share.minike.top/Article/details/7014590406.shtml)
+- 2026-06-29 15:48 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/9328431.shtml)
+- 2026-06-29 15:47 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/7627522.shtml)
+- 2026-06-29 15:53 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/085461.shtml)
+- 2026-06-29 15:49 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/367497752937.shtml)
+- 2026-06-29 15:40 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/2970048282.shtml)
+- 2026-06-29 15:43 - [未来5年全国能源体系将呈现这些特征](http://www.share.kurohicncr.top/Article/details/435818.shtml)

@@ -1,57 +1,57 @@
-# 美国国会及零售商呼吁翻新国家公园，拟通过联邦道路收费筹措资金
+# 高尔夫球东方名人赛·北京女子公开赛启幕
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-核心要点 时值美国迎来 250 周年建国纪念，美国国会正筹措资金，计划对老化失修的国家公园进行整体翻新。特朗普总统虽强调联邦公共设施外观维护的重要性，但其预算提案却大幅削减了美国国家公园管理局的经费。 共和党议员正在寻找新的财政收入渠道，提议在华盛顿周边联邦管辖道路设立收费站 —— 这些道路每日有数万名通勤者通行；同时计划上调国际游客入园门票费用。 民主党则认为，在首都环城公路
+中新网北京5月19日电 (记者 邢翀)2026女子中巡东方名人赛·北京女子公开赛19日举行发布会，这项经典赛事今年吸引了来自10个国家和地区的132名选手参与。 赛事由中国高尔夫球协会主办，中国女子职业高尔夫球巡回赛认证，总奖金80万元，将于21日展开首轮较量，23日进行决赛轮较量。 今年共有17位女子中巡冠军球员、8位世界排名前500的优秀选手参与，包括女子中巡最年轻六冠王任
 
 ## 正文
 
-核心要点 时值美国迎来 250 周年建国纪念，美国国会正筹措资金，计划对老化失修的国家公园进行整体翻新。
+中新网北京5月19日电 (记者 邢翀)2026女子中巡东方名人赛·北京女子公开赛19日举行发布会，这项经典赛事今年吸引了来自10个国家和地区的132名选手参与。
 
-特朗普总统虽强调联邦公共设施外观维护的重要性，但其预算提案却大幅削减了美国国家公园管理局的经费。
+赛事由中国高尔夫球协会主办，中国女子职业高尔夫球巡回赛认证，总奖金80万元，将于21日展开首轮较量，23日进行决赛轮较量。
 
-共和党议员正在寻找新的财政收入渠道，提议在华盛顿周边联邦管辖道路设立收费站 —— 这些道路每日有数万名通勤者通行；同时计划上调国际游客入园门票费用。
+今年共有17位女子中巡冠军球员、8位世界排名前500的优秀选手参与，包括女子中巡最年轻六冠王任怡嘉，女子中巡2025赛季奖金王王梓萱，亚运会银牌得主刘文博，以及泰国球员西瑞。
 
-民主党则认为，在首都环城公路沿线道路增设收费站并不可行，且公园翻新无需额外找新钱，维护国家公园本就是政府法定职责。
+东方名人赛·北京女子公开赛可以追溯至2004年，最初在北京东方天星举行，2008年转至东方明珠球场。
 
-议员们正抓紧立法，推动《伟大美国户外法案》（GAOA）续期新法落地。
+中国高尔夫球协会秘书长韦庆峰表示，北京女子公开赛不仅见证了本土赛事伴随行业周期的拔节生长，更在岁月的沉淀中历久弥新，形成了浓厚的赛事文化与历史传承。
 
-该法案由特朗普首任任期签署生效，初衷是解决国家公园系统积压已久的维护修缮工程。
+北京高尔夫球运动协会常务副会长兼秘书长范越表示，近年来，高尔夫球所倡导的健康、绿色、积极向上的生活理念，正在被更多人所了解和接受。
 
-如今旧法案已到期，公园维护欠账不减反增，国会希望通过新法收尾剩余修缮工作。
+北京女子公开赛在此扎根，让高尔夫运动在北京形成了持续性的赛事文化积累与城市记忆，让大家通过赛事认识高尔夫球、走近高尔夫球、喜爱高尔夫球。
 
-国家公园议题如今是美国国会为数不多能跨两党达成共识的领域，民意支持度极高。
+18年前，女子中巡创立，作为中国境内唯一的女子职业高尔夫球巡回赛，如今女子中巡已经拥有完整的赛事体系，冯珊珊、殷若宁等球员一步步走向世界。
 
 ## 相关推荐
 
-- 2026-06-29 15:25 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 15:29 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 15:36 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 15:26 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 15:33 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 15:48 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 15:48 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 15:52 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 15:27 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 15:50 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 15:27 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 15:47 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 15:37 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 15:49 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 15:54 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 15:35 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 15:53 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 15:49 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 15:36 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 15:40 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 15:43 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 15:56 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:30 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/972787391010.shtml)
-- 2026-06-29 15:49 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/78195123214.shtml)
-- 2026-06-29 15:50 - [世界杯上那些封神的门将](https://www.blog.kurohicncr.top/Article/details/3151261.shtml)
-- 2026-06-29 15:37 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/86803452744.shtml)
-- 2026-06-29 15:35 - [久坐小心“死臀综合征”](https://www.blog.minike.top/Article/details/80955446369.shtml)
-- 2026-06-29 15:30 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/393021.shtml)
-- 2026-06-29 15:53 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/02142.shtml)
-- 2026-06-29 15:41 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/275502.shtml)
-- 2026-06-29 15:30 - [中餐厅南北饮食差异](https://www.blog.minike.top/Article/details/15064.shtml)
-- 2026-06-29 15:49 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/8510453392.shtml)
-- 2026-06-29 15:39 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/55760763.shtml)
-- 2026-06-29 15:29 - [撒旦的腋窝是什么比喻](https://www.share.kurohicncr.top/Article/details/569539.shtml)
-- 2026-06-29 15:26 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/2398805.shtml)
-- 2026-06-29 15:26 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/538504.shtml)
-- 2026-06-29 15:50 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/995505.shtml)
+- 2026-06-29 15:36 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/8760660.shtml)
+- 2026-06-29 15:39 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/419148436.shtml)
+- 2026-06-29 15:57 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/62805.shtml)
+- 2026-06-29 15:52 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/166014817.shtml)
+- 2026-06-29 15:57 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/783634031829.shtml)
+- 2026-06-29 15:46 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/360038340643.shtml)
+- 2026-06-29 15:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/578730161294.shtml)
+- 2026-06-29 15:30 - [如果你一直单身，你准备怎么养老？](https://www.blog.kurohicncr.top/Article/details/815257641.shtml)
+- 2026-06-29 15:30 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/236228.shtml)
+- 2026-06-29 15:56 - [德国VS巴拉圭前瞻](https://www.blog.minike.top/Article/details/38943862200.shtml)
+- 2026-06-29 15:35 - [新能源车能当外接空调用吗](http://www.share.minike.top/Article/details/2417577529.shtml)
+- 2026-06-29 15:57 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/47481714969.shtml)
+- 2026-06-29 15:58 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/92728642128.shtml)
+- 2026-06-29 15:56 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/60573.shtml)
+- 2026-06-29 15:54 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/525459599533.shtml)

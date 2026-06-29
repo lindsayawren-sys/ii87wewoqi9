@@ -1,60 +1,56 @@
-# 吉林省从四个维度精准发力 建设现代化产业体系
+# 市场监管总局开展居民水电气计量问题综合整治“回头看”
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新网长春5月12日电 (高龙安 李彦国)吉林省发展改革委主任李平12日介绍，该省以智能化、绿色化、融合化为发展方向，加快构建具有本地特色的“2266”现代化产业体系。 具体架构为：培育农业和农产品加工、旅游业2个万亿元级产业；汽车及零部件、银发经济两个五千亿元级产业；新能源、新装备、新医药、新一代光电信息、石化、冶金建材6个千亿元级产业；新材料、人工智能、氢能与新型储能、生物
+中新网5月20日电 据市场监管总局网站消息，为持续规范供水供电供气市场秩序，切实维护人民群众切身利益，近日，市场监管总局部署开展居民水电气计量问题综合整治“回头看”，对前期专项整治成效进行全面复核、跟踪问效，以严监管、硬举措巩固整治成果，坚决防止计量不准问题反弹。2025年，市场监管总局聚焦群众反映强烈的计量器具失准、强制检定不到位等突出问题，在全国范围内开展居民水电气计量综合
 
 ## 正文
 
-中新网长春5月12日电 (高龙安 李彦国)吉林省发展改革委主任李平12日介绍，该省以智能化、绿色化、融合化为发展方向，加快构建具有本地特色的“2266”现代化产业体系。
+中新网5月20日电 据市场监管总局网站消息，为持续规范供水供电供气市场秩序，切实维护人民群众切身利益，近日，市场监管总局部署开展居民水电气计量问题综合整治“回头看”，对前期专项整治成效进行全面复核、跟踪问效，以严监管、硬举措巩固整治成果，坚决防止计量不准问题反弹。
 
-具体架构为：培育农业和农产品加工、旅游业2个万亿元级产业；汽车及零部件、银发经济两个五千亿元级产业；新能源、新装备、新医药、新一代光电信息、石化、冶金建材6个千亿元级产业；新材料、人工智能、氢能与新型储能、生物制造、低空经济、轻工纺织6个百亿元级产业。
+2025年，市场监管总局聚焦群众反映强烈的计量器具失准、强制检定不到位等突出问题，在全国范围内开展居民水电气计量综合整治。
 
-12日，吉林省政府新闻办在长春召开“开局起步‘十五五’推动吉林全面振兴和高质量发展”系列主题新闻发布会第二场，李平就构建吉林特色现代化产业体系相关情况作介绍。
+通过全覆盖排查、严标准执法，全国共查办相关违法案件约1.4万件，罚没金额约2.35亿元，惠及群众超4393万人。
 
-李平表示，围绕建设现代化产业体系，该省重点从传统产业、新兴产业、未来产业、现代服务业四个维度精准发力。
+此次“回头看”坚持问题导向、目标导向、结果导向，重点围绕整改落实是否到位、计量监管是否严格、长效机制是否健全开展核查核验。
 
-传统产业是现代化产业体系根基，要运用绿色技术、数智技术促进转型升级。
+通过“四不两直”“飞行检查”“交叉检查”等方式直插基层、深入现场，逐项核对问题清单、责任清单、整改清单。
 
-据悉，吉林省瞄准汽车产业智能化、网联化、电动化方向，支持整车企业扩大新能源汽车产能，聚力打造世界先进水平智能网联新能源汽车产业基地。
+对整改不到位、虚假整改、敷衍整改的，依法严肃处理，坚决杜绝形式主义、纸面整改。
 
-同时，做实做深“粮头食尾”“畜头肉尾”“农头工尾”全产业链，延伸加工链条，向精深加工、高附加值环节迈进，建设全国重要农产品精深加工基地。
+此次“回头看”具体将从五个方面把整治工作抓实抓细。
 
-“新兴产业是吉林省振兴发展的增长极，要加快培育壮大，推动技术和产品迭代，稳步做优增量。
+一是压实计量监管责任，健全上下联动、协同推进工作机制，确保“回头看”全覆盖、无死角。
 
 ## 相关推荐
 
-- 2026-06-29 15:30 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 15:46 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 15:50 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 15:32 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 15:49 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 15:41 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 15:33 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 15:36 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-29 15:50 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 15:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 15:33 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 15:45 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 15:27 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 15:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 15:37 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 15:37 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 15:38 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 15:43 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 15:47 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 15:52 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 15:30 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 15:54 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 15:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 15:58 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:41 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/97616.shtml)
-- 2026-06-29 15:37 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/1773530837.shtml)
-- 2026-06-29 15:53 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/393955713259.shtml)
-- 2026-06-29 15:41 - [王祖蓝现场观看美加墨世界杯](https://www.blog.minike.top/Article/details/5079861884.shtml)
-- 2026-06-29 15:32 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/78137808572.shtml)
-- 2026-06-29 15:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/28890750980.shtml)
-- 2026-06-29 15:34 - [袁隆平院士 不容诋毁！](https://www.share.minike.top/Article/details/942365.shtml)
-- 2026-06-29 15:42 - [差点没看懂白鹿丞磊这段意识流](https://www.share.kurohicncr.top/Article/details/956216497.shtml)
-- 2026-06-29 15:28 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/91767.shtml)
-- 2026-06-29 15:52 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/5160208062.shtml)
-- 2026-06-29 15:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/4597563.shtml)
-- 2026-06-29 15:26 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/77895560112.shtml)
-- 2026-06-29 15:36 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/96097.shtml)
-- 2026-06-29 15:49 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/9562326.shtml)
-- 2026-06-29 15:40 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/11416.shtml)
+- 2026-06-29 15:57 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/95368.shtml)
+- 2026-06-29 15:59 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/2975843.shtml)
+- 2026-06-29 15:44 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/66241.shtml)
+- 2026-06-29 15:47 - [医院大厅放钢琴是形式主义吗](http://www.share.kurohicncr.top/Article/details/44751372.shtml)
+- 2026-06-29 15:44 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/9539248.shtml)
+- 2026-06-29 15:39 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/58509891695.shtml)
+- 2026-06-29 15:56 - [王楚钦首轮赢下国乒德比](http://www.blog.minike.top/Article/details/828539723.shtml)
+- 2026-06-29 15:49 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/37079.shtml)
+- 2026-06-29 15:37 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/00177734.shtml)
+- 2026-06-29 15:35 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/4814726.shtml)
+- 2026-06-29 15:56 - [抓特务票房破亿](https://www.blog.kurohicncr.top/Article/details/39342617.shtml)
+- 2026-06-29 15:52 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.kurohicncr.top/Article/details/283725591.shtml)
+- 2026-06-29 15:54 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/57881155188.shtml)
+- 2026-06-29 15:34 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/194625.shtml)
+- 2026-06-29 15:52 - [美人鱼](http://www.blog.minike.top/Article/details/91753365.shtml)

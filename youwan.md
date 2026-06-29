@@ -1,57 +1,54 @@
-# 湖南“云签发”首票供港活猪《动物卫生证书》
+# 强降雨已致湖南石门5死11失联 电力部门紧急驰援
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 19:23 来源：中国新闻网 5月11日，湖南郴州，湖南首票供港活猪“云签发”《动物卫生证书》从郴州海关成功签发。216头健康达标、检疫合格的生猪从郴州北湖区启运，经高效通关后直达港澳市场。 据悉，“云签发”模式依托中国国际贸易“单一窗口”，打通企业端与海关端数据链路，实现证书云端审核、线上签发。此次“云签发”的《动物卫生证书》，由郴州北湖区某
+发布时间：2026年05月20日 13:58 来源：中国新闻网 5月17日以来，湖南常德遭遇入汛以来范围最广、强度最大、历时最长的强降雨过程。常德石门县应急和安全生产委员会20日最新通报称，截至目前，石门全县共有23个乡镇区场不同程度受灾，受灾人口103247人，5人死亡、11人失联。 目前，应急救援工作正在持续进行。国网湖南电力紧急抽调193名抢修人员赶赴石门，通过大载重无人
 
 ## 正文
 
-发布时间：2026年05月12日 19:23 来源：中国新闻网 5月11日，湖南郴州，湖南首票供港活猪“云签发”《动物卫生证书》从郴州海关成功签发。
+发布时间：2026年05月20日 13:58 来源：中国新闻网 5月17日以来，湖南常德遭遇入汛以来范围最广、强度最大、历时最长的强降雨过程。
 
-216头健康达标、检疫合格的生猪从郴州北湖区启运，经高效通关后直达港澳市场。
+常德石门县应急和安全生产委员会20日最新通报称，截至目前，石门全县共有23个乡镇区场不同程度受灾，受灾人口103247人，5人死亡、11人失联。
 
-据悉，“云签发”模式依托中国国际贸易“单一窗口”，打通企业端与海关端数据链路，实现证书云端审核、线上签发。
+目前，应急救援工作正在持续进行。
 
-此次“云签发”的《动物卫生证书》，由郴州北湖区某生猪养殖场工作人员发起，待海关关员通过远程监控实时核验生猪健康状况与装载规范合格后，即可自行打印鲜活农产品出口证书。
+国网湖南电力紧急抽调193名抢修人员赶赴石门，通过大载重无人机运送发电机，保障受灾地区临时照明用电。
 
-接下来，“云签发”业务将在湖南全面铺开，预计每次可为企业节约领证时间2天，通关时间节约4小时以上，整体效率将显著提升。
+同时，国网常德供电公司派出大批专业人员开展全覆盖、拉网式隐患排查，抢抓天气窗口期，待道路抢通后立即投入作业，用最短时间恢复供电，保障受灾民众基本生活用电需求。
 
-(徐志雄 唐琳莎) 责任编辑：【刘湃】
+(记者 徐志雄 视频来源 国网湖南电力） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 15:37 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 15:34 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 15:43 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 15:29 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 15:28 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 15:38 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 15:50 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-29 15:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 15:35 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 15:48 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 15:42 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 15:43 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 15:41 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 15:49 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 15:47 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 15:34 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 15:56 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 15:42 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 15:49 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 15:58 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 15:32 - [欧盟为什么越来越倾向贸易保护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 15:33 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 15:46 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 15:37 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 15:41 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 15:41 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 15:34 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:51 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/09773766973.shtml)
-- 2026-06-29 15:32 - [欧洲多国激辩“装不装空调”](https://www.blog.kurohicncr.top/Article/details/42124.shtml)
-- 2026-06-29 15:45 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/270867999676.shtml)
-- 2026-06-29 15:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/588316.shtml)
-- 2026-06-29 15:50 - [欧盟为什么越来越倾向贸易保护](http://www.blog.kurohicncr.top/Article/details/26993.shtml)
-- 2026-06-29 15:43 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/43112811.shtml)
-- 2026-06-29 15:44 - [媒体人：警惕日本再次成战争加害国](https://www.blog.minike.top/Article/details/0215644990.shtml)
-- 2026-06-29 15:52 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/761927517176.shtml)
-- 2026-06-29 15:41 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/8280932.shtml)
-- 2026-06-29 15:43 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/32490836.shtml)
-- 2026-06-29 15:34 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/170666200.shtml)
-- 2026-06-29 15:27 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/65410392251.shtml)
-- 2026-06-29 15:44 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/183922608034.shtml)
-- 2026-06-29 15:44 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/666483.shtml)
-- 2026-06-29 15:26 - [血糖高的人能吃西瓜吗](http://www.share.kurohicncr.top/Article/details/38876409.shtml)
+- 2026-06-29 15:50 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/9112339.shtml)
+- 2026-06-29 15:34 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/799870.shtml)
+- 2026-06-29 15:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/02111.shtml)
+- 2026-06-29 15:32 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/115856374.shtml)
+- 2026-06-29 15:35 - [一见倾心](https://www.share.kurohicncr.top/Article/details/7780101464.shtml)
+- 2026-06-29 15:48 - [把古诗里的动作换成加班](https://www.share.minike.top/Article/details/86699677.shtml)
+- 2026-06-29 15:55 - [恋与深空评分暴跌至1.8](http://www.blog.kurohicncr.top/Article/details/69292860052.shtml)
+- 2026-06-29 15:59 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/92776973.shtml)
+- 2026-06-29 15:35 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/0982946370.shtml)
+- 2026-06-29 15:54 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/6507296.shtml)
+- 2026-06-29 15:46 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/67953503259.shtml)
+- 2026-06-29 15:55 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/7716846.shtml)
+- 2026-06-29 15:37 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/152005804323.shtml)
+- 2026-06-29 15:36 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/702276785503.shtml)
+- 2026-06-29 15:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/7043754.shtml)

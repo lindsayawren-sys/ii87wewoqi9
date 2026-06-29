@@ -1,59 +1,57 @@
-# 一银行认购房企6000万美元债，违约后为何起诉难？
+# 段永平，1380亿元持仓曝光
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 最终撤诉。 自2021年以来，伴随行业深度调整，房地产企业债务违约事件接连发生，过去房企较为依赖的海外债尤其美元债市场是重点领域。近日，上海金融法院审结一起某中资地产企业（下称D企业）发行的离岸美元债违约纠纷，揭开了此类跨境债务违约事件背后的复杂法律问题。 该案的核心主线是，一家境内银行买了中资地产商在境外发行的美元债，违约后想
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！根据美股机构投资者13F持仓披露情况，截至2026年一季度末，段永平管理的H&H International Investment持仓总市值约200.04亿美元，折合人民币约1380亿元。 今年一季度，段永平加仓英伟达、拼多多、伯克希尔·哈撒韦等，新进特斯拉等。与此同时，段永平减持了苹果、西方石油等，清仓了
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 最终撤诉。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-自2021年以来，伴随行业深度调整，房地产企业债务违约事件接连发生，过去房企较为依赖的海外债尤其美元债市场是重点领域。
+根据美股机构投资者13F持仓披露情况，截至2026年一季度末，段永平管理的H&H International Investment持仓总市值约200.04亿美元，折合人民币约1380亿元。
 
-近日，上海金融法院审结一起某中资地产企业（下称D企业）发行的离岸美元债违约纠纷，揭开了此类跨境债务违约事件背后的复杂法律问题。
+今年一季度，段永平加仓英伟达、拼多多、伯克希尔·哈撒韦等，新进特斯拉等。
 
-该案的核心主线是，一家境内银行买了中资地产商在境外发行的美元债，违约后想在上海起诉，却遇到了多重法律障碍，包括债券文件约定纽约管辖、投资者因“多级托管”结构不算“债券持有人”、已签署重组支持协议不能再单独起诉等。
+与此同时，段永平减持了苹果、西方石油等，清仓了阿里巴巴等标的。
 
-最终，作为债主的银行选择撤诉。
+清仓阿里巴巴 从整体持仓情况看，H&H International Investment共持有19家公司，包括苹果、伯克希尔·哈撒韦、英伟达、拼多多等。
 
-中信建投援引彭博数据统计称，截至今年3月，地产中资美元债的累计违约金额在1500亿美元左右。
+截至2026年一季度末，苹果依然是头号重仓股，占组合持仓比例为36.72%，持仓市值为73.46亿美元。
 
-目前，房企债务风险化解仍在加速推进，债务重组是主流模式，此案也为境内的海外债投资者带来重要法律启示。
+此外，伯克希尔·哈撒韦占组合比例为21.91%，持仓市值为43.84亿美元。
 
-6000万美元债背后：银行债主的诉讼困境 所谓中资企业离岸美元债，通常由境外公司离岸发行、以美元计价，但与境内经营性资产密切相关，债券持有人往往遍布世界各地，包括境内金融机构。
+和2025年底相比，段永平大幅减持苹果341.29万股。
 
 ## 相关推荐
 
-- 2026-06-29 15:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 15:52 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 15:38 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 15:45 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 15:26 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 15:26 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 15:52 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 15:38 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 15:37 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 15:30 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 15:50 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 15:51 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 15:37 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 15:30 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 15:55 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 15:43 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 15:42 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 15:56 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 15:57 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 15:50 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 15:52 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 15:51 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 15:45 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 15:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:47 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/202351236.shtml)
-- 2026-06-29 15:27 - [吴建豪老婆](http://www.share.kurohicncr.top/Article/details/62369.shtml)
-- 2026-06-29 15:45 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/629608322.shtml)
-- 2026-06-29 15:34 - [崔韩率还以为韩娱来新人了](http://www.share.kurohicncr.top/Article/details/9546245.shtml)
-- 2026-06-29 15:39 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/513760499279.shtml)
-- 2026-06-29 15:41 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/7230340937.shtml)
-- 2026-06-29 15:32 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/5428550513.shtml)
-- 2026-06-29 15:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/70986.shtml)
-- 2026-06-29 15:46 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/4465088.shtml)
-- 2026-06-29 15:36 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.kurohicncr.top/Article/details/380657823.shtml)
-- 2026-06-29 15:29 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.minike.top/Article/details/814758796.shtml)
-- 2026-06-29 15:49 - [南非老帅布罗斯的梦没能做完](https://www.share.minike.top/Article/details/7668680314.shtml)
-- 2026-06-29 15:36 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/89527273.shtml)
-- 2026-06-29 15:38 - [吴建豪老婆](https://www.share.minike.top/Article/details/63719.shtml)
-- 2026-06-29 15:50 - [东方风云榜](http://www.blog.minike.top/Article/details/083120609.shtml)
+- 2026-06-29 15:58 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.share.minike.top/Article/details/412781912697.shtml)
+- 2026-06-29 15:47 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/2289966062.shtml)
+- 2026-06-29 15:57 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/907272838.shtml)
+- 2026-06-29 15:45 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/33536773988.shtml)
+- 2026-06-29 15:53 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/930945400265.shtml)
+- 2026-06-29 15:50 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/0649584.shtml)
+- 2026-06-29 15:54 - [金刚川](https://www.share.minike.top/Article/details/0634492877.shtml)
+- 2026-06-29 15:32 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/40276.shtml)
+- 2026-06-29 15:32 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/8762296776.shtml)
+- 2026-06-29 15:49 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/9717530.shtml)
+- 2026-06-29 15:59 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/673264.shtml)
+- 2026-06-29 15:41 - [撒旦的腋窝是什么比喻](https://www.share.kurohicncr.top/Article/details/7894609186.shtml)
+- 2026-06-29 15:40 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/34281112927.shtml)
+- 2026-06-29 15:36 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/5317534896.shtml)
+- 2026-06-29 15:51 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/4425827.shtml)

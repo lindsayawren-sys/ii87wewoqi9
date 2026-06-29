@@ -1,58 +1,60 @@
-# 西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示
+# 东风汽车与斯特兰蒂斯拟在欧组建合资公司 推进新能源汽车本地化生产
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中新网北京5月12日电 (记者 孙自法)青藏高原被誉为亚洲水塔，其大气水循环如何受中纬度西风影响，一直以来颇受关注。 中国科学院青藏高原研究所5月12日向媒体发布消息说，在第二次青藏高原综合科学考察研究(二次青藏科考)支持下，该所环境变化与多圈层过程团队高晶研究员和姚檀栋院士联合中外合作者，最新研究揭示了在西风主导的冬春季稳定天气条件下、亚洲水塔水汽输送的垂直输送带调控机制。
+欧洲汽车巨头斯特兰蒂斯（Stellantis）与中国东风汽车集团20日联合宣布，双方已签署初步协议，计划在欧洲组建一家专注于新能源汽车领域的合资公司。根据协议，该合资公司由斯特兰蒂斯持股51%，东风汽车持股49%，业务范围将全面覆盖销售、分销、制造、采购及工程研发。 此举标志着中资车企在全球化布局与本地化生产方面取得新进展。联合声明指出，双方将探讨在斯特兰蒂斯位于法国的雷恩（R
 
 ## 正文
 
-中新网北京5月12日电 (记者 孙自法)青藏高原被誉为亚洲水塔，其大气水循环如何受中纬度西风影响，一直以来颇受关注。
+欧洲汽车巨头斯特兰蒂斯（Stellantis）与中国东风汽车集团20日联合宣布，双方已签署初步协议，计划在欧洲组建一家专注于新能源汽车领域的合资公司。
 
-中国科学院青藏高原研究所5月12日向媒体发布消息说，在第二次青藏高原综合科学考察研究(二次青藏科考)支持下，该所环境变化与多圈层过程团队高晶研究员和姚檀栋院士联合中外合作者，最新研究揭示了在西风主导的冬春季稳定天气条件下、亚洲水塔水汽输送的垂直输送带调控机制。
+根据协议，该合资公司由斯特兰蒂斯持股51%，东风汽车持股49%，业务范围将全面覆盖销售、分销、制造、采购及工程研发。
 
-为何研究 研究团队介绍说，越来越多的研究表明，西风是亚洲水塔水循环演变的重要动力调控因素。
+此举标志着中资车企在全球化布局与本地化生产方面取得新进展。
 
-西风不仅主导亚洲水塔北部和西部地区的水文气候过程，还通过西风-季风相互作用，调控降水季节变化和印度夏季风强度，进而影响该地区春季积雪、冰川物质平衡以及水资源空间异质性。
+联合声明指出，双方将探讨在斯特兰蒂斯位于法国的雷恩（Rennes）工厂实现东风旗下车型本地化生产的可行性。
 
-因此，准确约束西风水汽传输的时空变化，对于理解和预估亚洲水塔未来水资源稳定性及风险管理具有重要意义。
+合资公司成立后，将首先致力于在部分欧洲市场投放并销售东风旗下高端新能源汽车品牌“岚图”（Voyah）。
 
-然而，由于观测资料匮乏，西风平流输送的水汽如何集成于亚洲水塔的大气水循环及其发生机制仍不清楚。
+分析人士指出，该合作对双方具有重要的战略互补意义。
 
-特别是在无降水条件下，复杂地形、边界层过程及残余水汽如何与西风传输的外源水汽相互作用改变区域大气水汽含量和分布，仍缺乏系统认知。
+当前，欧洲汽车制造商正面临地缘政治不确定性与产能利用不足的挑战。
 
-如何研究 经过8年科学攻关，研究团队成功完成32次高海拔区浮空艇大气水汽稳定同位素和气象要素三维综合观测，并结合同位素理论模型及同位素示踪大气环流模式模拟。
+通过引入中国合作伙伴，斯特兰蒂斯能够有效填补其欧洲工厂的闲置产能，并加速其电气化转型战略。
 
 ## 相关推荐
 
-- 2026-06-29 15:43 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 15:42 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 15:47 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 15:37 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 15:38 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 15:51 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 15:48 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 15:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 15:43 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 15:27 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 15:42 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 15:37 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 15:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 15:44 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 15:42 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 15:34 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 15:52 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 15:52 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 15:45 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 15:43 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 15:30 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 15:51 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 15:52 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 15:50 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 15:49 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 15:30 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:41 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/2265388961.shtml)
-- 2026-06-29 15:40 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/70793225740.shtml)
-- 2026-06-29 15:24 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.kurohicncr.top/Article/details/858358533.shtml)
-- 2026-06-29 15:25 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/181924.shtml)
-- 2026-06-29 15:42 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/2455776.shtml)
-- 2026-06-29 15:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/1953486603.shtml)
-- 2026-06-29 15:32 - [给阿嬷的情书海外口碑](https://www.blog.kurohicncr.top/Article/details/771794819950.shtml)
-- 2026-06-29 15:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/80926658.shtml)
-- 2026-06-29 15:36 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/93544.shtml)
-- 2026-06-29 15:48 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/979635645497.shtml)
-- 2026-06-29 15:43 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/0796837.shtml)
-- 2026-06-29 15:37 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/630904.shtml)
-- 2026-06-29 15:31 - [新能源车能当外接空调用吗](https://www.blog.kurohicncr.top/Article/details/253525.shtml)
-- 2026-06-29 15:26 - [男孩复读一年减重20斤涨分111分](http://www.share.minike.top/Article/details/49319289468.shtml)
-- 2026-06-29 15:41 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.minike.top/Article/details/752665770.shtml)
+- 2026-06-29 15:46 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/48577.shtml)
+- 2026-06-29 15:33 - [BB大王横店拍戏](https://www.share.minike.top/Article/details/24935040567.shtml)
+- 2026-06-29 15:54 - [42岁郭碧婷纯素颜状态](https://www.blog.kurohicncr.top/Article/details/832896.shtml)
+- 2026-06-29 15:36 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/893574.shtml)
+- 2026-06-29 15:46 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/56755007078.shtml)
+- 2026-06-29 15:45 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/673071907746.shtml)
+- 2026-06-29 15:50 - [媒体人：警惕日本再次成战争加害国](https://www.blog.minike.top/Article/details/792232.shtml)
+- 2026-06-29 15:53 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/68655997833.shtml)
+- 2026-06-29 15:39 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/71683.shtml)
+- 2026-06-29 15:50 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/6905761481.shtml)
+- 2026-06-29 15:39 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/03724.shtml)
+- 2026-06-29 15:57 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/103871.shtml)
+- 2026-06-29 15:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/50124.shtml)
+- 2026-06-29 15:48 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/6566179.shtml)
+- 2026-06-29 15:41 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/43259.shtml)

@@ -1,58 +1,61 @@
-# 今天，57家科创板公司股价创新高
+# 罕见毒株引发刚果（金）埃博拉疫情，传播风险几何？
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-科创板研究中心数据显示，伴随指数走强，科创板全天成交额大幅放量，有57只证券在盘中时段或最终收盘后，股价创出历史新高。作者 | 黄修眉时隔6年，科创50指数刷新高点。今日（5月11日），科创50指数盘中一度达到1727.30点，突破2020年7月14日的1726.19高点，创下历史新高；最终收涨4.65%，报1716.69点。科创板研究中心数据显示，伴随科创50指数走强，科创板
+中新网5月19日电 近日，刚果(金)东部伊图里省暴发新一轮埃博拉疫情，备受国际社会关注：此次流行的病毒毒株是什么？传播风险究竟有多大？国际社会应如何有效处置应对？ 本轮疫情情况如何？ 非洲疾病预防控制中心于15日宣布了刚果(金)伊图里省暴发埃博拉疫情。该国卫生部说，截至当天，全国共有80例死亡病例，其中4例死亡病例经检测确认感染埃博拉病毒。同日，乌干达卫生部说，一名输入性确诊病
 
 ## 正文
 
-科创板研究中心数据显示，伴随指数走强，科创板全天成交额大幅放量，有57只证券在盘中时段或最终收盘后，股价创出历史新高。
+中新网5月19日电 近日，刚果(金)东部伊图里省暴发新一轮埃博拉疫情，备受国际社会关注：此次流行的病毒毒株是什么？
 
-作者 | 黄修眉时隔6年，科创50指数刷新高点。
+传播风险究竟有多大？
 
-今日（5月11日），科创50指数盘中一度达到1727.30点，突破2020年7月14日的1726.19高点，创下历史新高；最终收涨4.65%，报1716.69点。
+国际社会应如何有效处置应对？
 
-科创板研究中心数据显示，伴随科创50指数走强，科创板全天成交额大幅放量，有57只证券在盘中时段或最终收盘后，股价创出历史新高。
+本轮疫情情况如何？
 
-从上述名单来看，半导体及相关材料/设备领域企业占了绝对主力。
+非洲疾病预防控制中心于15日宣布了刚果(金)伊图里省暴发埃博拉疫情。
 
-排名前三的细分领域为半导体、通用设备、自动化设备，分别有19家、6家、4家。
+该国卫生部说，截至当天，全国共有80例死亡病例，其中4例死亡病例经检测确认感染埃博拉病毒。
 
-按今日盘后的最新总市值排名，澜起科技、盛合晶微、电科蓝天、佰维存储、源杰科技排名前五，分别为2570亿元、2366亿元、1488亿元、1368亿元、1354亿元。
+同日，乌干达卫生部说，一名输入性确诊病例在该国死亡。
 
-▌多只权重股及细分龙头股价爆发从盘面来看，半导体产业链几乎全线爆发，成为推升指数的绝对主力，多只权重股及细分龙头今日盘中或收盘股价创下历史新高。
+随后，世界卫生组织于17日宣布，刚果(金)和乌干达出现的埃博拉疫情已构成“国际关注的突发公共卫生事件”。
 
 ## 相关推荐
 
-- 2026-06-29 15:34 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 15:45 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 15:37 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 15:24 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 15:39 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 15:32 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 15:45 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 15:33 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 15:47 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 15:39 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 15:51 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 15:30 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 15:41 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 15:42 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 15:42 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 15:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 15:40 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 15:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 15:43 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 15:41 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 15:31 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 15:50 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 15:55 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 15:31 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 15:32 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 15:39 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 15:50 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:36 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/27074.shtml)
-- 2026-06-29 15:41 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/3084506.shtml)
-- 2026-06-29 15:43 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/483365369215.shtml)
-- 2026-06-29 15:39 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/7586702092.shtml)
-- 2026-06-29 15:47 - [给阿嬷的情书海外口碑](http://www.share.minike.top/Article/details/568039058.shtml)
-- 2026-06-29 15:42 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/14847961.shtml)
-- 2026-06-29 15:28 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/09387.shtml)
-- 2026-06-29 15:51 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/0296899.shtml)
-- 2026-06-29 15:25 - [汪东城回应45岁婚约](https://www.blog.kurohicncr.top/Article/details/961339390282.shtml)
-- 2026-06-29 15:27 - [3D打印不是工业革命，它是……](https://www.share.minike.top/Article/details/60753.shtml)
-- 2026-06-29 15:45 - [沙丘](https://www.share.minike.top/Article/details/747942724.shtml)
-- 2026-06-29 15:44 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/238606.shtml)
-- 2026-06-29 15:47 - [欧盟为什么越来越倾向贸易保护](https://www.blog.kurohicncr.top/Article/details/98790371212.shtml)
-- 2026-06-29 15:44 - [当地回应林区违规放羊遭豹啃食](http://www.blog.minike.top/Article/details/67349038466.shtml)
-- 2026-06-29 15:25 - [一见倾心](https://www.blog.minike.top/Article/details/28693435.shtml)
+- 2026-06-29 15:51 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/38098392414.shtml)
+- 2026-06-29 15:31 - [女心理师](http://www.share.kurohicncr.top/Article/details/37291.shtml)
+- 2026-06-29 15:43 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/556825.shtml)
+- 2026-06-29 15:39 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/6910279300.shtml)
+- 2026-06-29 15:45 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/0147503945.shtml)
+- 2026-06-29 15:36 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/90849.shtml)
+- 2026-06-29 15:55 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/126142677.shtml)
+- 2026-06-29 15:35 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/154500037295.shtml)
+- 2026-06-29 15:42 - [王楚钦3-0周启豪 晋级32强](http://www.blog.kurohicncr.top/Article/details/722892.shtml)
+- 2026-06-29 15:31 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/008697360.shtml)
+- 2026-06-29 15:34 - [T1 KC](http://www.share.kurohicncr.top/Article/details/5657501.shtml)
+- 2026-06-29 15:55 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/6416628.shtml)
+- 2026-06-29 15:40 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/284417405.shtml)
+- 2026-06-29 15:54 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/72781190.shtml)
+- 2026-06-29 15:48 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/574478661.shtml)

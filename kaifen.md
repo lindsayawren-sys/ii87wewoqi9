@@ -1,58 +1,57 @@
-# ST龙大实控人戴学斌被刑拘，今日开盘跌停
+# RedCloud全年营收4850万美元，重申2026年1.2亿美元营收指引
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-被深交所实施“其他风险警示”、股票简称由“龙大美食”变更为“ST龙大（维权）（002726.SZ）”后，农牧食品企业ST龙大再传重磅消息。 ST龙大5月11日晚间发布公告称，收到控股股东蓝润发展控股集团有限公司（下称“蓝润发展”）的通知，该公司实际控制人戴学斌因涉嫌刑事犯罪已被达州市公安局刑事拘留。 5月12日，ST龙大开盘跌停，股价报2.21元/股，总市值24亿元。此前股价已
+RedCloud Holdings plc于5月19日提交了截至2025年12月31日的20-F年度报告，披露经审计全年营收为4850万美元。公司同时重申2026年全年营收指引为1.2亿美元，较上年增长超过一倍。 尼日利亚市场增长68%，平台交易额达32亿美元 财报显示，2025年RedAI平台总交易额达32亿美元，同比增长31%。尼日利亚市场表现尤为亮眼，营收同比增长68%，
 
 ## 正文
 
-被深交所实施“其他风险警示”、股票简称由“龙大美食”变更为“ST龙大（维权）（002726.SZ）”后，农牧食品企业ST龙大再传重磅消息。
+RedCloud Holdings plc于5月19日提交了截至2025年12月31日的20-F年度报告，披露经审计全年营收为4850万美元。
 
-ST龙大5月11日晚间发布公告称，收到控股股东蓝润发展控股集团有限公司（下称“蓝润发展”）的通知，该公司实际控制人戴学斌因涉嫌刑事犯罪已被达州市公安局刑事拘留。
+公司同时重申2026年全年营收指引为1.2亿美元，较上年增长超过一倍。
 
-5月12日，ST龙大开盘跌停，股价报2.21元/股，总市值24亿元。
+尼日利亚市场增长68%，平台交易额达32亿美元 财报显示，2025年RedAI平台总交易额达32亿美元，同比增长31%。
 
-此前股价已连续5个交易日跌停。
+尼日利亚市场表现尤为亮眼，营收同比增长68%，活跃经销商数量达到981家。
 
-ST龙大主要业务为食品、屠宰、养殖，主要产品为预制食品、熟食制品及鲜冻肉。
+自2023年1月至2025年12月，RedAI平台累计交易额达69亿美元，持续为训练RedAI RAID引擎的专有数据集提供支持。
 
-财报显示，该公司已与海底捞、肯德基、麦当劳等多个知名餐饮连锁企业建立合作关系。
+RedCloud创始人兼首席执行官Justin Floyd表示：“尼日利亚业务正以68%的速度复合增长，单位经济效益不断改善，我们的合资模式正在三个走廊扩张，RAID已进入部署阶段。
 
-戴学斌是蓝润集团创始人、董事长。
+” 合资与授权模式加速扩张，AI智能体下半年推出 2025年以来，RedCloud在轻资产扩张模式上取得多项进展：2026年3月与土耳其一家经销商签署合资协议，价值最高达5000万美元；4月签署沙特阿拉伯五年期授权协议，价值最高达3000万美元；5月宣布拟与ACA Capital在南非成立合资公司，覆盖当地14万家传统贸易网点。
 
-天眼查显示，蓝润发展由蓝润集团有限公司100%控股。
+公司重申的1.2亿美元2026年营收指引，反映了核心市场的持续增长、计划于下半年推出的三个RedAI专家智能体，以及合资与授权模式的收入贡献。
 
 ## 相关推荐
 
-- 2026-06-29 15:33 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 15:29 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 15:32 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 15:38 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 15:53 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 15:44 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 15:51 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 15:38 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 15:52 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 15:53 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 15:44 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 15:32 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 15:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 15:33 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 15:59 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 15:30 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 15:57 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 15:35 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 15:41 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 15:33 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 15:52 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 15:47 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 15:59 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:37 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/9901174023.shtml)
-- 2026-06-29 15:48 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/0173596306.shtml)
-- 2026-06-29 15:25 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/692599313623.shtml)
-- 2026-06-29 15:34 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/4748140.shtml)
-- 2026-06-29 15:32 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/912697.shtml)
-- 2026-06-29 15:30 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/077143809.shtml)
-- 2026-06-29 15:48 - [42岁郭碧婷纯素颜状态](https://www.share.kurohicncr.top/Article/details/262722182.shtml)
-- 2026-06-29 15:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/7198486.shtml)
-- 2026-06-29 15:53 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/4270298520.shtml)
-- 2026-06-29 15:45 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/709440.shtml)
-- 2026-06-29 15:53 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/16633728211.shtml)
-- 2026-06-29 15:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/095506.shtml)
-- 2026-06-29 15:52 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/960314655.shtml)
-- 2026-06-29 15:36 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/636507273002.shtml)
-- 2026-06-29 15:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/792120.shtml)
+- 2026-06-29 15:50 - [抓特务票房破亿](http://www.share.minike.top/Article/details/02278.shtml)
+- 2026-06-29 15:50 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/498352282084.shtml)
+- 2026-06-29 15:37 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/221631.shtml)
+- 2026-06-29 15:34 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/94042884520.shtml)
+- 2026-06-29 15:52 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/5822794.shtml)
+- 2026-06-29 15:59 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/4855251863.shtml)
+- 2026-06-29 15:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/72615926.shtml)
+- 2026-06-29 15:45 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/149861.shtml)
+- 2026-06-29 15:58 - [袁隆平院士 不容诋毁！](http://www.share.kurohicncr.top/Article/details/3853766.shtml)
+- 2026-06-29 15:48 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/78964798955.shtml)
+- 2026-06-29 15:50 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/50793886.shtml)
+- 2026-06-29 15:48 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/39771240191.shtml)
+- 2026-06-29 15:59 - [王祖蓝现场观看美加墨世界杯](https://www.share.kurohicncr.top/Article/details/0934163.shtml)
+- 2026-06-29 15:52 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/40131111.shtml)
+- 2026-06-29 15:34 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/583627819209.shtml)

@@ -1,60 +1,55 @@
-# 长江有色: 沪铝库存累积六年高位但逢低补库仍在 11日铝价或涨跌不大
+# 贝森特敦促七国集团协助美国打击伊朗资金渠道
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-长江铝价alu.ccmn.cn短评：美股走强叠加美元走弱推动，隔周伦铝收涨0.34%；停火脆弱且中东铝产能修复短期难现，沪铝库存累积六年高位但逢低补库仍在，今现铝或涨跌不大。 【铝期货市场】：美股走强叠加美元走弱推动，隔周伦铝窄幅走强，最新收盘报价3502美元/吨，收涨12美元，涨幅0.34%，成交量16256手减少615手，持仓量670648手减少6232手。周五晚间沪铝高开
+核心要点 美国财政部长斯科特・贝森特于周二在七国集团会议上呼吁各国领导人协同美国，斩断支撑伊朗相关恐怖活动的资金链条，合力打击相关势力。 贝森特在巴黎举办的 “杜绝恐怖融资” 会议上发表讲话，出台一套全新准则，推动实施强硬且精准定向的制裁措施。 2026 年 5 月 18 日，美国财政部长斯科特・贝森特抵达巴黎，出席七国集团财长与央行行长会议，为同年 6 月在埃维昂举行的七国集
 
 ## 正文
 
-长江铝价alu.ccmn.cn短评：美股走强叠加美元走弱推动，隔周伦铝收涨0.34%；停火脆弱且中东铝产能修复短期难现，沪铝库存累积六年高位但逢低补库仍在，今现铝或涨跌不大。
+核心要点 美国财政部长斯科特・贝森特于周二在七国集团会议上呼吁各国领导人协同美国，斩断支撑伊朗相关恐怖活动的资金链条，合力打击相关势力。
 
-【铝期货市场】：美股走强叠加美元走弱推动，隔周伦铝窄幅走强，最新收盘报价3502美元/吨，收涨12美元，涨幅0.34%，成交量16256手减少615手，持仓量670648手减少6232手。
+贝森特在巴黎举办的 “杜绝恐怖融资” 会议上发表讲话，出台一套全新准则，推动实施强硬且精准定向的制裁措施。
 
-周五晚间沪铝高开后跳水，尾盘偏弱调整；主力月2606合约最新收盘价报24380元/吨，跌40元，跌幅0.16%。
+2026 年 5 月 18 日，美国财政部长斯科特・贝森特抵达巴黎，出席七国集团财长与央行行长会议，为同年 6 月在埃维昂举行的七国集团国家元首及政府首脑峰会做筹备。
 
-伦敦金属交易所（LME）5月8日伦铝最新库存量报355775公吨，较上个交易日减少2450公吨，跌幅0.68%。
+贝森特表示：“美国正全力打击敌对势力用于实施恐怖活动的金融网络，我方相信各位出席此次会议，意味着愿意全力与美国并肩行动。
 
-长江铝业网讯：5月8日现货铝价，长江现货A00铝锭价报24220元/吨，涨170元；广东现货A00铝锭价报24060元/吨，涨190元。
+” 他提出具体行动要求：“这就需要欧洲盟友与美国统一行动，针对伊朗采取一系列举措，认定其资金融通相关人员、清查空壳公司与掩护企业、关停相关银行分支机构、瓦解其代理势力。
 
-宏观层面，上周油价收跌超7%，但周初布伦特原油一度突破115美元/桶，美原油逼近107.50美元/桶，盘中冲高回落的走势凸显市场在美伊冲突升级与停火预期间的纠结。
+” “简言之，倘若各国同样对伊朗破坏地区稳定的行径、企图挟持全球经济的恐怖分子、危害社会的贩毒集团以及威胁平民生命安全的各类行为感到愤慨，那么当下正是携手美国采取强力行动的最佳时机。
 
-特朗普虽称停火协议“仍有效”，但上周五再向伊朗发出“放弃核野心”的最后通牒；伊朗外长则指责美国“破坏外交进程”，且伊朗议会正推动霍尔木兹海峡管控立法——该海峡承担全球20%石油运输，其管控权强化将直接威胁大宗商品供应安全。
-
-美国4月非农就业新增11.5万（远超预期的6.2万），3月数据上修至18.5万，失业率维持4.3%，劳动力市场韧性强化美联储“维持利率不变”的预期。
+”责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 15:40 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 15:53 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 15:32 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 15:25 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 15:42 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 15:31 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 15:37 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 15:26 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 15:53 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 15:27 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 15:52 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 15:44 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 15:34 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 15:27 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 15:32 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 15:36 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 15:47 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 15:44 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 15:35 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 15:40 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 15:37 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 15:38 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 15:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 15:54 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 15:44 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:51 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/492097296090.shtml)
-- 2026-06-29 15:41 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/27549018.shtml)
-- 2026-06-29 15:53 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/3902829.shtml)
-- 2026-06-29 15:45 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/7858643217.shtml)
-- 2026-06-29 15:34 - [工作靠AI算不算职场作弊](http://www.share.kurohicncr.top/Article/details/7773084.shtml)
-- 2026-06-29 15:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/763328138992.shtml)
-- 2026-06-29 15:36 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/89417681.shtml)
-- 2026-06-29 15:48 - [时光音乐会](http://www.blog.minike.top/Article/details/2916909803.shtml)
-- 2026-06-29 15:30 - [小娘惹](https://www.blog.minike.top/Article/details/998821.shtml)
-- 2026-06-29 15:45 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/28751709.shtml)
-- 2026-06-29 15:47 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/493043074661.shtml)
-- 2026-06-29 15:31 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/1619745759.shtml)
-- 2026-06-29 15:30 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/417394549767.shtml)
-- 2026-06-29 15:35 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/7059371.shtml)
-- 2026-06-29 15:37 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/36614266.shtml)
+- 2026-06-29 15:41 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/68765683149.shtml)
+- 2026-06-29 15:48 - [黄金也扛不住了](http://www.share.minike.top/Article/details/481744.shtml)
+- 2026-06-29 15:43 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/967516555.shtml)
+- 2026-06-29 15:32 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/357624874571.shtml)
+- 2026-06-29 15:38 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/4707728660.shtml)
+- 2026-06-29 15:55 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/13093.shtml)
+- 2026-06-29 15:36 - [扬名立万](http://www.share.kurohicncr.top/Article/details/64317.shtml)
+- 2026-06-29 15:42 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/545353516.shtml)
+- 2026-06-29 15:38 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/438282850810.shtml)
+- 2026-06-29 15:34 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/09081537026.shtml)
+- 2026-06-29 15:59 - [媒体人：警惕日本再次成战争加害国](https://www.blog.kurohicncr.top/Article/details/248534199.shtml)
+- 2026-06-29 15:35 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/13973410.shtml)
+- 2026-06-29 15:34 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.minike.top/Article/details/08346077.shtml)
+- 2026-06-29 15:42 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/822933.shtml)
+- 2026-06-29 15:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/178819742.shtml)

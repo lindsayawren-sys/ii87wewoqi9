@@ -1,58 +1,60 @@
-# 2026年1—4月海南省财政收支情况
+# 北京拟立法为民营经济发展提供法治保障
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-2026年1—4月全省财政收支情况 1—4月，全省地方一般公共预算收入367.4亿元，增长2.3%。分结构看，税收收入300.7亿元，增长6.6%；非税收入66.7亿元，下降13.3%。 分级次看，省本级收入89.3亿元，增长4.8%；市县级收入278.1亿元，增长1.5%。 1—4月，全省地方一般公共预算支出799.5亿元，增长2.5%。分级次看，省本级支出247亿元，增长0
+中新网北京5月20日电 (记者 陈杭)今年年初，北京市人大常委会将民营经济促进条例纳入年度立法审议项目，将于7月、9月、11月进行三次审议。北京市成立了立法工作专班，29家市级部门共同参与。 条例起草过程中，北京坚持开门立法，邀请市人大代表、市政协委员、民营企业家、法律专家等参与立法工作，会同各部门研究起草条例草案，凝聚多方共识，已经形成条例草案征求意见稿。 这是记者19日从《
 
 ## 正文
 
-2026年1—4月全省财政收支情况 1—4月，全省地方一般公共预算收入367.4亿元，增长2.3%。
+中新网北京5月20日电 (记者 陈杭)今年年初，北京市人大常委会将民营经济促进条例纳入年度立法审议项目，将于7月、9月、11月进行三次审议。
 
-分结构看，税收收入300.7亿元，增长6.6%；非税收入66.7亿元，下降13.3%。
+北京市成立了立法工作专班，29家市级部门共同参与。
 
-分级次看，省本级收入89.3亿元，增长4.8%；市县级收入278.1亿元，增长1.5%。
+条例起草过程中，北京坚持开门立法，邀请市人大代表、市政协委员、民营企业家、法律专家等参与立法工作，会同各部门研究起草条例草案，凝聚多方共识，已经形成条例草案征求意见稿。
 
-1—4月，全省地方一般公共预算支出799.5亿元，增长2.5%。
+这是记者19日从《北京市人民政府2026年立法工作计划》新闻发布会上获悉的。
 
-分级次看，省本级支出247亿元，增长0.4%；市县级支出552.5亿元，增长3.5%。
+北京市发展和改革委员会副主任林剑华表示，条例主要考虑围绕公平竞争、规范经营、服务保障、权益保护等方面建立完善相关制度安排，将党中央对民营经济平等对待、平等保护的要求落下来；同时加大要素支持、支持创新发展，依法赋能民营经济高质量发展，让民营企业在京发展的信心更强、底气更足。
 
-1—4月，全省地方政府性基金预算收入63亿元，下降14.6%。
+一是明确促进民营经济发展的总体要求。
 
-全省地方政府性基金预算支出303.6亿元，下降18.9%。
+包括立法目的、适用范围、基本原则、部门职责等主要内容，建立健全促进民营经济发展工作的协调机制。
+
+二是保障公平竞争。
 
 ## 相关推荐
 
-- 2026-06-29 15:47 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 15:45 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 15:46 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 15:24 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 15:51 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 15:46 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 15:46 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 15:32 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 15:35 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 15:24 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 15:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 15:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 15:51 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 15:40 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 15:52 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 15:33 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 15:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 15:46 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 15:38 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 15:35 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 15:38 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 15:49 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 15:41 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 15:48 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 15:39 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 15:36 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 15:50 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 15:56 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/180852845901.shtml)
-- 2026-06-29 15:48 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/71250.shtml)
-- 2026-06-29 15:24 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/93255012.shtml)
-- 2026-06-29 15:24 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.minike.top/Article/details/60803529715.shtml)
-- 2026-06-29 15:33 - [滾石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/717334.shtml)
-- 2026-06-29 15:44 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/284778467497.shtml)
-- 2026-06-29 15:41 - [当我回母校教书](https://www.share.minike.top/Article/details/175339064859.shtml)
-- 2026-06-29 15:38 - [天道](http://www.blog.kurohicncr.top/Article/details/127215.shtml)
-- 2026-06-29 15:35 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.kurohicncr.top/Article/details/441926794401.shtml)
-- 2026-06-29 15:25 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/882248017.shtml)
-- 2026-06-29 15:47 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/35523089969.shtml)
-- 2026-06-29 15:40 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/033960.shtml)
-- 2026-06-29 15:53 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/7579000934.shtml)
-- 2026-06-29 15:31 - [世界杯超牛补水广告出现了](http://www.share.minike.top/Article/details/15847536254.shtml)
-- 2026-06-29 15:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/1324261726.shtml)
+- 2026-06-29 15:46 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/4317969.shtml)
+- 2026-06-29 15:56 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/18752281531.shtml)
+- 2026-06-29 15:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/551308646662.shtml)
+- 2026-06-29 15:43 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/294211462967.shtml)
+- 2026-06-29 15:55 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/85800066.shtml)
+- 2026-06-29 15:47 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/22457.shtml)
+- 2026-06-29 15:57 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/68274994.shtml)
+- 2026-06-29 15:53 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/76984719.shtml)
+- 2026-06-29 15:52 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/268709957.shtml)
+- 2026-06-29 15:37 - [普京介绍前线战事](http://www.blog.minike.top/Article/details/9853011756.shtml)
+- 2026-06-29 15:50 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/645396.shtml)
+- 2026-06-29 15:39 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/036653383991.shtml)
+- 2026-06-29 15:30 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/11243192.shtml)
+- 2026-06-29 15:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/267643643.shtml)
+- 2026-06-29 15:51 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/8185521821.shtml)

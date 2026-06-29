@@ -1,48 +1,56 @@
-# 英国政治动荡致国债收益率飙升
+# 华泰期货：苹果低位偏弱，红枣震荡整理
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-随着英国首相基尔·斯塔默面临的压力增大，英国国债收益率触及数十年高位，同时包括国民西敏寺银行、劳埃德银行和巴克莱银行在内的银行股下跌。责任编辑：张俊 SF065
+来源：华泰期货 作者： 白旭宇 苹果观点 市场要闻与重要数据 期货方面，昨日收盘苹果2610合约7393元/吨，较前一日变动+3元/吨，幅度+0.04%。现货方面，山东栖霞80# 一二级晚富士价格3.20元/斤，较前一日变动+0.00元/斤，现货基差AP10-990，较前一日变动+38；陕西洛川70# 以上半商品晚富士价格3.75元/斤，较前一日变动+0.00元/斤，现货基差A
 
 ## 正文
 
-随着英国首相基尔·斯塔默面临的压力增大，英国国债收益率触及数十年高位，同时包括国民西敏寺银行、劳埃德银行和巴克莱银行在内的银行股下跌。
+来源：华泰期货 作者： 白旭宇 苹果观点 市场要闻与重要数据 期货方面，昨日收盘苹果2610合约7393元/吨，较前一日变动+3元/吨，幅度+0.04%。
 
-责任编辑：张俊 SF065
+现货方面，山东栖霞80# 一二级晚富士价格3.20元/斤，较前一日变动+0.00元/斤，现货基差AP10-990，较前一日变动+38；陕西洛川70# 以上半商品晚富士价格3.75元/斤，较前一日变动+0.00元/斤，现货基差AP10+110，较前一日变动+38。
+
+近期市场资讯，苹果产区库存果行情维持弱稳运行，客商数量较前期略有增加，多挑选性价比较高货源，整体成交速度一般，低价货源走货略好转，目前产区多处于农忙阶段，产地冷库用工紧张且用工费用上涨。
+
+西北地区近期多以小单车客户要货居多，中大型客户调货有限，果农货源降价促售，价格混乱。
+
+山东产区少量客商调片红性价比高的货源，整体成交一般。
+
+新季苹果果农陆续疏果，陕西富平等地陆续开始套袋。
+
+栖霞80#一二级片红价格2.5-4.0元/斤，80#统货1.5-2.0元/斤附近。
+
+陕西洛川产区果农统货价格2.3-2.8元/斤，客商半商品出库价格3.5-4.2元/斤。
 
 ## 相关推荐
 
-- 2026-06-29 15:51 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 15:40 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 15:46 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 15:32 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 15:24 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 15:32 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 15:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 15:50 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 15:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 15:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 15:52 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 15:39 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 15:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 15:24 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 15:47 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 15:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 15:31 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 15:33 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 15:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 15:58 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 15:34 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 15:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 15:30 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 15:53 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:38 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/159339623.shtml)
-- 2026-06-29 15:30 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/069240.shtml)
-- 2026-06-29 15:44 - [一生一世](https://www.share.minike.top/Article/details/710322120.shtml)
-- 2026-06-29 15:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/7810222979.shtml)
-- 2026-06-29 15:24 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/30152.shtml)
-- 2026-06-29 15:36 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/15588.shtml)
-- 2026-06-29 15:46 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/782772943188.shtml)
-- 2026-06-29 15:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/71594.shtml)
-- 2026-06-29 15:53 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/221171.shtml)
-- 2026-06-29 15:29 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/571460671.shtml)
-- 2026-06-29 15:27 - [吴磊爱上回收了](http://www.share.minike.top/Article/details/85021745.shtml)
-- 2026-06-29 15:25 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/90655553.shtml)
-- 2026-06-29 15:41 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/388989118132.shtml)
-- 2026-06-29 15:48 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/342640177792.shtml)
-- 2026-06-29 15:33 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/159236896.shtml)
+- 2026-06-29 15:45 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.kurohicncr.top/Article/details/428657.shtml)
+- 2026-06-29 15:42 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/844940.shtml)
+- 2026-06-29 15:59 - [葛军谈AI时代理科生出路](http://www.share.kurohicncr.top/Article/details/17306248795.shtml)
+- 2026-06-29 15:31 - [汪东城回应45岁婚约](https://www.blog.minike.top/Article/details/008604.shtml)
+- 2026-06-29 15:32 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/178570297591.shtml)
+- 2026-06-29 15:37 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/31708239.shtml)
+- 2026-06-29 15:51 - [中国战机大片上新](https://www.share.minike.top/Article/details/20899.shtml)
+- 2026-06-29 15:46 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/711260343113.shtml)
+- 2026-06-29 15:45 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/25422771.shtml)
+- 2026-06-29 15:41 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/266047489078.shtml)
+- 2026-06-29 15:41 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/5723669312.shtml)
+- 2026-06-29 15:33 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/3532643.shtml)
+- 2026-06-29 15:30 - [吴建豪老婆](http://www.share.minike.top/Article/details/311833.shtml)
+- 2026-06-29 15:35 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/4783334046.shtml)
+- 2026-06-29 15:32 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/276880.shtml)

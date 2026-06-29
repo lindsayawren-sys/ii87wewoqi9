@@ -1,54 +1,55 @@
-# 中银国际：壁仞科技首次覆盖给予“买入”评级 目标价74.43港元
+# 马明哲：中国保险市场成长性、盈利性全球最好 聚焦中国是平安的第一战略
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-中银国际发布研报称，首次覆盖壁仞科技（06082），给予“买入”评级，目标价为74.43港元，此基于20倍2027年预期市销率。 该行指出该公司作为国内领先的GPGPU厂商，将充分受益于中国AI算力需求的指数级增长。除了从芯片到系统层面的技术领先地位外，该行认为壁仞科技与国内供应链的深度融合，为其提供了相较于同业的关键竞争优势。 该行预测，壁仞科技在2025年至2028年期间将
+5月20日金融一线消息，中国平安2025年年度股东大会在深圳召开。中国平安董事长马明哲表示，纵观全球金融市场和保险市场，中国市场的成长性和盈利性都是最好的，所以，聚焦中国，是平安坚决不动摇的第一战略。公司的资本将深度投资中国，为股东创造更多回报。 “在科技创新和人工智能的时代下，我们的科技创新在金融业和保险业都是领先的。未来公司将继续抓住科技创新大潮，建立特殊的竞争优势和竞争能
 
 ## 正文
 
-中银国际发布研报称，首次覆盖壁仞科技（06082），给予“买入”评级，目标价为74.43港元，此基于20倍2027年预期市销率。
+5月20日金融一线消息，中国平安2025年年度股东大会在深圳召开。
 
-该行指出该公司作为国内领先的GPGPU厂商，将充分受益于中国AI算力需求的指数级增长。
+中国平安董事长马明哲表示，纵观全球金融市场和保险市场，中国市场的成长性和盈利性都是最好的，所以，聚焦中国，是平安坚决不动摇的第一战略。
 
-除了从芯片到系统层面的技术领先地位外，该行认为壁仞科技与国内供应链的深度融合，为其提供了相较于同业的关键竞争优势。
+公司的资本将深度投资中国，为股东创造更多回报。
 
-该行预测，壁仞科技在2025年至2028年期间将实现137%的收入复合年增长率，并预计其将于2027年实现收支平衡，这主要得益于下一代产品在2026年下半年的商业化落地。
+“在科技创新和人工智能的时代下，我们的科技创新在金融业和保险业都是领先的。
 
-责任编辑：卢昱君
+未来公司将继续抓住科技创新大潮，建立特殊的竞争优势和竞争能力。
+
+”马明哲表示，当公司的能力在国际竞争中建立起特殊的竞争优势和能力时，可能会考虑进一步布局海外。
+
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 15:44 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 15:51 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 15:52 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 15:35 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 15:38 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 15:28 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 15:26 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 15:42 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 15:33 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 15:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 15:28 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 15:30 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 15:28 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 15:30 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 15:59 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 15:37 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 15:44 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 15:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 15:41 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 15:48 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 15:40 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 15:46 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 15:51 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 15:52 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 15:46 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:50 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/164785669.shtml)
-- 2026-06-29 15:44 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/7450804.shtml)
-- 2026-06-29 15:37 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/97523875677.shtml)
-- 2026-06-29 15:41 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/68564759396.shtml)
-- 2026-06-29 15:46 - [天道](http://www.blog.minike.top/Article/details/633713423825.shtml)
-- 2026-06-29 15:38 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/370500181.shtml)
-- 2026-06-29 15:43 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/504527485.shtml)
-- 2026-06-29 15:29 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/116673357.shtml)
-- 2026-06-29 15:45 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/671893095.shtml)
-- 2026-06-29 15:42 - [欧洲多国激辩“装不装空调”](https://www.blog.kurohicncr.top/Article/details/466092511.shtml)
-- 2026-06-29 15:33 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/512278226122.shtml)
-- 2026-06-29 15:26 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/49685957886.shtml)
-- 2026-06-29 15:52 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/05498073895.shtml)
-- 2026-06-29 15:50 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/415374271.shtml)
-- 2026-06-29 15:36 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/915427.shtml)
+- 2026-06-29 15:56 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/3642962.shtml)
+- 2026-06-29 15:53 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/46424.shtml)
+- 2026-06-29 15:36 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/25032842.shtml)
+- 2026-06-29 15:40 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/56244349149.shtml)
+- 2026-06-29 15:45 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/17141.shtml)
+- 2026-06-29 15:59 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/22701940267.shtml)
+- 2026-06-29 15:58 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/4783708619.shtml)
+- 2026-06-29 15:31 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/288121.shtml)
+- 2026-06-29 15:58 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/531206.shtml)
+- 2026-06-29 15:58 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/700791.shtml)
+- 2026-06-29 15:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/466850390502.shtml)
+- 2026-06-29 15:41 - [行程万里不忘初心](http://www.share.minike.top/Article/details/87214.shtml)
+- 2026-06-29 15:41 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/1186031654.shtml)
+- 2026-06-29 15:48 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/007609474944.shtml)
+- 2026-06-29 15:31 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/14889706.shtml)

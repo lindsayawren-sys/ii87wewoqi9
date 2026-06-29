@@ -1,57 +1,55 @@
-# 长江有色：沪锌库存累积叠加发票限制接货谨慎 11日锌价或下跌
+# 习近平：以更高质量的中俄全面战略协作助力各自国家发展振兴
 
-> 更新时间：2026-06-29 15:54:02 UTC+8
+> 更新时间：2026-06-29 16:00:02 UTC+8
 
 ## 摘要
 
-【ccmn.cn摘要】伦锌库存大增及降息预期降温施压，隔周伦锌微跌0.17%；节后锌价涨至高位抑制下游采买，沪锌库存累积叠加发票限制接货谨慎，今现锌或下跌。 【ccmn.cn锌期货市场】隔周伦锌偏弱走低，开盘报3439美元/吨，高点报3457美元，低点报3418美元，尾盘收于3441美元，跌6美元，跌幅0.17%；成交量10480手增加65手，持仓量239949手增加3121手
+新华社北京5月20日电 5月20日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的俄罗斯总统普京举行会谈。 习近平指出，今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年。中俄关系之所以一步一个脚印走到今天这个高度，就是因为我们能够以“千磨万击还坚劲”的毅力不断深化政治互信和战略协作，能够以“更上一层楼”的精神拓展各领域合作，能够以“乱云飞渡仍
 
 ## 正文
 
-【ccmn.cn摘要】伦锌库存大增及降息预期降温施压，隔周伦锌微跌0.17%；节后锌价涨至高位抑制下游采买，沪锌库存累积叠加发票限制接货谨慎，今现锌或下跌。
+新华社北京5月20日电 5月20日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的俄罗斯总统普京举行会谈。
 
-【ccmn.cn锌期货市场】隔周伦锌偏弱走低，开盘报3439美元/吨，高点报3457美元，低点报3418美元，尾盘收于3441美元，跌6美元，跌幅0.17%；成交量10480手增加65手，持仓量239949手增加3121手。
+习近平指出，今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年。
 
-周五晚间沪锌低开低走，主力2606合约最新收盘价报24030元/吨，跌290元，跌幅1.19%。
+中俄关系之所以一步一个脚印走到今天这个高度，就是因为我们能够以“千磨万击还坚劲”的毅力不断深化政治互信和战略协作，能够以“更上一层楼”的精神拓展各领域合作，能够以“乱云飞渡仍从容”的勇气捍卫国际公道正义、推动构建人类命运共同体。
 
-长江锌业网（pb.ccmn.cn）今日现货锌价行情预估： 宏观层面，尽管美国官员期待伊朗尽快回应最新提议，但波斯湾冲突再起仍令市场不安。
+当前，国际形势变乱交织，单边霸权逆流横行，但求和平、谋发展、促合作仍是民心所向、大势所趋。
 
-焦点集中于自2月底战争爆发以来持续瘫痪的霍尔木兹海峡航运。
-
-伊朗批评美国违反停火协议，并计划制定海峡“法律制度”，此举被视为其核心谈判筹码。
-
-分析师指出，近期船只遭扣押事件表明，尽管外交仍是基准情景，但冲突重燃风险显著。
-
-美国4月非农就业新增11.5万个，远超预期的6.2万个，3月数据亦上修至18.5万个，失业率稳定在4.3%，劳动力市场展现韧性，强化了美联储维持利率不变的预期。
+作为联合国安理会常任理事国和世界重要大国，中俄两国要着眼战略长远，以更高质量的全面战略协作助力各自国家发展振兴，推动构建更加公正合理的全球治理体系。
 
 ## 相关推荐
 
-- 2026-06-29 15:48 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 15:41 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 15:46 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 15:51 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 15:33 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 15:44 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 15:24 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 15:41 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 15:45 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 15:32 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 15:29 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 15:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 15:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 15:53 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 15:47 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 15:51 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 15:34 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 15:44 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 15:41 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 15:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 15:37 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 15:46 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 15:58 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 15:36 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 15:56 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 15:41 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:52 - [葛军谈AI时代理科生出路](https://www.blog.minike.top/Article/details/76109812.shtml)
-- 2026-06-29 15:31 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/69992.shtml)
-- 2026-06-29 15:40 - [起风了](https://www.blog.kurohicncr.top/Article/details/525333150.shtml)
-- 2026-06-29 15:28 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/7340403.shtml)
-- 2026-06-29 15:41 - [TFING全员黑西装](https://www.share.minike.top/Article/details/8950609317.shtml)
-- 2026-06-29 15:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/4678008304.shtml)
-- 2026-06-29 15:24 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/6453081.shtml)
-- 2026-06-29 15:45 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/56917371.shtml)
-- 2026-06-29 15:41 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/6125743045.shtml)
-- 2026-06-29 15:24 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/652643581.shtml)
-- 2026-06-29 15:35 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/928085.shtml)
-- 2026-06-29 15:39 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/239574984.shtml)
-- 2026-06-29 15:50 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/177913879.shtml)
-- 2026-06-29 15:36 - [当我回母校教书](http://www.blog.minike.top/Article/details/638130604.shtml)
-- 2026-06-29 15:31 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/4718443.shtml)
+- 2026-06-29 15:42 - [42岁郭碧婷纯素颜状态](https://www.blog.kurohicncr.top/Article/details/48093314.shtml)
+- 2026-06-29 15:45 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/3285044398.shtml)
+- 2026-06-29 15:52 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/15414.shtml)
+- 2026-06-29 15:58 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/799083.shtml)
+- 2026-06-29 15:38 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/11978.shtml)
+- 2026-06-29 15:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/84332088230.shtml)
+- 2026-06-29 15:47 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/7567086832.shtml)
+- 2026-06-29 15:50 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/8840270155.shtml)
+- 2026-06-29 15:47 - [崔韩率还以为韩娱来新人了](https://www.share.minike.top/Article/details/9346472508.shtml)
+- 2026-06-29 15:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/173659183.shtml)
+- 2026-06-29 15:43 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/318852960409.shtml)
+- 2026-06-29 15:31 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/1794822.shtml)
+- 2026-06-29 15:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/459830756401.shtml)
+- 2026-06-29 15:40 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/17959578.shtml)
+- 2026-06-29 15:39 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/10904620299.shtml)
