@@ -1,60 +1,49 @@
-# 视障者听敦煌：以心观画，指尖感壁画之美
+# 外交部回应日本“降级”日中关系：日方应以实际行动维护中日关系政治基础
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-中新网兰州6月11日电 (闫姣 石娇艳)指尖轻触复刻塑像，耳畔聆听细致讲解，肢体模仿壁画舞姿……11日，“寻迹敦煌，点亮心光”残障读者沉浸式文化体验活动在兰州市举办。多名视障读者走出家门，用听觉、触觉与想象力，近距离邂逅敦煌壁画、彩塑艺术，让千年敦煌文化跨越视觉界限。 “三十年前我就曾到访敦煌，将莫高窟里壁画的故事一直记在心里。”视障者王彤与敦煌的缘分跨越三十余载。当年因家人工
+新华社北京4月10日电(记者曹嘉玥、孙楠)据报道，日本政府在新发布的《外交蓝皮书》中将日中关系由此前的“最重要的双边关系之一”降级为“重要邻国”。外交部发言人毛宁10日在例行记者会上就此答问时表示，中日关系当前局面的根源在于日本首相高市早苗发表涉台谬论，背信弃义，损害中日关系的政治基础，挑战战后国际秩序。“日方应当恪守中日四个政治文件和自身所作承诺，反思纠错，以实际行动维护中日
 
 ## 正文
 
-中新网兰州6月11日电 (闫姣 石娇艳)指尖轻触复刻塑像，耳畔聆听细致讲解，肢体模仿壁画舞姿……11日，“寻迹敦煌，点亮心光”残障读者沉浸式文化体验活动在兰州市举办。
+新华社北京4月10日电(记者曹嘉玥、孙楠)据报道，日本政府在新发布的《外交蓝皮书》中将日中关系由此前的“最重要的双边关系之一”降级为“重要邻国”。
 
-多名视障读者走出家门，用听觉、触觉与想象力，近距离邂逅敦煌壁画、彩塑艺术，让千年敦煌文化跨越视觉界限。
+外交部发言人毛宁10日在例行记者会上就此答问时表示，中日关系当前局面的根源在于日本首相高市早苗发表涉台谬论，背信弃义，损害中日关系的政治基础，挑战战后国际秩序。
 
-“三十年前我就曾到访敦煌，将莫高窟里壁画的故事一直记在心里。
+“日方应当恪守中日四个政治文件和自身所作承诺，反思纠错，以实际行动维护中日关系政治基础。
 
-”视障者王彤与敦煌的缘分跨越三十余载。
-
-当年因家人工作机缘，她得以走进莫高窟，脚下立体的莲花地砖给她留下深刻印象。
-
-时隔多年，在位于兰州的敦煌艺术馆，借助讲解员细致描述、同伴动作示范，她终于清晰感知到“反弹琵琶”的曼妙姿态。
-
-活动组织残障读者通过户外行走、深度导览与阅读分享，沉浸式感受敦煌文化魅力，是第六届“陇韵书香季”推动残障群体阅读服务均等化的又一次实践。
-
-活动中，志愿者全程一对一引导陪护，保障活动安全有序开展。
+”(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:08 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 02:13 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 02:25 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 02:26 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 02:15 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 02:16 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 02:15 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 02:24 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 02:09 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 02:05 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 02:23 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 02:13 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 02:03 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 02:12 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 02:13 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 02:32 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 02:23 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-30 02:30 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 02:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 02:32 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 02:34 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 02:15 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 02:23 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 02:30 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 02:07 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/863547010724.shtml)
-- 2026-06-30 02:22 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/700209.shtml)
-- 2026-06-30 02:03 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/93278.shtml)
-- 2026-06-30 02:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/746227458.shtml)
-- 2026-06-30 02:25 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/520708.shtml)
-- 2026-06-30 02:11 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/6004213.shtml)
-- 2026-06-30 02:26 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/44504.shtml)
-- 2026-06-30 02:25 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/3900620.shtml)
-- 2026-06-30 02:28 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/57978839416.shtml)
-- 2026-06-30 02:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/18620480062.shtml)
-- 2026-06-30 02:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/056056.shtml)
-- 2026-06-30 02:03 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/70254808414.shtml)
-- 2026-06-30 02:28 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/063931745724.shtml)
-- 2026-06-30 02:28 - [千香](https://www.share.kurohicncr.top/Article/details/69795871.shtml)
-- 2026-06-30 02:00 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/93996.shtml)
+- 2026-06-30 02:21 - [流金岁月](https://www.blog.minike.top/Article/details/20204444.shtml)
+- 2026-06-30 02:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/3866750470.shtml)
+- 2026-06-30 02:08 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/880952767746.shtml)
+- 2026-06-30 02:07 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/88341.shtml)
+- 2026-06-30 02:35 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/49469174.shtml)
+- 2026-06-30 02:27 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/43723383.shtml)
+- 2026-06-30 02:32 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/91618815770.shtml)
+- 2026-06-30 02:06 - [内马尔替补](https://www.blog.minike.top/Article/details/240366388149.shtml)
+- 2026-06-30 02:06 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/83456327673.shtml)
+- 2026-06-30 02:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/66374966257.shtml)
+- 2026-06-30 02:08 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/395960106656.shtml)
+- 2026-06-30 02:33 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/348432083.shtml)
+- 2026-06-30 02:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/653146787640.shtml)
+- 2026-06-30 02:35 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/78063.shtml)
+- 2026-06-30 02:17 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/3839592.shtml)

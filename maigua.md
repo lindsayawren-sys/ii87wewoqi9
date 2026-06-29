@@ -1,51 +1,57 @@
-# 6月12日“农产品批发价格200指数”比昨天下降0.06个点
+# 中企承建哈萨克斯坦大型风电项目举行建设启动仪式
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-中新网6月12日电 据农业农村部网站消息，据农业农村部监测，6月12日“农产品批发价格200指数”为113.53，比昨天下降0.06个点，“菜篮子”产品批发价格指数为113.64，比昨天下降0.02个点。 截至今日14:00时，全国农产品批发市场猪肉平均价格为14.56元/公斤，比昨天上升0.4%；牛肉66.73元/公斤，比昨天上升0.2%；羊肉63.79元/公斤，比昨天下降0
+中新网阿斯塔纳4月10日电 由中企承建的哈萨克斯坦“米尔内”1吉瓦风电项目建设启动仪式9日在阿斯塔纳举行。 据上海电气集团股份有限公司(以下简称“上海电气”)介绍，“米尔内”风电项目是哈萨克斯坦首个吉瓦级风电购电协议项目。项目由法国道达尔能源公司、哈萨克斯坦萨姆鲁克能源公司和哈萨克斯坦国家石油天然气公司组成合资公司联合开发，上海电气作为总承包联合体牵头方提供核心设备和整体解决方
 
 ## 正文
 
-中新网6月12日电 据农业农村部网站消息，据农业农村部监测，6月12日“农产品批发价格200指数”为113.53，比昨天下降0.06个点，“菜篮子”产品批发价格指数为113.64，比昨天下降0.02个点。
+中新网阿斯塔纳4月10日电 由中企承建的哈萨克斯坦“米尔内”1吉瓦风电项目建设启动仪式9日在阿斯塔纳举行。
 
-截至今日14:00时，全国农产品批发市场猪肉平均价格为14.56元/公斤，比昨天上升0.4%；牛肉66.73元/公斤，比昨天上升0.2%；羊肉63.79元/公斤，比昨天下降0.7%；鸡蛋10.78元/公斤，与昨天持平；白条鸡17.25元/公斤，比昨天下降0.1%。
+据上海电气集团股份有限公司(以下简称“上海电气”)介绍，“米尔内”风电项目是哈萨克斯坦首个吉瓦级风电购电协议项目。
 
-重点监测的28种蔬菜平均价格为4.30元/公斤，比昨天下降0.7%；重点监测的6种水果平均价格为7.53元/公斤，与昨天持平。
+项目由法国道达尔能源公司、哈萨克斯坦萨姆鲁克能源公司和哈萨克斯坦国家石油天然气公司组成合资公司联合开发，上海电气作为总承包联合体牵头方提供核心设备和整体解决方案。
 
-鲫鱼20.12元/公斤，比昨天下降2.2%；鲤鱼14.72元/公斤，比昨天下降0.9%；白鲢鱼10.30元/公斤，比昨天下降1.1%；大带鱼40.58元/公斤，比昨天下降1.0%。
+据介绍，项目建设总工期为31个月，预计将于2028年第四季度投入运营，年发电量有望达到40亿千瓦时，每年减少320万吨二氧化碳排放。
 
-今日，国内鲜活农产品批发市场重点监测的46个品种中，与昨天相比价格升幅前五名的是富士苹果、西瓜、菜花、茄子和猪肉，幅度分别为2.7%、0.8%、0.8%、0.5%和0.4%；价格降幅前五名的是香蕉、白萝卜、鲫鱼、香菇和生姜，幅度分别为2.3%、2.2%、2.2%、2.1%和2.1%。
+上海电气集团总裁朱兆开表示，项目建成后可显著提升当地电网供电能力，保障区域工业生产与民生用电。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:22 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 02:05 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 02:26 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 02:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 02:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 02:11 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 02:06 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-30 02:05 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 02:08 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 02:04 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 02:23 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 02:35 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 02:28 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 02:10 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 02:25 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 02:35 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 02:19 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 02:14 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 02:31 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 02:32 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 02:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-30 02:28 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 02:30 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 02:23 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 02:13 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 02:16 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:10 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/694325299.shtml)
-- 2026-06-30 02:14 - [美人鱼](http://www.share.kurohicncr.top/Article/details/1464275.shtml)
-- 2026-06-30 02:04 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/90963005.shtml)
-- 2026-06-30 02:20 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/128518969.shtml)
-- 2026-06-30 02:25 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/43875123.shtml)
-- 2026-06-30 02:20 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/24224.shtml)
-- 2026-06-30 02:23 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/903102.shtml)
-- 2026-06-30 02:27 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/00637832026.shtml)
-- 2026-06-30 02:12 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/89334632062.shtml)
-- 2026-06-30 02:11 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/0048161702.shtml)
-- 2026-06-30 02:03 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/9065695796.shtml)
-- 2026-06-30 02:20 - [勇敢的心第二部](https://www.share.minike.top/Article/details/9404459289.shtml)
-- 2026-06-30 02:02 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/1536852.shtml)
-- 2026-06-30 02:28 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/03605921524.shtml)
-- 2026-06-30 02:08 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/27482.shtml)
+- 2026-06-30 02:12 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/0476745.shtml)
+- 2026-06-30 02:22 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/40563.shtml)
+- 2026-06-30 02:09 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/0694401.shtml)
+- 2026-06-30 02:22 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/27161310.shtml)
+- 2026-06-30 02:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/78464723700.shtml)
+- 2026-06-30 02:23 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/508301342.shtml)
+- 2026-06-30 02:10 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/59607.shtml)
+- 2026-06-30 02:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/316212221.shtml)
+- 2026-06-30 02:21 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/988648868196.shtml)
+- 2026-06-30 02:07 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/68231.shtml)
+- 2026-06-30 02:24 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/020084.shtml)
+- 2026-06-30 02:34 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/39263.shtml)
+- 2026-06-30 02:22 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/133378248247.shtml)
+- 2026-06-30 02:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/136395.shtml)
+- 2026-06-30 02:29 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/32898188.shtml)

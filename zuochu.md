@@ -1,59 +1,57 @@
-# 佳鑫国际资源早盘涨近9% 机构称重视钨板块战略重估
+# 知名投资人Michael Burry买入京东和阿里巴巴股票
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-佳鑫国际资源（03858）早盘涨近9%，截至发稿，股价上涨2.70%，现报89.30港元，成交额1.07亿港元。 钨企长单释放市场维稳信号。6月10日，广东翔鹭钨业公布6月上半月钨原料长单采购价，55%黑钨精矿、55%白钨精矿较5月下半月均上涨超过25%，仲钨酸铵价格上涨18.18%。 长江证券指出，钨价触底反弹，重视钨板块战略重估。钨价自3月高位回调，时间空间均较为充分，本周
+京东ADR周五上涨2.2%，此前知名投资人Michael Burry表示买入了这家中国电商的股票。Burry在Substack发帖表示，他还买入了阿里巴巴。 “京东是重要的加仓，阿里巴巴是新建仓，略高于6%，”这篇供付费订阅用户查阅的帖子写道，京东“略高于这一比例”。 京东近期的走弱提供了“极具吸引力的入场点”。 阿里巴巴ADR收窄跌幅。 此外，Burry还写道，他买入了Gam
 
 ## 正文
 
-佳鑫国际资源（03858）早盘涨近9%，截至发稿，股价上涨2.70%，现报89.30港元，成交额1.07亿港元。
+京东ADR周五上涨2.2%，此前知名投资人Michael Burry表示买入了这家中国电商的股票。
 
-钨企长单释放市场维稳信号。
+Burry在Substack发帖表示，他还买入了阿里巴巴。
 
-6月10日，广东翔鹭钨业公布6月上半月钨原料长单采购价，55%黑钨精矿、55%白钨精矿较5月下半月均上涨超过25%，仲钨酸铵价格上涨18.18%。
+“京东是重要的加仓，阿里巴巴是新建仓，略高于6%，”这篇供付费订阅用户查阅的帖子写道，京东“略高于这一比例”。
 
-长江证券指出，钨价触底反弹，重视钨板块战略重估。
+京东近期的走弱提供了“极具吸引力的入场点”。
 
-钨价自3月高位回调，时间空间均较为充分，本周已呈现触底反弹。
+阿里巴巴ADR收窄跌幅。
 
-钨供给刚性未改，新兴需求加持长期增长乐观，看好战略属性加持下价格中枢上行。
+此外，Burry还写道，他买入了GameStop，“在已有相当规模持仓的基础上继续加仓”，并且他还买入了Fiserv的股票。
 
-同时刀具前期钨价高位顺价已完成，钨价企稳或利于一体化公司利润释放。
+此外，Burry写道，他增持了英伟达的看跌期权。
 
-责任编辑：卢昱君
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 02:07 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 02:14 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 02:21 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 02:08 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-30 02:09 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 02:15 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 02:26 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 02:06 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 02:14 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 02:25 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 02:27 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 02:25 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 02:21 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 02:14 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 02:08 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 02:19 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 02:24 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 02:18 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 02:17 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 02:20 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 02:31 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 02:31 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 02:29 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 02:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:24 - [美人鱼](http://www.share.minike.top/Article/details/35275.shtml)
-- 2026-06-30 02:23 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/70730493747.shtml)
-- 2026-06-30 02:22 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/65171380.shtml)
-- 2026-06-30 02:20 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/11344241256.shtml)
-- 2026-06-30 02:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/810247.shtml)
-- 2026-06-30 02:12 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/493019632.shtml)
-- 2026-06-30 02:06 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/27610.shtml)
-- 2026-06-30 02:16 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/52799850.shtml)
-- 2026-06-30 02:24 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/60917945468.shtml)
-- 2026-06-30 02:25 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/529981316.shtml)
-- 2026-06-30 02:06 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/453391004756.shtml)
-- 2026-06-30 02:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/6604304152.shtml)
-- 2026-06-30 02:04 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/7313576662.shtml)
-- 2026-06-30 02:27 - [月亮](https://www.share.minike.top/Article/details/3254842.shtml)
-- 2026-06-30 02:16 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/91726019.shtml)
+- 2026-06-30 02:09 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/8299522694.shtml)
+- 2026-06-30 02:13 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/1411742058.shtml)
+- 2026-06-30 02:23 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/98067697.shtml)
+- 2026-06-30 02:07 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/616174.shtml)
+- 2026-06-30 02:10 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/56354.shtml)
+- 2026-06-30 02:21 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/141806565798.shtml)
+- 2026-06-30 02:15 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/71595.shtml)
+- 2026-06-30 02:30 - [TOP Prada](https://www.share.minike.top/Article/details/382563868.shtml)
+- 2026-06-30 02:12 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/983500481333.shtml)
+- 2026-06-30 02:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/56473108.shtml)
+- 2026-06-30 02:35 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/25865168880.shtml)
+- 2026-06-30 02:18 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/6566984.shtml)
+- 2026-06-30 02:08 - [孙兴慜道歉](https://www.share.minike.top/Article/details/9456892078.shtml)
+- 2026-06-30 02:19 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/2098059518.shtml)
+- 2026-06-30 02:26 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/73993416560.shtml)

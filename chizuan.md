@@ -1,60 +1,60 @@
-# 今年前5个月京津冀地区进出口同比增长14.4%
+# 八十余年薪火相传 两代笛箫大师续磐安情缘
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-中新社北京6月11日电 (记者 徐婧)北京海关11日发布的数据显示，今年前5个月，京津冀地区进出口值2.09万亿元(人民币，下同)，同比(下同)增长14.4%。其中，出口6308.4亿元、增长11.5%，进口1.46万亿元、增长15.8%。今年以来，京津冀地区进出口值连续5个月保持同比增长。其中，5月份出口1358.9亿元、增长11.7%，进口3484.6亿元、增长28.1%，
+中新网金华4月10日电(林波 施勇青)浙中山区磐安的山风里，流淌着一段跨越八十余年的笛箫传奇。“江南笛王”赵松庭与弟子、杭州笛箫名家朱建刚，以乐为纽带，在这座山城续写艺术传承佳话，让传统笛箫艺术在岁月中生生不息，也为这座山城烙下深深的文化印记。 1944年，20岁的赵松庭从锦堂师范学校毕业，正值烽火连天的抗战时期。他与宁波中学教育界人士一道，在磐安大皿、深泽一带组建“流动宣传队
 
 ## 正文
 
-中新社北京6月11日电 (记者 徐婧)北京海关11日发布的数据显示，今年前5个月，京津冀地区进出口值2.09万亿元(人民币，下同)，同比(下同)增长14.4%。
+中新网金华4月10日电(林波 施勇青)浙中山区磐安的山风里，流淌着一段跨越八十余年的笛箫传奇。
 
-其中，出口6308.4亿元、增长11.5%，进口1.46万亿元、增长15.8%。
+“江南笛王”赵松庭与弟子、杭州笛箫名家朱建刚，以乐为纽带，在这座山城续写艺术传承佳话，让传统笛箫艺术在岁月中生生不息，也为这座山城烙下深深的文化印记。
 
-今年以来，京津冀地区进出口值连续5个月保持同比增长。
+1944年，20岁的赵松庭从锦堂师范学校毕业，正值烽火连天的抗战时期。
 
-其中，5月份出口1358.9亿元、增长11.7%，进口3484.6亿元、增长28.1%，当月出口、进口均创历史同期新高。
+他与宁波中学教育界人士一道，在磐安大皿、深泽一带组建“流动宣传队”，带领当地中小学生教唱《义勇军进行曲》《大刀进行曲》等抗战歌曲，同时教孩子们辨认横笛、竖箫。
 
-前5个月，北京、天津、河北三地进出口值分别增长14.0%、2.1%、33.6%。
+对当时的山里孩子而言，这是他们首次接触乐器，赵松庭清亮坚定的笛声回荡山谷，为动荡岁月注入信念力量。
 
-其中，北京进出口值1.44万亿元，占京津冀进出口值的69.0%。
+据乡贤傅德荣回忆，彼时磐安战时初级中学迁至深泽，一批躲避战乱的知识分子在此汇聚，赵松庭是其中最年轻的老师之一。
 
-京津冀同新兴市场贸易往来更加紧密。
+他不仅传授音乐技艺，更将“音乐即教育”的理念融入课堂，还与文范中学校长陈文玉合作创作校歌，这首歌后来成为磐安安文镇校传承至今的“精神主题曲”，让笛箫声在磐安扎下根，成为承载山城记忆的精神符号。
 
-前5个月，京津冀地区对共建“一带一路”国家进出口值1.13万亿元、增长6.1%；对欧盟、东盟、瑞士、巴西、澳大利亚分别进出口2271.7亿元、1701.7亿元、1512.7亿元、1422.0亿元、1317.1亿元，分别增长1.5%、12.1%、187.3%、58.2%、55.9%；对中国香港地区进出口值959.3亿元、增长63.2%。
+作为“江南笛王”，赵松庭的艺术生涯堪称传奇。
 
 ## 相关推荐
 
-- 2026-06-30 02:07 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 02:20 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 02:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 02:23 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 02:26 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 02:10 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 02:28 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-30 02:20 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 02:12 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 02:09 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-30 02:14 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 02:28 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 02:09 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 02:21 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 02:26 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 02:31 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 02:23 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 02:10 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 02:35 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 02:08 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 02:32 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 02:16 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 02:35 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 02:16 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 02:22 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 02:10 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 02:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 02:17 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:08 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/12233046.shtml)
-- 2026-06-30 02:06 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/142917112.shtml)
-- 2026-06-30 02:11 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/427752248.shtml)
-- 2026-06-30 02:16 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/45031358.shtml)
-- 2026-06-30 02:08 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/13385893684.shtml)
-- 2026-06-30 02:19 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/9257680772.shtml)
-- 2026-06-30 02:24 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/462644622.shtml)
-- 2026-06-30 02:29 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/35762308575.shtml)
-- 2026-06-30 02:15 - [日本进球](http://www.blog.minike.top/Article/details/0695607.shtml)
-- 2026-06-30 02:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/532389653.shtml)
-- 2026-06-30 02:11 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/756910968.shtml)
-- 2026-06-30 02:28 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/3657771.shtml)
-- 2026-06-30 02:18 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/85460668.shtml)
-- 2026-06-30 02:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/64827683177.shtml)
-- 2026-06-30 02:17 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/8614850.shtml)
+- 2026-06-30 02:10 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/4433608.shtml)
+- 2026-06-30 02:12 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/9123973.shtml)
+- 2026-06-30 02:33 - [张凌赫 客串](https://www.blog.minike.top/Article/details/06733041349.shtml)
+- 2026-06-30 02:16 - [85花告别古偶](http://www.blog.minike.top/Article/details/21431845098.shtml)
+- 2026-06-30 02:31 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/9692241.shtml)
+- 2026-06-30 02:11 - [金刚川](https://www.share.minike.top/Article/details/733630948126.shtml)
+- 2026-06-30 02:30 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/42460036382.shtml)
+- 2026-06-30 02:21 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/390895699425.shtml)
+- 2026-06-30 02:35 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/65136.shtml)
+- 2026-06-30 02:08 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/6297356.shtml)
+- 2026-06-30 02:14 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/0899312.shtml)
+- 2026-06-30 02:06 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/9619875.shtml)
+- 2026-06-30 02:16 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/9248668425.shtml)
+- 2026-06-30 02:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/6774221672.shtml)
+- 2026-06-30 02:24 - [第一炉香](http://www.blog.minike.top/Article/details/95026990.shtml)

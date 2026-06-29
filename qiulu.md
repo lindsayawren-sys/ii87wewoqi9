@@ -1,61 +1,50 @@
-# “点心”变“主菜”，利率优势推动点心债发行规模大增
+# 美媒：8日仅有4艘船只获准通过霍尔木兹海峡
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 叶麦穗 离岸人民币债券市场正迎来新一轮结构性发展机遇，昔日作为“配菜”的点心债，如今已逐步成长为市场“主菜”。当前，市场呈现发行规模持续扩容、发行人与投资者结构日趋多元、长期限品种不断增加的良好态势。 数据显示，去年香港点心债发行规模达1.1万亿元，去年年末余额突破1.6万亿元，较两年前增长74%。这一增长势头在今年延续，据Wind统计，今年以来市场已发行
+中新网4月9日电 据美国《华尔街日报》8日援引标普全球市场财智公司的数据报道称，美国和伊朗宣布停火后，8日仅有4艘船只获准通过霍尔木兹海峡，是4月份以来最少的一天。而在美伊战事开始以前，每天有超过100艘船通过霍尔木兹海峡。 报道称，在这条重要水道外等待通行的船只已严重拥堵，包括超过425艘油轮，以及近20艘液化天然气运输船。停火协议并不意味着这条航道能在短期内恢复正常。
 
 ## 正文
 
-21世纪经济报道记者 叶麦穗 离岸人民币债券市场正迎来新一轮结构性发展机遇，昔日作为“配菜”的点心债，如今已逐步成长为市场“主菜”。
+中新网4月9日电 据美国《华尔街日报》8日援引标普全球市场财智公司的数据报道称，美国和伊朗宣布停火后，8日仅有4艘船只获准通过霍尔木兹海峡，是4月份以来最少的一天。
 
-当前，市场呈现发行规模持续扩容、发行人与投资者结构日趋多元、长期限品种不断增加的良好态势。
+而在美伊战事开始以前，每天有超过100艘船通过霍尔木兹海峡。
 
-数据显示，去年香港点心债发行规模达1.1万亿元，去年年末余额突破1.6万亿元，较两年前增长74%。
+报道称，在这条重要水道外等待通行的船只已严重拥堵，包括超过425艘油轮，以及近20艘液化天然气运输船。
 
-这一增长势头在今年延续，据Wind统计，今年以来市场已发行点心债943只，合计发行规模7679.22亿元。
-
-按当前趋势，今年发行规模有望超越去年，再创新高。
-
-业内人士表示，点心债市场正从早期小众市场，加速迈向具备核心配置价值的成熟债券市场。
-
-随着人民币国际化稳步推进、债券通“南向通”机制持续优化，叠加全球融资需求多元化发展，点心债市场正迎来提升国际影响力的重要窗口期。
-
-发行规模有望再创新高 近年来，点心债发行规模稳步扩大。
+停火协议并不意味着这条航道能在短期内恢复正常。
 
 ## 相关推荐
 
-- 2026-06-30 02:18 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 02:19 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 02:25 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 02:17 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 02:08 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 02:07 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 02:00 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 02:29 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 02:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-30 02:27 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 02:24 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 02:11 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 02:10 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 02:19 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-30 02:24 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 02:13 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 02:33 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 02:06 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 02:31 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 02:27 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 02:16 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 02:17 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 02:24 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 02:20 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 02:07 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 02:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 02:27 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:20 - [啊啊啊](https://www.share.minike.top/Article/details/21676309304.shtml)
-- 2026-06-30 02:14 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/843287.shtml)
-- 2026-06-30 02:26 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/9073343.shtml)
-- 2026-06-30 02:26 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/80383.shtml)
-- 2026-06-30 02:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/684928866.shtml)
-- 2026-06-30 02:09 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/122717238.shtml)
-- 2026-06-30 02:01 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/8537914010.shtml)
-- 2026-06-30 02:21 - [勇敢的心第二部](http://www.share.minike.top/Article/details/74350297390.shtml)
-- 2026-06-30 02:09 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/317517997.shtml)
-- 2026-06-30 02:14 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/5930115.shtml)
-- 2026-06-30 02:04 - [流金岁月](https://www.share.minike.top/Article/details/41803.shtml)
-- 2026-06-30 02:07 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/26978.shtml)
-- 2026-06-30 02:13 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/469264086233.shtml)
-- 2026-06-30 02:11 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/1762385.shtml)
-- 2026-06-30 02:19 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/45273629455.shtml)
+- 2026-06-30 02:15 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/4049310.shtml)
+- 2026-06-30 02:11 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/382422.shtml)
+- 2026-06-30 02:29 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/58893860644.shtml)
+- 2026-06-30 02:28 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/00937.shtml)
+- 2026-06-30 02:10 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/55234756937.shtml)
+- 2026-06-30 02:13 - [日本16强魔咒](http://www.share.minike.top/Article/details/17711911.shtml)
+- 2026-06-30 02:12 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/621328528.shtml)
+- 2026-06-30 02:15 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/4415580.shtml)
+- 2026-06-30 02:23 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/604972.shtml)
+- 2026-06-30 02:34 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/27933777.shtml)
+- 2026-06-30 02:08 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/382569300.shtml)
+- 2026-06-30 02:35 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/175836746.shtml)
+- 2026-06-30 02:28 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/8062111690.shtml)
+- 2026-06-30 02:17 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/5111099.shtml)
+- 2026-06-30 02:28 - [金牌调解](http://www.share.minike.top/Article/details/783316.shtml)

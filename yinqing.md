@@ -1,55 +1,58 @@
-# 美军再次对伊朗实施“自卫性”打击
+# 猫咪频繁剩饭原因何在？专家解答
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-中新社华盛顿6月10日电 (记者 陈孟统)美军中央司令部10日称，在美国总统特朗普的指示下，美东时间当天下午5时15分，美军对伊朗境内多个目标实施新一轮“自卫性”打击，以回应伊方“无端且持续的攻击行为”。8日晚，美军一架“阿帕奇”武装直升机在霍尔木兹海峡上空巡逻时被伊朗击落。这是美军为回应该事件连续第二天对伊朗实施打击。 特朗普当天在白宫签署法案时表示，伊朗击落了美军“阿帕奇”
+养过猫的人大概都遇到过这样的困惑：明明碗里还有粮，猫咪却扭头走开。过去，人们常把这种现象归咎于猫咪“胃口小”或“脾气怪”。 家猫习惯少食多餐，这确实继承了其祖先非洲野猫单次只猎捕小体型猎物的生存本能。但究竟是什么原因让猫咪频繁剩饭？科学界一直未有定论。 近日，日本岩手大学科学家揭开了这一谜题。他们研究发现，猫咪停下进食，并非单纯因为胃填满了，而是“鼻子说了算”，气味在调控猫的进
 
 ## 正文
 
-中新社华盛顿6月10日电 (记者 陈孟统)美军中央司令部10日称，在美国总统特朗普的指示下，美东时间当天下午5时15分，美军对伊朗境内多个目标实施新一轮“自卫性”打击，以回应伊方“无端且持续的攻击行为”。
+养过猫的人大概都遇到过这样的困惑：明明碗里还有粮，猫咪却扭头走开。
 
-8日晚，美军一架“阿帕奇”武装直升机在霍尔木兹海峡上空巡逻时被伊朗击落。
+过去，人们常把这种现象归咎于猫咪“胃口小”或“脾气怪”。
 
-这是美军为回应该事件连续第二天对伊朗实施打击。
+家猫习惯少食多餐，这确实继承了其祖先非洲野猫单次只猎捕小体型猎物的生存本能。
 
-特朗普当天在白宫签署法案时表示，伊朗击落了美军“阿帕奇”武装直升机，美军9日对伊朗发动打击，“今天还会再狠狠打击他们一次”。
+但究竟是什么原因让猫咪频繁剩饭？
 
-特朗普还说，美伊已经“非常接近达成协议”，但伊方却一直在试探、拖延。
+科学界一直未有定论。
 
-他将再给伊方几天时间考虑，“因为那是一份意义重大的文件”。
+近日，日本岩手大学科学家揭开了这一谜题。
 
-(完)
+他们研究发现，猫咪停下进食，并非单纯因为胃填满了，而是“鼻子说了算”，气味在调控猫的进食欲望中扮演着关键角色。
+
+相关成果发表于最新一期《生理学与行为学》杂志。
 
 ## 相关推荐
 
-- 2026-06-30 02:22 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 02:11 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 02:23 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 02:29 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 02:27 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 02:13 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 02:10 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 02:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 02:20 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 02:20 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 02:10 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 02:08 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 02:20 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 02:22 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 02:19 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 02:23 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 02:26 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 02:28 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 02:11 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 02:33 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 02:11 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 02:12 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 02:33 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:02 - [我和我的家乡](http://www.blog.minike.top/Article/details/6566414.shtml)
-- 2026-06-30 02:12 - [青春环游记第三季](http://www.share.minike.top/Article/details/97758726.shtml)
-- 2026-06-30 02:02 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/486503905.shtml)
-- 2026-06-30 02:00 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/51234.shtml)
-- 2026-06-30 02:07 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/7821149.shtml)
-- 2026-06-30 02:16 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/690167320.shtml)
-- 2026-06-30 02:05 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/943620.shtml)
-- 2026-06-30 02:15 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/6619904.shtml)
-- 2026-06-30 02:14 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/203918256.shtml)
-- 2026-06-30 02:11 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/964887772094.shtml)
-- 2026-06-30 02:10 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/151605403415.shtml)
-- 2026-06-30 02:15 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/21726119614.shtml)
-- 2026-06-30 02:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/4379567645.shtml)
-- 2026-06-30 02:23 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/86499649.shtml)
-- 2026-06-30 02:17 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/92414684.shtml)
+- 2026-06-30 02:32 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/70409.shtml)
+- 2026-06-30 02:15 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/4183481.shtml)
+- 2026-06-30 02:34 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/0712380.shtml)
+- 2026-06-30 02:30 - [巴西vs日本](https://www.share.minike.top/Article/details/58062340593.shtml)
+- 2026-06-30 02:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/9536055.shtml)
+- 2026-06-30 02:28 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/4329687536.shtml)
+- 2026-06-30 02:24 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/406388102.shtml)
+- 2026-06-30 02:11 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/842161636.shtml)
+- 2026-06-30 02:16 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/76814721.shtml)
+- 2026-06-30 02:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/5111541.shtml)
+- 2026-06-30 02:17 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/978885854680.shtml)
+- 2026-06-30 02:13 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/009967550.shtml)
+- 2026-06-30 02:13 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/785788330232.shtml)
+- 2026-06-30 02:12 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/5950511137.shtml)
+- 2026-06-30 02:15 - [TOP Prada](http://www.blog.minike.top/Article/details/18577326120.shtml)

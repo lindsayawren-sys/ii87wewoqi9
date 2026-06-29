@@ -1,53 +1,50 @@
-# 欧洲央行在通胀压力加剧之下自2023年以来首次加息
+# 重庆市武隆区委原副书记、区长左军被“双开”
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-欧洲央行在接近三年来首次提高利率，认为随着通胀压力加剧，不能再坐等伊朗战争结束。 该行将存款利率从2%上调至2.25%，符合预期。经济学家和投资者还预计9月份也会再加息25个基点。责任编辑：李安桐
+中新网4月9日电 据重庆市纪委监委消息：经重庆市委批准，重庆市纪委监委对武隆区委原副书记、区长左军严重违纪违法问题进行了立案审查调查。 经查，左军丧失理想信念，背弃初心使命，政治意识淡薄，落实党中央决策部署打折扣，对抗组织审查，搞迷信活动；罔顾中央八项规定精神，违规收受礼品、礼金，接受可能影响公正执行公务的宴请；无视组织原则，在干部选拔任用工作中为他人谋利并收受财物；廉洁底线失
 
 ## 正文
 
-欧洲央行在接近三年来首次提高利率，认为随着通胀压力加剧，不能再坐等伊朗战争结束。
+中新网4月9日电 据重庆市纪委监委消息：经重庆市委批准，重庆市纪委监委对武隆区委原副书记、区长左军严重违纪违法问题进行了立案审查调查。
 
-该行将存款利率从2%上调至2.25%，符合预期。
+经查，左军丧失理想信念，背弃初心使命，政治意识淡薄，落实党中央决策部署打折扣，对抗组织审查，搞迷信活动；罔顾中央八项规定精神，违规收受礼品、礼金，接受可能影响公正执行公务的宴请；无视组织原则，在干部选拔任用工作中为他人谋利并收受财物；廉洁底线失守，利用职权为亲属承揽项目谋利；违规干预和插手工程项目承发包；腐化堕落，公器私用，大搞权钱交易，利用职务上的便利以及职权或者地位形成的便利条件为他人在项目承揽、企业经营、职务调整等方面谋利，并非法收受巨额财物。
 
-经济学家和投资者还预计9月份也会再加息25个基点。
+左军严重违反党的政治纪律、组织纪律、廉洁纪律、工作纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-责任编辑：李安桐
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经重庆市纪委常委会会议研究并报重庆市委批准，决定给予左军开除党籍处分；由重庆市监委给予其开除公职处分；终止其重庆市第六次党代会代表、武隆区第十五次党代会代表资格；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-30 02:29 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 02:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 02:02 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 02:10 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 02:05 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 02:12 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 02:13 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 02:13 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 02:11 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 02:19 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 02:15 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 02:09 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 02:14 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 02:26 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-30 02:29 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 02:14 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 02:17 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 02:09 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 02:28 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 02:07 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 02:27 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 02:30 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 02:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 02:31 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 02:31 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 02:35 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 02:25 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:25 - [扬名立万](http://www.share.kurohicncr.top/Article/details/65810.shtml)
-- 2026-06-30 02:02 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/880875414.shtml)
-- 2026-06-30 02:25 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/56666.shtml)
-- 2026-06-30 02:24 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/185330691.shtml)
-- 2026-06-30 02:03 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/0251649590.shtml)
-- 2026-06-30 02:14 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/467431477313.shtml)
-- 2026-06-30 02:22 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/93717725.shtml)
-- 2026-06-30 02:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/2837612.shtml)
-- 2026-06-30 02:03 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/67226539.shtml)
-- 2026-06-30 02:29 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/765701320287.shtml)
-- 2026-06-30 02:23 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/3740551.shtml)
-- 2026-06-30 02:27 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/83495432777.shtml)
-- 2026-06-30 02:00 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/239596218.shtml)
-- 2026-06-30 02:06 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/4631600.shtml)
-- 2026-06-30 02:11 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/160219.shtml)
+- 2026-06-30 02:11 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/6866453193.shtml)
+- 2026-06-30 02:27 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/27007.shtml)
+- 2026-06-30 02:35 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/6082719.shtml)
+- 2026-06-30 02:07 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/7726109433.shtml)
+- 2026-06-30 02:13 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/8897283.shtml)
+- 2026-06-30 02:30 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/446771600182.shtml)
+- 2026-06-30 02:21 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/89200270.shtml)
+- 2026-06-30 02:07 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/269150813.shtml)
+- 2026-06-30 02:30 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/76230551.shtml)
+- 2026-06-30 02:11 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/884791225.shtml)
+- 2026-06-30 02:16 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/843591.shtml)
+- 2026-06-30 02:20 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/54398756991.shtml)
+- 2026-06-30 02:27 - [逃狱兄弟](http://www.share.minike.top/Article/details/11644999746.shtml)
+- 2026-06-30 02:24 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/3420931346.shtml)
+- 2026-06-30 02:31 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/14495367932.shtml)

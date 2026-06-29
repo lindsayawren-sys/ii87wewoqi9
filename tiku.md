@@ -1,56 +1,60 @@
-# 金融监管总局办公厅副主任鄢姣：“沪惠保”累计赔付超30亿元 “沪家保”累计承保突破113万单
+# 中国官方发文提及加强儿童青少年等重点人群心理健康工作
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-6月12日金融一线消息，上海市政府举行市政府新闻发布会，介绍2026陆家嘴论坛有关情况。国家金融监督管理总局办公厅副主任鄢姣指出，过去一年，金融“五篇大文章”工作取得了新进展，绿色金融方面，推动“绿色船舶保险共同体”升级为“绿色航运保险共同体”，截至今年一季度末，落地保障项目11个，风险保障金额超95亿元。指导创设国内首个取水权行政管理服务信托，截至今年5月末，“水信托”累计成
+中新社北京4月9日电 中国国家卫生健康委员会网站9日公布中国二十余个部门联合印发的《健全社会心理服务体系和危机干预机制实施方案》。实施方案提到，加强儿童青少年、职业人群、特定群体等重点人群的心理健康工作，提升服务水平。实施方案提出，到2030年，覆盖全人群、全生命周期的社会心理服务体系和危机干预机制基本健全。对此，实施方案部署了5个方面共18项主要任务。 其中，在强化重点人群心
 
 ## 正文
 
-6月12日金融一线消息，上海市政府举行市政府新闻发布会，介绍2026陆家嘴论坛有关情况。
+中新社北京4月9日电 中国国家卫生健康委员会网站9日公布中国二十余个部门联合印发的《健全社会心理服务体系和危机干预机制实施方案》。
 
-国家金融监督管理总局办公厅副主任鄢姣指出，过去一年，金融“五篇大文章”工作取得了新进展，绿色金融方面，推动“绿色船舶保险共同体”升级为“绿色航运保险共同体”，截至今年一季度末，落地保障项目11个，风险保障金额超95亿元。
+实施方案提到，加强儿童青少年、职业人群、特定群体等重点人群的心理健康工作，提升服务水平。
 
-指导创设国内首个取水权行政管理服务信托，截至今年5月末，“水信托”累计成交175笔。
+实施方案提出，到2030年，覆盖全人群、全生命周期的社会心理服务体系和危机干预机制基本健全。
 
-普惠金融方面，“沪系列”普惠金融产品树立品牌标杆。
+对此，实施方案部署了5个方面共18项主要任务。
 
-目前“沪惠保”累计赔付超30亿元，累计参保人次超3300万。
+其中，在强化重点人群心理服务方面，实施方案要求，全面加强儿童青少年心理服务。
 
-“沪家保”累计承保突破113万单。
+密切家校协同，树立正确教育观、掌握合理教育方法，正确看待考试成绩，培养学生积极乐观、健康向上的心理品质。
 
-“沪业保”提质扩面，在已覆盖个体工商户和教培、文娱等行业小微企业的基础上，去年新增为零售行业的小微企业提供差异化专属保险方案。
+加强医教协作，建立大中小学与医疗卫生机构的协作机制，构建“班主任或辅导员、专(兼)职心理健康教育教师、精神科医师”三级心理健康服务体系，开展接力式服务。
 
-“沪骑保”于去年4月正式上线，强化风险保障，护航电动自行车出行安全，助力打造韧性城市。
+实施方案要求，普遍开展职业人群心理服务。
 
 ## 相关推荐
 
-- 2026-06-30 02:25 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 02:08 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 02:16 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 02:24 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 02:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 02:24 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 02:20 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 02:06 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 02:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 02:09 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 02:33 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-30 02:34 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 02:07 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 02:32 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 02:10 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 02:10 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 02:17 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 02:16 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 02:26 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 02:20 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 02:29 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 02:32 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 02:30 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 02:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [第一炉香](http://www.share.minike.top/Article/details/15783.shtml)
-- 2026-06-30 02:29 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/36445636.shtml)
-- 2026-06-30 02:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/92809404.shtml)
-- 2026-06-30 02:20 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/15773172218.shtml)
-- 2026-06-30 02:15 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/505744572748.shtml)
-- 2026-06-30 02:15 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/760440.shtml)
-- 2026-06-30 02:11 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/924940282.shtml)
-- 2026-06-30 02:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/80995544151.shtml)
-- 2026-06-30 02:15 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/81387714585.shtml)
-- 2026-06-30 02:01 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/2637452.shtml)
-- 2026-06-30 02:02 - [请回答王牌2019](http://www.share.minike.top/Article/details/43457109704.shtml)
-- 2026-06-30 02:00 - [AI接过张雪峰志愿填报衣钵](https://www.blog.minike.top/Article/details/92401439573.shtml)
-- 2026-06-30 02:01 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/5657094.shtml)
-- 2026-06-30 02:29 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/16551019040.shtml)
-- 2026-06-30 02:25 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/255719803229.shtml)
+- 2026-06-30 02:22 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/570712978763.shtml)
+- 2026-06-30 02:20 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/178178930.shtml)
+- 2026-06-30 02:31 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/95055.shtml)
+- 2026-06-30 02:20 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/361100.shtml)
+- 2026-06-30 02:31 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/19576.shtml)
+- 2026-06-30 02:12 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/996096.shtml)
+- 2026-06-30 02:11 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/516279562.shtml)
+- 2026-06-30 02:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/66672245203.shtml)
+- 2026-06-30 02:18 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/0545257.shtml)
+- 2026-06-30 02:32 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/585534.shtml)
+- 2026-06-30 02:30 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/71368.shtml)
+- 2026-06-30 02:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/441232.shtml)
+- 2026-06-30 02:22 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/241282780.shtml)
+- 2026-06-30 02:16 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/756087.shtml)
+- 2026-06-30 02:27 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/236094.shtml)

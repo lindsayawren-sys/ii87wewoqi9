@@ -1,59 +1,60 @@
-# 沈台汽车产业携手拓新机
+# 金鸡报晓首映计划启动仪式暨《植物学家》全国首映礼在京举办
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-中新网沈阳6月10日电(姜月恒)沈阳与台湾汽车产业企业家座谈会10日在沈阳举行，活动以“资源互通合作共赢”为主题，沈阳市汽车工业协会、沈阳台商协会负责人，以及来自汽车精密零部件、车载电子、新能源配套等领域的沈台汽车产业企业家齐聚会场，与沈阳市台办、沈阳市工信局、金融机构等相关单位面对面深入座谈，共探产业合作新机遇，共推营商环境提质增效，共绘沈阳汽车产业高质量发展新蓝图。 座谈会
+中新网北京4月10日电 (记者 高凯)金鸡报晓首映计划启动仪式暨《植物学家》全国首映礼日前在北京金鸡百花影城举行。 据了解，金鸡报晓首映计划是2026年中国金鸡百花电影节的全新计划，由中国电影家协会、厦门市电影局主办，以“报晓”为核心意象，旨在破解新人首作及艺术电影发行难的行业痛点。该计划将扶持举措延伸至宣传发行端，致力于发掘电影新力量、激发创作新动能、探索发行新模式，为中国电
 
 ## 正文
 
-中新网沈阳6月10日电(姜月恒)沈阳与台湾汽车产业企业家座谈会10日在沈阳举行，活动以“资源互通合作共赢”为主题，沈阳市汽车工业协会、沈阳台商协会负责人，以及来自汽车精密零部件、车载电子、新能源配套等领域的沈台汽车产业企业家齐聚会场，与沈阳市台办、沈阳市工信局、金融机构等相关单位面对面深入座谈，共探产业合作新机遇，共推营商环境提质增效，共绘沈阳汽车产业高质量发展新蓝图。
+中新网北京4月10日电 (记者 高凯)金鸡报晓首映计划启动仪式暨《植物学家》全国首映礼日前在北京金鸡百花影城举行。
 
-座谈会上，各职能部门聚焦汽车产业发展实际，宣讲了产业扶持政策与落地配套举措。
+据了解，金鸡报晓首映计划是2026年中国金鸡百花电影节的全新计划，由中国电影家协会、厦门市电影局主办，以“报晓”为核心意象，旨在破解新人首作及艺术电影发行难的行业痛点。
 
-沈阳市台办介绍了台企在精密制造、车载电子领域的产业优势，并表示将持续做好政企对接、资源链接等保障服务。
+该计划将扶持举措延伸至宣传发行端，致力于发掘电影新力量、激发创作新动能、探索发行新模式，为中国电影新力量照亮前行之路。
 
-参会的台湾企业家结合自身在沈落地投产、日常运营实际，分享投资收获与切身感受，围绕产业配套升级、技术创新、供需对接等内容，同沈阳汽车企业家开展深度研讨。
+当日活动现场汇聚了学者戴锦华，导演李少红、宁海强、杨荔钠、秦海燕、滕丛丛，编剧阿美、袁媛、游晓颖、许伊萌，演员王宏伟、周一围、王一通、彭小苒、孙安可，《植物学家》导演景一、制片人单佐龙及全体主创，以及金鸡创投评审团评审、电影专家与影评人等。
 
-在沈台企联恒工业(沈阳)有限公司销售部经理刘明认为，沈阳拥有完备的汽车产业制造体系，新能源、智能网联汽车配套生态圈持续扩容，零部件本地化配套优势突出、物流储运成本优势明显，是台湾汽车产业转型升级、落地布局的优选地。
+启动仪式上，中国文联电影艺术中心主任宋智勤回顾了金鸡创投七年来的耕耘历程。
 
-参会台湾企业家表示，此次座谈会紧贴行业发展刚需，拉近政企沟通距离，打通信息互通壁垒，串联上下游优质资源，锚定产业合作契合点，切实体会到沈阳助企兴企的服务诚意与温度。
+他表示，金鸡报晓首映计划是中国影协深耕青年电影人才培育、助力艺术电影发展的全新实践，更是紧扣文联“抓创作”工作主线，完善电影创作传播全链条扶持的重要举措。
 
-沈阳完善的产业基础和持续向好的营商环境，进一步坚定了台资企业扎根沈阳、深耕发展的信心。
+该计划以首推影片《植物学家》为起点，积极探索艺术电影推广新路径，持续完善分线发行模式，让更多优质创作落地生根、开花结果。
 
-参会的本地车企代表也表示，期待深化与在沈台企的技术合作，依托双方资源禀赋实现优势互补、互利共赢。
+随后，中国影协分党组书记、驻会副主席邓光辉，中国电影家协会副主席、编剧兼导演张冀，李少红，中国文学艺术基金会副秘书长牛彤，国家电影专资办综合处处长董力与厦门市委宣传部电影处副处长徐晓曦共同上台，携手点亮“报晓”之光。
 
 ## 相关推荐
 
-- 2026-06-30 02:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 02:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 02:25 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-30 02:17 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 02:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 02:25 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-30 02:23 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 02:02 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 02:01 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 02:29 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 02:10 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 02:20 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 02:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 02:25 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 02:23 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 02:22 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 02:35 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 02:22 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 02:23 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 02:26 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 02:17 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 02:26 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 02:18 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 02:20 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 02:13 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 02:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 02:23 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:25 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/99950.shtml)
-- 2026-06-30 02:20 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/977758129.shtml)
-- 2026-06-30 02:25 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/588032.shtml)
-- 2026-06-30 02:17 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/72069441.shtml)
-- 2026-06-30 02:27 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/111484799.shtml)
-- 2026-06-30 02:08 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/70218405568.shtml)
-- 2026-06-30 02:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/906276.shtml)
-- 2026-06-30 02:29 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/81044329759.shtml)
-- 2026-06-30 02:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/8796918.shtml)
-- 2026-06-30 02:23 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/493220250092.shtml)
-- 2026-06-30 02:00 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/9845442.shtml)
-- 2026-06-30 02:02 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/55440360.shtml)
-- 2026-06-30 02:28 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/7977675990.shtml)
-- 2026-06-30 02:02 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/67839724224.shtml)
-- 2026-06-30 02:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/77083417217.shtml)
+- 2026-06-30 02:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/5143748.shtml)
+- 2026-06-30 02:09 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/516755180388.shtml)
+- 2026-06-30 02:13 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/78725187.shtml)
+- 2026-06-30 02:09 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/034588415.shtml)
+- 2026-06-30 02:34 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/6735449506.shtml)
+- 2026-06-30 02:29 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/484114170.shtml)
+- 2026-06-30 02:34 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/188976.shtml)
+- 2026-06-30 02:18 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/967741.shtml)
+- 2026-06-30 02:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/4310635747.shtml)
+- 2026-06-30 02:33 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/961018189.shtml)
+- 2026-06-30 02:10 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/278339312187.shtml)
+- 2026-06-30 02:08 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/06234.shtml)
+- 2026-06-30 02:16 - [世界杯](http://www.blog.minike.top/Article/details/281794129.shtml)
+- 2026-06-30 02:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/183691119.shtml)
+- 2026-06-30 02:14 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/1576466.shtml)

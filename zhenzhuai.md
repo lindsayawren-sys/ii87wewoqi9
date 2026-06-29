@@ -1,61 +1,56 @@
-# AI基础设施投入过大引发市场担忧 甲骨文股价盘后大跌10%
+# 星展：降申洲国际目标价至62.6港元 维持“买入”评级
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-甲骨文公司（Oracle）日前发布2026财年第四季度及全年财报。尽管该公司第四季度营业收入与净利润均超华尔街预期，且合同储备创下历史新高，但由于人工智能（AI）基础设施资本支出激增导致全年自由现金流转负，引发投资者对运营成本的担忧。受此影响，甲骨文股价在周三盘后交易中剧烈下挫10%。 财报显示，甲骨文第四季度营业收入同比增长21%，达到191.8亿美元，高于市场预期的191亿
+星展发布研报称，申洲国际（02313）去年净利润逊预期，因利润率承压。期内美国及欧洲销售增长，有助抵消国内需求疲弱。展望今年，该行认为订单增长较去年更保守，当中休闲服装增长较强，其次是运动服装。该行将2026年盈利预测下调12%，现预期2025至2027年盈利年均复合增长率为5%。维持“买入”评级，目标价由67.5港元下调至62.6港元。 该行预测2026及2027年收入增长分
 
 ## 正文
 
-甲骨文公司（Oracle）日前发布2026财年第四季度及全年财报。
+星展发布研报称，申洲国际（02313）去年净利润逊预期，因利润率承压。
 
-尽管该公司第四季度营业收入与净利润均超华尔街预期，且合同储备创下历史新高，但由于人工智能（AI）基础设施资本支出激增导致全年自由现金流转负，引发投资者对运营成本的担忧。
+期内美国及欧洲销售增长，有助抵消国内需求疲弱。
 
-受此影响，甲骨文股价在周三盘后交易中剧烈下挫10%。
+展望今年，该行认为订单增长较去年更保守，当中休闲服装增长较强，其次是运动服装。
 
-财报显示，甲骨文第四季度营业收入同比增长21%，达到191.8亿美元，高于市场预期的191亿美元；调整后每股收益为2.11美元，亦超过预期的1.96美元。
+该行将2026年盈利预测下调12%，现预期2025至2027年盈利年均复合增长率为5%。
 
-在剩余履约义务（RPO，即尚未转化为收入的签约合同价值）方面，甲骨文第四季度表现亮眼，总RPO规模达6380亿美元，显著高于市场预期的6010亿美元。
+维持“买入”评级，目标价由67.5港元下调至62.6港元。
 
-然而，强劲的营收突破未能打消资本市场对AI转型成本的疑虑。
+该行预测2026及2027年收入增长分别为4.4%及4.2%。
 
-数据显示，甲骨文2026财年全年资本支出高达556.6亿美元，远超华尔街预期的508.5亿美元。
+虽然市场忧虑关税不确定性下全球运动服装增长放缓，但公司展现出韧性需求，增长跑赢其主要品牌合作伙伴的零售销售。
 
-受大规模AI基础设施投资拖累，公司财年结束时自由现金流恶化至负236.9亿美元。
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-30 02:18 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 02:02 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 02:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-30 02:17 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 02:27 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 02:02 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 02:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 02:00 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-30 02:28 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 02:00 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 02:29 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-30 02:08 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-30 02:15 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 02:20 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 02:26 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 02:27 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 02:12 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 02:09 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 02:17 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 02:16 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 02:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 02:28 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 02:30 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 02:14 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 02:07 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/363557.shtml)
-- 2026-06-30 02:21 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/710267453.shtml)
-- 2026-06-30 02:09 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/74978938591.shtml)
-- 2026-06-30 02:12 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/354969.shtml)
-- 2026-06-30 02:01 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/76729999152.shtml)
-- 2026-06-30 02:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/383066511.shtml)
-- 2026-06-30 02:21 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/349803075.shtml)
-- 2026-06-30 02:03 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/107485809348.shtml)
-- 2026-06-30 02:13 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/69670.shtml)
-- 2026-06-30 02:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/62100.shtml)
-- 2026-06-30 02:24 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/06055206647.shtml)
-- 2026-06-30 02:26 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/164375953.shtml)
-- 2026-06-30 02:29 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/04869292179.shtml)
-- 2026-06-30 02:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/68885.shtml)
-- 2026-06-30 02:21 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/38434771.shtml)
+- 2026-06-30 02:28 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/91754.shtml)
+- 2026-06-30 02:27 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/470503.shtml)
+- 2026-06-30 02:30 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/9956948579.shtml)
+- 2026-06-30 02:31 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/824339300.shtml)
+- 2026-06-30 02:26 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/39165051.shtml)
+- 2026-06-30 02:21 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/24898.shtml)
+- 2026-06-30 02:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/967603318796.shtml)
+- 2026-06-30 02:09 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/55082.shtml)
+- 2026-06-30 02:33 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/37173813886.shtml)
+- 2026-06-30 02:18 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/5615584.shtml)
+- 2026-06-30 02:23 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/110998235.shtml)
+- 2026-06-30 02:23 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/20192383171.shtml)
+- 2026-06-30 02:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/963105.shtml)
+- 2026-06-30 02:22 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/164805299380.shtml)
+- 2026-06-30 02:09 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/42978.shtml)

@@ -1,57 +1,60 @@
-# 机构间REITs持续上新 机构提示三类项目有吸引力
+# 我国中小企业发展环境逐年向好 超七成专精特新企业营收稳增
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-近日，全国首单储能机构间REIT“财通资管-阿特斯持有型不动产资产支持专项计划（碳中和）”（以下简称“阿特斯机构间REIT”）在上海证券交易所举行挂牌仪式。中国证券报记者梳理发现，除此之外，近期还有不少机构间REITs迎来新进展。 有业内人士指出，机构间REITs已由创新试点进入加速扩容阶段，资产类型、发行主体和投资人结构持续丰富，二级成交活跃度结构性改善。预计2026年机构间
+今天(4月9日)，中国中小企业发展促进中心发布了《2025年度中小企业发展环境评估报告》。我国民营企业中，90%以上是中小企业。这些中小企业的发展环境如何？ 中小企业发展环境逐年向好 区域均衡性稳步提升 报告选取了50个典型城市作为评估对象，对市场环境、法治环境、融资环境、创新环境、政策环境等指标进行评估。结果显示，目前我国中小企业发展环境总体逐年向好，城市间、区域间发展环境差
 
 ## 正文
 
-近日，全国首单储能机构间REIT“财通资管-阿特斯持有型不动产资产支持专项计划（碳中和）”（以下简称“阿特斯机构间REIT”）在上海证券交易所举行挂牌仪式。
+今天(4月9日)，中国中小企业发展促进中心发布了《2025年度中小企业发展环境评估报告》。
 
-中国证券报记者梳理发现，除此之外，近期还有不少机构间REITs迎来新进展。
+我国民营企业中，90%以上是中小企业。
 
-有业内人士指出，机构间REITs已由创新试点进入加速扩容阶段，资产类型、发行主体和投资人结构持续丰富，二级成交活跃度结构性改善。
+这些中小企业的发展环境如何？
 
-预计2026年机构间REITs累计发行规模有望突破千亿，与公募REITs共同支撑起多层次REITs市场发行规模。
+中小企业发展环境逐年向好 区域均衡性稳步提升 报告选取了50个典型城市作为评估对象，对市场环境、法治环境、融资环境、创新环境、政策环境等指标进行评估。
 
-随着同类项目增多，投资框架可由个案判断转向同类比较，建议关注高胜率、高赔率及高效率三类项目。
+结果显示，目前我国中小企业发展环境总体逐年向好，城市间、区域间发展环境差距持续缩小，市场准入壁垒加快破除，全国统一大市场建设持续深化，区域发展均衡性逐步提高。
 
-● 本报记者 魏昭宇 阿特斯机构间REIT挂牌 6月9日，阿特斯机构间REIT正式挂牌。
+中国中小企业发展促进中心政策研究处副处长 赖晓：问卷调查显示，中小企业对发展环境满意度总体评价由2020年的74.60分逐年提高至2025年的84.54分。
 
-上海证券交易所债券业务中心相关负责人，阿特斯阳光电力集团股份有限公司董事长瞿晓铧，苏州高新区党工委委员、管委会副主任李志军，财通证券总经理助理、财通资管董事长马晓立，财通资管总经理钱慧，财通资管总经理助理叶晓明等出席活动。
+各项政策集中发力，着力稳就业、稳企业、稳市场、稳预期，中小企业发展环境优化成效持续显现。
 
-有业内人士介绍，这一项目的成功实施，构建了“储能投资-机构间REITs退出-新项目开发”的完整闭环，不仅是财通资管在绿色金融领域的新成果，也是储能领域机构间REITs的里程碑式突破，为储能行业对接资本市场提供了新的示范案例。
+超七成专精特新企业营收稳增 创新动能充分激发 评估显示，参评城市的中小企业经营状况逐步趋稳，企业发展韧性和信心增强，优质企业培育量质齐升，创新主体地位更加突出。
 
 ## 相关推荐
 
-- 2026-06-30 02:01 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-30 02:02 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 02:17 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 02:24 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 02:10 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 02:20 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 02:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-30 02:24 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 02:17 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 02:21 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 02:24 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 02:16 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 02:29 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 02:35 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 02:16 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 02:15 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 02:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 02:12 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 02:29 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 02:20 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 02:08 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 02:14 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 02:08 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 02:27 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 02:29 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:21 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/20721.shtml)
-- 2026-06-30 02:21 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/82429622067.shtml)
-- 2026-06-30 02:22 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/502607.shtml)
-- 2026-06-30 02:08 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/73231248.shtml)
-- 2026-06-30 02:03 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/458250396457.shtml)
-- 2026-06-30 02:27 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/03781390261.shtml)
-- 2026-06-30 02:27 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/731083177.shtml)
-- 2026-06-30 02:19 - [刘宇宁 好听](http://www.share.minike.top/Article/details/50388.shtml)
-- 2026-06-30 02:19 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/31194466791.shtml)
-- 2026-06-30 02:23 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/122397289353.shtml)
-- 2026-06-30 02:24 - [恋与深空 巧合](http://www.share.minike.top/Article/details/9058405.shtml)
-- 2026-06-30 02:26 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/6449660.shtml)
-- 2026-06-30 02:18 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/4329494655.shtml)
-- 2026-06-30 02:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/18339517488.shtml)
-- 2026-06-30 02:01 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/1845040.shtml)
+- 2026-06-30 02:16 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/27201825206.shtml)
+- 2026-06-30 02:36 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/016157782.shtml)
+- 2026-06-30 02:12 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/9317512377.shtml)
+- 2026-06-30 02:11 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/403259188173.shtml)
+- 2026-06-30 02:09 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/664163254.shtml)
+- 2026-06-30 02:24 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/4005247.shtml)
+- 2026-06-30 02:20 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/035039183.shtml)
+- 2026-06-30 02:13 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/90604117.shtml)
+- 2026-06-30 02:11 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/402523346898.shtml)
+- 2026-06-30 02:34 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/49604247.shtml)
+- 2026-06-30 02:06 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/557904.shtml)
+- 2026-06-30 02:13 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/802464.shtml)
+- 2026-06-30 02:25 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/0084184.shtml)
+- 2026-06-30 02:09 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/119249.shtml)
+- 2026-06-30 02:10 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/7112914686.shtml)

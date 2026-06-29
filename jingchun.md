@@ -1,57 +1,60 @@
-# 在经济疲软和闲置产能持续存在之际，加拿大维持利率不变
+# TOP TOY二次递表港交所：潮玩集合模式不同于泡泡玛特，净利下滑、CEO天价薪酬引关注
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-加拿大央行如期将主要利率维持在2.25%不变。在官方声明中，加拿大央行称经济活动疲软，此前第一季度GDP出人意料地按年率下降0.1%——这也是过去四个季度中的第三次萎缩。加拿大央行避免使用“衰退“一词。 加拿大央行预计GDP将在第二季度恢复增长，“但即使出现一定反弹，该国经济预计仍将处于供大于求的状态。“经济学家表示，供大于求或闲置产能应有助于抑制价格压力。 某媒体上周调查的1
+3月31日，大潮玩国际集团有限公司（TOP TOY）向港交所递交主板上市申请，摩根大通、瑞银集团担任联席保荐人。据悉，这是继其于2025年9月26日递表失效后的再一次申请。 作为名创优品集团孵化的头部潮玩品牌，TOP TOY与泡泡玛特的模式差异、2025年净利润大幅下滑、“90后”创始人天价薪酬三大焦点，成为市场关注核心。 潮玩集合VS自有IP深耕 TOP TOY与泡泡玛特模式
 
 ## 正文
 
-加拿大央行如期将主要利率维持在2.25%不变。
+3月31日，大潮玩国际集团有限公司（TOP TOY）向港交所递交主板上市申请，摩根大通、瑞银集团担任联席保荐人。
 
-在官方声明中，加拿大央行称经济活动疲软，此前第一季度GDP出人意料地按年率下降0.1%——这也是过去四个季度中的第三次萎缩。
+据悉，这是继其于2025年9月26日递表失效后的再一次申请。
 
-加拿大央行避免使用“衰退“一词。
+作为名创优品集团孵化的头部潮玩品牌，TOP TOY与泡泡玛特的模式差异、2025年净利润大幅下滑、“90后”创始人天价薪酬三大焦点，成为市场关注核心。
 
-加拿大央行预计GDP将在第二季度恢复增长，“但即使出现一定反弹，该国经济预计仍将处于供大于求的状态。
+潮玩集合VS自有IP深耕 TOP TOY与泡泡玛特模式泾渭分明 TOP TOY品牌诞生于2020年，由名创优品集团全资孵化，最初由“那是家大潮玩（广东）文化创意有限公司”运营，定位为中国规模最大、增速最快的潮玩集合品牌。
 
-“经济学家表示，供大于求或闲置产能应有助于抑制价格压力。
+凭借对潮玩爱好者的深刻洞察，TOP TOY已形成行业领先、以消费者为导向的产品设计与IP（具有商业价值的创意内容或品牌）运营能力。
 
-某媒体上周调查的14位经济学家中，有12位将闲置产能列为他们认为加拿大央行到2026年底都将按兵不动的原因之一。
+截至目前，TOP TOY成功构建了一个由自有IP、授权IP及他牌IP协同驱动的多层次且持续拓展的IP矩阵，以及一个由多样化产品矩阵构成的潮玩世界。
 
-责任编辑：李桐
+招股书显示，2025年，公司在中国内地的GMV（商品交易总额）达到42亿元，2023年至2025年的GMV复合年增长率超50%；截至最后实际可行日期，旗下拥有24个自有IP、42个授权IP及660余个他牌IP，全球门店334家，注册会员超1200万，产品覆盖手办、3D拼装模型、搪胶毛绒等全品类。
+
+在TOP TOY诞生的同一年，“中国潮玩第一股”泡泡玛特于2020年12月11日在港交所成功上市。
 
 ## 相关推荐
 
-- 2026-06-30 02:23 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 02:11 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 02:05 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 02:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 02:16 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 02:15 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 02:08 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 02:15 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-30 02:10 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-30 02:09 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 02:20 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 02:11 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 02:16 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 02:35 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 02:23 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 02:21 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 02:14 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 02:25 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 02:30 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 02:23 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 02:31 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-30 02:19 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-30 02:13 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 02:13 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 02:12 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 02:31 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-30 02:15 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:09 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/986887984.shtml)
-- 2026-06-30 02:00 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/9611847813.shtml)
-- 2026-06-30 02:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/07352.shtml)
-- 2026-06-30 02:14 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/3016821454.shtml)
-- 2026-06-30 02:20 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/26107021015.shtml)
-- 2026-06-30 02:16 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/9371336.shtml)
-- 2026-06-30 02:10 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/21777842234.shtml)
-- 2026-06-30 02:13 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/7867580.shtml)
-- 2026-06-30 02:16 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/90805.shtml)
-- 2026-06-30 02:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/685112474516.shtml)
-- 2026-06-30 02:23 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/553484785.shtml)
-- 2026-06-30 02:09 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/83102.shtml)
-- 2026-06-30 02:18 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/7297565653.shtml)
-- 2026-06-30 02:17 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/212787049.shtml)
-- 2026-06-30 02:16 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/59235417.shtml)
+- 2026-06-30 02:07 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/5766501145.shtml)
+- 2026-06-30 02:19 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/219983677.shtml)
+- 2026-06-30 02:13 - [绘画区你赢了](https://www.blog.minike.top/Article/details/72745.shtml)
+- 2026-06-30 02:19 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/99348089.shtml)
+- 2026-06-30 02:06 - [请回答王牌2019](https://www.share.minike.top/Article/details/373392.shtml)
+- 2026-06-30 02:16 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/987564293.shtml)
+- 2026-06-30 02:34 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/43070078.shtml)
+- 2026-06-30 02:19 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/23783.shtml)
+- 2026-06-30 02:29 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/0352179.shtml)
+- 2026-06-30 02:09 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/519911948.shtml)
+- 2026-06-30 02:17 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/678481163119.shtml)
+- 2026-06-30 02:23 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/533819.shtml)
+- 2026-06-30 02:24 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/6201917.shtml)
+- 2026-06-30 02:25 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/19711598460.shtml)
+- 2026-06-30 02:07 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/804625.shtml)

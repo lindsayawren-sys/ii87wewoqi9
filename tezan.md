@@ -1,61 +1,58 @@
-# 湖南兑现首笔自然灾害转移避险避灾奖励
+# 10派15元，力聚热能去年净利润同比下滑仍拟大方分红，实控人可直接分得7500万元
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-中新网常德6月12日电 (蔡文龙)6月11日，湖南省应急管理厅相关负责人一行赴常德市石门县所街乡，将3万元奖励送到易聂勇、唐琼艳、覃基彪、郑东平、覃道言、覃元玲6人手中。这是今年5月《湖南省自然灾害转移避险避灾奖励暂行办法》实施后，全省兑现的首笔奖励。5月中下旬，石门县遭遇极端强降雨，所街乡全体干部按防汛应急响应要求，紧急排查重点路段、桥梁、地质灾害点、水库、山塘。张家渡大桥是
+记者|文多 编辑|陈俊杰 4月9日晚间，力聚热能（SH603391，股价70.09元，市值63.78亿元）披露2025年年度报告。报告期内，公司实现营业收入11.38亿元，同比增长6.88%，实现归母净利润2.26亿元，同比下滑22.40%。 值得注意的是，尽管去年增收不增利，力聚热能仍准备“豪气”分红。公司董事会提出每10股派发现金红利15元（含税）的分配预案，合计拟派发现金
 
 ## 正文
 
-中新网常德6月12日电 (蔡文龙)6月11日，湖南省应急管理厅相关负责人一行赴常德市石门县所街乡，将3万元奖励送到易聂勇、唐琼艳、覃基彪、郑东平、覃道言、覃元玲6人手中。
+记者|文多 编辑|陈俊杰 4月9日晚间，力聚热能（SH603391，股价70.09元，市值63.78亿元）披露2025年年度报告。
 
-这是今年5月《湖南省自然灾害转移避险避灾奖励暂行办法》实施后，全省兑现的首笔奖励。
+报告期内，公司实现营业收入11.38亿元，同比增长6.88%，实现归母净利润2.26亿元，同比下滑22.40%。
 
-5月中下旬，石门县遭遇极端强降雨，所街乡全体干部按防汛应急响应要求，紧急排查重点路段、桥梁、地质灾害点、水库、山塘。
+值得注意的是，尽管去年增收不增利，力聚热能仍准备“豪气”分红。
 
-张家渡大桥是S302省道的重要组成部分，也是所街乡通往太平镇方向的主要线路，日常车流量较大，高峰期每小时通行车辆可达数百辆。
+公司董事会提出每10股派发现金红利15元（含税）的分配预案，合计拟派发现金1.37亿元，占当年归母净利润的比例超过60%。
 
-5月18日清晨，雨越下越猛，巡查至张家渡大桥的所街乡工作人员注意到，洪水不断冲刷引桥基础，桥体安全面临极大威胁。
+力聚热能是一家专注于热水锅炉与蒸汽锅炉研发、生产和销售的公司。
 
-“不能再等了，提前封！
+财务数据显示，公司在2025年实现营业收入11.38亿元，较2024年的10.65亿元增长了6.88%。
 
-”随行的易聂勇、唐琼艳等6人就地调度车辆，用车身在桥头横拦出一道隔离屏障，并分头守住路口，扯着嗓子劝返各类货车、小汽车，在洪峰到来前，把100多辆往来车辆挡在了危险区外。
+然而，盈利能力却未能与营收同步增长。
 
-没过多久，张家渡大桥引桥部分桥面轰然塌陷，塌陷面积约160平方米。
+报告期内，公司归母净利润为2.26亿元，相较于2024年的2.91亿元，同比下降了22.40%。
 
 ## 相关推荐
 
-- 2026-06-30 02:01 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 02:03 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 02:22 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 02:27 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 02:24 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 02:04 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 02:05 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 02:19 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 02:01 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 02:06 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 02:22 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 02:12 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 02:11 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 02:20 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 02:07 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 02:30 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 02:18 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 02:23 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 02:10 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 02:31 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 02:28 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 02:07 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 02:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 02:35 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 02:16 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 02:33 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 02:11 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:10 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/924190316049.shtml)
-- 2026-06-30 02:10 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/89638198055.shtml)
-- 2026-06-30 02:10 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/285810752.shtml)
-- 2026-06-30 02:11 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/5029118972.shtml)
-- 2026-06-30 02:15 - [内马尔替补](https://www.blog.minike.top/Article/details/01163082034.shtml)
-- 2026-06-30 02:17 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/746795.shtml)
-- 2026-06-30 02:26 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/08071056.shtml)
-- 2026-06-30 02:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/661454030.shtml)
-- 2026-06-30 02:26 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/39341779319.shtml)
-- 2026-06-30 02:12 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/05951842556.shtml)
-- 2026-06-30 02:28 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/496641444531.shtml)
-- 2026-06-30 02:02 - [周生如故](https://www.share.minike.top/Article/details/393218.shtml)
-- 2026-06-30 02:17 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/7361366.shtml)
-- 2026-06-30 02:06 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/5405276980.shtml)
-- 2026-06-30 02:12 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/66251496.shtml)
+- 2026-06-30 02:26 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/1048072366.shtml)
+- 2026-06-30 02:07 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/2796553.shtml)
+- 2026-06-30 02:19 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/152282.shtml)
+- 2026-06-30 02:31 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/1778843224.shtml)
+- 2026-06-30 02:11 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/59357600226.shtml)
+- 2026-06-30 02:35 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/2779750262.shtml)
+- 2026-06-30 02:07 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/60218221.shtml)
+- 2026-06-30 02:14 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/261282084.shtml)
+- 2026-06-30 02:23 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/8436094.shtml)
+- 2026-06-30 02:23 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/6795958.shtml)
+- 2026-06-30 02:27 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/4924388673.shtml)
+- 2026-06-30 02:33 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/982753532229.shtml)
+- 2026-06-30 02:25 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/444187607765.shtml)
+- 2026-06-30 02:35 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/1448238.shtml)
+- 2026-06-30 02:16 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/023724.shtml)

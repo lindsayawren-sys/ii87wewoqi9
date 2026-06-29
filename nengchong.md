@@ -1,59 +1,57 @@
-# 企业从新加坡迁至成本更低、空间更充裕的马来西亚
+# 美国3月CPI公布后 债券交易员维持美联储年内降息一次的押注
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-核心要点 近数月来，大批企业陆续将业务从新加坡转移至马来西亚，这折射出一股全球性产业布局流动浪潮：各大企业纷纷选择运营成本更低、享有税收优惠、市场体量更大的地区落地经营。 服装巨头海恩斯莫里斯（H&M）5 月宣布，将东南亚总部从新加坡搬迁至吉隆坡，本次调整涉及 78 个岗位。喜力啤酒则在 3 月透露，旗下亚太酿酒新加坡工厂的大规模生产业务，将转移至马来西亚与越南的区域酿造基地。
+债券交易员继续押注美联储今年将降息一次，此前发布的数据显示由于伊朗战争导致汽油价格上涨，美国3月通胀加速。 周五的利率掉期合约显示，交易员押注今年进行一次25个基点降息的概率约为25%，略低于数据公布前的押注。报告发布后，美国国债小幅走低。 消费者价格指数（CPI）较2月上涨0.9%，创近四年来最大涨幅，很大程度上受中东冲突引发的天然气价格大幅上涨影响。剔除食品和能源成本的核心
 
 ## 正文
 
-核心要点 近数月来，大批企业陆续将业务从新加坡转移至马来西亚，这折射出一股全球性产业布局流动浪潮：各大企业纷纷选择运营成本更低、享有税收优惠、市场体量更大的地区落地经营。
+债券交易员继续押注美联储今年将降息一次，此前发布的数据显示由于伊朗战争导致汽油价格上涨，美国3月通胀加速。
 
-服装巨头海恩斯莫里斯（H&M）5 月宣布，将东南亚总部从新加坡搬迁至吉隆坡，本次调整涉及 78 个岗位。
+周五的利率掉期合约显示，交易员押注今年进行一次25个基点降息的概率约为25%，略低于数据公布前的押注。
 
-喜力啤酒则在 3 月透露，旗下亚太酿酒新加坡工厂的大规模生产业务，将转移至马来西亚与越南的区域酿造基地。
+报告发布后，美国国债小幅走低。
 
-新加坡管理大学社会学副教授林伟文表示：“这一系列搬迁举措意义重大，外迁节奏明显加快。
+消费者价格指数（CPI）较2月上涨0.9%，创近四年来最大涨幅，很大程度上受中东冲突引发的天然气价格大幅上涨影响。
 
-2026 年初开始，我们能清晰看到企业扎堆迁往马来西亚的浪潮。
+剔除食品和能源成本的核心CPI仅上涨0.2%。
 
-政策导向叠加成本压力双重作用下，今年这一趋势远比 2025 年突出。
+“今天的CPI数据不会对债券价格形成支撑，因为下个月的通胀报告将揭示更多令投资者和美联储头疼的问题，”Mischler Financial Group董事总经理Tom di Galoma表示。
 
-” 他通过邮件向 CNBC 作出上述表态。
+3月CPI报告让投资者首次切实了解到2月底美国袭击伊朗以来的通胀动态。
 
-林伟文指出，企业迁移的核心驱动力是租金、人力薪资、整体运营层面巨大的成本差价套利空间。
+上个月油价飙升推高了美国国债收益率，而停火前景则引发原油和债券走势的逆转。
 
 ## 相关推荐
 
-- 2026-06-30 02:00 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 02:06 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 02:03 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 02:25 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 02:06 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 02:19 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 02:19 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 02:21 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 02:09 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 02:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 02:05 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 02:21 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 02:23 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 02:13 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 02:17 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 02:27 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-30 02:24 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-30 02:07 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 02:19 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 02:07 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 02:09 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 02:29 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 02:31 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 02:24 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:15 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/379814.shtml)
-- 2026-06-30 02:03 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/47798864.shtml)
-- 2026-06-30 02:21 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/8479452284.shtml)
-- 2026-06-30 02:16 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/74927583.shtml)
-- 2026-06-30 02:19 - [美人鱼](https://www.share.kurohicncr.top/Article/details/644539445.shtml)
-- 2026-06-30 02:03 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/059279145588.shtml)
-- 2026-06-30 02:22 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/7355901262.shtml)
-- 2026-06-30 02:18 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/0817782720.shtml)
-- 2026-06-30 02:20 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/907001.shtml)
-- 2026-06-30 02:22 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/543744606.shtml)
-- 2026-06-30 02:29 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/6623472.shtml)
-- 2026-06-30 02:12 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/60673879.shtml)
-- 2026-06-30 02:17 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/927658426839.shtml)
-- 2026-06-30 02:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/90219844259.shtml)
-- 2026-06-30 02:03 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/316237800483.shtml)
+- 2026-06-30 02:35 - [天道](http://www.share.minike.top/Article/details/3668405834.shtml)
+- 2026-06-30 02:07 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/3352716.shtml)
+- 2026-06-30 02:12 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/891906981317.shtml)
+- 2026-06-30 02:33 - [绘画区你赢了](https://www.blog.minike.top/Article/details/33318872.shtml)
+- 2026-06-30 02:25 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/641931400217.shtml)
+- 2026-06-30 02:30 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/408495964.shtml)
+- 2026-06-30 02:34 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/707127.shtml)
+- 2026-06-30 02:09 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/804634306.shtml)
+- 2026-06-30 02:33 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/027626217.shtml)
+- 2026-06-30 02:27 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/958159723.shtml)
+- 2026-06-30 02:20 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/79269206.shtml)
+- 2026-06-30 02:27 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/605514949815.shtml)
+- 2026-06-30 02:08 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/79808.shtml)
+- 2026-06-30 02:24 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/0783463278.shtml)
+- 2026-06-30 02:31 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/319304081616.shtml)

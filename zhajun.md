@@ -1,61 +1,47 @@
-# 关键癌症试验因无效终止，Immutep股价暴跌83%后面临集体诉讼
+# 外交部：美国政府应当立即停止对古巴的封锁制裁和任何形式的胁迫施压
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-生物技术公司Immutep Limited（NASDAQ： IMMP）正面临证券欺诈集体诉讼。此前该公司宣布，其针对一线非小细胞肺癌的关键三期临床试验TACTI-004因无效而被独立数据监测委员会建议终止，导致股价暴跌83%。投资者申请担任首席原告的截止日期为2026年7月6日。 诉讼已在美国纽约南区联邦地区法院提起，旨在代表在2025年3月24日至2026年3月12日期间购买
+新华社北京4月10日电(记者吴梦桐、曹嘉玥)就近期一些美国国会议员希望阻止美国对古巴采取军事行动，外交部发言人毛宁10日在例行记者会上表示，我们注意到近期一些美国议员访问了古巴，反对美国对古巴的敌对政策。美国政府应当倾听正义呼声，立即停止对古巴的封锁制裁和任何形式的胁迫施压。中方愿同国际社会一道坚定支持古巴维护国家主权和安全，反对外来干涉。
 
 ## 正文
 
-生物技术公司Immutep Limited（NASDAQ： IMMP）正面临证券欺诈集体诉讼。
+新华社北京4月10日电(记者吴梦桐、曹嘉玥)就近期一些美国国会议员希望阻止美国对古巴采取军事行动，外交部发言人毛宁10日在例行记者会上表示，我们注意到近期一些美国议员访问了古巴，反对美国对古巴的敌对政策。
 
-此前该公司宣布，其针对一线非小细胞肺癌的关键三期临床试验TACTI-004因无效而被独立数据监测委员会建议终止，导致股价暴跌83%。
+美国政府应当倾听正义呼声，立即停止对古巴的封锁制裁和任何形式的胁迫施压。
 
-投资者申请担任首席原告的截止日期为2026年7月6日。
-
-诉讼已在美国纽约南区联邦地区法院提起，旨在代表在2025年3月24日至2026年3月12日期间购买Immutep美国存托凭证的投资者。
-
-被告包括公司及首席执行官Marc Voigt等高管，被指控违反联邦证券法，在TACTI-004试验的前景方面作出虚假和误导性陈述。
-
-起诉书称，在整个诉讼期间，公司一再将TACTI-004试验描述为取得强劲的运营进展，并强调此前TACTI-002和INSIGHT-003研究的积极结果支撑了对成功的预期。
-
-然而，公司未能向投资者披露，当时的内部临床数据已显示试验失败风险大幅上升。
-
-2026年3月13日，Immutep披露独立数据监测委员会建议终止该试验，称现有安全性和有效性数据不支持继续推进。
+中方愿同国际社会一道坚定支持古巴维护国家主权和安全，反对外来干涉。
 
 ## 相关推荐
 
-- 2026-06-30 02:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 02:09 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 02:08 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 02:02 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 02:12 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 02:09 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-30 02:20 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 02:01 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 02:06 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 02:09 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 02:23 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 02:18 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 02:26 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 02:26 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 02:13 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 02:15 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 02:27 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 02:13 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 02:25 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 02:28 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 02:20 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 02:35 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 02:28 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 02:20 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 02:06 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 02:19 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:05 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/015304337191.shtml)
-- 2026-06-30 02:14 - [世界杯](http://www.share.minike.top/Article/details/39762262478.shtml)
-- 2026-06-30 02:27 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/895180402.shtml)
-- 2026-06-30 02:00 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/051549580280.shtml)
-- 2026-06-30 02:12 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/36010.shtml)
-- 2026-06-30 02:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/38535.shtml)
-- 2026-06-30 02:17 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/10429374299.shtml)
-- 2026-06-30 02:11 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/3560356.shtml)
-- 2026-06-30 02:20 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/45042.shtml)
-- 2026-06-30 02:02 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/074638561769.shtml)
-- 2026-06-30 02:06 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/74517192662.shtml)
-- 2026-06-30 02:15 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/2776532.shtml)
-- 2026-06-30 02:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/6334950197.shtml)
-- 2026-06-30 02:22 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/452120436779.shtml)
-- 2026-06-30 02:17 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/7920460.shtml)
+- 2026-06-30 02:08 - [新官上任三把火](http://www.blog.minike.top/Article/details/363514061646.shtml)
+- 2026-06-30 02:11 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/67915905683.shtml)
+- 2026-06-30 02:19 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/232613190.shtml)
+- 2026-06-30 02:10 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/65280847.shtml)
+- 2026-06-30 02:13 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/953253447362.shtml)
+- 2026-06-30 02:11 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/00035602.shtml)
+- 2026-06-30 02:06 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/661920842239.shtml)
+- 2026-06-30 02:11 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/669382.shtml)
+- 2026-06-30 02:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/378324238.shtml)
+- 2026-06-30 02:16 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/533825.shtml)
+- 2026-06-30 02:19 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/4797435.shtml)
+- 2026-06-30 02:26 - [周生如故](http://www.share.kurohicncr.top/Article/details/319834606216.shtml)
+- 2026-06-30 02:29 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/891900720.shtml)
+- 2026-06-30 02:14 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/765895822660.shtml)
+- 2026-06-30 02:23 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/7220766682.shtml)

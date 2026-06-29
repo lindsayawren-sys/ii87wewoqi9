@@ -1,56 +1,58 @@
-# 香港将首办国际应急与航空医疗交流会议 研讨AI赋能航空救援
+# 事关美联储权利交接！“沃什提名确认听证会”据称被美参议院推迟
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-中新网香港6月12日电 (记者 邱兆翔)6月16日至18日，香港特区政府飞行服务队将首次举办国际应急与航空医疗交流会议。香港特区政府飞行服务队总监廖嘉俊近日接受中新网记者采访时表示，会议旨在搭建跨区域交流合作平台，推动应急救援与航空医疗事业协同发展。与会人员还将围绕无人机、电动垂直起降设备、人工智能(AI)等新技术，以及低空经济在航空救援领域的应用展开研讨。 本次会议预计将吸引
+财联社4月10日讯（编辑 黄君芝）随着鲍威尔的任期愈发接近“终点”，美联储的权力交接引发投资者重点关注。但目前看来，进展并不顺利。 “美联储掌门人”继任候选人凯文·沃什（Kevin Warsh）原定于4月16日（下周四）出席美国参议院银行委员会的提名确认听证会。但据媒体援引知情人士的话报道称，这一听证会已被取消，将被延后进行，具体时间尚不清楚。 根据委员会的规定，在举行听证会前
 
 ## 正文
 
-中新网香港6月12日电 (记者 邱兆翔)6月16日至18日，香港特区政府飞行服务队将首次举办国际应急与航空医疗交流会议。
+财联社4月10日讯（编辑 黄君芝）随着鲍威尔的任期愈发接近“终点”，美联储的权力交接引发投资者重点关注。
 
-香港特区政府飞行服务队总监廖嘉俊近日接受中新网记者采访时表示，会议旨在搭建跨区域交流合作平台，推动应急救援与航空医疗事业协同发展。
+但目前看来，进展并不顺利。
 
-与会人员还将围绕无人机、电动垂直起降设备、人工智能(AI)等新技术，以及低空经济在航空救援领域的应用展开研讨。
+“美联储掌门人”继任候选人凯文·沃什（Kevin Warsh）原定于4月16日（下周四）出席美国参议院银行委员会的提名确认听证会。
 
-本次会议预计将吸引约250人参会，参会人员来自中国内地和香港，以及澳大利亚、奥地利、印度尼西亚、新加坡等多个国家和地区，涵盖航空救援、应急管理、医疗机构、专业院校及国际培训组织等数个领域。
+但据媒体援引知情人士的话报道称，这一听证会已被取消，将被延后进行，具体时间尚不清楚。
 
-会议期间，主办方将与交通运输部救助打捞局、香港急症科医学院，以及英国、澳大利亚两地的航空医疗培训机构签署合作备忘录。
+根据委员会的规定，在举行听证会前，他们须提前五天发出通知，并且首先需要收集被提名人的文件，包括财务披露信息。
 
-各方将在专业培训、技术交流、经验共享、操作标准制定等领域深化合作，助力提升队伍专业能力，完善跨区域协作网络，增强区域应对重大突发事故的综合实力。
+但三位熟悉参议院流程的人士表示，银行委员会尚未收到沃什的文件。
 
-活动采用理论与实务相结合的交流形式，专题演讲聚焦灾害应急策略、航空医疗应用、科技赋能服务等内容。
+截至当地时间周四晚间，委员会尚未设定或宣布新的听证日期。
 
-现场还设置启德片区导览与现场演习环节，直观展示香港城市应急配套、跨部门联动处置能力。
+此外，听证会一般只在周二至周四举行，因此这么一算，最早可能的听证日期已推迟至4月21日。
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-30 02:15 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 02:28 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 02:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 02:17 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 02:06 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 02:13 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 02:26 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 02:09 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 02:29 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 02:20 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 02:11 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 02:33 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 02:22 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 02:33 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 02:15 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 02:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 02:28 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 02:35 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 02:25 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 02:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 02:20 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:19 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/4463718087.shtml)
-- 2026-06-30 02:18 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/0319877.shtml)
-- 2026-06-30 02:14 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/921760298.shtml)
-- 2026-06-30 02:16 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/0069902078.shtml)
-- 2026-06-30 02:21 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/65531.shtml)
-- 2026-06-30 02:01 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/03583417.shtml)
-- 2026-06-30 02:04 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/84362225.shtml)
-- 2026-06-30 02:08 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/08311812108.shtml)
-- 2026-06-30 02:15 - [勇敢的心第二部](http://www.share.minike.top/Article/details/907069.shtml)
-- 2026-06-30 02:20 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/6699075.shtml)
-- 2026-06-30 02:03 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/9292623698.shtml)
-- 2026-06-30 02:03 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/446818.shtml)
-- 2026-06-30 02:08 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/491197270257.shtml)
-- 2026-06-30 02:03 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/3849759401.shtml)
-- 2026-06-30 02:16 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/43958228287.shtml)
+- 2026-06-30 02:20 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/06797822062.shtml)
+- 2026-06-30 02:12 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/292654.shtml)
+- 2026-06-30 02:06 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/743685555.shtml)
+- 2026-06-30 02:25 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/5085441036.shtml)
+- 2026-06-30 02:31 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/197587.shtml)
+- 2026-06-30 02:27 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/565080369.shtml)
+- 2026-06-30 02:08 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/84054935.shtml)
+- 2026-06-30 02:10 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/3577988.shtml)
+- 2026-06-30 02:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/4083386.shtml)
+- 2026-06-30 02:12 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/57393804242.shtml)
+- 2026-06-30 02:22 - [日本进球](https://www.share.minike.top/Article/details/6702771.shtml)
+- 2026-06-30 02:22 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/721386.shtml)
+- 2026-06-30 02:20 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/91874276418.shtml)
+- 2026-06-30 02:22 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/9192431941.shtml)
+- 2026-06-30 02:29 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/490432147926.shtml)

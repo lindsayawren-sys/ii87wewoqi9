@@ -1,60 +1,46 @@
-# Dollarama公布2027财年第一季度业绩，销售额增长21%超预期
+# 外交部谈中东局势：停火安排应当有利于平息地区战火，恢复和平稳定
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-加拿大折扣零售巨头Dollarama周四公布了截至2026年5月3日的2027财年第一季度财报。财报显示，公司当季销售额同比增长21.4%至18.46亿加元，超出市场预期的18.22亿加元；净利润同比增长10.4%至3.023亿加元，摊薄每股收益为1.11加元，高于市场预期的0.99加元。 在核心加拿大市场，同店销售额增长5.6%，远高于市场预期的3.7%，其中交易量增长3.5
+新华社北京4月10日电(记者吴梦桐、马卓言)就有报道说以色列仍在空袭黎巴嫩，外交部发言人毛宁10日在例行记者会上答问时表示，停火安排应当有利于平息地区战火，恢复和平稳定。我们呼吁有关方面通过政治外交途径化解争端，保持冷静克制，推动局势降温。
 
 ## 正文
 
-加拿大折扣零售巨头Dollarama周四公布了截至2026年5月3日的2027财年第一季度财报。
+新华社北京4月10日电(记者吴梦桐、马卓言)就有报道说以色列仍在空袭黎巴嫩，外交部发言人毛宁10日在例行记者会上答问时表示，停火安排应当有利于平息地区战火，恢复和平稳定。
 
-财报显示，公司当季销售额同比增长21.4%至18.46亿加元，超出市场预期的18.22亿加元；净利润同比增长10.4%至3.023亿加元，摊薄每股收益为1.11加元，高于市场预期的0.99加元。
-
-在核心加拿大市场，同店销售额增长5.6%，远高于市场预期的3.7%，其中交易量增长3.5%，平均交易额增长2.0%。
-
-截至季末，公司在加拿大净新开28家门店，门店总数达1，719家。
-
-国际业务方面，公司在澳大利亚拥有410家门店，本季度净新开8家并完成13家门店的翻新改造。
-
-此外，公司持有60.1%股权的Dollarcity在中美洲和墨西哥的门店数量已达752家，第一季度为Dollarama贡献了5，120万加元的净收益。
-
-首席执行官表示，公司在核心加拿大市场实现了强劲的同店销售增长和门店网络扩张，同时推进西部物流中心项目建设。
-
-他强调，公司的价值主张继续获得消费者认可，稳健的商业模式为应对不确定的宏观经济环境提供了灵活性。
+我们呼吁有关方面通过政治外交途径化解争端，保持冷静克制，推动局势降温。
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 02:18 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 02:19 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 02:05 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 02:01 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 02:16 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 02:24 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 02:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 02:26 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 02:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 02:22 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 02:12 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 02:16 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 02:27 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 02:22 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 02:07 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 02:20 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 02:19 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 02:34 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 02:14 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 02:19 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 02:09 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 02:33 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 02:06 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 02:25 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 02:23 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:27 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/2328373345.shtml)
-- 2026-06-30 02:25 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/86402447449.shtml)
-- 2026-06-30 02:17 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/678712417733.shtml)
-- 2026-06-30 02:26 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/862731885539.shtml)
-- 2026-06-30 02:02 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/433570931.shtml)
-- 2026-06-30 02:12 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/18444.shtml)
-- 2026-06-30 02:19 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/793421633.shtml)
-- 2026-06-30 02:15 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/67332.shtml)
-- 2026-06-30 02:14 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/5288402299.shtml)
-- 2026-06-30 02:05 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/09359.shtml)
-- 2026-06-30 02:04 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/551939.shtml)
-- 2026-06-30 02:02 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/867429684763.shtml)
-- 2026-06-30 02:03 - [明星大侦探第一季](http://www.share.minike.top/Article/details/66600623299.shtml)
-- 2026-06-30 02:18 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/9474031.shtml)
-- 2026-06-30 02:24 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/399742689.shtml)
+- 2026-06-30 02:29 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/357078011800.shtml)
+- 2026-06-30 02:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/935651.shtml)
+- 2026-06-30 02:30 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/1739955375.shtml)
+- 2026-06-30 02:13 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/488884620277.shtml)
+- 2026-06-30 02:29 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/6046368852.shtml)
+- 2026-06-30 02:22 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/0493462.shtml)
+- 2026-06-30 02:14 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/20726663528.shtml)
+- 2026-06-30 02:20 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/993772224286.shtml)
+- 2026-06-30 02:30 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/783649290.shtml)
+- 2026-06-30 02:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/4191535.shtml)
+- 2026-06-30 02:14 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/2388106891.shtml)
+- 2026-06-30 02:27 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/374174736.shtml)
+- 2026-06-30 02:13 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/933271933556.shtml)
+- 2026-06-30 02:34 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/8010330.shtml)
+- 2026-06-30 02:33 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/597471.shtml)

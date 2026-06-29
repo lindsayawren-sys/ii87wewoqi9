@@ -1,58 +1,58 @@
-# 一图尽览城乡“家底” 海南为历史文化资源绘“电子地图”
+# 英特尔与谷歌合作暗示AI下一场真正较量 焦点转向支撑下一代工作负载的基础设施
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-中新网海口6月11日电 (记者 张茜翼)一张“电子地图”，有望将海南散落城乡的历史文化资源尽收眼底。记者11日从“高标准建设海南自由贸易港”系列主题新闻发布会——推动全省文物工作高质量发展专场获悉，海南正推进“海南省城乡历史文化资源电子地图”开发工作，计划将其打造为海南历史文化保护传承的“数字名片”。海南省住房和城乡建设厅总工程师、新闻发言人孙淑华在发布会上表示，除不可移动文物
+英特尔与谷歌正在AI领域中大多数人看不到、但实际上至关重要的一环上加强合作：支撑AI运行的基础设施。 双方刚刚签署了一项多年期协议，将使用英特尔的至强芯片和定制基础设施处理器来构建下一代AI和云系统。简而言之，他们正试图让AI工作负载在大规模部署时运行得更流畅、更快速、成本更低。 其工作原理如下：这些基础设施处理单元不再将全部任务堆积到主中央处理器上，而是接管网络、存储和安全等
 
 ## 正文
 
-中新网海口6月11日电 (记者 张茜翼)一张“电子地图”，有望将海南散落城乡的历史文化资源尽收眼底。
+英特尔与谷歌正在AI领域中大多数人看不到、但实际上至关重要的一环上加强合作：支撑AI运行的基础设施。
 
-记者11日从“高标准建设海南自由贸易港”系列主题新闻发布会——推动全省文物工作高质量发展专场获悉，海南正推进“海南省城乡历史文化资源电子地图”开发工作，计划将其打造为海南历史文化保护传承的“数字名片”。
+双方刚刚签署了一项多年期协议，将使用英特尔的至强芯片和定制基础设施处理器来构建下一代AI和云系统。
 
-海南省住房和城乡建设厅总工程师、新闻发言人孙淑华在发布会上表示，除不可移动文物外，海南省目前有国家级的历史文化名城1座(海口市)，中国历史文化名镇4座，中国历史文化名村3座，中国传统村落76个，海南省传统村落41个，历史文化街区2片，历史建筑510处等历史文化资源。
+简而言之，他们正试图让AI工作负载在大规模部署时运行得更流畅、更快速、成本更低。
 
-为摸清家底、精准保护，海南省住房和城乡建设厅去年在全省范围内组织开展老城区和老街区专项调查，共挖掘出潜在的历史文化名镇、名村、街区、历史地段、历史建筑等资源300多处。
+其工作原理如下：这些基础设施处理单元不再将全部任务堆积到主中央处理器上，而是接管网络、存储和安全等后台任务。
 
-孙淑华特别提到，正在推进开发的“海南省城乡历史文化资源电子地图”，整合了全省城乡历史文化资源，形成一图总览，为社会提供权威、直观、便捷的数字化展示平台。
+这使中央处理器能够腾出资源，专注于实际的计算密集型AI工作。
 
-公众、游客可查看每一处资源的位置、历史沿革和文化价值，电子地图还将与“酷游海南”小程序对接，为研学游、古城古镇游等提供支撑，促进文旅融合。
+其结果是性能更佳、能效更高——这两点在AI工作负载激增的当下正变得至关重要。
 
-在国土空间规划管理中，如何确保文物保护单位保护范围、建设控制地带及管控要求“落地生根”？
-
-海南省自然资源和规划厅副厅长、新闻发言人孟维华表示，海南在编制各级各类国土空间规划中，坚持落实文物保护要求，为文物保护、活化利用提供规划保障。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 02:16 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 02:17 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 02:14 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 02:23 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 02:17 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 02:06 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-30 02:22 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 02:03 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 02:14 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 02:03 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 02:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 02:16 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-30 02:22 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 02:35 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 02:35 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 02:11 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 02:26 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 02:32 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 02:11 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 02:09 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 02:32 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 02:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 02:18 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 02:34 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 02:31 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 02:23 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/82634.shtml)
-- 2026-06-30 02:12 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/8055174.shtml)
-- 2026-06-30 02:04 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/153452863342.shtml)
-- 2026-06-30 02:20 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/042111224477.shtml)
-- 2026-06-30 02:02 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/149560.shtml)
-- 2026-06-30 02:07 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/784323033209.shtml)
-- 2026-06-30 02:25 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/94664.shtml)
-- 2026-06-30 02:20 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/76664831.shtml)
-- 2026-06-30 02:24 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/58216282962.shtml)
-- 2026-06-30 02:15 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/78646607818.shtml)
-- 2026-06-30 02:12 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/1347836.shtml)
-- 2026-06-30 02:07 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/8405080180.shtml)
-- 2026-06-30 02:04 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/4128159.shtml)
-- 2026-06-30 02:06 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/84303.shtml)
-- 2026-06-30 02:10 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/70803575.shtml)
+- 2026-06-30 02:25 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/74784304026.shtml)
+- 2026-06-30 02:13 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/792567417325.shtml)
+- 2026-06-30 02:12 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/120502.shtml)
+- 2026-06-30 02:25 - [啊啊啊](https://www.blog.minike.top/Article/details/9120644.shtml)
+- 2026-06-30 02:31 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/945422.shtml)
+- 2026-06-30 02:10 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/193386.shtml)
+- 2026-06-30 02:09 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/083330791.shtml)
+- 2026-06-30 02:33 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/35967039507.shtml)
+- 2026-06-30 02:25 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/949042.shtml)
+- 2026-06-30 02:07 - [小娘惹](http://www.share.minike.top/Article/details/43336.shtml)
+- 2026-06-30 02:06 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/0045826182.shtml)
+- 2026-06-30 02:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/96654634.shtml)
+- 2026-06-30 02:21 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/31357.shtml)
+- 2026-06-30 02:22 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/16972.shtml)
+- 2026-06-30 02:23 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/74325003.shtml)

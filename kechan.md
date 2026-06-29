@@ -1,60 +1,60 @@
-# 百余名香港师生参访广州中医药大学 了解港生升学政策
+# 人均薪酬60万也不稳？银行集体“反向讨薪”，中行三年追回1亿
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-中新网广州6月12日电 (记者 许青青)据广州中医药大学12日消息，该校近日接连迎来香港大学专业进修学院、香港教师职涯规划考察团共计105名师生来访。作为内地中医学子首选院校之一，学校通过专场讲座、校园参观、面对面座谈等形式，向香港师生展示内地中医药高等教育办学特色，并详细解读针对香港学生的专属升学政策。 香港大学专业进修学院60名中医学副学士学生率先到访。学校举办专场升学讲座
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财通社 近年来“降薪潮”席卷银行业的大背景下，年报中的高频词“绩效薪酬追索扣回”进入大众视野里。 绩效薪酬追索扣回，即业内俗称的“反向讨薪”，是金融机构针对高管人员及关键岗位员工建立的一种薪酬管理机制。 相关责任人员一旦在任期内留下风险隐患，哪怕问题在事后暴露，银行也可以追回此前已经发放的绩效薪酬，并
 
 ## 正文
 
-中新网广州6月12日电 (记者 许青青)据广州中医药大学12日消息，该校近日接连迎来香港大学专业进修学院、香港教师职涯规划考察团共计105名师生来访。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-作为内地中医学子首选院校之一，学校通过专场讲座、校园参观、面对面座谈等形式，向香港师生展示内地中医药高等教育办学特色，并详细解读针对香港学生的专属升学政策。
+来源：财通社 近年来“降薪潮”席卷银行业的大背景下，年报中的高频词“绩效薪酬追索扣回”进入大众视野里。
 
-香港大学专业进修学院60名中医学副学士学生率先到访。
+绩效薪酬追索扣回，即业内俗称的“反向讨薪”，是金融机构针对高管人员及关键岗位员工建立的一种薪酬管理机制。
 
-学校举办专场升学讲座，重点介绍了香港学生入读途径，并特别详解了面向副学士学历的插班试读机制。
+相关责任人员一旦在任期内留下风险隐患，哪怕问题在事后暴露，银行也可以追回此前已经发放的绩效薪酬，并止付尚未发放部分。
 
-讲座结束后，学生们参观了广东中医药博物馆。
+这项制度并不新。
 
-“我一直在香港学习中医学相关课程，之前对内地的升学流程非常模糊。
+2021年1月，原银保监会印发指导意见，明确银行保险机构应当按规定建立并完善绩效薪酬追索扣回机制。
 
-”在读副学士学生陈奕晞表示：“这次讲座把插班、联考等路径都讲得很清楚，让我一下子有了明确的备考目标。
+2023年3月，原银保监会披露，95%以上机构已制定并实施了上述制度。
 
-我非常希望未来能到广中医学习，深耕中医专业。
+到了今年的年报季，这项机制的存在感明显增强。
 
 ## 相关推荐
 
-- 2026-06-30 02:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 02:04 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 02:18 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 02:05 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 02:21 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 02:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 02:18 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 02:23 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 02:25 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 02:00 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 02:18 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-30 02:17 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 02:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 02:13 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 02:15 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 02:31 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 02:11 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 02:08 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 02:24 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 02:23 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 02:17 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 02:12 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 02:18 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 02:27 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 02:26 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 02:22 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 02:11 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 02:16 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:11 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/541339489.shtml)
-- 2026-06-30 02:02 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/95637408543.shtml)
-- 2026-06-30 02:12 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/5168318.shtml)
-- 2026-06-30 02:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/739901904.shtml)
-- 2026-06-30 02:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/0708858.shtml)
-- 2026-06-30 02:07 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/66716.shtml)
-- 2026-06-30 02:14 - [第一炉香](https://www.blog.minike.top/Article/details/9645801.shtml)
-- 2026-06-30 02:19 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/53665948.shtml)
-- 2026-06-30 02:14 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/625515.shtml)
-- 2026-06-30 02:22 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/2217426.shtml)
-- 2026-06-30 02:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/906940169.shtml)
-- 2026-06-30 02:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/401091456.shtml)
-- 2026-06-30 02:10 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/566802.shtml)
-- 2026-06-30 02:05 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/966977744.shtml)
-- 2026-06-30 02:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/37752.shtml)
+- 2026-06-30 02:15 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/55804.shtml)
+- 2026-06-30 02:29 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/0757403.shtml)
+- 2026-06-30 02:07 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/2420818840.shtml)
+- 2026-06-30 02:31 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/00355.shtml)
+- 2026-06-30 02:17 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/0785155585.shtml)
+- 2026-06-30 02:14 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/1097561420.shtml)
+- 2026-06-30 02:13 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/588788935149.shtml)
+- 2026-06-30 02:25 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/81188718888.shtml)
+- 2026-06-30 02:24 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/5600442154.shtml)
+- 2026-06-30 02:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/937918777.shtml)
+- 2026-06-30 02:12 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/255217.shtml)
+- 2026-06-30 02:21 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/82415.shtml)
+- 2026-06-30 02:22 - [内马尔替补](https://www.blog.minike.top/Article/details/931823111.shtml)
+- 2026-06-30 02:34 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/0556144.shtml)
+- 2026-06-30 02:19 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/03752054835.shtml)

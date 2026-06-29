@@ -1,60 +1,58 @@
-# 全球资本市场波动抬头，港股通红利ETF华泰柏瑞（513530）“攻守兼备”受青睐，基金份额创历史新高！
+# 2026北京公众考古季启动 构建考古传播新格局
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-近期，在美联储加息预期升温、美伊冲突再起的背景下，全球资本市场波动性有所抬头。今日早盘（26/6/12），港股红利类资产交投活跃。当前经济弱复苏、海外流动性及国际地缘政治仍存不确定性，作为底仓配置方向之一的港股红利类资产防御属性有所凸显，吸引资金青睐。 其中，市场首只可通过QDII模式投资港股通高股息（CNY）指数的ETF——港股通红利ETF华泰柏瑞（513530）本周以来连续
+中新网北京4月10日电(记者 徐婧)由北京市文物局、北京市丰台区人民政府主办的2026北京公众考古季10日开幕。本届公众考古季以“触摸考古 解读北京”为主题，通过25项活动普及考古和文化遗产知识，让公众在模拟发掘、文物修复体验等实践中感知历史温度。 开幕式发布了全年活动安排，包括考古研学、体验考古、考古展览、考古讲座、考古进校园五大板块，共计25项活动，坚持专业引领与社会参与并
 
 ## 正文
 
-近期，在美联储加息预期升温、美伊冲突再起的背景下，全球资本市场波动性有所抬头。
+中新网北京4月10日电(记者 徐婧)由北京市文物局、北京市丰台区人民政府主办的2026北京公众考古季10日开幕。
 
-今日早盘（26/6/12），港股红利类资产交投活跃。
+本届公众考古季以“触摸考古 解读北京”为主题，通过25项活动普及考古和文化遗产知识，让公众在模拟发掘、文物修复体验等实践中感知历史温度。
 
-当前经济弱复苏、海外流动性及国际地缘政治仍存不确定性，作为底仓配置方向之一的港股红利类资产防御属性有所凸显，吸引资金青睐。
+开幕式发布了全年活动安排，包括考古研学、体验考古、考古展览、考古讲座、考古进校园五大板块，共计25项活动，坚持专业引领与社会参与并重，推动市区联动与资源整合，构建起覆盖广泛、共建共享的考古传播新格局。
 
-其中，市场首只可通过QDII模式投资港股通高股息（CNY）指数的ETF——港股通红利ETF华泰柏瑞（513530）本周以来连续4个交易日获得资金净流入，累计吸金1.56亿元，是同期全市场港股红利类主题ETF中仅有的累计吸金超0.9亿元的产品。
+活动带领公众走进考古现场。
 
-资金的踊跃布局助推该ETF基金份额达24.55亿份、创下历史新高，基金规模也同步攀升至39.30亿元，规模较大、流动性较好。
+北京市考古研究院依托考古资源，面向学校、亲子家庭等开展考古研学实践活动，通过参与体验、发掘等环节，展现考古工作流程，传播考古知识，增强参与者对历史文化的认同感。
 
-资金涌入的背后，是港股红利类资产在低利率环境下凸显的较高股息吸引力。
+北京多家博物馆打破传统单向展陈模式，提升公众互动体验。
 
-港股通红利ETF华泰柏瑞（513530）跟踪的港股通高股息（CNY）指数近一年股息率来到5.12%，与同期1.75%的10年期国债收益率存在3.37%的利差，股息率吸引力凸显。
+首都博物馆推出国宝“戏”游记，以剧本式体验让文物讲述历史；周口店北京人遗址管理处开展化石修复、模拟发掘等实践活动，让公众在专业指导下体验考古流程。
 
-除股息优势外，港股红利类资产在行情波动中也展现出“攻守兼备”的特征。
+“考古看北京”展览将和公众见面。
 
 ## 相关推荐
 
-- 2026-06-30 02:25 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 02:22 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 02:11 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 02:12 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 02:25 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 02:08 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 02:19 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 02:26 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 02:27 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 02:17 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-30 02:01 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-30 02:03 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 02:08 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 02:17 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 02:31 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 02:15 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 02:06 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-30 02:06 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-30 02:32 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 02:30 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 02:33 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 02:17 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 02:16 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 02:20 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 02:33 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 02:18 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:02 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/50122.shtml)
-- 2026-06-30 02:05 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/2842989.shtml)
-- 2026-06-30 02:29 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/88182963968.shtml)
-- 2026-06-30 02:14 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/617748.shtml)
-- 2026-06-30 02:06 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/426382480.shtml)
-- 2026-06-30 02:27 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/83630707.shtml)
-- 2026-06-30 02:01 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/535495.shtml)
-- 2026-06-30 02:29 - [房价什么时候能涨](http://www.share.minike.top/Article/details/05161149176.shtml)
-- 2026-06-30 02:29 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/71310976.shtml)
-- 2026-06-30 02:12 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/74278.shtml)
-- 2026-06-30 02:00 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/10508781452.shtml)
-- 2026-06-30 02:24 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/24318541063.shtml)
-- 2026-06-30 02:24 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/72263231.shtml)
-- 2026-06-30 02:05 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/03177330039.shtml)
-- 2026-06-30 02:28 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/7734543.shtml)
+- 2026-06-30 02:31 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/01081.shtml)
+- 2026-06-30 02:06 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/65153752575.shtml)
+- 2026-06-30 02:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/146967.shtml)
+- 2026-06-30 02:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/69815.shtml)
+- 2026-06-30 02:34 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/2888516.shtml)
+- 2026-06-30 02:13 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/625048.shtml)
+- 2026-06-30 02:34 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/836961277192.shtml)
+- 2026-06-30 02:18 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/64188.shtml)
+- 2026-06-30 02:08 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/374860804.shtml)
+- 2026-06-30 02:10 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/054474.shtml)
+- 2026-06-30 02:22 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/82149010.shtml)
+- 2026-06-30 02:14 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/666531.shtml)
+- 2026-06-30 02:27 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/36317.shtml)
+- 2026-06-30 02:30 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/8771776303.shtml)
+- 2026-06-30 02:23 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/58243.shtml)

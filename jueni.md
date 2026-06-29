@@ -1,53 +1,59 @@
-# 辰罡科技拟折让约6.5%配售最多1.2亿股配售股份 净筹约1150万港元
+# 港深创科园两座湿实验室大楼入驻率近九成
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-辰罡科技（08131）发布公告，于2026年6月10日，本公司与配售代理订立了配售协议，据此，本公司已委任配售代理，待配售事项的先决条件达成后，按竭诚基准以每股配售股份0.10港元的价格配售最多1.2亿股配售股份予不少于六名独立承配人。 每股配售股份0.10港元的配售价较：（i）于配售协议日期，联交所所报收市价每股股份0.107港元折让约6.5%；及（ii）于紧接配售协议日期前
+中新网香港4月9日电 (记者 刘玥晴)香港特区政府创新科技及工业局局长孙东9日表示，在河套深港科技创新合作区香港园区(简称“河套香港园区”，又称“港深创科园”)已建成的三座大楼中，两座湿实验室大楼已有79家企业进驻、入驻率近九成。园区今年底将再落成五座大楼，招商引资会加快。 当天，孙东陪同50余名特区立法会议员考察港深创科园。他在会见传媒时作上述介绍。 港深创新及科技园有限公司
 
 ## 正文
 
-辰罡科技（08131）发布公告，于2026年6月10日，本公司与配售代理订立了配售协议，据此，本公司已委任配售代理，待配售事项的先决条件达成后，按竭诚基准以每股配售股份0.10港元的价格配售最多1.2亿股配售股份予不少于六名独立承配人。
+中新网香港4月9日电 (记者 刘玥晴)香港特区政府创新科技及工业局局长孙东9日表示，在河套深港科技创新合作区香港园区(简称“河套香港园区”，又称“港深创科园”)已建成的三座大楼中，两座湿实验室大楼已有79家企业进驻、入驻率近九成。
 
-每股配售股份0.10港元的配售价较：（i）于配售协议日期，联交所所报收市价每股股份0.107港元折让约6.5%；及（ii）于紧接配售协议日期前最后五个股份交易日，联交所所报平均收市价每股股份0.0866港元溢价约15.5%。
+园区今年底将再落成五座大楼，招商引资会加快。
 
-假设配售股份获悉数配售，最高配售股份数目1.2亿股相当于本公司于本公告日期已发行股本5.99亿股股份约20.00%，以及本公司经发行最高配售股份数目1.2亿股扩大的已发行股本约16.67%。
+当天，孙东陪同50余名特区立法会议员考察港深创科园。
 
-假设配售股份获悉数配售，则配售事项所得款项总额及净额将分别为约1200万港元及约1150万港元。
+他在会见传媒时作上述介绍。
 
-本公司拟将所得款项净额的约70%（即约800万港元）用于偿还承付票，其余约30%（即约350万港元）用作本集团的一般营运资金。
+港深创新及科技园有限公司董事会主席蔡杰铭指出，4月至6月，园区第一期余下的部分地块将推向市场，土地招租将沿用过往行之有效的“双信封制”，以技术参数为考量，通过公私营合作模式，引入私人企业完善商业配套及市场化运作。
 
-责任编辑：卢昱君
+河套香港园区位于香港北部都会区，2025年12月正式开园，与深圳园区共同组成河套深港科技创新合作区，体现“一河两岸、一区两园”的构建理念。
+
+此次考察，立法会议员们参观已启用的湿实验室大楼、人才公寓、供电设施等。
+
+香港特区立法会主席李慧琼表示，在与已进驻园区的科技企业交流时，有关企业代表直言，入驻的主要原因是看中园区的地理区位优势，以及未来创新要素可以在深圳园区和香港园区跨境便捷流动等因素。
 
 ## 相关推荐
 
-- 2026-06-30 02:29 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 02:11 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 02:04 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 02:20 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 02:12 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 02:10 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 02:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 02:25 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 02:17 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 02:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 02:24 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 02:18 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 02:10 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 02:26 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 02:20 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 02:27 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 02:26 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 02:09 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 02:17 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 02:12 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 02:14 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-30 02:14 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 02:16 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 02:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:16 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/0171567960.shtml)
-- 2026-06-30 02:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/32904.shtml)
-- 2026-06-30 02:14 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/6790252595.shtml)
-- 2026-06-30 02:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/3824872.shtml)
-- 2026-06-30 02:24 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/60500167129.shtml)
-- 2026-06-30 02:06 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/545280.shtml)
-- 2026-06-30 02:28 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/93255.shtml)
-- 2026-06-30 02:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/3431877279.shtml)
-- 2026-06-30 02:13 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/97545147972.shtml)
-- 2026-06-30 02:01 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/8773455253.shtml)
-- 2026-06-30 02:15 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/717751070066.shtml)
-- 2026-06-30 02:01 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/341223454173.shtml)
-- 2026-06-30 02:18 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/24079438626.shtml)
-- 2026-06-30 02:14 - [田曦薇没招了](https://www.blog.minike.top/Article/details/193489283.shtml)
-- 2026-06-30 02:22 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/4452145699.shtml)
+- 2026-06-30 02:24 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/559665.shtml)
+- 2026-06-30 02:26 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/293975416.shtml)
+- 2026-06-30 02:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/43629413.shtml)
+- 2026-06-30 02:32 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/1877975242.shtml)
+- 2026-06-30 02:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/4970250.shtml)
+- 2026-06-30 02:33 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/550855322072.shtml)
+- 2026-06-30 02:24 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/54650284.shtml)
+- 2026-06-30 02:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/5142031.shtml)
+- 2026-06-30 02:16 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/570586767635.shtml)
+- 2026-06-30 02:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/463905.shtml)
+- 2026-06-30 02:28 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/93472197.shtml)
+- 2026-06-30 02:34 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/122692036.shtml)
+- 2026-06-30 02:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/195442.shtml)
+- 2026-06-30 02:29 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/3497758.shtml)
+- 2026-06-30 02:16 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/833451513.shtml)

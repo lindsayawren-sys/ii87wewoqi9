@@ -1,56 +1,58 @@
-# SpaceX创下全球最大IPO纪录，马斯克影响力进一步提升
+# 重结合 惠民生 促发展——各地扎实开展树立和践行正确政绩观学习教育
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 马斯克旗下航天与卫星企业SpaceX正式敲定首次公开募股发行价，成功完成全球规模最大的新股上市。这一成绩，也印证了这位科技巨头的影响力，以及市场对其商业愿景的认可。 据公司公告，SpaceX于周四确认，本次IPO发行价定为每股135美元，总计发行逾5.55亿股。据此计算，公司此次募资规模约750亿美元，整体
+新华社北京4月9日电 题：重结合 惠民生 促发展——各地扎实开展树立和践行正确政绩观学习教育 新华社记者谢奔、张博宇、李键 习近平总书记指出，干部干事创业要树立正确政绩观，有功成不必在我的精神境界、功成必定有我的历史担当，发扬钉钉子精神，脚踏实地干。 大道至简，实干为要。树立和践行正确政绩观学习教育开展以来，湖南、吉林、西藏等地统筹学习教育与中心工作，坚持两手抓、两促进，推动学
 
 ## 正文
 
-专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 马斯克旗下航天与卫星企业SpaceX正式敲定首次公开募股发行价，成功完成全球规模最大的新股上市。
+新华社北京4月9日电 题：重结合 惠民生 促发展——各地扎实开展树立和践行正确政绩观学习教育 新华社记者谢奔、张博宇、李键 习近平总书记指出，干部干事创业要树立正确政绩观，有功成不必在我的精神境界、功成必定有我的历史担当，发扬钉钉子精神，脚踏实地干。
 
-这一成绩，也印证了这位科技巨头的影响力，以及市场对其商业愿景的认可。
+大道至简，实干为要。
 
-据公司公告，SpaceX于周四确认，本次IPO发行价定为每股135美元，总计发行逾5.55亿股。
+树立和践行正确政绩观学习教育开展以来，湖南、吉林、西藏等地统筹学习教育与中心工作，坚持两手抓、两促进，推动学习教育不断走深走实，持之以恒将学习教育成果转化为服务民生关切、推动高质量发展的实际成效。
 
-据此计算，公司此次募资规模约750亿美元，整体估值达1.77万亿美元。
+系统谋划部署 做好结合文章 知是行之始，行是知之成。
 
-该数据一举打破此前由沙特阿美创下的IPO纪录。
+各地坚持以严的标准和实的举措推进学习教育，精心组织实施，突出实干实绩，将学习教育与贯彻党中央决策部署结合起来，与推动中心工作结合起来。
 
-这家沙特国有石油企业在2019年上市时，估值为1.7万亿美元，募资额超290亿美元。
+湖南省委提出，要在一体推进学查改上见成效，在深入学习研讨、查摆问题、整改整治上聚焦发力，把开展学习教育与中央巡视反馈意见整改、深入贯彻中央八项规定精神学习教育整改、推动“十五五”开好局起好步等结合起来，以高质量发展的实绩实效检验学习教育成果，为加快实现“三高四新”美好蓝图提供坚强保障。
 
-SpaceX股票将于周五正式挂牌交易，股票代码为SPCX。
+“要把政绩写在吉林大地上、留在群众口碑中。
 
-SpaceX发言人暂未就此作出回应。
+”吉林省在学习教育中坚持以学促干、以干践学，将学习成效转化为推动高质量发展、优化营商环境、保障改善民生、推进乡村振兴等实际行动，以打基础、利长远的务实举措，切实把学习成果体现在吉林全面振兴的工作实效上。
 
 ## 相关推荐
 
-- 2026-06-30 02:07 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 02:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 02:21 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 02:19 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 02:02 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 02:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 02:03 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 02:10 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 02:29 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 02:28 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 02:23 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-30 02:08 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 02:14 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 02:29 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 02:16 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 02:07 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 02:24 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 02:28 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 02:21 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 02:28 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 02:25 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 02:11 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:01 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/076731.shtml)
-- 2026-06-30 02:28 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/87872949406.shtml)
-- 2026-06-30 02:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/5830485466.shtml)
-- 2026-06-30 02:02 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/81511960.shtml)
-- 2026-06-30 02:20 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/00589.shtml)
-- 2026-06-30 02:10 - [小娘惹](http://www.share.kurohicncr.top/Article/details/1045382791.shtml)
-- 2026-06-30 02:01 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/0128773357.shtml)
-- 2026-06-30 02:01 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/905543333.shtml)
-- 2026-06-30 02:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/048880331.shtml)
-- 2026-06-30 02:25 - [田曦薇没招了](https://www.blog.minike.top/Article/details/07183793.shtml)
-- 2026-06-30 02:14 - [点菜也要教吗](http://www.share.minike.top/Article/details/9335493.shtml)
-- 2026-06-30 02:02 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/918075.shtml)
-- 2026-06-30 02:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/362090695742.shtml)
-- 2026-06-30 02:24 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/611331831.shtml)
-- 2026-06-30 02:14 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/111620914.shtml)
+- 2026-06-30 02:21 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/38468003.shtml)
+- 2026-06-30 02:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/384645925.shtml)
+- 2026-06-30 02:33 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/331812.shtml)
+- 2026-06-30 02:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/852794415112.shtml)
+- 2026-06-30 02:06 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/17655.shtml)
+- 2026-06-30 02:18 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/17938307.shtml)
+- 2026-06-30 02:28 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/9136932765.shtml)
+- 2026-06-30 02:07 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/1036541.shtml)
+- 2026-06-30 02:22 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/40517971292.shtml)
+- 2026-06-30 02:11 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/9202264.shtml)
+- 2026-06-30 02:21 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/29357411.shtml)
+- 2026-06-30 02:29 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/3862247766.shtml)
+- 2026-06-30 02:24 - [第一炉香](http://www.share.kurohicncr.top/Article/details/53993099.shtml)
+- 2026-06-30 02:20 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/307623704.shtml)
+- 2026-06-30 02:32 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/432297.shtml)

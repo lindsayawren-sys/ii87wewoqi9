@@ -1,49 +1,61 @@
-# 上期所：调整黄金、白银期货相关合约涨跌停板幅度和交易保证金比例
+# 中美“乒乓外交”亲历者：希望两国民间交流大门永远敞开
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：上期所 6月11日，上期所公告，经研究决定，下述合约自上市时起，涨跌停板幅度和交易保证金比例调整如下： 黄金AU2609合约的涨跌停板幅度为17%，套保持仓交易保证金比例为18%，一般持仓交易保证金比例为19%； 白银AG2706合约的涨跌停板幅度为17%，套保持仓交易保证金比例为18%，一般持仓交易
+中新社北京4月10日电 (记者 国璇)2026年是中美“乒乓外交”55周年。多位美方亲历者近日在北京接受中新社记者采访时表示，“乒乓外交”的启示在于以开放交流促进美中两国民众相互理解并打破隔阂，这在当下尤为重要。 应中国人民对外友好协会邀请，当年参与“乒乓外交”的三位美国运动员朱迪·霍夫罗斯特、康妮·史维利斯和奥尔加·索尔特斯来华出席中美“乒乓外交”55周年纪念大会，并将访问河
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京4月10日电 (记者 国璇)2026年是中美“乒乓外交”55周年。
 
-来源：上期所 6月11日，上期所公告，经研究决定，下述合约自上市时起，涨跌停板幅度和交易保证金比例调整如下： 黄金AU2609合约的涨跌停板幅度为17%，套保持仓交易保证金比例为18%，一般持仓交易保证金比例为19%； 白银AG2706合约的涨跌停板幅度为17%，套保持仓交易保证金比例为18%，一般持仓交易保证金比例为19%。
+多位美方亲历者近日在北京接受中新社记者采访时表示，“乒乓外交”的启示在于以开放交流促进美中两国民众相互理解并打破隔阂，这在当下尤为重要。
 
-责任编辑：孙同怀
+应中国人民对外友好协会邀请，当年参与“乒乓外交”的三位美国运动员朱迪·霍夫罗斯特、康妮·史维利斯和奥尔加·索尔特斯来华出席中美“乒乓外交”55周年纪念大会，并将访问河北、上海等地。
+
+1971年，年仅15岁的朱迪作为访华美国乒乓球队里年龄最小的一员来到中国。
+
+她说，“回国后接受了无数采访，因为当时的美国人不了解中国，非常渴望关于中国的信息。
+
+” 朱迪表示，“乒乓外交”对自己影响深远。
+
+她在退役后曾经营乒乓球俱乐部，并经常向美国民众讲述当年的故事。
+
+她的三个孩子也都与中国有密切联系，在国际公司工作的大女儿经常在中国办公，作为科学家的小女儿有很多中国学生，儿子则继承了她的乒乓球俱乐部，从中国进口了大量器材。
 
 ## 相关推荐
 
-- 2026-06-30 02:11 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 02:05 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 02:24 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 02:25 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 02:23 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 02:19 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 02:14 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 02:09 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 02:23 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-30 02:11 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 02:04 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 02:23 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 02:21 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 02:14 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 02:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 02:25 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 02:22 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 02:07 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 02:25 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 02:24 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 02:08 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 02:10 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 02:31 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-30 02:09 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 02:10 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 02:30 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 02:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 02:29 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:01 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/202867820.shtml)
-- 2026-06-30 02:01 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/43752110.shtml)
-- 2026-06-30 02:13 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/0665530373.shtml)
-- 2026-06-30 02:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/9671971.shtml)
-- 2026-06-30 02:09 - [逃狱兄弟](https://www.blog.minike.top/Article/details/08147440850.shtml)
-- 2026-06-30 02:18 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/292830179018.shtml)
-- 2026-06-30 02:10 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/671743923538.shtml)
-- 2026-06-30 02:09 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/953288.shtml)
-- 2026-06-30 02:29 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/216555327592.shtml)
-- 2026-06-30 02:14 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/444051.shtml)
-- 2026-06-30 02:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/06053.shtml)
-- 2026-06-30 02:06 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/4551586449.shtml)
-- 2026-06-30 02:29 - [天道](http://www.share.kurohicncr.top/Article/details/900366.shtml)
-- 2026-06-30 02:06 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/962329707178.shtml)
-- 2026-06-30 02:17 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/3771821916.shtml)
+- 2026-06-30 02:11 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/995655306299.shtml)
+- 2026-06-30 02:09 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/63907400.shtml)
+- 2026-06-30 02:34 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/545674548741.shtml)
+- 2026-06-30 02:20 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/4918756.shtml)
+- 2026-06-30 02:22 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/85176.shtml)
+- 2026-06-30 02:23 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/83644513.shtml)
+- 2026-06-30 02:24 - [爱很美味](http://www.blog.minike.top/Article/details/88608.shtml)
+- 2026-06-30 02:12 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/111121495522.shtml)
+- 2026-06-30 02:30 - [急先锋](http://www.blog.minike.top/Article/details/599194758.shtml)
+- 2026-06-30 02:15 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/61853.shtml)
+- 2026-06-30 02:25 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/8423870099.shtml)
+- 2026-06-30 02:14 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/043479207441.shtml)
+- 2026-06-30 02:19 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/784600.shtml)
+- 2026-06-30 02:29 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/3295532524.shtml)
+- 2026-06-30 02:27 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/669917.shtml)

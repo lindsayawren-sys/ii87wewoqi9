@@ -1,57 +1,56 @@
-# 《习近平外交文选》第一卷、第二卷主要篇目介绍
+# 长江有色：10日氧化铝期价跌1.16% 交易面延续弱势
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-新华社北京6月11日电 中共中央党史和文献研究院编辑的《习近平外交文选》第一卷、第二卷，收入习近平同志2013年1月至2025年11月期间关于对外工作最重要、最基本的著作，共有报告、讲话、演讲、致辞等134篇。其中，第一卷收入2013年1月至2018年6月期间的著作63篇，第二卷收入2018年6月至2025年11月期间的著作71篇。现将《习近平外交文选》第一卷、第二卷主要篇目介
+长江有色网4月10日讯，今日氧化铝所有合约全线走软，主力月2605合约延续疲弱运行态势；截止当日15：00收盘，氧化铝主力月2605合约报2641元，跌31元，跌幅1.16%；加权合约累计成交311867手，比前一交易日增加35013手，涨幅12.65%；持仓量503723手增加5286手，涨幅1.06%。 今日国内氧化铝现货价格下跌；据长江有色网ccmn数据，4月10日氧化铝
 
 ## 正文
 
-新华社北京6月11日电 中共中央党史和文献研究院编辑的《习近平外交文选》第一卷、第二卷，收入习近平同志2013年1月至2025年11月期间关于对外工作最重要、最基本的著作，共有报告、讲话、演讲、致辞等134篇。
+长江有色网4月10日讯，今日氧化铝所有合约全线走软，主力月2605合约延续疲弱运行态势；截止当日15：00收盘，氧化铝主力月2605合约报2641元，跌31元，跌幅1.16%；加权合约累计成交311867手，比前一交易日增加35013手，涨幅12.65%；持仓量503723手增加5286手，涨幅1.06%。
 
-其中，第一卷收入2013年1月至2018年6月期间的著作63篇，第二卷收入2018年6月至2025年11月期间的著作71篇。
+今日国内氧化铝现货价格下跌；据长江有色网ccmn数据，4月10日氧化铝华南地区每吨报2750-2800元之间，与前一交易日报价跌10元；华东地区氧化铝每吨报2710-2750元之间，与前一交易日报价跌10元；西南地区氧化铝每吨2800-2840元之间，与前一交易日报价跌5元；西北地区氧化铝每吨报2955-2995元之间，与前一交易日报价持平。
 
-现将《习近平外交文选》第一卷、第二卷主要篇目介绍如下。
+今日上期所氧化铝期货主力2605合约震荡走弱，日间交易收跌1.16%，国内氧化铝现货价格下跌。
 
-《顺应时代前进潮流，促进世界和平发展》(2013年3月23日)这是习近平同志在俄罗斯莫斯科国际关系学院的演讲。
+宏观层面，美伊停火协议虽于4月8日生效，但伊朗对霍尔木兹海峡的严格管控未松，地区信任重建仍存变数。
 
-文中指出：这个世界越来越成为你中有我、我中有你的命运共同体。
+CME美联储观察工具显示，年末利率维持当前水平的概率达71%，货币政策中性背景下，氧化铝期货市场空头氛围浓厚，期价持续承压震荡。
 
-要跟上时代前进步伐，就不能身体已进入二十一世纪，而脑袋还停留在过去，停留在殖民扩张的旧时代里，停留在冷战思维、零和博弈的老框框内。
+基本面方面，广西新增产能即将释放，供应增量预期强化；临近交割，上期所仓单库存增至46.5万吨（单日增1.24万吨），仓单流出压力凸显。
 
-面对国际形势的深刻变化和世界各国同舟共济的客观要求，各国应该共同推动建立以合作共赢为核心的新型国际关系，各国人民应该一起来维护世界和平、促进共同发展。
+消费端，电解铝开工率虽提升，但采购仍以按需为主，需求拉动有限。
 
-《永远做可靠朋友和真诚伙伴》(2013年3月25日)这是习近平同志在坦桑尼亚尼雷尔国际会议中心的演讲。
+现货市场，价格随期货下跌，持货商周末出货意愿增强，流通宽松，然下游刚需疲软、贸易商承接不足，市场买兴难振，交易面延续弱势。
 
 ## 相关推荐
 
-- 2026-06-30 02:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-30 02:04 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 02:09 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 02:28 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 02:01 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 02:05 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 02:18 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 02:09 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 02:03 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 02:24 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 02:13 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 02:29 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 02:34 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 02:32 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 02:26 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 02:20 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 02:35 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-30 02:07 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 02:16 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 02:07 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 02:15 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:19 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/08111129.shtml)
-- 2026-06-30 02:02 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/1889978871.shtml)
-- 2026-06-30 02:12 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/71231703.shtml)
-- 2026-06-30 02:08 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/8795667.shtml)
-- 2026-06-30 02:13 - [沙丘](https://www.share.minike.top/Article/details/71189226246.shtml)
-- 2026-06-30 02:15 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/44015706697.shtml)
-- 2026-06-30 02:04 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/80699.shtml)
-- 2026-06-30 02:02 - [起风了](https://www.blog.kurohicncr.top/Article/details/860638509.shtml)
-- 2026-06-30 02:21 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/31224.shtml)
-- 2026-06-30 02:02 - [起风了](http://www.share.minike.top/Article/details/706790478279.shtml)
-- 2026-06-30 02:01 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/44103.shtml)
-- 2026-06-30 02:26 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/9049188.shtml)
-- 2026-06-30 02:12 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/2292115.shtml)
-- 2026-06-30 02:21 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/960983014.shtml)
-- 2026-06-30 02:28 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/464591652.shtml)
+- 2026-06-30 02:35 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/2098865175.shtml)
+- 2026-06-30 02:35 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/34547832.shtml)
+- 2026-06-30 02:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/4497027853.shtml)
+- 2026-06-30 02:31 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/87380536.shtml)
+- 2026-06-30 02:34 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/312062685.shtml)
+- 2026-06-30 02:17 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/91216715395.shtml)
+- 2026-06-30 02:18 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/710266138746.shtml)
+- 2026-06-30 02:35 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/70864619.shtml)
+- 2026-06-30 02:14 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/954128.shtml)
+- 2026-06-30 02:24 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/388950153.shtml)
+- 2026-06-30 02:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/479499469.shtml)
+- 2026-06-30 02:32 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/721032593.shtml)
+- 2026-06-30 02:32 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/190523567077.shtml)
+- 2026-06-30 02:30 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/2549212318.shtml)
+- 2026-06-30 02:19 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/2511932994.shtml)

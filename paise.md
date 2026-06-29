@@ -1,57 +1,53 @@
-# 前员工起诉xAI和SpaceX 称因质疑AI安全遭公司解雇
+# 北京市自然昆虫博物馆上万昆虫标本吸引市民
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-埃隆·马斯克旗下xAI的一名前工程师将xAI及其母公司SpaceX告上法庭，指控自己因提出人工智能安全相关质疑而遭到解雇。 Devin Kim于2025年9月从xAI离职，他于周二在加州州法院提起诉讼。此时距离SpaceX上市仅剩数日，这场IPO有望成为史上规模最大的首次公开募股。 Devin Kim在职期间参与研发xAI旗下AI聊天机器人Grok，一直积极呼吁重视AI安全。他
+发布时间：2026年04月10日 20:50 来源：中国新闻网 4月10日，市民在北京市自然昆虫博物馆标本展示区参观。北京市自然昆虫博物馆于4月9日正式面向公众开放，建筑面积约4000平方米，是北京南中轴地区落成的首家博物馆，馆内展出上万种昆虫标本、上百只活体昆虫和爬行动物。馆内既有支撑自然科普传播的基础展陈内容，为公众普及昆虫学知识、传播自然生态理念，也打造了视觉识别度高的蝴
 
 ## 正文
 
-埃隆·马斯克旗下xAI的一名前工程师将xAI及其母公司SpaceX告上法庭，指控自己因提出人工智能安全相关质疑而遭到解雇。
+发布时间：2026年04月10日 20:50 来源：中国新闻网 4月10日，市民在北京市自然昆虫博物馆标本展示区参观。
 
-Devin Kim于2025年9月从xAI离职，他于周二在加州州法院提起诉讼。
+北京市自然昆虫博物馆于4月9日正式面向公众开放，建筑面积约4000平方米，是北京南中轴地区落成的首家博物馆，馆内展出上万种昆虫标本、上百只活体昆虫和爬行动物。
 
-此时距离SpaceX上市仅剩数日，这场IPO有望成为史上规模最大的首次公开募股。
+馆内既有支撑自然科普传播的基础展陈内容，为公众普及昆虫学知识、传播自然生态理念，也打造了视觉识别度高的蝴蝶墙、古董珠宝尾厅等特色展区。
 
-Devin Kim在职期间参与研发xAI旗下AI聊天机器人Grok，一直积极呼吁重视AI安全。
-
-他多次指出，xAI在Grok的研发过程中并未将安全问题放在首位。
-
-这款产品后续也因多项安全问题和不当输出行为遭到广泛批评。
-
-Devin Kim尤其担忧，Grok可能滋生歧视言论，还会被用于传播大规模杀伤性武器相关信息。
-
-诉状中写道：“后续事态印证了Devin Kim的观点，Grok多次发布极具攻击性的仇恨言论，甚至将自己比作希特勒，自称‘MechaHitler’。
+(易海菲 制作 王佳琪） 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 02:10 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 02:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 02:09 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 02:22 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 02:24 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 02:24 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 02:15 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 02:07 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 02:26 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 02:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 02:16 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 02:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 02:27 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 02:08 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 02:06 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 02:32 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 02:20 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-30 02:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 02:14 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 02:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 02:09 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 02:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 02:32 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 02:31 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 02:23 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:27 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/187352068.shtml)
-- 2026-06-30 02:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/619446268.shtml)
-- 2026-06-30 02:07 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/27162.shtml)
-- 2026-06-30 02:10 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/42893.shtml)
-- 2026-06-30 02:18 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/03721977018.shtml)
-- 2026-06-30 02:04 - [金刚川](https://www.blog.kurohicncr.top/Article/details/30689.shtml)
-- 2026-06-30 02:20 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/37905714.shtml)
-- 2026-06-30 02:19 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/2775908.shtml)
-- 2026-06-30 02:21 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/39528683380.shtml)
-- 2026-06-30 02:16 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/251232.shtml)
-- 2026-06-30 02:29 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/459642541212.shtml)
-- 2026-06-30 02:09 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/87169293433.shtml)
-- 2026-06-30 02:04 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/82741809840.shtml)
-- 2026-06-30 02:04 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/705621443.shtml)
-- 2026-06-30 02:13 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/0290620114.shtml)
+- 2026-06-30 02:09 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/9283317640.shtml)
+- 2026-06-30 02:15 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/78840.shtml)
+- 2026-06-30 02:24 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/5060741.shtml)
+- 2026-06-30 02:18 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/904674.shtml)
+- 2026-06-30 02:08 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/054882.shtml)
+- 2026-06-30 02:19 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/695666572939.shtml)
+- 2026-06-30 02:31 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/420192526191.shtml)
+- 2026-06-30 02:09 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/7446458037.shtml)
+- 2026-06-30 02:15 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/9004694129.shtml)
+- 2026-06-30 02:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/366360.shtml)
+- 2026-06-30 02:27 - [金刚川](http://www.share.kurohicncr.top/Article/details/033754742388.shtml)
+- 2026-06-30 02:27 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/640162586338.shtml)
+- 2026-06-30 02:23 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/6746143105.shtml)
+- 2026-06-30 02:33 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/771628790.shtml)
+- 2026-06-30 02:14 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/89770.shtml)

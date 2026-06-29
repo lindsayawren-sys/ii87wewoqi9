@@ -1,56 +1,60 @@
-# 一村资本总经理于彤：2026年优质并购标的相对稀缺
+# 腰旗橄榄球架起中美青年交流之桥
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-专题：2026投资界SuperLink大会 2026投资界SuperLink大会于6月10日-6月11日在苏州举行。一村资本总经理于彤强调，并购退出不一定要等很久，也能在相对较短的周期内获得良好收益。 于彤总结了当前并购市场的六大核心变化。她指出，本轮并购属于典型的政策驱动型行情：“从924政策落地后，并购监管显著放宽，核心方向聚焦新质生产力。”数据显示，电子、电气设备、机械设
+中新网北京4月9日电 (记者 国璇)4月9日，美国华盛顿州塔科马市林肯中学腰旗橄榄球队到访北京首都体育学院，与该校的腰旗橄榄球社团展开友谊赛。首都体育学院队员高斯齐说：“这次比赛是一次很宝贵的交流机会。无论哪一方打出好球，我们都会相互鼓励。” 今年是中美“乒乓外交”55周年。应中国人民对外友好协会邀请，来自美国各地的150余位青少年运动员及各界代表将共同出席10日在北京举行的纪
 
 ## 正文
 
-专题：2026投资界SuperLink大会 2026投资界SuperLink大会于6月10日-6月11日在苏州举行。
+中新网北京4月9日电 (记者 国璇)4月9日，美国华盛顿州塔科马市林肯中学腰旗橄榄球队到访北京首都体育学院，与该校的腰旗橄榄球社团展开友谊赛。
 
-一村资本总经理于彤强调，并购退出不一定要等很久，也能在相对较短的周期内获得良好收益。
+首都体育学院队员高斯齐说：“这次比赛是一次很宝贵的交流机会。
 
-于彤总结了当前并购市场的六大核心变化。
+无论哪一方打出好球，我们都会相互鼓励。
 
-她指出，本轮并购属于典型的政策驱动型行情：“从924政策落地后，并购监管显著放宽，核心方向聚焦新质生产力。
+” 今年是中美“乒乓外交”55周年。
 
-”数据显示，电子、电气设备、机械设备等智能制造领域并购交易领跑市场，主题高度集中，与2015、2016年并购主题分散的局面形成明显区别。
+应中国人民对外友好协会邀请，来自美国各地的150余位青少年运动员及各界代表将共同出席10日在北京举行的纪念大会，并见证2026中美青少年体育交流系列活动正式启动。
 
-“这一轮上市公司并购更加审慎。
+55年前，小小乒乓球推动中美关系破冰，两国民间交往的大门越开越大。
 
-”于彤表示，当下上市公司更聚焦产业链上下游整合，优先布局能够产生产业协同的标的，跨界并购案例明显减少，行业进入产业链重塑型并购阶段，机构更注重垂直深耕与横向拓展，完善自身产业布局。
+如今中美体育领域的交流合作不断深化，作为美式橄榄球的一种安全、简便的比赛形式，腰旗橄榄球近年来在中国发展迅速，也成为中美体育交流的又一载体。
 
-同时，并购市场参与主体愈发多元。
+此次友谊赛分为男队和女队两场且同时进行。
 
 ## 相关推荐
 
-- 2026-06-30 02:30 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 02:22 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 02:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 02:13 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 02:04 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 02:22 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 02:10 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 02:09 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 02:23 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 02:09 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 02:22 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 02:27 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 02:21 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 02:35 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 02:35 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 02:24 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 02:19 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 02:31 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 02:30 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 02:32 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 02:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 02:31 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 02:27 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 02:17 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:05 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/975431550348.shtml)
-- 2026-06-30 02:24 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/489953287120.shtml)
-- 2026-06-30 02:01 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/62175581.shtml)
-- 2026-06-30 02:06 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/95423005.shtml)
-- 2026-06-30 02:29 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/820521121274.shtml)
-- 2026-06-30 02:10 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/4662705535.shtml)
-- 2026-06-30 02:27 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/94175106.shtml)
-- 2026-06-30 02:15 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/0466802967.shtml)
-- 2026-06-30 02:09 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/60218784008.shtml)
-- 2026-06-30 02:22 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/6843285531.shtml)
-- 2026-06-30 02:21 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/710954.shtml)
-- 2026-06-30 02:04 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/43930448.shtml)
-- 2026-06-30 02:08 - [蔚来车主罚站](https://www.share.minike.top/Article/details/304835.shtml)
-- 2026-06-30 02:15 - [起风了](http://www.share.kurohicncr.top/Article/details/770065217120.shtml)
-- 2026-06-30 02:03 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/33729.shtml)
+- 2026-06-30 02:12 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/80767.shtml)
+- 2026-06-30 02:25 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/842826.shtml)
+- 2026-06-30 02:35 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/8288316.shtml)
+- 2026-06-30 02:17 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/035691.shtml)
+- 2026-06-30 02:24 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/06082479.shtml)
+- 2026-06-30 02:20 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/080391342328.shtml)
+- 2026-06-30 02:29 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/4805604.shtml)
+- 2026-06-30 02:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/31281.shtml)
+- 2026-06-30 02:06 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/02976520412.shtml)
+- 2026-06-30 02:25 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/398925.shtml)
+- 2026-06-30 02:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/14394.shtml)
+- 2026-06-30 02:21 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/5422807647.shtml)
+- 2026-06-30 02:12 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/95262.shtml)
+- 2026-06-30 02:12 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/82167725.shtml)
+- 2026-06-30 02:21 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/575643364623.shtml)

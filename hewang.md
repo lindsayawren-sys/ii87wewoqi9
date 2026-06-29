@@ -1,61 +1,56 @@
-# 美联储官员表态：物价持续上涨，加息重回备选方案
+# 湛江边检保障首批西芒杜铁矿破碎筛分项目原材料高效通关
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-专题：美国5月CPI同比涨幅三年来首次突破4% 原本期盼借贷成本回落的美国民众，或许还要再等一段时间。 就在几周前，市场投资者还普遍预期，信用卡、汽车贷款、房屋净值信贷额度等挂钩美联储短期基准利率的信贷产品利率将会下调。而如今，多名美联储官员释放信号，年底前不排除再度加息。 达拉斯联储主席洛里・洛根 6 月 3 日在得州埃尔帕索发表讲话时称：“我愈发认为，今年晚些时候或许有必要
+中新网湛江4月9日电 (方伟彬 吴习帅 陈思颖)珠海边检总站湛江边检站9日发布消息，8日18时，新加坡籍“中华远景”轮搭载首批西芒杜铁矿破碎筛分项目原材料，顺利靠泊湛江港601泊位。 该站高效落实通关保障举措，实现船舶及物资“零等待”通关、“零延时”作业，为国家重点资源项目推进筑牢国门保障。 据介绍，西芒杜铁矿位于几内亚，是全球未开发储量最大、品位最优的露天赤铁矿项目，平均品位
 
 ## 正文
 
-专题：美国5月CPI同比涨幅三年来首次突破4% 原本期盼借贷成本回落的美国民众，或许还要再等一段时间。
+中新网湛江4月9日电 (方伟彬 吴习帅 陈思颖)珠海边检总站湛江边检站9日发布消息，8日18时，新加坡籍“中华远景”轮搭载首批西芒杜铁矿破碎筛分项目原材料，顺利靠泊湛江港601泊位。
 
-就在几周前，市场投资者还普遍预期，信用卡、汽车贷款、房屋净值信贷额度等挂钩美联储短期基准利率的信贷产品利率将会下调。
+该站高效落实通关保障举措，实现船舶及物资“零等待”通关、“零延时”作业，为国家重点资源项目推进筑牢国门保障。
 
-而如今，多名美联储官员释放信号，年底前不排除再度加息。
+据介绍，西芒杜铁矿位于几内亚，是全球未开发储量最大、品位最优的露天赤铁矿项目，平均品位超65%，此次到港原料是项目核心设备安装调试的关键物资。
 
-达拉斯联储主席洛里・洛根 6 月 3 日在得州埃尔帕索发表讲话时称：“我愈发认为，今年晚些时候或许有必要进一步上调利率。
+项目建成后，将打造“矿山粗碎-海运-港口精深加工”全新供应链模式，对保障国家资源供应链安全意义重大。
 
-” 政策态度转向的背后，是通胀再度抬头的迹象。
+为保障重点物资高效通关，湛江边检站提前启动重大项目专项保障机制，主动对接项目业主、码头及船代公司，精准掌握船舶信息，量身定制“一船一策”通关方案，联合海关、海事等部门开展一站式联合登临查验，精简流程、同步办结，落实“人等船、船到即办”，全力压缩通关时间。
 
-美国劳工统计局周三公布居民消费价格指数（CPI）显示，5 月物价同比上涨 4.2%，高于 4 月 3.8% 的同比涨幅，大幅超出美联储 2% 的年度通胀目标。
+同时依托科技手段，提前完成线上信息预审、船员及船舶核查，实现“未到先检”。
 
-通胀居高不下时，美联储通常会上调基准利率，以此为经济降温，遏制物价过快上涨。
+此次顺利通关，标志着该项目正式进入实质建设阶段。
 
-利率追踪工具 CME 美联储观察的数据显示，截至周三早间，市场交易员押注年底前美联储至少加息 25 个基点的概率达 66%。
+下一步，湛江边检站将持续优化口岸通关服务，聚焦重点项目需求，以高效便捷的边检保障，助力口岸经济高质量发展，全力维护国家产业链供应链稳定。
 
 ## 相关推荐
 
-- 2026-06-30 02:14 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 02:11 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 02:17 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 02:08 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 02:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-30 02:02 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 02:21 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 02:17 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 02:01 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 02:07 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 02:01 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 02:01 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 02:10 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 02:27 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 02:01 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 02:21 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 02:30 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-30 02:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 02:09 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 02:15 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 02:06 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 02:29 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 02:32 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 02:22 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 02:07 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:16 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/5177316023.shtml)
-- 2026-06-30 02:01 - [啊啊啊](https://www.share.minike.top/Article/details/937899.shtml)
-- 2026-06-30 02:09 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/760516.shtml)
-- 2026-06-30 02:24 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/92691.shtml)
-- 2026-06-30 02:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/83777.shtml)
-- 2026-06-30 02:27 - [天道](http://www.share.minike.top/Article/details/33383023.shtml)
-- 2026-06-30 02:22 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/06928604.shtml)
-- 2026-06-30 02:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/662221557.shtml)
-- 2026-06-30 02:28 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/318823779125.shtml)
-- 2026-06-30 02:09 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/425225086032.shtml)
-- 2026-06-30 02:02 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/680808.shtml)
-- 2026-06-30 02:22 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/18517546961.shtml)
-- 2026-06-30 02:18 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/953827331.shtml)
-- 2026-06-30 02:21 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/02104113.shtml)
-- 2026-06-30 02:13 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/4745497.shtml)
+- 2026-06-30 02:11 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/0772723.shtml)
+- 2026-06-30 02:15 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/881571.shtml)
+- 2026-06-30 02:20 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/6212145314.shtml)
+- 2026-06-30 02:18 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/63834.shtml)
+- 2026-06-30 02:32 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/71350.shtml)
+- 2026-06-30 02:31 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/58128777967.shtml)
+- 2026-06-30 02:13 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/591879269.shtml)
+- 2026-06-30 02:21 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/4986098.shtml)
+- 2026-06-30 02:14 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/07451.shtml)
+- 2026-06-30 02:19 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/0583329.shtml)
+- 2026-06-30 02:16 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/657862158962.shtml)
+- 2026-06-30 02:21 - [AI接过张雪峰志愿填报衣钵](https://www.blog.kurohicncr.top/Article/details/5676819164.shtml)
+- 2026-06-30 02:20 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/340372.shtml)
+- 2026-06-30 02:29 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/793164005228.shtml)
+- 2026-06-30 02:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/632167044.shtml)

@@ -1,44 +1,48 @@
-# “百亿补贴”非真百亿，5家电商平台被约谈
+# 应县木塔将拆卸大修、新能源汽车开征“里程税”……擦亮眼睛，全是假的！
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-来源：大河财立方 今天（11日），北京市市场监督管理局约谈淘宝（天猫）、京东、拼多多、抖音、小红书5家电商平台，通报平台“内卷式”竞争综合整治发现的第二批典型问题，主要包括促销活动虚假宣传、促销规则制定与公示不规范、商品经营者信息未公示等问题，并提出整改要求，旨在防范化解“6·18”期间网络集中促销可能引发的“内卷式”竞争风险，切实维护消费者合法权益与公平有序的网络市场环境。
+应县木塔将拆卸大修、新能源汽车开征“里程税”、用OpenClaw登录微信被刷600元……擦亮眼睛，全是假的！ 应县木塔将拆卸大修 新能源汽车开征“里程税” 用OpenClaw登录微信被刷600元…… 擦亮眼睛 全是假的！ 赶快来看中国互联网联合辟谣平台3月辟谣榜 ↓↓↓ 来源： 中国网信网
 
 ## 正文
 
-来源：大河财立方 今天（11日），北京市市场监督管理局约谈淘宝（天猫）、京东、拼多多、抖音、小红书5家电商平台，通报平台“内卷式”竞争综合整治发现的第二批典型问题，主要包括促销活动虚假宣传、促销规则制定与公示不规范、商品经营者信息未公示等问题，并提出整改要求，旨在防范化解“6·18”期间网络集中促销可能引发的“内卷式”竞争风险，切实维护消费者合法权益与公平有序的网络市场环境。
+应县木塔将拆卸大修、新能源汽车开征“里程税”、用OpenClaw登录微信被刷600元……擦亮眼睛，全是假的！
 
-责任编辑：杨赐
+应县木塔将拆卸大修 新能源汽车开征“里程税” 用OpenClaw登录微信被刷600元…… 擦亮眼睛 全是假的！
+
+赶快来看中国互联网联合辟谣平台3月辟谣榜 ↓↓↓ 来源： 中国网信网
 
 ## 相关推荐
 
-- 2026-06-30 02:20 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 02:18 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 02:07 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 02:05 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 02:01 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 02:23 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 02:25 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 02:00 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 02:11 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 02:21 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 02:16 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 02:20 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 02:11 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 02:19 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 02:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 02:32 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 02:15 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 02:06 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 02:15 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 02:16 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 02:14 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 02:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:02 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/93920202.shtml)
-- 2026-06-30 02:03 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/4593045398.shtml)
-- 2026-06-30 02:10 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/760158.shtml)
-- 2026-06-30 02:16 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/35103135780.shtml)
-- 2026-06-30 02:17 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/26473.shtml)
-- 2026-06-30 02:18 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/5347438230.shtml)
-- 2026-06-30 02:13 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/6329975.shtml)
-- 2026-06-30 02:22 - [巴西扳平比分](http://www.share.minike.top/Article/details/0143577.shtml)
-- 2026-06-30 02:20 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/850222432.shtml)
-- 2026-06-30 02:18 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/904288.shtml)
-- 2026-06-30 02:02 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/96649824.shtml)
-- 2026-06-30 02:07 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/03603.shtml)
-- 2026-06-30 02:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/88153034.shtml)
-- 2026-06-30 02:24 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/545093052159.shtml)
-- 2026-06-30 02:19 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/361079.shtml)
+- 2026-06-30 02:30 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/731919573.shtml)
+- 2026-06-30 02:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/87795439350.shtml)
+- 2026-06-30 02:32 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/00217.shtml)
+- 2026-06-30 02:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/973094168.shtml)
+- 2026-06-30 02:21 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/3367427.shtml)
+- 2026-06-30 02:18 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/81299593.shtml)
+- 2026-06-30 02:24 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/3863994676.shtml)
+- 2026-06-30 02:32 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/84908310.shtml)
+- 2026-06-30 02:12 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/9962037.shtml)
+- 2026-06-30 02:12 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/44850690466.shtml)
+- 2026-06-30 02:26 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/49904816.shtml)
+- 2026-06-30 02:33 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/698174.shtml)
+- 2026-06-30 02:30 - [一生一世](http://www.share.minike.top/Article/details/10175254552.shtml)
+- 2026-06-30 02:31 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/467157.shtml)
+- 2026-06-30 02:30 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/88596365767.shtml)

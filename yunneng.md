@@ -1,57 +1,58 @@
-# 光大期货：6月12日能源化工日报
+# 国家网络安全通报中心：近期集中爆发多起供应链投毒攻击事件，涉及两大核心供应链场景
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周四油价重心再度重挫，其中WTI 7月合约收盘下跌2.32美元至87.71美元/桶，跌幅2.58%。布伦特8月合约收盘下跌2.72美元至90.38美元/桶，跌幅2.92%。SC2607以564.7元/桶收盘，下跌21.3元/桶，跌幅3.63%。美国总统特朗普在社交媒体发文说，鉴于与伊朗的磋商结果
+中新网4月10日电 据国家网络安全通报中心微信公众号消息，国家通报中心监测发现，近期集中爆发多起供应链投毒攻击事件，攻击目标包括API研发工具Apifox、Python开发库LiteLLM以及JavaScript HTTP库Axios，涉及开源软件仓库和商用工具两大核心供应链场景。其中，Axios投毒事件因OpenClaw等大量AI应用及插件生态直接依赖该库，导致风险通过依赖链
 
 ## 正文
 
-原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周四油价重心再度重挫，其中WTI 7月合约收盘下跌2.32美元至87.71美元/桶，跌幅2.58%。
+中新网4月10日电 据国家网络安全通报中心微信公众号消息，国家通报中心监测发现，近期集中爆发多起供应链投毒攻击事件，攻击目标包括API研发工具Apifox、Python开发库LiteLLM以及JavaScript HTTP库Axios，涉及开源软件仓库和商用工具两大核心供应链场景。
 
-布伦特8月合约收盘下跌2.72美元至90.38美元/桶，跌幅2.92%。
+其中，Axios投毒事件因OpenClaw等大量AI应用及插件生态直接依赖该库，导致风险通过依赖链向终端用户进一步蔓延。
 
-SC2607以564.7元/桶收盘，下跌21.3元/桶，跌幅3.63%。
+三起供应链投毒事件呈现攻击隐蔽性强、影响范围广、危害程度高和传播速度快的共性特征，可造成凭据遭窃取、远程代码执行和敏感数据泄露等严重危害。
 
-美国总统特朗普在社交媒体发文说，鉴于与伊朗的磋商结果已提交至伊朗最高领导层并获得批准，他已取消原定于当晚针对伊朗实施的打击与轰炸行动。
+一、供应链投毒风险分析 一是攻击对象聚焦重点用户。
 
-特朗普表示，有关“伊朗战争”已达成一项重大协议，可能本周末在欧洲签署。
+开发运营人员往往拥有较高系统权限与密钥访问能力，使供应链投毒攻击具备较高潜在收益。
 
-他本人无法到场，但美副总统万斯将出席。
+二是攻击路径隐蔽易于扩散。
 
-然而，伊朗方面表示尚未就伊美协议达成最终结论。
+投毒攻击通过账号劫持、上游依赖污染或发布渠道篡改等方式实施，无需用户主动交互即可触发风险，并可向下游环境快速传播。
 
-OPEC公布的月度报告显示，该组织将2026年全球石油需求增长预测下调至每日97万桶，此为连续第二个月下调。
+三是攻击危害呈现放大效应。
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-30 02:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 02:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 02:18 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 02:11 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 02:11 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 02:09 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 02:01 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-30 02:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 02:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 02:18 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 02:26 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 02:27 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 02:19 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 02:18 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 02:25 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 02:26 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 02:22 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 02:26 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 02:22 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 02:07 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 02:19 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 02:07 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:22 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/4719743610.shtml)
-- 2026-06-30 02:17 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/22157905724.shtml)
-- 2026-06-30 02:14 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/827984325395.shtml)
-- 2026-06-30 02:19 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/52529.shtml)
-- 2026-06-30 02:11 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/18443512915.shtml)
-- 2026-06-30 02:13 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/56492422.shtml)
-- 2026-06-30 02:26 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/236793772180.shtml)
-- 2026-06-30 02:10 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/66305827568.shtml)
-- 2026-06-30 02:25 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/78122683259.shtml)
-- 2026-06-30 02:13 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/089399235.shtml)
-- 2026-06-30 02:13 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/192939401.shtml)
-- 2026-06-30 02:18 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/6183986607.shtml)
-- 2026-06-30 02:24 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/769998.shtml)
-- 2026-06-30 02:25 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/09100.shtml)
-- 2026-06-30 02:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/238889475.shtml)
+- 2026-06-30 02:27 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/753780435386.shtml)
+- 2026-06-30 02:16 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/13729199347.shtml)
+- 2026-06-30 02:30 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/711513546281.shtml)
+- 2026-06-30 02:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/391216129385.shtml)
+- 2026-06-30 02:34 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/74872380313.shtml)
+- 2026-06-30 02:21 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/02923.shtml)
+- 2026-06-30 02:11 - [新官上任三把火](https://www.blog.minike.top/Article/details/1977622.shtml)
+- 2026-06-30 02:20 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/26947852978.shtml)
+- 2026-06-30 02:16 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/35968.shtml)
+- 2026-06-30 02:25 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/490883895.shtml)
+- 2026-06-30 02:20 - [张凌赫 客串](http://www.share.minike.top/Article/details/150434.shtml)
+- 2026-06-30 02:16 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/85403059.shtml)
+- 2026-06-30 02:18 - [天道](https://www.blog.minike.top/Article/details/67552588.shtml)
+- 2026-06-30 02:35 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/2903025.shtml)
+- 2026-06-30 02:27 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/76888884639.shtml)

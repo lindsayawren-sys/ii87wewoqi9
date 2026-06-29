@@ -1,58 +1,58 @@
-# 东兴海关综合技术服务中心2026年海关仪器设备及能力保障专项竞争性协商公告
+# 传染性强、后遗症严重！正值流脑高发季，中疾控提醒→
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-东兴海关综合技术服务中心2026年海关仪器设备及能力保障专项【项目编号：GXRZ(2)2026008C1】竞争性协商公告 项目概况： 东兴海关综合技术服务中心2026年海关仪器设备及能力保障专项的潜在供应商到广西瑞真工程造价咨询有限责任公司获取采购文件，并于2026年6月24日15点00分(北京时间)前提交响应文件。 一、项目基本情况 一、项目名称：东兴海关综合技术服务中心20
+发热、头痛、乏力……有一种传染病早期症状与普通感冒类似，一旦延迟治疗，可能增加重症和死亡风险。 日前，中国疾控中心提醒，流脑正值高发季，尤其是有孩子的家庭，务必重视孩子的疫苗接种。 流脑究竟有多“凶险”？ 中国疾控中心研究员介绍，流脑是流行性脑脊髓膜炎的简称，是由脑膜炎奈瑟菌感染引起的急性化脓性脑脊髓膜炎，冬春季高发。一旦出现突发高热、伴有剧烈头痛、频繁呕吐、精神萎靡，尤其是皮
 
 ## 正文
 
-东兴海关综合技术服务中心2026年海关仪器设备及能力保障专项【项目编号：GXRZ(2)2026008C1】竞争性协商公告 项目概况： 东兴海关综合技术服务中心2026年海关仪器设备及能力保障专项的潜在供应商到广西瑞真工程造价咨询有限责任公司获取采购文件，并于2026年6月24日15点00分(北京时间)前提交响应文件。
+发热、头痛、乏力……有一种传染病早期症状与普通感冒类似，一旦延迟治疗，可能增加重症和死亡风险。
 
-一、项目基本情况 一、项目名称：东兴海关综合技术服务中心2026年海关仪器设备及能力保障专项 项目编号：GXRZ(2)2026008C1 采购方式：竞争性协商 预算金额：32万元； 最高限价(如有)：32万元 采购需求： 合同履行期限：自签订合同之日起30个日历日内交货。
+日前，中国疾控中心提醒，流脑正值高发季，尤其是有孩子的家庭，务必重视孩子的疫苗接种。
 
-二、申请人的资格要求： 1.满足《中华人民共和国政府采购法》第二十二条规定。
+流脑究竟有多“凶险”？
 
-2.本项目的特定条件：无 3.单位负责人为同一人或者存在直接控股、管理关系的不同供应商，不得参加同一合同项下的采购活动。
+中国疾控中心研究员介绍，流脑是流行性脑脊髓膜炎的简称，是由脑膜炎奈瑟菌感染引起的急性化脓性脑脊髓膜炎，冬春季高发。
 
-4.对在“信用中国”网站(www.creditchina.gov.cn) 、中国政府采购网(www.ccgp.gov.cn)被列入失信被执行人、重大税收违法失信主体、政府采购严重违法失信行为记录名单及其他不符合《中华人民共和国政府采购法》第二十二条规定条件的供应商，不得参与本采购活动。
+一旦出现突发高热、伴有剧烈头痛、频繁呕吐、精神萎靡，尤其是皮肤出现了压之不退的瘀点、瘀斑，应当立即就医，切勿在家中观察等待。
 
-5.本项目是否接受联合体响应：□是/☑否。
+中国疾控中心提醒，该病发病急、进展快、传染性强、隐性感染率高、病死率高，由于早期症状与普通感冒相似，许多人易忽视，导致延误治疗： 隐匿性强。
 
-三、获取采购文件 公告之时起至2026年6月18日(法定工作日，北京时间：9:00-12：00，15:00-17:30) 由供应商的法定代表人(非法定代表人携带法定代表人授权书原件)持身份证原件及复印件加盖单位公章现场购买；主体资格证明(如营业执照或事业单位法人证书等)副本复印件(须加盖单位公章)到广西瑞真工程造价咨询有限责任公司(南宁市青秀区竹溪大道2号荣恒国际名都A座10层1011号)购买竞争性协商文件；竞争性协商文件售价每本300元(售后不退)。
+潜伏期1到7天，携带者可能没有典型症状或没有症状，却具有传染性。
 
-四、响应文件提交截止时间 2026年6月24日15点00分(北京时间)；地点：广西瑞真工程造价咨询有限责任公司开标室(南宁市青秀区竹溪大道2号荣恒国际名都A座10层01号)。
+起病急、进展快。
 
 ## 相关推荐
 
-- 2026-06-30 02:11 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 02:12 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 02:22 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 02:10 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-30 02:06 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 02:08 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 02:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 02:20 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 02:10 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 02:16 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 02:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 02:03 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 02:06 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 02:29 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 02:06 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 02:13 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 02:23 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 02:26 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 02:27 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 02:29 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 02:17 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 02:25 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 02:24 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 02:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:19 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/87940.shtml)
-- 2026-06-30 02:18 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/329443.shtml)
-- 2026-06-30 02:15 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/9520143060.shtml)
-- 2026-06-30 02:11 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/84457.shtml)
-- 2026-06-30 02:06 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/054381.shtml)
-- 2026-06-30 02:12 - [第一炉香](http://www.blog.minike.top/Article/details/65232.shtml)
-- 2026-06-30 02:20 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/61346350482.shtml)
-- 2026-06-30 02:05 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/480130.shtml)
-- 2026-06-30 02:09 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/307840.shtml)
-- 2026-06-30 02:11 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/670846768845.shtml)
-- 2026-06-30 02:27 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/281430381858.shtml)
-- 2026-06-30 02:23 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/396985.shtml)
-- 2026-06-30 02:04 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/78182.shtml)
-- 2026-06-30 02:22 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/008409606435.shtml)
-- 2026-06-30 02:17 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/160793586.shtml)
+- 2026-06-30 02:14 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/2571961451.shtml)
+- 2026-06-30 02:25 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/3982015264.shtml)
+- 2026-06-30 02:21 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/981718440132.shtml)
+- 2026-06-30 02:13 - [金刚川](https://www.blog.minike.top/Article/details/77003735321.shtml)
+- 2026-06-30 02:22 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/697593.shtml)
+- 2026-06-30 02:10 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/03095.shtml)
+- 2026-06-30 02:07 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/26067.shtml)
+- 2026-06-30 02:07 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/8420150666.shtml)
+- 2026-06-30 02:17 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/71115.shtml)
+- 2026-06-30 02:27 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/33166056917.shtml)
+- 2026-06-30 02:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/882694249894.shtml)
+- 2026-06-30 02:29 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/0087416115.shtml)
+- 2026-06-30 02:34 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/0106414.shtml)
+- 2026-06-30 02:30 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/87734550174.shtml)
+- 2026-06-30 02:07 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/8299026.shtml)

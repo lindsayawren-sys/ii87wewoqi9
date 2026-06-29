@@ -1,57 +1,61 @@
-# 欧洲央行接近三年来首次加息 拉加德警告通胀扩散风险
+# 政府停摆扰动统计，美国四季度经济实际增速远超 GDP 表现
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-欧洲央行在接近三年来首次加息，行长克里斯蒂娜·拉加德警告称，由伊朗战争引发的通胀正在扩散，不再局限于能源领域。 存款利率从2%上调至2.25%，符合经济学家和投资者的预期，他们预计9月份还会再加息25个基点。欧洲央行重申不会预先承诺未来行动，但表示仍处于有利位置，能够应对当前的不可预测性。 行长拉加德在法兰克福对记者表示，冲击正开始“在整个经济中”扩散，“直接成本显而易见，间接
+美国第四季度，实际经济活动比GDP数据所显示的更为强劲，以收入为基础的指标显示出更强劲的增长。这种差异主要反映了美国经济分析局如何将去年秋季政府停摆造成的经济活动中断纳入考量。 第四季度GDP最终估值从之前的0.7%下调至0.5%。正如预期，实际国内生产总值（GDI）显示出更强劲的潜在增速，第四季度增长2.6%。 GDP与GDI之间的差异主要反映了政府停摆造成的技术性扭曲。 为
 
 ## 正文
 
-欧洲央行在接近三年来首次加息，行长克里斯蒂娜·拉加德警告称，由伊朗战争引发的通胀正在扩散，不再局限于能源领域。
+美国第四季度，实际经济活动比GDP数据所显示的更为强劲，以收入为基础的指标显示出更强劲的增长。
 
-存款利率从2%上调至2.25%，符合经济学家和投资者的预期，他们预计9月份还会再加息25个基点。
+这种差异主要反映了美国经济分析局如何将去年秋季政府停摆造成的经济活动中断纳入考量。
 
-欧洲央行重申不会预先承诺未来行动，但表示仍处于有利位置，能够应对当前的不可预测性。
+第四季度GDP最终估值从之前的0.7%下调至0.5%。
 
-行长拉加德在法兰克福对记者表示，冲击正开始“在整个经济中”扩散，“直接成本显而易见，间接成本也在显现”。
+正如预期，实际国内生产总值（GDI）显示出更强劲的潜在增速，第四季度增长2.6%。
 
-她反驳了有关周四一致作出的加息决定属于预防性举措的说法。
+GDP与GDI之间的差异主要反映了政府停摆造成的技术性扭曲。
 
-她说：“主要风险将是不作出这类决定，因为如果你任由通胀开始不受控制地上升，那么要把它带回价格稳定水平，就会变成困难得多的局面。
+为了反映政府服务减少的影响，美国经济分析局（BEA）采用了预估工时，其中既包括休假员工人数，也包括休假持续时间。
 
-” 欧洲央行宣布决定后，欧洲债券维持涨势。
+因此，政府停摆导致第四季度GDP下滑，但GDI相对而言表现强劲。
 
-欧元兑美元汇率持稳于1.1538美元。
+BEA估计，服务业的减少使第四季度实际GDP增速下降了约1个百分点。
 
 ## 相关推荐
 
-- 2026-06-30 02:08 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 02:15 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 02:17 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 02:17 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 02:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 02:10 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 02:26 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 02:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 02:27 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 02:16 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 02:11 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 02:13 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 02:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 02:30 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-30 02:17 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 02:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-30 02:22 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 02:17 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-30 02:15 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 02:11 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 02:34 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 02:31 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 02:23 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 02:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 02:25 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 02:34 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:09 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/2843870253.shtml)
-- 2026-06-30 02:07 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/01136.shtml)
-- 2026-06-30 02:24 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/7045241497.shtml)
-- 2026-06-30 02:21 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/0439142669.shtml)
-- 2026-06-30 02:02 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/68218.shtml)
-- 2026-06-30 02:23 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/1824908719.shtml)
-- 2026-06-30 02:19 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/078234.shtml)
-- 2026-06-30 02:29 - [美股](http://www.blog.minike.top/Article/details/8574959534.shtml)
-- 2026-06-30 02:03 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/277584.shtml)
-- 2026-06-30 02:17 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/25793021.shtml)
-- 2026-06-30 02:19 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/5273496.shtml)
-- 2026-06-30 02:25 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/615414151.shtml)
-- 2026-06-30 02:16 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/71472940.shtml)
-- 2026-06-30 02:26 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/52563625561.shtml)
-- 2026-06-30 02:12 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/11266491.shtml)
+- 2026-06-30 02:29 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/7536282470.shtml)
+- 2026-06-30 02:35 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/675387684.shtml)
+- 2026-06-30 02:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/7023463.shtml)
+- 2026-06-30 02:14 - [《贺子珍》](http://www.blog.minike.top/Article/details/495132613290.shtml)
+- 2026-06-30 02:31 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/4995845646.shtml)
+- 2026-06-30 02:09 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/75874930.shtml)
+- 2026-06-30 02:27 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/75759299110.shtml)
+- 2026-06-30 02:17 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/82698007.shtml)
+- 2026-06-30 02:25 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/04746.shtml)
+- 2026-06-30 02:23 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/363760486027.shtml)
+- 2026-06-30 02:34 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/0778559.shtml)
+- 2026-06-30 02:07 - [千香](https://www.share.minike.top/Article/details/4083263.shtml)
+- 2026-06-30 02:33 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/261561397.shtml)
+- 2026-06-30 02:23 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/3664042.shtml)
+- 2026-06-30 02:07 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/03370831251.shtml)

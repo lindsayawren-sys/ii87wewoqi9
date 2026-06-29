@@ -1,60 +1,58 @@
-# ADNOC寻求通过XRG在加拿大实现上游及LNG业务增长
+# 壳牌以石油交易收益平衡天然气业务疲软
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-阿布扎比国家石油公司一位高级 executives 周二在卡尔加里举行的全球能源展上表示，该公司正通过其国际业务分支XRG，在加拿大的上游和液化天然气领域探索机遇。 阿布扎比国家石油公司上游业务首席执行官穆萨贝赫·阿尔·卡阿比并未提供该公司可能在加拿大瞄准哪些具体投资的细节，但表示，加拿大重新聚焦于能源发展令他备受鼓舞。 阿拉伯联合酋长国一直在寻求扩大其海外能源投资，特别是通过
+壳牌周三表示，第一季度天然气产量下降和短期流动性受到的冲击将部分被强劲的石油交易收益所抵消。这让我们得以初步了解美以对伊朗的战争如何重塑石油巨头的盈利状况。 自2月底美以开始打击伊朗，随后伊朗关闭霍尔木兹海峡并袭击包括壳牌位于卡塔尔的Pearl天然气生产厂在内的海湾邻国后，全球基准布伦特原油价格攀升至每桶近120美元的多年高点。该厂的维修可能需要大约一年时间。 壳牌表示，大宗商
 
 ## 正文
 
-阿布扎比国家石油公司一位高级 executives 周二在卡尔加里举行的全球能源展上表示，该公司正通过其国际业务分支XRG，在加拿大的上游和液化天然气领域探索机遇。
+壳牌周三表示，第一季度天然气产量下降和短期流动性受到的冲击将部分被强劲的石油交易收益所抵消。
 
-阿布扎比国家石油公司上游业务首席执行官穆萨贝赫·阿尔·卡阿比并未提供该公司可能在加拿大瞄准哪些具体投资的细节，但表示，加拿大重新聚焦于能源发展令他备受鼓舞。
+这让我们得以初步了解美以对伊朗的战争如何重塑石油巨头的盈利状况。
 
-阿拉伯联合酋长国一直在寻求扩大其海外能源投资，特别是通过其近期成立的、国有阿布扎比国家石油公司的国外投资分支XRG进行。
+自2月底美以开始打击伊朗，随后伊朗关闭霍尔木兹海峡并袭击包括壳牌位于卡塔尔的Pearl天然气生产厂在内的海湾邻国后，全球基准布伦特原油价格攀升至每桶近120美元的多年高点。
 
-与此同时，加拿大正面临美国总统特朗普的关税威胁，一直在寻求实现出口市场多元化，以摆脱对美国这一主要市场的依赖。
+该厂的维修可能需要大约一年时间。
 
-去年年底，加拿大总理马克·卡尼曾对阿联酋进行正式访问。
+壳牌表示，大宗商品价格波动导致库存价值大幅波动，推动营运资本（一种流动资产减去负债的流动性衡量指标）在本季度达到负100亿至负150亿美元之间。
 
-阿尔·卡阿比表示：“那次访问也为近期内开展更多合作定下了基调。
+壳牌表示，如果油气价格回落，营运资本的变动预计将随时间推移而逆转。
 
-” 加拿大是世界第四大原油生产国和第五大天然气生产国。
+异常的市场环境 加拿大皇家银行资本市场分析师表示，这种波动的规模突显了当前市场环境已变得多么异常，但补充说壳牌的资产负债表应能吸收这一冲击。
 
-该国新兴的液化天然气出口产业已吸引了全球客户的兴趣，最近包括德国的SEFE公司和Uniper公司。
+加拿大皇家银行资本市场将壳牌第一季度净利润预期上调7%，至68亿美元，并预计扣除营运资本后的运营现金流将增长31%，达到171亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 02:02 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 02:22 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 02:11 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 02:13 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 02:19 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-30 02:22 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 02:26 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 02:18 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 02:25 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 02:01 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 02:05 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 02:06 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 02:28 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 02:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 02:35 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 02:13 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 02:27 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 02:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 02:31 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 02:23 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 02:19 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 02:18 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-30 02:26 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 02:08 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 02:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 02:31 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/065382324616.shtml)
-- 2026-06-30 02:07 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/391205769454.shtml)
-- 2026-06-30 02:09 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/510453.shtml)
-- 2026-06-30 02:03 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/714966.shtml)
-- 2026-06-30 02:05 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/7457866846.shtml)
-- 2026-06-30 02:18 - [毒液2](http://www.share.minike.top/Article/details/4190322489.shtml)
-- 2026-06-30 02:20 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/22181709005.shtml)
-- 2026-06-30 02:17 - [扫黑风暴](https://www.share.minike.top/Article/details/204931.shtml)
-- 2026-06-30 02:05 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/932108981972.shtml)
-- 2026-06-30 02:22 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/74193.shtml)
-- 2026-06-30 02:06 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/98036811.shtml)
-- 2026-06-30 02:22 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/90876429.shtml)
-- 2026-06-30 02:16 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/4618812775.shtml)
-- 2026-06-30 02:21 - [一见倾心](https://www.share.minike.top/Article/details/652152286.shtml)
-- 2026-06-30 02:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/214608301.shtml)
+- 2026-06-30 02:13 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/536993463.shtml)
+- 2026-06-30 02:15 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/15119346657.shtml)
+- 2026-06-30 02:28 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/705133569078.shtml)
+- 2026-06-30 02:10 - [送你一朵小红花](https://www.share.minike.top/Article/details/73091783628.shtml)
+- 2026-06-30 02:26 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/228159675110.shtml)
+- 2026-06-30 02:23 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/110087623.shtml)
+- 2026-06-30 02:34 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/985092.shtml)
+- 2026-06-30 02:21 - [月亮](http://www.blog.kurohicncr.top/Article/details/166586.shtml)
+- 2026-06-30 02:22 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/9545427981.shtml)
+- 2026-06-30 02:08 - [斗破苍穹](https://www.share.minike.top/Article/details/624394.shtml)
+- 2026-06-30 02:28 - [孙兴慜道歉](http://www.share.minike.top/Article/details/45838.shtml)
+- 2026-06-30 02:16 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/9297338.shtml)
+- 2026-06-30 02:27 - [沉睡花园](http://www.blog.minike.top/Article/details/77429.shtml)
+- 2026-06-30 02:06 - [小娘惹](https://www.blog.minike.top/Article/details/668885878006.shtml)
+- 2026-06-30 02:32 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/41310146694.shtml)

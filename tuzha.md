@@ -1,48 +1,57 @@
-# 建设银行完成发行600亿元二级资本债券
+# 中东战火，烧向全球“餐桌”
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-建设银行（00939）公布，经相关监管机构批准，该行近日在全国银行间债券市场发行了中国建设银行股份有限公司2026年二级资本债券（第一期）（债券通），并于2026年6月9日完成发行。 本期债券发行规模为人民币600亿元，为10年期固定利率债券，在第5年末附有条件的发行人赎回权，票面利率为1.89%。 本期债券募集的资金将依据适用法律和监管部门的批准，补充该行的二级资本。责任编辑
+来源：新消费日报 世界银行、国际货币基金组织（IMF）和联合国世界粮食计划署周三警告称，中东战事引发的石油、天然气和化肥价格急剧上涨，将不可避免地导致食品价格上涨和粮食安全问题加剧。 在一场关于战争的会议后发表的一份联合声明中，上述三个国际机构的负责人表示，沉重负担将主要落在世界最脆弱人群的身上，尤其是那些低收入、依赖进口的经济体中的民众。 这三个国际机构表示，将继续密切关注事
 
 ## 正文
 
-建设银行（00939）公布，经相关监管机构批准，该行近日在全国银行间债券市场发行了中国建设银行股份有限公司2026年二级资本债券（第一期）（债券通），并于2026年6月9日完成发行。
+来源：新消费日报 世界银行、国际货币基金组织（IMF）和联合国世界粮食计划署周三警告称，中东战事引发的石油、天然气和化肥价格急剧上涨，将不可避免地导致食品价格上涨和粮食安全问题加剧。
 
-本期债券发行规模为人民币600亿元，为10年期固定利率债券，在第5年末附有条件的发行人赎回权，票面利率为1.89%。
+在一场关于战争的会议后发表的一份联合声明中，上述三个国际机构的负责人表示，沉重负担将主要落在世界最脆弱人群的身上，尤其是那些低收入、依赖进口的经济体中的民众。
 
-本期债券募集的资金将依据适用法律和监管部门的批准，补充该行的二级资本。
+这三个国际机构表示，将继续密切关注事态发展，并“协调运用一切可用工具，为受危机影响的人群提供支持”。
 
-责任编辑：卢昱君
+“中东战事正在颠覆该地区及更广泛地区民众的生活和生计，已经引发现代史上全球能源市场最大的动荡之一。
+
+”声明称，石油、天然气和化肥价格急剧上涨，加上运输障碍，将不可避免地导致食品价格上涨和粮食安全问题加剧。
+
+声明指出，燃料价格的飙升以及食品价格潜在的大幅上涨，在那些本就面临财政限制和高额债务负担的国家尤为令人担忧，因为这些因素将限制它们保护脆弱家庭的能力。
+
+三大机构负责人承诺将根据各自职责范围提供支持，并为实现稳健复苏奠定基础。
+
+IMF总裁克里斯蒂娜·格奥尔基耶娃周一表示，该组织正在与联合国粮食及农业组织就粮食安全问题进行合作。
 
 ## 相关推荐
 
-- 2026-06-30 02:02 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 02:28 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 02:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 02:17 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 02:23 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 02:28 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 02:04 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 02:16 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-30 02:03 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 02:12 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 02:29 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 02:29 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 02:28 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 02:13 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 02:07 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 02:27 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 02:26 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 02:24 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 02:17 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 02:29 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 02:14 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:19 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/830467.shtml)
-- 2026-06-30 02:01 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/778431612568.shtml)
-- 2026-06-30 02:18 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/1520036.shtml)
-- 2026-06-30 02:02 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/97327881620.shtml)
-- 2026-06-30 02:07 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/8969937700.shtml)
-- 2026-06-30 02:29 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/086476.shtml)
-- 2026-06-30 02:25 - [扬名立万](https://www.blog.minike.top/Article/details/1021046997.shtml)
-- 2026-06-30 02:09 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/880710218.shtml)
-- 2026-06-30 02:04 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/77030505.shtml)
-- 2026-06-30 02:20 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/090985.shtml)
-- 2026-06-30 02:25 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/678102184387.shtml)
-- 2026-06-30 02:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/9766634790.shtml)
-- 2026-06-30 02:26 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/909141394322.shtml)
-- 2026-06-30 02:08 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/578505202398.shtml)
-- 2026-06-30 02:24 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/84393.shtml)
+- 2026-06-30 02:09 - [蔚来车主罚站](http://www.share.minike.top/Article/details/912361972.shtml)
+- 2026-06-30 02:16 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/5699639.shtml)
+- 2026-06-30 02:27 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/06160.shtml)
+- 2026-06-30 02:28 - [斗破苍穹](https://www.share.minike.top/Article/details/955976533.shtml)
+- 2026-06-30 02:10 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/963007800487.shtml)
+- 2026-06-30 02:06 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/34404942.shtml)
+- 2026-06-30 02:31 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/4456218.shtml)
+- 2026-06-30 02:09 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/41533044.shtml)
+- 2026-06-30 02:14 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/861260.shtml)
+- 2026-06-30 02:27 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/1172076165.shtml)
+- 2026-06-30 02:17 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/003412771.shtml)
+- 2026-06-30 02:28 - [巴西扳平比分](https://www.share.minike.top/Article/details/253194021.shtml)
+- 2026-06-30 02:28 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/660960170845.shtml)
+- 2026-06-30 02:21 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/33607303040.shtml)
+- 2026-06-30 02:26 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/845138879627.shtml)

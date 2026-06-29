@@ -1,61 +1,57 @@
-# 酒价内参6月11日价格发布：洋河梦之蓝M6+上涨5元，自昨日创下近30天最低价反弹
+# 马萨诸塞州最高法院裁定：Meta必须面临青少年成瘾诉讼
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月11日整体低位小幅回弹。如果主要单品各取一瓶整体打包售卖，今日总售价为9888元，较昨日小幅上涨7元，结束此前连续两日的回调走势，但仍处于近30天低位区间。市场在前一日回落至近30天次低位后开始修复，终端交投情绪略有回暖，但核心单品的涨跌分化度依然显著。 今日11大白酒单品五涨四跌两平，赢家
+马萨诸塞州最高法院周五裁定，Meta Platforms必须面对该州总检察长提起的诉讼。该诉讼指控这家Facebook和Instagram的母公司故意设计平台功能，使年轻用户上瘾。 裁定要点 马萨诸塞州最高法院的这项裁决，标志着美国州级最高法院首次就《通信规范法》第230条是否适用于此类案件作出审理。该联邦法律通常保护互联网公司免于因用户发布的内容而被起诉。法院认为，第230条
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月11日整体低位小幅回弹。
+马萨诸塞州最高法院周五裁定，Meta Platforms必须面对该州总检察长提起的诉讼。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9888元，较昨日小幅上涨7元，结束此前连续两日的回调走势，但仍处于近30天低位区间。
+该诉讼指控这家Facebook和Instagram的母公司故意设计平台功能，使年轻用户上瘾。
 
-市场在前一日回落至近30天次低位后开始修复，终端交投情绪略有回暖，但核心单品的涨跌分化度依然显著。
+裁定要点 马萨诸塞州最高法院的这项裁决，标志着美国州级最高法院首次就《通信规范法》第230条是否适用于此类案件作出审理。
 
-今日11大白酒单品五涨四跌两平，赢家数量略占优势。
+该联邦法律通常保护互联网公司免于因用户发布的内容而被起诉。
 
-上涨方面，洋河梦之蓝M6+、古井贡古20与习酒君品涨幅居前，均上涨5元/瓶，其中洋河梦之蓝M6+自昨日创下的近30天最低价反弹，但价格囿于月内低位区间，古井贡古20连续两日上涨，价格升至进入六月以来最高位，习酒君品终结此前三连阴，但价格仍处于月内次低位；国窖1573上涨4元/瓶，连续三日反弹；五粮液1618上涨2元/瓶，收获两连阳，自前日月内最低位连续修复。
+法院认为，第230条不适用于马萨诸塞州指控Meta就其平台安全性作出虚假陈述的部分，因为该州“主要是寻求让Meta为其自身的商业行为承担责任”，而非第三方发布的内容。
 
-下跌方面，精品茅台、五粮液普五八代与青花郎均下跌4元/瓶，其中精品茅台连续三日回调，前期反弹动能逐渐减弱；五粮液普五八代连续三日下探，今日价格将将守住800元整数关口，创今年2月2日以来最低价纪录，近一月价格中枢下移态势尤为明显；青花郎连续两日回落，再度跌破690元。
+Meta否认了这些指控，并表示公司采取了广泛措施来保护青少年和年轻用户在其平台上的安全。
 
-飞天茅台下跌2元/瓶，终结此前五连阳。
+案件背景 该诉讼由马萨诸塞州总检察长安德里亚·乔伊·坎贝尔提起，指控Instagram的推送通知、“点赞”按钮和无尽滚动等功能，旨在利用青少年的心理脆弱性和“错失恐惧症”来获利。
 
-青花汾20与水晶剑南春价格环比保持不变，其中前者仍处在30天最低位。
+诉讼称，内部数据显示该平台正在使儿童成瘾并造成伤害，但高层管理人员拒绝了其研究显示可以改善青少年福祉的修改建议。
 
 ## 相关推荐
 
-- 2026-06-30 02:24 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 02:14 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 02:00 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 02:03 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 02:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 02:16 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-30 02:03 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 02:05 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 02:06 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 02:19 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 02:20 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 02:26 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 02:17 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 02:22 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 02:24 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 02:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 02:27 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 02:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 02:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 02:31 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 02:13 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 02:29 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 02:06 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 02:15 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 02:31 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 02:34 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:03 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/0573537.shtml)
-- 2026-06-30 02:08 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/123532076.shtml)
-- 2026-06-30 02:17 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/974640727.shtml)
-- 2026-06-30 02:01 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/9631181787.shtml)
-- 2026-06-30 02:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/51539.shtml)
-- 2026-06-30 02:23 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/6792285888.shtml)
-- 2026-06-30 02:21 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/82833177841.shtml)
-- 2026-06-30 02:25 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/6513117.shtml)
-- 2026-06-30 02:24 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/1073614389.shtml)
-- 2026-06-30 02:17 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/521463947.shtml)
-- 2026-06-30 02:06 - [日本16强魔咒](http://www.share.minike.top/Article/details/286118679454.shtml)
-- 2026-06-30 02:06 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/447487705.shtml)
-- 2026-06-30 02:07 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/39872952.shtml)
-- 2026-06-30 02:17 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/4098156.shtml)
-- 2026-06-30 02:01 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/87570575316.shtml)
+- 2026-06-30 02:33 - [刘念回应](http://www.blog.minike.top/Article/details/15397.shtml)
+- 2026-06-30 02:20 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/93478511351.shtml)
+- 2026-06-30 02:10 - [扬名立万](https://www.share.minike.top/Article/details/4891442.shtml)
+- 2026-06-30 02:33 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/445548426292.shtml)
+- 2026-06-30 02:12 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/510861034869.shtml)
+- 2026-06-30 02:19 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/787021396189.shtml)
+- 2026-06-30 02:10 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/54854.shtml)
+- 2026-06-30 02:29 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/89217337.shtml)
+- 2026-06-30 02:33 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/6549939886.shtml)
+- 2026-06-30 02:10 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/01569.shtml)
+- 2026-06-30 02:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/9508954.shtml)
+- 2026-06-30 02:12 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/228455855.shtml)
+- 2026-06-30 02:08 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/4728905.shtml)
+- 2026-06-30 02:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/67752.shtml)
+- 2026-06-30 02:11 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/33829985054.shtml)

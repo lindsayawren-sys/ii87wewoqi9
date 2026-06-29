@@ -1,48 +1,58 @@
-# 消息人士称美国五角大楼被封锁
+# 赛力斯总裁何利扬：今年以来，选择纯电车型的用户比例大幅增加
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-据美国方面11日援引消息人士的话称，五角大楼已被封锁，危险品处理小组正在赶往现场。五角大楼内人员已被疏散。 (央视新闻客户端)
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 赛力斯汽车总裁何利扬认为，在汽车产业发展过程中，客观来讲技术迭代速度非常之快，如何不断采用新技术，同时满足老用户的需求，如何把握快速迭代与质量品质的平衡、兼顾用户感受，这始终是一个重要课题。
 
 ## 正文
 
-据美国方面11日援引消息人士的话称，五角大楼已被封锁，危险品处理小组正在赶往现场。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-五角大楼内人员已被疏散。
+赛力斯汽车总裁何利扬认为，在汽车产业发展过程中，客观来讲技术迭代速度非常之快，如何不断采用新技术，同时满足老用户的需求，如何把握快速迭代与质量品质的平衡、兼顾用户感受，这始终是一个重要课题。
 
-(央视新闻客户端)
+在这个过程中，赛力斯认为无论是新用户还是老用户，都必须享受到高品质的服务和高价值的体验。
+
+何利扬分享几个关键数据：五年来，问界汽车获得了超过百万用户的选择。
+
+在累计行驶里程中，充电行驶里程超过了70%。
+
+他谈到，问界汽车提供的是增程与纯电的双面动力，尤其是今年以来，选择纯电车型的用户比例大幅增加，这也使得累计充电行驶里程占比超过了70%。
+
+另外，问界汽车累计辅助驾驶里程中，活跃用户占比超过了97.5%，换句话说，开问界汽车，具备辅助驾驶功能的车型的用户，大多都会使用辅助驾驶功能，这也是一个行业新突破。
+
+他还有两个更重要的数据分享：在过去30天，采用辅助驾驶或相关智能服务的用户中，依靠救援（eCall）的事故百万公里频次为0.13次，同比去年下降了55.2%——这里指的是发生重大碰撞需要拨打救援电话，或后台监测到的重大事故，这说明智能与安全极大地改善了我们的行驶安全。
 
 ## 相关推荐
 
-- 2026-06-30 02:05 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 02:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 02:00 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 02:16 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 02:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 02:26 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 02:26 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 02:15 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 02:00 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 02:27 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 02:06 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 02:02 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 02:34 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 02:22 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 02:21 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 02:31 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 02:27 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 02:23 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 02:35 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 02:33 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 02:07 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 02:13 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 02:10 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-30 02:25 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/7345365289.shtml)
-- 2026-06-30 02:28 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/93378613438.shtml)
-- 2026-06-30 02:15 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/801421033.shtml)
-- 2026-06-30 02:16 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/4995373751.shtml)
-- 2026-06-30 02:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/22926.shtml)
-- 2026-06-30 02:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/8176352702.shtml)
-- 2026-06-30 02:29 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/028265274.shtml)
-- 2026-06-30 02:29 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/126265711001.shtml)
-- 2026-06-30 02:00 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/876827534.shtml)
-- 2026-06-30 02:06 - [《贺子珍》](http://www.blog.minike.top/Article/details/60249865.shtml)
-- 2026-06-30 02:11 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/193201.shtml)
-- 2026-06-30 02:07 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/2482333649.shtml)
-- 2026-06-30 02:04 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/69472975.shtml)
-- 2026-06-30 02:05 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/9233032.shtml)
-- 2026-06-30 02:08 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/597010456878.shtml)
+- 2026-06-30 02:22 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/829712123.shtml)
+- 2026-06-30 02:28 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/1655271.shtml)
+- 2026-06-30 02:15 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/63109.shtml)
+- 2026-06-30 02:30 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/106721435992.shtml)
+- 2026-06-30 02:15 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/24531726.shtml)
+- 2026-06-30 02:07 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/104622515.shtml)
+- 2026-06-30 02:14 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/75203.shtml)
+- 2026-06-30 02:09 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/87197968.shtml)
+- 2026-06-30 02:19 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/082984181.shtml)
+- 2026-06-30 02:25 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/091729862391.shtml)
+- 2026-06-30 02:12 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/97664170095.shtml)
+- 2026-06-30 02:23 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/106337.shtml)
+- 2026-06-30 02:20 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/9304938903.shtml)
+- 2026-06-30 02:23 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/868882726684.shtml)
+- 2026-06-30 02:13 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/914372.shtml)

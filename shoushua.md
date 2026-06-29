@@ -1,61 +1,60 @@
-# 讯飞创投董事长徐景明：贪婪和恐惧是很难克服的，专业机构更要坚守底线
+# 欧洲酒企寻求印度减免关税，瓶罐短缺危机迫在眉睫
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-专题：2026投资界SuperLink大会 2026投资界SuperLink大会于6月10日-6月11日在苏州举行。讯飞创投董事长徐景明表示，投资本质随主体视角不同而不同，核心是各司其职。 “不同主体从不同角度对客体的观察会得出不同的结论。从一个投资机构的角度来说，本质是代人理财，把事做好，保证安全，能有收益；从政府平台的角度来说，财政的钱投出去，要对地方有所贡献；从国家的角度
+据多位知情人士4月9日透露，欧洲多家大型酒精饮料公司正联合向印度政府施压，要求紧急减免进口关税。与此同时，受中东冲突持续影响，印度本土的玻璃瓶和铝罐供应链正面临前所未有的压力，可能很快出现包装材料短缺。 包装危机：战争切断关键供应链 印度是全球第四大液化石油气进口国，约40%的供应依赖中东。伊朗战争导致天然气供应紧张，而天然气正是玻璃熔炉运行的关键能源。据印度酿酒商协会的数据，
 
 ## 正文
 
-专题：2026投资界SuperLink大会 2026投资界SuperLink大会于6月10日-6月11日在苏州举行。
+据多位知情人士4月9日透露，欧洲多家大型酒精饮料公司正联合向印度政府施压，要求紧急减免进口关税。
 
-讯飞创投董事长徐景明表示，投资本质随主体视角不同而不同，核心是各司其职。
+与此同时，受中东冲突持续影响，印度本土的玻璃瓶和铝罐供应链正面临前所未有的压力，可能很快出现包装材料短缺。
 
-“不同主体从不同角度对客体的观察会得出不同的结论。
+包装危机：战争切断关键供应链 印度是全球第四大液化石油气进口国，约40%的供应依赖中东。
 
-从一个投资机构的角度来说，本质是代人理财，把事做好，保证安全，能有收益；从政府平台的角度来说，财政的钱投出去，要对地方有所贡献；从国家的角度来说，本质是要通过投资解决硬、卡、替问题，在激烈的全球科技竞争中形成优势。
+伊朗战争导致天然气供应紧张，而天然气正是玻璃熔炉运行的关键能源。
 
-”他指出，投资的本质就是各自做好分内的事情。
+据印度酿酒商协会的数据，过去一个月内，玻璃瓶价格已飙升约20%，纸箱价格翻倍，标签和胶带等其他包装材料也大幅涨价。
 
-徐景明表示，“当下的市场环境，一方面应积极拥抱大趋势，另一方面应对项目谨慎评估。
+“情况非常严峻，”印度酿酒商协会总干事Vinod Giri表示，“一些玻璃瓶制造商已减产40%甚至停产，而铝罐供应商也警告称，随着夏季需求高峰来临，供应可能进一步减少。
 
-”他认为，贪婪和恐惧是很难克服的，专业机构更要坚守底线，“作为专业机构，首先应该守住的是下限，至于未来有没有更大收益，这是人努力天帮忙的事情。
+”位于北方邦Firozabad（印度玻璃制造中心）的一家主要玻璃瓶工厂已确认减产40%，并将价格提高了17-18%。
 
-” 新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+印度-EU自贸协定：远水难解近渴 虽然印度与欧盟于今年1月底签署了历史性的自由贸易协定，承诺将葡萄酒关税从150%逐步降至20%，烈酒关税降至40%，但行业人士指出，这一利好来得太迟。
 
 ## 相关推荐
 
-- 2026-06-30 02:04 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 02:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 02:04 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 02:06 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 02:21 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 02:23 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 02:26 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 02:07 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 02:07 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 02:07 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 02:05 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 02:05 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 02:02 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 02:28 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 02:15 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 02:33 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 02:35 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 02:31 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 02:22 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 02:10 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 02:24 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 02:22 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-30 02:13 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-30 02:27 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 02:10 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 02:12 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 02:31 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-30 02:17 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 02:20 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:26 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/319937386.shtml)
-- 2026-06-30 02:09 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/729157867.shtml)
-- 2026-06-30 02:14 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/95226.shtml)
-- 2026-06-30 02:18 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/663773.shtml)
-- 2026-06-30 02:03 - [沉睡花园](http://www.blog.minike.top/Article/details/5105405222.shtml)
-- 2026-06-30 02:16 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/7040898.shtml)
-- 2026-06-30 02:18 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/53379.shtml)
-- 2026-06-30 02:06 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/85178525190.shtml)
-- 2026-06-30 02:08 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/70743.shtml)
-- 2026-06-30 02:07 - [金刚川](https://www.blog.minike.top/Article/details/2982618.shtml)
-- 2026-06-30 02:24 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/552025263462.shtml)
-- 2026-06-30 02:22 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/784689351.shtml)
-- 2026-06-30 02:28 - [扫黑风暴](http://www.blog.minike.top/Article/details/41963.shtml)
-- 2026-06-30 02:12 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/7171434.shtml)
-- 2026-06-30 02:06 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/224265872554.shtml)
+- 2026-06-30 02:34 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/73150.shtml)
+- 2026-06-30 02:28 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/39103783251.shtml)
+- 2026-06-30 02:15 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/07261.shtml)
+- 2026-06-30 02:33 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/41633487.shtml)
+- 2026-06-30 02:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/82901.shtml)
+- 2026-06-30 02:19 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/17196598710.shtml)
+- 2026-06-30 02:33 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/0556901.shtml)
+- 2026-06-30 02:13 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/8311146.shtml)
+- 2026-06-30 02:11 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/020855627989.shtml)
+- 2026-06-30 02:25 - [沙丘](http://www.share.kurohicncr.top/Article/details/197641807.shtml)
+- 2026-06-30 02:07 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/92706929.shtml)
+- 2026-06-30 02:30 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/18024525.shtml)
+- 2026-06-30 02:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/21549587.shtml)
+- 2026-06-30 02:20 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/91788118715.shtml)
+- 2026-06-30 02:31 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/7904941313.shtml)

@@ -1,58 +1,60 @@
-# 2026海峡两岸青年创新创业大赛项目征集全面启动
+# 2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-中新网常州6月11日电 (唐娟 周健)跨越海峡的风，又一次捎来关于青春和梦想的邀约。6月10日，2026海峡两岸青年创新创业大赛发布项目征集令，广纳两岸优质创新创业项目，报名通道正式开启。 本届大赛以“青春向新程两岸共未来”为主题，重点聚焦新质生产力，设置高端制造、电子信息、新能源新材料、合成生物、文创服务五大赛道。线上报名时间为6月10日至7月15日，报名截止后，组委会将对照
+中新网菏泽4月11日电 (记者 祁建月 孙婷婷)2026菏泽牡丹国际传播论坛11日在“中国牡丹之都”山东菏泽举行。来自俄罗斯、意大利等国的专家学者齐聚一堂，共议牡丹的国际传播之道。 “中国牡丹装饰着俄罗斯的千家万户。我的花园里就种着28个品种的牡丹，每年春天，都会给我带来惊喜。”受邀参加论坛的俄罗斯奥廖尔国立第一中学校长塔季扬娜·巴库罗娃在分享中流露出对牡丹的深厚感情。她介绍，
 
 ## 正文
 
-中新网常州6月11日电 (唐娟 周健)跨越海峡的风，又一次捎来关于青春和梦想的邀约。
+中新网菏泽4月11日电 (记者 祁建月 孙婷婷)2026菏泽牡丹国际传播论坛11日在“中国牡丹之都”山东菏泽举行。
 
-6月10日，2026海峡两岸青年创新创业大赛发布项目征集令，广纳两岸优质创新创业项目，报名通道正式开启。
+来自俄罗斯、意大利等国的专家学者齐聚一堂，共议牡丹的国际传播之道。
 
-本届大赛以“青春向新程两岸共未来”为主题，重点聚焦新质生产力，设置高端制造、电子信息、新能源新材料、合成生物、文创服务五大赛道。
+“中国牡丹装饰着俄罗斯的千家万户。
 
-线上报名时间为6月10日至7月15日，报名截止后，组委会将对照参赛条件，对报名项目进行审核，最终遴选150个项目晋级决赛，并于8月中旬在江苏常州举行决赛及颁奖仪式。
+我的花园里就种着28个品种的牡丹，每年春天，都会给我带来惊喜。
 
-届时，150个晋级项目将按赛道分组路演，决出一等奖5名、二等奖10名、三等奖15名。
+”受邀参加论坛的俄罗斯奥廖尔国立第一中学校长塔季扬娜·巴库罗娃在分享中流露出对牡丹的深厚感情。
 
-获奖项目除获得相应奖金外，还将优先推荐给常州各大银行和风创投机构提供融资授信支持，享受天使投资基金、人才贷等政策红利。
+她介绍，在俄罗斯文化中，牡丹象征着财富、繁荣与华贵，是深受人们喜爱的花卉之一。
 
-依托台青智汇港等平台，落户项目可享受各类配套服务。
+“牡丹与初夏的到来、大自然的蓬勃和土地的慷慨紧密相连。
 
-大赛还将聘请科技领军专家、创投风投专家等提供全程培训辅导和资源对接，切实提升成果转化实效。
+”巴库罗娃说，正是以牡丹花为媒，其所在的学校与菏泽开启了文化与教育领域的合作，共同举办交流活动，为校园生活增添了色彩。
 
 ## 相关推荐
 
-- 2026-06-30 02:24 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 02:08 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 02:10 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 02:14 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 02:17 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 02:14 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 02:03 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 02:04 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 02:00 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 02:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 02:21 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 02:12 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 02:10 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 02:17 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 02:31 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 02:10 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 02:19 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 02:09 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 02:08 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 02:27 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 02:11 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 02:17 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 02:10 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 02:07 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 02:14 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 02:15 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:25 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/048388.shtml)
-- 2026-06-30 02:13 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/848288634371.shtml)
-- 2026-06-30 02:20 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/626982587.shtml)
-- 2026-06-30 02:25 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/5418874828.shtml)
-- 2026-06-30 02:26 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/314526154825.shtml)
-- 2026-06-30 02:00 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/5056774.shtml)
-- 2026-06-30 02:24 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/597924362.shtml)
-- 2026-06-30 02:00 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/074667613794.shtml)
-- 2026-06-30 02:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/066885819392.shtml)
-- 2026-06-30 02:04 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/93556.shtml)
-- 2026-06-30 02:19 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/8919185.shtml)
-- 2026-06-30 02:07 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/519887.shtml)
-- 2026-06-30 02:18 - [周生如故](https://www.share.kurohicncr.top/Article/details/4644610720.shtml)
-- 2026-06-30 02:16 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/79075640.shtml)
-- 2026-06-30 02:14 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/94460977.shtml)
+- 2026-06-30 02:27 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/318365955.shtml)
+- 2026-06-30 02:29 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/541342.shtml)
+- 2026-06-30 02:35 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/51803.shtml)
+- 2026-06-30 02:13 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/4975171.shtml)
+- 2026-06-30 02:13 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/21573496326.shtml)
+- 2026-06-30 02:22 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/902811855883.shtml)
+- 2026-06-30 02:34 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/3489967.shtml)
+- 2026-06-30 02:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/93319706976.shtml)
+- 2026-06-30 02:13 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/221639632.shtml)
+- 2026-06-30 02:32 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/86627.shtml)
+- 2026-06-30 02:22 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/30111073.shtml)
+- 2026-06-30 02:28 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/107307101.shtml)
+- 2026-06-30 02:32 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/84800502.shtml)
+- 2026-06-30 02:31 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/867291086.shtml)
+- 2026-06-30 02:13 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/92966255192.shtml)

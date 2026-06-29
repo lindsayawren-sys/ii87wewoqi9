@@ -1,56 +1,60 @@
-# 中欧班列“中通道”累计通行班列突破25000列
+# ETF日报：半导体设备利好逻辑持续强化 关注半导体设备ETF
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-中新网呼和浩特6月12日电 (记者 李爱平)12日，随着一声风笛长鸣，一列满载小家电的中欧班列从内蒙古二连浩特铁路口岸驶出，标志着中欧班列中通道自2013年开行首趟中欧班列以来，累计通行量突破25000列。 二连浩特铁路口岸是中欧班列“中通道”的唯一过境口岸。数据显示，自2013年开行首列中欧班列以来，班列开行规模持续攀升：2018年累计开行1000列，2020年累计达5000
+今日A股整体回调。截至收盘，上证指数跌0.72%，报3966.17点，深证成指跌0.33%，创业板指跌0.73%，科创综指跌0.76%。全市场约4300只个股下跌。A股全天成交2.15万亿元，上日成交2.45万亿元。分板块来看，今日软件、消费等多数板块下挫，算力硬件、稀土、化工逆势上涨。中东谈判局势未明，冲突风险加剧，亚太股市普遍受到冲击，今日韩国综合指数收跌1.61%，日经2
 
 ## 正文
 
-中新网呼和浩特6月12日电 (记者 李爱平)12日，随着一声风笛长鸣，一列满载小家电的中欧班列从内蒙古二连浩特铁路口岸驶出，标志着中欧班列中通道自2013年开行首趟中欧班列以来，累计通行量突破25000列。
+今日A股整体回调。
 
-二连浩特铁路口岸是中欧班列“中通道”的唯一过境口岸。
+截至收盘，上证指数跌0.72%，报3966.17点，深证成指跌0.33%，创业板指跌0.73%，科创综指跌0.76%。
 
-数据显示，自2013年开行首列中欧班列以来，班列开行规模持续攀升：2018年累计开行1000列，2020年累计达5000列，2022年突破10000列，2025年突破20000列，如今再度创下25000列的全新纪录。
+全市场约4300只个股下跌。
 
-中欧班列“中通道”从首个5000列耗时7年，到最新一个5000列仅用时不足1年，增长速度大幅加快。
+A股全天成交2.15万亿元，上日成交2.45万亿元。
 
-2026年，中国(内蒙古)自由贸易试验区正式揭牌，二连浩特被纳入片区范围。
+分板块来看，今日软件、消费等多数板块下挫，算力硬件、稀土、化工逆势上涨。
 
-当前，二连浩特铁路口岸日均出入境中欧班列稳定在13列左右。
+中东谈判局势未明，冲突风险加剧，亚太股市普遍受到冲击，今日韩国综合指数收跌1.61%，日经225指数收跌0.73%。
 
-中国铁路呼和浩特局集团有限公司二连站客货运管理科副科长王进忠表示，作为共建“一带一路”国家重要务实合作载体，中欧班列持续织密横贯亚欧大陆的国际物流网络。
+数据来源：Wind // 当地时间4月8日，美伊临时停火生效首日，以色列对黎巴嫩真主党发动本轮冲突以来最大规模空袭。
 
-目前，经二连浩特铁路口岸运行的中欧班列线路共计75条，通达德国、波兰等十余个国家的70余个枢纽站点，国内货源辐射绝大多数中欧班列始发城市。
+伊朗方面称其违反停火协议，再次关闭了霍尔木兹海峡，并威胁准备对以色列军事目标采取威慑行动。
 
 ## 相关推荐
 
-- 2026-06-30 02:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 02:15 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 02:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 02:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 02:15 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 02:17 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 02:15 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 02:15 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-30 02:12 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 02:20 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 02:26 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 02:14 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 02:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 02:21 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 02:09 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 02:11 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 02:06 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 02:24 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 02:10 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 02:17 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 02:14 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 02:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 02:16 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 02:18 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/581033658.shtml)
-- 2026-06-30 02:14 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/47543.shtml)
-- 2026-06-30 02:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/513539866.shtml)
-- 2026-06-30 02:28 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/89818314284.shtml)
-- 2026-06-30 02:01 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/574413.shtml)
-- 2026-06-30 02:25 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/2274043.shtml)
-- 2026-06-30 02:03 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/902204.shtml)
-- 2026-06-30 02:25 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/510162328.shtml)
-- 2026-06-30 02:03 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/511892.shtml)
-- 2026-06-30 02:06 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/983029.shtml)
-- 2026-06-30 02:29 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/34565.shtml)
-- 2026-06-30 02:26 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/384070170769.shtml)
-- 2026-06-30 02:28 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/8765699.shtml)
-- 2026-06-30 02:25 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/20367798.shtml)
-- 2026-06-30 02:24 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/25102720139.shtml)
+- 2026-06-30 02:11 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/302103889.shtml)
+- 2026-06-30 02:32 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/444031354.shtml)
+- 2026-06-30 02:15 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/4331504.shtml)
+- 2026-06-30 02:24 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/581050743.shtml)
+- 2026-06-30 02:12 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/65263684.shtml)
+- 2026-06-30 02:23 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/771194811767.shtml)
+- 2026-06-30 02:23 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/130807.shtml)
+- 2026-06-30 02:13 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/32696542.shtml)
+- 2026-06-30 02:31 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/19980.shtml)
+- 2026-06-30 02:24 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/44646248.shtml)
+- 2026-06-30 02:10 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/1968754533.shtml)
+- 2026-06-30 02:12 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/49733771276.shtml)
+- 2026-06-30 02:28 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/3007435405.shtml)
+- 2026-06-30 02:12 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/58010653513.shtml)
+- 2026-06-30 02:12 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/31192.shtml)

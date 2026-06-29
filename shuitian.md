@@ -1,60 +1,49 @@
-# 欧洲央行周四加息后 IMF称或需进一步加息
+# 浙江杭州：“骑士部落”为外卖小哥提供休憩港湾
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-国际货币基金组织（IMF）表示，欧洲央行将需要再次提高借贷成本。就在数小时前，欧洲央行刚刚加息25个基点。 “政策利率将需要上升，以遏制冲击对通胀的影响，”IMF工作人员周四在报告中表示。该报告总结了IMF对欧元区层面政策的年度评估。 IMF的展望假设今年累计加息50个基点，以应对整体通胀和核心通胀到2028年仍高于2%的前景。报告将2026年消费价格涨幅预测从4月份的2.4%
+发布时间：2026年04月10日 16:16 来源：中国新闻网 在杭州市萧山区，河南小伙何流通为外卖骑手打造了一个“骑士部落”电瓶车维修店。50平方米的小店内，维修工具、备用轮胎、饮水机、冰柜、沙发一应俱全，不少外卖小哥趁着送餐间隙，来这里换电、歇脚、修车，“骑士部落”成为了附近外卖骑手温暖的“家”。 吴君毅 庄蕙语 浙江杭州报道 责任编辑：【于晓】
 
 ## 正文
 
-国际货币基金组织（IMF）表示，欧洲央行将需要再次提高借贷成本。
+发布时间：2026年04月10日 16:16 来源：中国新闻网 在杭州市萧山区，河南小伙何流通为外卖骑手打造了一个“骑士部落”电瓶车维修店。
 
-就在数小时前，欧洲央行刚刚加息25个基点。
+50平方米的小店内，维修工具、备用轮胎、饮水机、冰柜、沙发一应俱全，不少外卖小哥趁着送餐间隙，来这里换电、歇脚、修车，“骑士部落”成为了附近外卖骑手温暖的“家”。
 
-“政策利率将需要上升，以遏制冲击对通胀的影响，”IMF工作人员周四在报告中表示。
-
-该报告总结了IMF对欧元区层面政策的年度评估。
-
-IMF的展望假设今年累计加息50个基点，以应对整体通胀和核心通胀到2028年仍高于2%的前景。
-
-报告将2026年消费价格涨幅预测从4月份的2.4%上调至2.8%。
-
-“如果未来数据与基准预测一致，那么可能需要采取比基准情形假设略微更具限制性的政策立场，以保持中期通胀预期牢牢锚定，防止能源成本冲击导致价格普遍上涨，并确保通胀更及时地回归目标，”IMF表示。
-
-这家总部位于华盛顿的机构强调，若能源价格和通胀预期的升幅超出基准预测，可能导致“更快和/或更大幅度的收紧”。
+吴君毅 庄蕙语 浙江杭州报道 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-30 02:18 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 02:03 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 02:25 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 02:21 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-30 02:10 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 02:15 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 02:26 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 02:12 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 02:17 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 02:01 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 02:16 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 02:04 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 02:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 02:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 02:24 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 02:31 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 02:28 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 02:15 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-30 02:14 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 02:26 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 02:06 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-30 02:30 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 02:34 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 02:13 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 02:31 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 02:13 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 02:29 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:15 - [小娘惹](http://www.blog.minike.top/Article/details/7287922275.shtml)
-- 2026-06-30 02:27 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/83456999.shtml)
-- 2026-06-30 02:00 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/44209694.shtml)
-- 2026-06-30 02:21 - [极限挑战第一季](https://www.blog.minike.top/Article/details/6475452886.shtml)
-- 2026-06-30 02:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/535682186881.shtml)
-- 2026-06-30 02:11 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/80388.shtml)
-- 2026-06-30 02:20 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/19283932.shtml)
-- 2026-06-30 02:04 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/656828104.shtml)
-- 2026-06-30 02:03 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/767362391.shtml)
-- 2026-06-30 02:25 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/9897988122.shtml)
-- 2026-06-30 02:00 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/608882622.shtml)
-- 2026-06-30 02:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/330263.shtml)
-- 2026-06-30 02:28 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/61571884.shtml)
-- 2026-06-30 02:14 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/49464.shtml)
-- 2026-06-30 02:17 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/59670733.shtml)
+- 2026-06-30 02:09 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/6876317.shtml)
+- 2026-06-30 02:33 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/740830484833.shtml)
+- 2026-06-30 02:35 - [乔家的儿女](http://www.share.minike.top/Article/details/4753739.shtml)
+- 2026-06-30 02:20 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/76031493321.shtml)
+- 2026-06-30 02:23 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/013852905.shtml)
+- 2026-06-30 02:22 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/162401514.shtml)
+- 2026-06-30 02:12 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/8697071.shtml)
+- 2026-06-30 02:07 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/51683723.shtml)
+- 2026-06-30 02:35 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/8912121713.shtml)
+- 2026-06-30 02:14 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/18707.shtml)
+- 2026-06-30 02:11 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/0714590613.shtml)
+- 2026-06-30 02:17 - [恋与深空 日服](https://www.blog.minike.top/Article/details/00094164402.shtml)
+- 2026-06-30 02:27 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/69250894391.shtml)
+- 2026-06-30 02:35 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/24463.shtml)
+- 2026-06-30 02:15 - [斛珠夫人](https://www.blog.minike.top/Article/details/612272.shtml)

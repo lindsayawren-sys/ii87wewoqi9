@@ -1,57 +1,56 @@
-# 开盘：美股周四高开 芯片股回升
+# 佛山装备大佬，75亿收购非洲建材龙头
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-北京时间6月11日晚，美股周四高开。油价有所回落。芯片股从近期压力中反弹。市场继续关注美伊局势的最新发展，美国隔夜对伊朗发动新的打击。欧洲央行自2023年以来首次加息。美国5月PPI同比上涨6.5%创两年半新高。 道指涨53.29点，涨幅为0.11%，报49972.07点；纳指涨135.694点，涨幅为0.54%，报25305.196点；标普500指数涨32.75点，涨幅为0.
+来源：@21世纪商业评论微博记者丨李惠琳 杨松 编辑丨李惠琳佛山陶瓷装备龙头，加码非洲市场。4月9日，边程执掌的科达制造公告，拟以74.75亿元对价，并购特福国际51.55%股权。特福是科达制造的控股子公司，是管理层为开拓非洲建材市场，与森大集团联合创办的海外建材平台，主要生产和销售瓷砖、玻璃、洁具产品。边程曾回忆，这场合作双方一拍即合。十余年来，特福国际在非洲不断拓疆，年营收
 
 ## 正文
 
-北京时间6月11日晚，美股周四高开。
+来源：@21世纪商业评论微博记者丨李惠琳 杨松 编辑丨李惠琳佛山陶瓷装备龙头，加码非洲市场。
 
-油价有所回落。
+4月9日，边程执掌的科达制造公告，拟以74.75亿元对价，并购特福国际51.55%股权。
 
-芯片股从近期压力中反弹。
+特福是科达制造的控股子公司，是管理层为开拓非洲建材市场，与森大集团联合创办的海外建材平台，主要生产和销售瓷砖、玻璃、洁具产品。
 
-市场继续关注美伊局势的最新发展，美国隔夜对伊朗发动新的打击。
+边程曾回忆，这场合作双方一拍即合。
 
-欧洲央行自2023年以来首次加息。
+十余年来，特福国际在非洲不断拓疆，年营收超80亿。
 
-美国5月PPI同比上涨6.5%创两年半新高。
+按科达的出价，其估值已达到145亿元。
 
-道指涨53.29点，涨幅为0.11%，报49972.07点；纳指涨135.694点，涨幅为0.54%，报25305.196点；标普500指数涨32.75点，涨幅为0.45%，报7299.74点。
+“科达和森大前期开展了一些商标和渠道整合，目前差不多完成了，双方更独立；森大对科达经营管理方式，以及业务板块也比较认可。
 
-美光、AMD和英特尔等芯片股反弹，iShares半导体ETF上涨3%。
+”《21CBR》记者向科达董秘办咨询，其内部人士解释此时进行资产重组的原因。
 
 ## 相关推荐
 
-- 2026-06-30 02:11 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 02:27 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 02:18 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 02:22 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 02:00 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 02:20 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 02:29 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-30 02:02 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 02:19 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 02:08 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 02:12 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 02:33 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 02:19 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 02:22 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 02:18 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 02:14 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 02:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 02:14 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 02:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 02:08 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 02:17 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:01 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/42676225025.shtml)
-- 2026-06-30 02:15 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/2919522.shtml)
-- 2026-06-30 02:24 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/841698595014.shtml)
-- 2026-06-30 02:21 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/843215.shtml)
-- 2026-06-30 02:28 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/5020415273.shtml)
-- 2026-06-30 02:14 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/9965410.shtml)
-- 2026-06-30 02:27 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/9320278.shtml)
-- 2026-06-30 02:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/0435413813.shtml)
-- 2026-06-30 02:27 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/119733.shtml)
-- 2026-06-30 02:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/4131218319.shtml)
-- 2026-06-30 02:19 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/454405937.shtml)
-- 2026-06-30 02:03 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/5289944835.shtml)
-- 2026-06-30 02:18 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/79969923.shtml)
-- 2026-06-30 02:20 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/465529155563.shtml)
-- 2026-06-30 02:29 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/80097.shtml)
+- 2026-06-30 02:13 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/15039993419.shtml)
+- 2026-06-30 02:06 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/1905619757.shtml)
+- 2026-06-30 02:33 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/18746.shtml)
+- 2026-06-30 02:34 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/990346757.shtml)
+- 2026-06-30 02:34 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/4439183037.shtml)
+- 2026-06-30 02:12 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/63652274744.shtml)
+- 2026-06-30 02:21 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/090510921922.shtml)
+- 2026-06-30 02:28 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/189194323.shtml)
+- 2026-06-30 02:11 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/817250.shtml)
+- 2026-06-30 02:29 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/77263883635.shtml)
+- 2026-06-30 02:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/76471524610.shtml)
+- 2026-06-30 02:15 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/7587690185.shtml)
+- 2026-06-30 02:29 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/24491372364.shtml)
+- 2026-06-30 02:26 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/390079.shtml)
+- 2026-06-30 02:17 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/14521090379.shtml)

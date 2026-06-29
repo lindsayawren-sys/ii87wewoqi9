@@ -1,55 +1,59 @@
-# 来凯医药-B午后涨超4% 近日就LAE118与Vasque Bio签订全球独家许可协议
+# 创业板增设第四套上市标准 中国证监会详解政策安排
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-来凯医药-B（02105）盘中涨超7%，截至发稿，股价上涨4.45%，现报9.39港元，成交额2157.79万港元。 来凯医药-B发布公告，于2026年6月9日，本集团与Vasque Bio，Inc．（Vasque Bio）签订了一项独家许可协议（许可协议）。根据许可协议的条款及条件，本集团授予Vasque Bio一项全球性（不包括中国大陆、中国香港特别行政区、中国澳门特别行政
+中新社北京4月10日电 (记者 陈康亮)中国证监会10日发布的《关于深化创业板改革更好服务新质生产力发展的意见》提出，增设创业板第四套上市标准。 中国证监会新闻发言人表示，这次改革增设创业板第四套上市标准，通过引入收入复合增长率、研发投入等成长性、创新性指标，与市值、收入指标进行组合，以更好支持具备高成长潜力与突出创新能力的优质企业。 具体来看，共有两项指标：一是“预计市值不低
 
 ## 正文
 
-来凯医药-B（02105）盘中涨超7%，截至发稿，股价上涨4.45%，现报9.39港元，成交额2157.79万港元。
+中新社北京4月10日电 (记者 陈康亮)中国证监会10日发布的《关于深化创业板改革更好服务新质生产力发展的意见》提出，增设创业板第四套上市标准。
 
-来凯医药-B发布公告，于2026年6月9日，本集团与Vasque Bio，Inc．（Vasque Bio）签订了一项独家许可协议（许可协议）。
+中国证监会新闻发言人表示，这次改革增设创业板第四套上市标准，通过引入收入复合增长率、研发投入等成长性、创新性指标，与市值、收入指标进行组合，以更好支持具备高成长潜力与突出创新能力的优质企业。
 
-根据许可协议的条款及条件，本集团授予Vasque Bio一项全球性（不包括中国大陆、中国香港特别行政区、中国澳门特别行政区及中国台湾）（许可区域）的独家许可，以开发、制造、商业化及以其他方式利用LAE118（本集团自主研发的一种新型PI3K α泛突变选择性抑制剂），并享有相关权利。
+具体来看，共有两项指标：一是“预计市值不低于30亿元(人民币，下同)，最近一年营业收入不低于2亿元，最近三年营收复合增长率不低于30%”，主要适用于新兴产业领域企业； 二是“预计市值不低于40亿元，最近一年营业收入不低于2亿元，最近三年累计研发投入不低于1亿元且占营收比例不低于15%”，主要适用于未来产业领域企业。
 
-作为回报，本集团有权获得一笔不可退还且不可抵扣的首付现金款项1000万美元，以及在无需额外对价的情况下，有权获得Vasque Bio已发行普通股最多达高双位数百分比的股权，或替代该等普通股的现金付款。
+该发言人说，这次创业板增设的第四套上市标准，侧重于前沿技术的引入、转化和应用，与科创板相关上市标准在指标设置、适用行业范围、产业发展阶段等方面形成一定区分。
 
-根据许可协议，本集团还有权获得总额最高达5.17亿美元的开发及销售里程碑付款，以及按许可区域内LAE118未来净销售额计算的个位数至双位数百分比的梯度销售分成。
+后续，证监会将指导沪深证券交易所积极发挥“两创板”各自特色和优势，协同发展、形成合力，进一步扩大资本市场服务实体经济的覆盖面，努力实现“1+1>2”的改革效果。
 
-如Vasque Bio达成符合特定条件（与LAE118的使用相关）的合格战略合作或收购交易，本集团将有权获得额外付款，金额最高可达该战略交易价值的50%。
+该发言人表示，考虑到适用第四套标准上市的企业具有高成长性、不确定性大等特点，证监会将坚持循序渐进、质量优先的原则，组织深圳证券交易所、行业机构进一步加强审核把关、风险揭示和投资者教育。
 
-责任编辑：卢昱君
+包括：严把发行上市准入关，压实中介机构“看门人”责任，突出成长性、创新性要求，严守财务真实性底线，严防“带病申报”“一哄而上”，从源头提高上市公司质量；对于首发上市时尚未盈利的企业，在实现盈利前，股票简称之后添加特别标识“U”，持续提示相关风险，控股股东、实际控制人、董事、高管自上市之日起三个完整会计年度内不得减持首发前股份等。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:17 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 02:23 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 02:21 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 02:01 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-30 02:06 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 02:08 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 02:12 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 02:19 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-30 02:29 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 02:18 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-30 02:16 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 02:28 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 02:22 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 02:28 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 02:25 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 02:18 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 02:20 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 02:29 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 02:22 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 02:19 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 02:18 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-30 02:19 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 02:14 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 02:17 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:24 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/902830.shtml)
-- 2026-06-30 02:03 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/3955450.shtml)
-- 2026-06-30 02:20 - [新官上任三把火](https://www.share.minike.top/Article/details/3138532171.shtml)
-- 2026-06-30 02:02 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/27005.shtml)
-- 2026-06-30 02:06 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/18362.shtml)
-- 2026-06-30 02:10 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/908437.shtml)
-- 2026-06-30 02:06 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/748109924.shtml)
-- 2026-06-30 02:11 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/763372.shtml)
-- 2026-06-30 02:25 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/1106842943.shtml)
-- 2026-06-30 02:23 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/1419779655.shtml)
-- 2026-06-30 02:24 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/2978527.shtml)
-- 2026-06-30 02:12 - [扫黑风暴](http://www.share.minike.top/Article/details/63101724979.shtml)
-- 2026-06-30 02:24 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/40016.shtml)
-- 2026-06-30 02:22 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/10080.shtml)
-- 2026-06-30 02:03 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/851579.shtml)
+- 2026-06-30 02:32 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/396088.shtml)
+- 2026-06-30 02:09 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/2317261.shtml)
+- 2026-06-30 02:18 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/230559.shtml)
+- 2026-06-30 02:30 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/17613481771.shtml)
+- 2026-06-30 02:34 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/06052811606.shtml)
+- 2026-06-30 02:12 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/0429041285.shtml)
+- 2026-06-30 02:07 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/078755980375.shtml)
+- 2026-06-30 02:27 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/94919063.shtml)
+- 2026-06-30 02:22 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/2908824.shtml)
+- 2026-06-30 02:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/019222385604.shtml)
+- 2026-06-30 02:34 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/67533546.shtml)
+- 2026-06-30 02:08 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/252179.shtml)
+- 2026-06-30 02:23 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/754565724089.shtml)
+- 2026-06-30 02:29 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/9392973081.shtml)
+- 2026-06-30 02:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/70608.shtml)

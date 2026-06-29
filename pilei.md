@@ -1,56 +1,49 @@
-# 重磅经济数据即将发布，发改委抓紧储备政策工具
+# 芯片股早盘全线走高 兆易创新上涨8%澜起科技涨超5%
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-5月，人工智能等前沿领域的资本投资金额同比增长约5倍。 国家统计局将于6月16日发布5月份工业、消费、投资等经济数据。中国经济在经历了3、4月份的短期波动之后能否企稳回升，备受市场关注。 国家发展改革委主任郑栅洁6月10日主持召开经济形势专家座谈会表示，面对更趋复杂严峻的国际环境，我们以自身发展的确定性有效应对外部环境的不确定性，中国经济进一步彰显出强大的韧性和活力。将用好用足
+芯片股早盘全线走高，截至发稿，兆易创新（03986）上涨8%，报378港元；澜起科技（06809）上涨5.54%，报205.60港元；中芯国际（00981）上涨5.30%，报58.65港元；华虹半导体（01347）上涨3.36%，报93.85港元。责任编辑：卢昱君
 
 ## 正文
 
-5月，人工智能等前沿领域的资本投资金额同比增长约5倍。
+芯片股早盘全线走高，截至发稿，兆易创新（03986）上涨8%，报378港元；澜起科技（06809）上涨5.54%，报205.60港元；中芯国际（00981）上涨5.30%，报58.65港元；华虹半导体（01347）上涨3.36%，报93.85港元。
 
-国家统计局将于6月16日发布5月份工业、消费、投资等经济数据。
-
-中国经济在经历了3、4月份的短期波动之后能否企稳回升，备受市场关注。
-
-国家发展改革委主任郑栅洁6月10日主持召开经济形势专家座谈会表示，面对更趋复杂严峻的国际环境，我们以自身发展的确定性有效应对外部环境的不确定性，中国经济进一步彰显出强大的韧性和活力。
-
-将用好用足宏观政策，发挥好存量政策和增量政策集成效应。
-
-郑栅洁在部署持续强化改革创新、扩大内需、全面实施“人工智能+”行动的同时，特别强调“切实兜牢民生底线，全力促进重点群体就业”，并提出抓紧研究储备一批针对性、操作性强的政策工具，根据需要及时出台实施。
-
-第一财经研究院发布的最新一期“第一财经首席经济学家信心指数”为49.9，较上月有所回落。
-
-经济学家们认为未来政策应持续协同发力，进一步提振需求，维持经济温和增长，积极落实就业优先战略，夯实民生底盘。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:04 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 02:12 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 02:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 02:07 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 02:15 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 02:09 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 02:10 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 02:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 02:15 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 02:28 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-30 02:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 02:31 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 02:22 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 02:34 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 02:31 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 02:15 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-30 02:10 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 02:07 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 02:32 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 02:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 02:11 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 02:34 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 02:32 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 02:12 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 02:13 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:18 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/645217303.shtml)
-- 2026-06-30 02:15 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/711774353814.shtml)
-- 2026-06-30 02:21 - [金牌调解](http://www.share.kurohicncr.top/Article/details/582064.shtml)
-- 2026-06-30 02:18 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/42505963.shtml)
-- 2026-06-30 02:03 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/352170.shtml)
-- 2026-06-30 02:18 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/28034644.shtml)
-- 2026-06-30 02:29 - [千香](http://www.share.kurohicncr.top/Article/details/0834943.shtml)
-- 2026-06-30 02:26 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/1100290.shtml)
-- 2026-06-30 02:19 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/5632051.shtml)
-- 2026-06-30 02:14 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/805505660400.shtml)
-- 2026-06-30 02:16 - [千香](http://www.blog.kurohicncr.top/Article/details/015119362738.shtml)
-- 2026-06-30 02:23 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/70900.shtml)
-- 2026-06-30 02:03 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/45478850401.shtml)
-- 2026-06-30 02:01 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/33357410106.shtml)
-- 2026-06-30 02:27 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/96408073.shtml)
+- 2026-06-30 02:16 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/56142.shtml)
+- 2026-06-30 02:28 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/695486839.shtml)
+- 2026-06-30 02:31 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/9096327253.shtml)
+- 2026-06-30 02:21 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/1684211.shtml)
+- 2026-06-30 02:06 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/9437616.shtml)
+- 2026-06-30 02:23 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/829738021.shtml)
+- 2026-06-30 02:12 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/02143738.shtml)
+- 2026-06-30 02:07 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/775162716.shtml)
+- 2026-06-30 02:31 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/405735241935.shtml)
+- 2026-06-30 02:22 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/858922.shtml)
+- 2026-06-30 02:23 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/820786163.shtml)
+- 2026-06-30 02:34 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/2594535.shtml)
+- 2026-06-30 02:17 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/83898406069.shtml)
+- 2026-06-30 02:23 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/29772.shtml)
+- 2026-06-30 02:21 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/0475003.shtml)

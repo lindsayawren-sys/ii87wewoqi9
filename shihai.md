@@ -1,60 +1,59 @@
-# 香港大埔火灾7人及两公司被控误杀及串谋诈骗等25项罪名
+# 细菌超标！电饭煲“保温”不要超过4小时
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月10日 22:57 来源：中国新闻网 6月10日，就香港大埔宏福苑火灾成立的联合调查小组在记者会上表示，经深入调查及向律政司索取法律意见后，香港警方及廉政公署当日落案起诉7名人士及两间公司，共涉25项控罪，罪名包括误杀、串谋诈骗、“洗黑钱”、企图妨碍司法公正及逃税。 据警方介绍，7名被起诉人士在宏福苑大维修工程中分别担当不同角色，包括工程顾问公司的董事
+近日 #电饭煲“保温”为什么不能超4小时# 话题登上社交媒体热榜 一些人为了省事，把剩饭剩菜放在电饭煲中持续保温，留到下一顿再继续吃，甚至放到第二天再吃。你可能不知道，你以为的“方便、省事”，无意中给身体埋下了健康隐患。饭菜保温太久有什么危害？吃不完的饭菜应该如何储存？电饭煲还有哪些易藏匿细菌的地方？国家应急广播近日专访首都医科大学附属北京朝阳医院感染和临床微生物科副主任李冉，
 
 ## 正文
 
-发布时间：2026年06月10日 22:57 来源：中国新闻网 6月10日，就香港大埔宏福苑火灾成立的联合调查小组在记者会上表示，经深入调查及向律政司索取法律意见后，香港警方及廉政公署当日落案起诉7名人士及两间公司，共涉25项控罪，罪名包括误杀、串谋诈骗、“洗黑钱”、企图妨碍司法公正及逃税。
+近日 #电饭煲“保温”为什么不能超4小时# 话题登上社交媒体热榜 一些人为了省事，把剩饭剩菜放在电饭煲中持续保温，留到下一顿再继续吃，甚至放到第二天再吃。
 
-据警方介绍，7名被起诉人士在宏福苑大维修工程中分别担当不同角色，包括工程顾问公司的董事、该公司聘用的注册检验人员，以及工程总承建商的董事。
+你可能不知道，你以为的“方便、省事”，无意中给身体埋下了健康隐患。
 
-两间被起诉公司分别为该大维修工程的工程顾问公司及工程总承建商。
+饭菜保温太久有什么危害？
 
-当中，大维修工程顾问鸿毅建筑师有限公司的董事黄侠然、注册检验人员吴跃、工程总承建商宏业建筑工程有限公司的董事何建业，及两间公司被控误杀。
+吃不完的饭菜应该如何储存？
 
-这3人与另外4人及两间公司被控串谋诈骗等罪。
+电饭煲还有哪些易藏匿细菌的地方？
 
-案件已于10日下午在香港西九龙裁判法院提堂。
+国家应急广播近日专访首都医科大学附属北京朝阳医院感染和临床微生物科副主任李冉，为您详细解读。
 
-法庭接纳控方申请，将案件押后至9月2日，以待控方进一步调查。
+电饭煲保温≠保鲜 细菌易滋生 电饭煲的“保温”功能一般维持在60℃~70℃，但电饭煲内饭菜往往受热不均，饭菜上层接触空气的部分，温度很容易降到60℃以下，跌入细菌繁殖的“危险温度带”。
 
-(记者 程宇) 责任编辑：【张令旗】
+世界卫生组织明确将5℃~60℃界定为食物的“危险温度带”，在这个区间，食物里的细菌繁殖最活跃。
 
 ## 相关推荐
 
-- 2026-06-30 02:25 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 02:08 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 02:18 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 02:08 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 02:17 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 02:27 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 02:01 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 02:07 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 02:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 02:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 02:23 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 02:03 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 02:08 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 02:08 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 02:35 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 02:23 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 02:17 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 02:13 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 02:22 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 02:07 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 02:34 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 02:30 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 02:08 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 02:06 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 02:11 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 02:26 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 02:19 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:12 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/49025119851.shtml)
-- 2026-06-30 02:09 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/08917876431.shtml)
-- 2026-06-30 02:23 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/833894463680.shtml)
-- 2026-06-30 02:12 - [千香](https://www.share.kurohicncr.top/Article/details/33689762333.shtml)
-- 2026-06-30 02:26 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/054177.shtml)
-- 2026-06-30 02:28 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/36648738321.shtml)
-- 2026-06-30 02:07 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/90263552725.shtml)
-- 2026-06-30 02:24 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/7997702.shtml)
-- 2026-06-30 02:08 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/51375.shtml)
-- 2026-06-30 02:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/688266727.shtml)
-- 2026-06-30 02:20 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/257868357.shtml)
-- 2026-06-30 02:22 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/4397708.shtml)
-- 2026-06-30 02:26 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/3101463288.shtml)
-- 2026-06-30 02:19 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/53957.shtml)
-- 2026-06-30 02:27 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/38597003.shtml)
+- 2026-06-30 02:27 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/28397.shtml)
+- 2026-06-30 02:25 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/60712584114.shtml)
+- 2026-06-30 02:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/370514.shtml)
+- 2026-06-30 02:08 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/40576951.shtml)
+- 2026-06-30 02:21 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/36083797855.shtml)
+- 2026-06-30 02:07 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/38732264.shtml)
+- 2026-06-30 02:19 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/164140518.shtml)
+- 2026-06-30 02:13 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/23943.shtml)
+- 2026-06-30 02:18 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/8562851.shtml)
+- 2026-06-30 02:16 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/12901.shtml)
+- 2026-06-30 02:09 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/711899195181.shtml)
+- 2026-06-30 02:11 - [日本16强魔咒](https://www.blog.minike.top/Article/details/3271754.shtml)
+- 2026-06-30 02:25 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/9767603.shtml)
+- 2026-06-30 02:24 - [演员都来上音综的原因](http://www.share.kurohicncr.top/Article/details/319767908.shtml)
+- 2026-06-30 02:21 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/14997013.shtml)

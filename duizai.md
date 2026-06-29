@@ -1,60 +1,55 @@
-# 华铁传媒杜劲松：算法主导传播有悖于人性
+# 蔚来李斌：对“全年实现交付量同比增长40%至50%”的目标有信心
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-专题：2026IAI传鉴国际创意节 2026IAI传鉴国际创意节于6月12日至13日在北京举办，主题为“聚势新增长”。华铁传媒集团高级副总裁杜劲松在演讲中表示，目前算法主导了整个传播环境。 在他看来，算法主导传播，其实有悖于人性。现在不再是人们想看什么就看什么，而是平台推送什么，大家只能接收什么。这也导致人与人之间的共同话题越来越少，每个人的信息圈层都变得孤立，我们渐渐陷入信息
+专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日上午消息，2026智能电动汽车发展高层论坛举行，蔚来汽车创始人、董事长、CEO李斌与新浪科技等媒体进行对话。 谈及新的交付量目标，李斌表示：“蔚来从去年下半年开始，就进入了第三个发展阶段，希望每年交付量保持40%-50%的增长。” 他回顾，蔚来第一个发展阶段交付量基本保持了每年100%的增长；第二个发展阶段，交付
 
 ## 正文
 
-专题：2026IAI传鉴国际创意节 2026IAI传鉴国际创意节于6月12日至13日在北京举办，主题为“聚势新增长”。
+专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日上午消息，2026智能电动汽车发展高层论坛举行，蔚来汽车创始人、董事长、CEO李斌与新浪科技等媒体进行对话。
 
-华铁传媒集团高级副总裁杜劲松在演讲中表示，目前算法主导了整个传播环境。
+谈及新的交付量目标，李斌表示：“蔚来从去年下半年开始，就进入了第三个发展阶段，希望每年交付量保持40%-50%的增长。
 
-在他看来，算法主导传播，其实有悖于人性。
+” 他回顾，蔚来第一个发展阶段交付量基本保持了每年100%的增长；第二个发展阶段，交付量是每年30%-45%的增长，“从去年下半年开始，我们进入到第三个发展阶段，季度同比增长率逐步上升，今年一季度我们同比增长了98.3%。
 
-现在不再是人们想看什么就看什么，而是平台推送什么，大家只能接收什么。
+所以全年来讲，我们对于实现40%~50%的交付量的增长目标还是有信心的。
 
-这也导致人与人之间的共同话题越来越少，每个人的信息圈层都变得孤立，我们渐渐陷入信息茧房。
-
-他谈到，未来AI或许能在一定程度上破解信息茧房，但除此之外，我们也有其他解决路径。
-
-信息茧房对品牌建设十分不利，圈层越来越封闭，品牌就很难建立广泛的大众认知。
-
-“大家可以回想一下，如今我们熟知的国民级大品牌，基本都诞生在五年之前。
+”责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 02:17 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 02:13 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 02:17 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 02:29 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 02:27 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 02:06 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 02:15 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 02:30 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 02:27 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 02:19 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 02:15 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-30 02:21 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 02:18 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 02:02 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 02:26 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 02:26 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 02:34 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 02:14 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 02:28 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 02:24 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 02:07 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 02:26 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 02:30 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 02:16 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 02:16 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 02:07 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 02:09 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 02:14 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 02:17 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:19 - [小娘惹](http://www.share.minike.top/Article/details/232811173239.shtml)
-- 2026-06-30 02:15 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/94172998.shtml)
-- 2026-06-30 02:13 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/934512552.shtml)
-- 2026-06-30 02:12 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/76268.shtml)
-- 2026-06-30 02:14 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/32998.shtml)
-- 2026-06-30 02:21 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/532964437172.shtml)
-- 2026-06-30 02:00 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/627519209.shtml)
-- 2026-06-30 02:17 - [流金岁月](http://www.share.minike.top/Article/details/635581.shtml)
-- 2026-06-30 02:03 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/88900395.shtml)
-- 2026-06-30 02:14 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/604071797090.shtml)
-- 2026-06-30 02:21 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/302289701206.shtml)
-- 2026-06-30 02:14 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/75572310830.shtml)
-- 2026-06-30 02:16 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/80367879011.shtml)
-- 2026-06-30 02:14 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/779299310.shtml)
-- 2026-06-30 02:19 - [一见倾心](https://www.blog.minike.top/Article/details/53182717.shtml)
+- 2026-06-30 02:15 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/247091771.shtml)
+- 2026-06-30 02:22 - [爱很美味](http://www.blog.minike.top/Article/details/41058449063.shtml)
+- 2026-06-30 02:25 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/73904864.shtml)
+- 2026-06-30 02:29 - [一生一世](https://www.blog.kurohicncr.top/Article/details/985042242.shtml)
+- 2026-06-30 02:08 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/813993731479.shtml)
+- 2026-06-30 02:12 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/641161819898.shtml)
+- 2026-06-30 02:26 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/469159761.shtml)
+- 2026-06-30 02:09 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/315141.shtml)
+- 2026-06-30 02:23 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/1656401.shtml)
+- 2026-06-30 02:30 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/144225065.shtml)
+- 2026-06-30 02:34 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/0552083.shtml)
+- 2026-06-30 02:33 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/564653879632.shtml)
+- 2026-06-30 02:08 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/66295362570.shtml)
+- 2026-06-30 02:27 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/741613.shtml)
+- 2026-06-30 02:12 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/522223942736.shtml)

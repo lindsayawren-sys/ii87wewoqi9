@@ -1,61 +1,60 @@
-# 创业板50ETF华安（159949）半日成交超10亿领跑同类！机构：6月下旬高景气方向有望重获资金布局
+# 德国作家骑行长征路：用亲身体验讲述真实中国
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-6月12日，市场早盘高开后强势震荡，创业板指高开后震荡回落，三大股指均涨超1%。受此带动，创业板50ETF华安（159949）涨1.14%，报1.869元，换手率4.43%，成交额10.16亿元，居同类标的ETF首位。 消息面上，市场预期美伊有望达成停战协议，国际原油走低，全球通胀担忧显著缓解，海外央行激进加息周期接近尾声，实际利率上行压力减弱。与此同时，新能源汽车、风电、人形
+中新社柏林4月10日电 (记者 马秀秀)德国作家福尔克(Volker Häring)9日在柏林中国文化中心结合影像资料，分享了他与柯立思(Christian Y. Schmidt)骑行中国的见闻与思考。 2024年伊始，福尔克与柯立思从江西瑞金出发，沿中国长征路线骑行。全程历时138天，跨越近7000公里。2025年10月，两人记录此次经历的著作《漫漫骑行长征路——穿越中国70
 
 ## 正文
 
-6月12日，市场早盘高开后强势震荡，创业板指高开后震荡回落，三大股指均涨超1%。
+中新社柏林4月10日电 (记者 马秀秀)德国作家福尔克(Volker Häring)9日在柏林中国文化中心结合影像资料，分享了他与柯立思(Christian Y. Schmidt)骑行中国的见闻与思考。
 
-受此带动，创业板50ETF华安（159949）涨1.14%，报1.869元，换手率4.43%，成交额10.16亿元，居同类标的ETF首位。
+2024年伊始，福尔克与柯立思从江西瑞金出发，沿中国长征路线骑行。
 
-消息面上，市场预期美伊有望达成停战协议，国际原油走低，全球通胀担忧显著缓解，海外央行激进加息周期接近尾声，实际利率上行压力减弱。
+全程历时138天，跨越近7000公里。
 
-与此同时，新能源汽车、风电、人形机器人等新兴产业持续扩张，全球氧化镨钕需求预计由2025年的11.8万吨增至2027年的13.6万吨，新能源汽车钕铁硼需求由6.9万吨升至8.5万吨，上游资源需求弹性持续提升。
+2025年10月，两人记录此次经历的著作《漫漫骑行长征路——穿越中国7000公里》出版。
 
-华西证券研究所副所长、策略首席分析师李立峰认为，6月下旬，随着压制风险偏好的外部变量逐步落地，A股中报业绩预告陆续披露，具备业绩支撑、产业趋势明确的高景气方向有望重获资金布局。
+福尔克接受中新社记者专访时表示，骑行中国的经历精彩而令人着迷，他们希望将这些故事讲给更多人听。
 
-平安基金表示，下半年A股整体或延续强势格局，但正从估值驱动向盈利换估值阶段切换，权益资产配置价值依然突出，结构重于总量。
+福尔克是资深骑行爱好者，每年都会前往中国。
 
-宏观层面，全球经济正向AI投资与装备制造的范式切换，国内中游制造迎来战略跃升期，有望成为未来一到三年的核心景气主线；微观层面，AI产业从奖励资本开支转向验证真实回报，产能逐渐成为选股的首要标准，光通信、半导体设备材料等方向确定性强。
+后来，他偶然结识了志同道合的柯立思，两人一拍即合，决定共同完成这次骑行。
 
-创业板50ETF华安（159949）为长期看好中国科技成长板块的投资者提供便捷工具。
+这段近7000公里、最高海拔达4114米的旅程，对两人而言既是一次冒险，也是对身体与意志的考验。
 
 ## 相关推荐
 
-- 2026-06-30 02:28 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 02:24 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 02:10 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 02:25 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 02:21 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 02:07 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 02:21 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 02:24 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 02:17 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 02:20 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 02:29 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 02:14 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 02:13 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 02:08 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 02:25 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 02:14 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 02:08 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 02:30 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 02:34 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 02:24 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 02:29 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-30 02:29 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 02:28 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 02:24 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 02:35 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 02:16 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 02:32 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-30 02:16 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 02:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:28 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/26716.shtml)
-- 2026-06-30 02:20 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/21972087124.shtml)
-- 2026-06-30 02:06 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/159890795289.shtml)
-- 2026-06-30 02:02 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/78642.shtml)
-- 2026-06-30 02:07 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/120152.shtml)
-- 2026-06-30 02:26 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/7307384.shtml)
-- 2026-06-30 02:17 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/1606337411.shtml)
-- 2026-06-30 02:21 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/64545317993.shtml)
-- 2026-06-30 02:05 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/34565.shtml)
-- 2026-06-30 02:01 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/522170266545.shtml)
-- 2026-06-30 02:02 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/8867842834.shtml)
-- 2026-06-30 02:06 - [小娘惹](https://www.share.kurohicncr.top/Article/details/470706922.shtml)
-- 2026-06-30 02:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/97494.shtml)
-- 2026-06-30 02:03 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/33139305142.shtml)
-- 2026-06-30 02:12 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/118489477.shtml)
+- 2026-06-30 02:28 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/3601203778.shtml)
+- 2026-06-30 02:24 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/669925382.shtml)
+- 2026-06-30 02:20 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/36476846252.shtml)
+- 2026-06-30 02:17 - [乔家的儿女](https://www.share.minike.top/Article/details/585264608099.shtml)
+- 2026-06-30 02:06 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/0554185654.shtml)
+- 2026-06-30 02:31 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/649337585.shtml)
+- 2026-06-30 02:16 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/23989.shtml)
+- 2026-06-30 02:13 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/1739355121.shtml)
+- 2026-06-30 02:19 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/969901905.shtml)
+- 2026-06-30 02:10 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/6370028276.shtml)
+- 2026-06-30 02:21 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/2155750891.shtml)
+- 2026-06-30 02:09 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/73211267111.shtml)
+- 2026-06-30 02:18 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/816117681.shtml)
+- 2026-06-30 02:28 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/604938956437.shtml)
+- 2026-06-30 02:32 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/96762164.shtml)

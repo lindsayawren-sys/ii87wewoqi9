@@ -1,59 +1,61 @@
-# 依托AI技术及“双万兆”网络 上海加速打造“智慧商业体”
+# 广东清远“五大百亿”农业产业全产业链产值已超461亿元
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-中新网上海6月11日电 (记者 郑莹莹)迈入智能互联时代，上海正加快推动人工智能技术赋能消费场景创新，大力培育智能消费增长新动能。11日，沪上知名商业地标上海环球港宣布从“5G+双千兆第一港”升级为“双万兆第一港”，并借助AI技术打造智慧商业体。 现场相关AI智慧观赛团队工作人员马先生告知，2026年美加墨世界杯期间，该商业体内将开辟观赛“第二现场”，借助“双万兆”网络、AI技
+中新网东莞4月11日电 (记者 张璐)广货行天下夏季行动·清远农林文旅招商推介会暨京东清远跑步鸡发布仪式(简称“活动”)10日在东莞举行。 “东莞不仅是世界工厂，更是食品工业的桥头堡和巨大的消费引擎。”清远市农业农村局相关负责人接受中新网采访时表示，此次选择在东莞举办推介会，就是要借助2026食博会·预博会和农博会这一国家级平台，让藏在粤北山区的好物对接粤港澳大湾区的采购商、加
 
 ## 正文
 
-中新网上海6月11日电 (记者 郑莹莹)迈入智能互联时代，上海正加快推动人工智能技术赋能消费场景创新，大力培育智能消费增长新动能。
+中新网东莞4月11日电 (记者 张璐)广货行天下夏季行动·清远农林文旅招商推介会暨京东清远跑步鸡发布仪式(简称“活动”)10日在东莞举行。
 
-11日，沪上知名商业地标上海环球港宣布从“5G+双千兆第一港”升级为“双万兆第一港”，并借助AI技术打造智慧商业体。
+“东莞不仅是世界工厂，更是食品工业的桥头堡和巨大的消费引擎。
 
-现场相关AI智慧观赛团队工作人员马先生告知，2026年美加墨世界杯期间，该商业体内将开辟观赛“第二现场”，借助“双万兆”网络、AI技术，为用户带来更流畅、更具交互性的观赛体验。
+”清远市农业农村局相关负责人接受中新网采访时表示，此次选择在东莞举办推介会，就是要借助2026食博会·预博会和农博会这一国家级平台，让藏在粤北山区的好物对接粤港澳大湾区的采购商、加工商和投资商，实现从生态价值到市场价值的快速转化。
 
-上海市经济和信息化委员会方面表示，当前，数字经济已成为上海城市高质量发展的核心引擎。
+据悉，截至2025年，清远五大百亿级现代农业产业全产业链产值已达461.24亿元，其中清远鸡、英德红茶、西牛麻竹笋全产业链产值均突破百亿元大关。
 
-上海在“十四五”期间建成了全国领先的“双千兆”网络，5G基站密度、千兆光网覆盖率位居全国首位。
+活动现场，清远拿出“农林文旅”全产业家底，面向粤港澳大湾区精准招商，全方位展示“粤味珍品·清远好食材”的独特魅力，集中呈现清远现代农业、林业与文旅产业的丰富资源。
 
-6年前，业界在上海环球港见证了上海“5G+双千兆第一港”的诞生。
+“清远是大湾区向北辐射的第一站，拥有‘一江四轨、六纵四横’的交通网，高铁20分钟到广州、40分钟到东莞、60分钟到深圳。
 
-6年间，上海信息基础设施实现从“双千兆”到“双万兆”的跨越，数实融合从单点探索走向全域深化。
+不仅如此，清远的用地、用工成本只有珠三角的60%至70%，工业电价优惠力度全省领先。
 
-“双万兆”是继“双千兆”之后通信基础设施的新升级形态。
+”清远市人民政府副市长许崇砚表示。
 
 ## 相关推荐
 
-- 2026-06-30 02:26 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 02:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 02:23 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 02:09 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 02:06 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-30 02:22 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 02:03 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 02:06 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-30 02:04 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 02:23 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 02:14 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 02:08 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 02:19 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 02:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 02:09 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 02:06 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 02:25 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 02:21 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 02:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 02:10 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 02:17 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 02:29 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 02:10 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 02:34 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 02:22 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 02:12 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 02:12 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 02:06 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:28 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/7413251.shtml)
-- 2026-06-30 02:19 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/4790942.shtml)
-- 2026-06-30 02:08 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/4667175478.shtml)
-- 2026-06-30 02:00 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/771988088392.shtml)
-- 2026-06-30 02:07 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/6889481875.shtml)
-- 2026-06-30 02:14 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/2639882.shtml)
-- 2026-06-30 02:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/811491946964.shtml)
-- 2026-06-30 02:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/886399.shtml)
-- 2026-06-30 02:18 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/852323475718.shtml)
-- 2026-06-30 02:12 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/8090089.shtml)
-- 2026-06-30 02:23 - [日本进球](https://www.share.kurohicncr.top/Article/details/99969975825.shtml)
-- 2026-06-30 02:23 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/13841680.shtml)
-- 2026-06-30 02:16 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/144983362256.shtml)
-- 2026-06-30 02:26 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/987016904311.shtml)
-- 2026-06-30 02:10 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/2361632400.shtml)
+- 2026-06-30 02:35 - [沙丘](http://www.share.minike.top/Article/details/256863427415.shtml)
+- 2026-06-30 02:17 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/317227753.shtml)
+- 2026-06-30 02:30 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/578831772331.shtml)
+- 2026-06-30 02:17 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/2491025935.shtml)
+- 2026-06-30 02:20 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/361881.shtml)
+- 2026-06-30 02:15 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/965182800.shtml)
+- 2026-06-30 02:13 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/114767.shtml)
+- 2026-06-30 02:35 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/221557332.shtml)
+- 2026-06-30 02:20 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/0279834.shtml)
+- 2026-06-30 02:07 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/2717451184.shtml)
+- 2026-06-30 02:08 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/0200942.shtml)
+- 2026-06-30 02:12 - [流金岁月](http://www.share.minike.top/Article/details/9222886107.shtml)
+- 2026-06-30 02:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/972472541.shtml)
+- 2026-06-30 02:20 - [恋与深空回应争议](https://www.share.minike.top/Article/details/02012632376.shtml)
+- 2026-06-30 02:21 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/321373379.shtml)

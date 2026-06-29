@@ -1,57 +1,60 @@
-# 沃尔玛与Wing无人机配送扩展至七个新都会区
+# 第九届进博会推介会在韩国首尔举办
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-沃尔玛与Alphabet旗下无人机配送公司Wing本周宣布，将其无人机配送服务扩展至全美七个新都会区，作为双方到2027年建成270多家门店配送网络计划的一部分。Wing已累计完成超过100万次商业配送。 此次新增市场包括孟菲斯、新奥尔良、费城、菲尼克斯、圣地亚哥、旧金山湾区以及盐湖城，双方配送服务覆盖范围由此扩大至全美近20个市场。新市场的首批配送预计将于明年初启动。 Win
+发布时间：2026年04月10日 19:53 来源：中国新闻网 当地时间4月9日，第九届中国国际进口博览会(进博会)韩国推介会在首尔举行。 中国驻韩国大使戴兵、韩国产业通商部通商协力局局长裴晙亨、韩国贸易协会(KITA)专务理事张石民出席并讲话。中国国际进口博览局副局长吴政平作进博会推介。中国驻韩国大使馆公使衔参赞王治林主持推介会。 韩国贸易协会营销战略室室长辛仙荣对中新社记者
 
 ## 正文
 
-沃尔玛与Alphabet旗下无人机配送公司Wing本周宣布，将其无人机配送服务扩展至全美七个新都会区，作为双方到2027年建成270多家门店配送网络计划的一部分。
+发布时间：2026年04月10日 19:53 来源：中国新闻网 当地时间4月9日，第九届中国国际进口博览会(进博会)韩国推介会在首尔举行。
 
-Wing已累计完成超过100万次商业配送。
+中国驻韩国大使戴兵、韩国产业通商部通商协力局局长裴晙亨、韩国贸易协会(KITA)专务理事张石民出席并讲话。
 
-此次新增市场包括孟菲斯、新奥尔良、费城、菲尼克斯、圣地亚哥、旧金山湾区以及盐湖城，双方配送服务覆盖范围由此扩大至全美近20个市场。
+中国国际进口博览局副局长吴政平作进博会推介。
 
-新市场的首批配送预计将于明年初启动。
+中国驻韩国大使馆公使衔参赞王治林主持推介会。
 
-Wing首席商务官表示，与沃尔玛的合作表明，无人机配送并非一时新鲜事物，而是许多客户每周多次依赖的服务。
+韩国贸易协会营销战略室室长辛仙荣对中新社记者表示，历届进博会为韩国企业进入中国市场、拓展中国消费者提供了重要平台，不少参展企业取得了较为满意的成果。
 
-她透露，公司已着手在七个新市场与当地社区合作，目标是为全美4000万居民提供超快速配送服务。
+她介绍说，贸易协会计划今年组织约100家企业参展，规模较去年明显扩大，整体投入和展位布置也将进一步向高端化方向提升，进一步助力中小企业开拓中国市场。
 
-据介绍，Wing的无人机飞行速度最高可达每小时60英里，使用系绳将包裹直接降至顾客的院子或车道，最快可在30分钟内完成配送。
+韩国中小风险企业振兴公团国际协力处处长金相佑也表示，该机构连续多年组织企业参加进博会，参展规模和实际成果都较为显著。
 
-服务上线后，配送范围内的沃尔玛顾客可通过沃尔玛应用程序或网站看到该选项，也可通过Wing应用直接下单。
+今年计划继续组织约50家企业参展，并重点招募美妆和健康护理等在中国消费者中较受欢迎的企业。
 
 ## 相关推荐
 
-- 2026-06-30 02:25 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 02:03 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 02:17 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 02:29 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 02:07 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 02:25 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 02:17 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 02:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 02:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 02:15 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 02:08 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 02:11 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 02:20 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 02:13 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 02:09 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 02:35 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 02:28 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 02:14 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 02:27 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 02:06 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 02:11 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 02:10 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 02:29 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 02:26 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 02:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:00 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/5732430.shtml)
-- 2026-06-30 02:03 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/334016441811.shtml)
-- 2026-06-30 02:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/171768.shtml)
-- 2026-06-30 02:17 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/192518.shtml)
-- 2026-06-30 02:14 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/226204.shtml)
-- 2026-06-30 02:27 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/5082638.shtml)
-- 2026-06-30 02:05 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/3685044.shtml)
-- 2026-06-30 02:09 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/08310395676.shtml)
-- 2026-06-30 02:16 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/24684.shtml)
-- 2026-06-30 02:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/7857655483.shtml)
-- 2026-06-30 02:20 - [沉睡花园](https://www.blog.minike.top/Article/details/08283301438.shtml)
-- 2026-06-30 02:01 - [周生如故](https://www.share.kurohicncr.top/Article/details/923748366.shtml)
-- 2026-06-30 02:10 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/602277165375.shtml)
-- 2026-06-30 02:23 - [青春环游记第三季](https://www.share.minike.top/Article/details/6141825.shtml)
-- 2026-06-30 02:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/719924370.shtml)
+- 2026-06-30 02:33 - [锐评T1零封KC](http://www.share.minike.top/Article/details/4208919909.shtml)
+- 2026-06-30 02:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/545942.shtml)
+- 2026-06-30 02:35 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/631976.shtml)
+- 2026-06-30 02:33 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/546462.shtml)
+- 2026-06-30 02:10 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/696907781.shtml)
+- 2026-06-30 02:20 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/645302382.shtml)
+- 2026-06-30 02:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/912068.shtml)
+- 2026-06-30 02:20 - [美人鱼](http://www.blog.minike.top/Article/details/35321112.shtml)
+- 2026-06-30 02:35 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/627104843685.shtml)
+- 2026-06-30 02:11 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/961395896.shtml)
+- 2026-06-30 02:23 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/758882991.shtml)
+- 2026-06-30 02:19 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/9778627478.shtml)
+- 2026-06-30 02:22 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/614950012.shtml)
+- 2026-06-30 02:08 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/471539652533.shtml)
+- 2026-06-30 02:32 - [急先锋](https://www.blog.kurohicncr.top/Article/details/584562431267.shtml)

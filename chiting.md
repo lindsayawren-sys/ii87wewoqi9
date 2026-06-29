@@ -1,60 +1,49 @@
-# 风暴来袭，芝加哥机场数百架航班取消
+# 快讯：WTI原油期货涨幅扩大至5% 创日内新高
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-当地时间周四晚间，芝加哥及周边地区龙卷风预警解除，最严峻的险情已过去，但当地航空及供电仍受影响。 美国国家气象局发布声明称：“此次触发预警的风暴强度已降至强风暴标准以下，不再具备形成龙卷风的条件。” 该局表示，印第安纳州、密歇根州、伊利诺伊州部分区域仍维持龙卷风观察预警，艾奥瓦州则发布洪水观察预警。美国风暴预测中心称，截至周四，包括芝加哥民众在内，超910万人所处区域面临中度强
+北京时间4月9日，WTI原油期货涨幅扩大至5% 创日内新高。责任编辑：朱赫楠
 
 ## 正文
 
-当地时间周四晚间，芝加哥及周边地区龙卷风预警解除，最严峻的险情已过去，但当地航空及供电仍受影响。
+北京时间4月9日，WTI原油期货涨幅扩大至5% 创日内新高。
 
-美国国家气象局发布声明称：“此次触发预警的风暴强度已降至强风暴标准以下，不再具备形成龙卷风的条件。
-
-” 该局表示，印第安纳州、密歇根州、伊利诺伊州部分区域仍维持龙卷风观察预警，艾奥瓦州则发布洪水观察预警。
-
-美国风暴预测中心称，截至周四，包括芝加哥民众在内，超910万人所处区域面临中度强雷暴风险，此类天气易引发冰雹和龙卷风。
-
-风暴预测中心数据显示，过去两天，美国中西部已记录428起冰雹、破坏性大风及龙卷风相关灾害报告。
-
-截至美国东部时间22时59分，全美共计取消1474架次航班，其中芝加哥奥黑尔国际机场进出港航班取消882架次。
-
-美国联邦航空管理局此前已预警，雷暴天气将导致该机场航班延误。
-
-受风暴连锁影响，纽约拉瓜迪亚机场另有166架经停航班取消。
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-30 02:04 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 02:26 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 02:28 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 02:13 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 02:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 02:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 02:04 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 02:03 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 02:18 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 02:05 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 02:17 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 02:21 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 02:06 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 02:06 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 02:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 02:31 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 02:31 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 02:25 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 02:32 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 02:29 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 02:21 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 02:32 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 02:06 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 02:21 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 02:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 02:18 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 02:07 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 02:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 02:28 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:06 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/33369.shtml)
-- 2026-06-30 02:08 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/211673200.shtml)
-- 2026-06-30 02:14 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/246152633116.shtml)
-- 2026-06-30 02:16 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/827604.shtml)
-- 2026-06-30 02:03 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/27583.shtml)
-- 2026-06-30 02:23 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/34665499989.shtml)
-- 2026-06-30 02:29 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/531801305340.shtml)
-- 2026-06-30 02:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/118166840.shtml)
-- 2026-06-30 02:04 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/095076.shtml)
-- 2026-06-30 02:07 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/538299948.shtml)
-- 2026-06-30 02:17 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/68883728691.shtml)
-- 2026-06-30 02:26 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/496703159613.shtml)
-- 2026-06-30 02:26 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/942541180.shtml)
-- 2026-06-30 02:00 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/8529421.shtml)
-- 2026-06-30 02:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/077910864708.shtml)
+- 2026-06-30 02:23 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/95750128.shtml)
+- 2026-06-30 02:13 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/739251.shtml)
+- 2026-06-30 02:23 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/047956989.shtml)
+- 2026-06-30 02:21 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/7608671.shtml)
+- 2026-06-30 02:25 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/66893.shtml)
+- 2026-06-30 02:28 - [张凌赫 客串](http://www.share.minike.top/Article/details/8590863867.shtml)
+- 2026-06-30 02:11 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/95278860459.shtml)
+- 2026-06-30 02:18 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/011708103.shtml)
+- 2026-06-30 02:11 - [速度与激情9](http://www.blog.minike.top/Article/details/049673431.shtml)
+- 2026-06-30 02:21 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/07901.shtml)
+- 2026-06-30 02:11 - [千香](https://www.blog.minike.top/Article/details/3874669.shtml)
+- 2026-06-30 02:18 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/79469.shtml)
+- 2026-06-30 02:31 - [逃狱兄弟](https://www.share.minike.top/Article/details/3457183516.shtml)
+- 2026-06-30 02:06 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/7632876337.shtml)
+- 2026-06-30 02:09 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/277734.shtml)

@@ -1,56 +1,57 @@
-# “天下奶娘回祖庙”活动福建古田举行 海内外陈靖姑信众虔诚拜谒
+# 美国债市：国债在CPI公布后小幅下跌 周末美伊谈判前交投清淡
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月11日 21:05 来源：中国新闻网 6月11日上午，第十八届海峡论坛·陈靖姑文化活动周系列活动之一的第二届“天下奶娘回祖庙”活动在福建省宁德市古田县临水宫祖庙举行。海内外共计78家宫庙以及协会的1000余名代表齐聚一堂，共溯陈靖姑信俗文化之源，同感传统文化之韵。 随着擂鼓声，活动拉开序幕。各宫庙代表队伍怀抱奶娘金身有序入场，随后竖幡挂灯、谒祖进香、颁
+在3月CPI数据公布后，美国国债期货在美国交易时段小幅走低，投资者将注意力转向周末在巴基斯坦伊斯兰堡举行的美伊和平谈判。通胀数据总体符合预期，不过核心CPI环比涨幅略低于预期，数据公布后国债期货一度小幅上扬。 纽约时间下午3点过后不久，各期限收益率在消化CPI数据后重新攀升，全线上涨3至5个基点。短债收益率略微跑赢，推动2年期与10年期国债收益率差日内扩大约1.5个基点。 WT
 
 ## 正文
 
-发布时间：2026年06月11日 21:05 来源：中国新闻网 6月11日上午，第十八届海峡论坛·陈靖姑文化活动周系列活动之一的第二届“天下奶娘回祖庙”活动在福建省宁德市古田县临水宫祖庙举行。
+在3月CPI数据公布后，美国国债期货在美国交易时段小幅走低，投资者将注意力转向周末在巴基斯坦伊斯兰堡举行的美伊和平谈判。
 
-海内外共计78家宫庙以及协会的1000余名代表齐聚一堂，共溯陈靖姑信俗文化之源，同感传统文化之韵。
+通胀数据总体符合预期，不过核心CPI环比涨幅略低于预期，数据公布后国债期货一度小幅上扬。
 
-随着擂鼓声，活动拉开序幕。
+纽约时间下午3点过后不久，各期限收益率在消化CPI数据后重新攀升，全线上涨3至5个基点。
 
-各宫庙代表队伍怀抱奶娘金身有序入场，随后竖幡挂灯、谒祖进香、颁发回祖庙纪念证书等环节依序进行，整个过程庄重有序，尽显对奶娘的崇敬与文化传承的诚意。
+短债收益率略微跑赢，推动2年期与10年期国债收益率差日内扩大约1.5个基点。
 
-临水夫人陈靖姑被誉为“救产、护胎、佑民”的“妇女儿童保护神”，是福建最有影响力的陆上女神。
+WTI期货尾盘走弱，推动国债期货从接近盘中低点的水平回升。
 
-古田临水宫作为世界陈靖姑信俗文化的发祥地，目前分布在世界各地的临水宫分宫分庙有5000余座，信众逾1.2亿人。
+油价在涨跌之间波动，继续主导国债价格走势。
 
-其中，台湾主祀陈靖姑的宫庙有500多座，配祀的宫庙3000多座，信众逾千万人。
+临近周末，平仓仍是期货和期权市场的主要主题。
 
-(吴晟炜 詹圣 视频来源 古田县融媒体中心） 责任编辑：【刘湃】
+周五，看涨和看跌结构的仓位平仓仍在持续。
 
 ## 相关推荐
 
-- 2026-06-30 02:28 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 02:27 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 02:07 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 02:08 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 02:19 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 02:24 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 02:08 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-30 02:16 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 02:21 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 02:09 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 02:35 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 02:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 02:20 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 02:08 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 02:06 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 02:19 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 02:17 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 02:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 02:31 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 02:25 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 02:24 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:21 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/365797918.shtml)
-- 2026-06-30 02:24 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/5155379.shtml)
-- 2026-06-30 02:01 - [明星大侦探第一季](https://www.share.minike.top/Article/details/60100518.shtml)
-- 2026-06-30 02:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/5393516.shtml)
-- 2026-06-30 02:14 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/93706974743.shtml)
-- 2026-06-30 02:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/8893571.shtml)
-- 2026-06-30 02:20 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/778929663314.shtml)
-- 2026-06-30 02:23 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/170383.shtml)
-- 2026-06-30 02:14 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/51229091114.shtml)
-- 2026-06-30 02:26 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/278380.shtml)
-- 2026-06-30 02:03 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/82431746223.shtml)
-- 2026-06-30 02:09 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/619399917007.shtml)
-- 2026-06-30 02:25 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/401525326106.shtml)
-- 2026-06-30 02:08 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/5499619115.shtml)
-- 2026-06-30 02:25 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/758795432.shtml)
+- 2026-06-30 02:10 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/416762.shtml)
+- 2026-06-30 02:11 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/713747466.shtml)
+- 2026-06-30 02:32 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/3446480.shtml)
+- 2026-06-30 02:10 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/45927004.shtml)
+- 2026-06-30 02:11 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/9934075.shtml)
+- 2026-06-30 02:21 - [起风了](http://www.blog.minike.top/Article/details/59164536.shtml)
+- 2026-06-30 02:12 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/290978556.shtml)
+- 2026-06-30 02:20 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/259717.shtml)
+- 2026-06-30 02:11 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/0637895351.shtml)
+- 2026-06-30 02:06 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/6586060736.shtml)
+- 2026-06-30 02:17 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/12447.shtml)
+- 2026-06-30 02:07 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/07383.shtml)
+- 2026-06-30 02:14 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/28337470068.shtml)
+- 2026-06-30 02:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/797307240.shtml)
+- 2026-06-30 02:18 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/1464630.shtml)

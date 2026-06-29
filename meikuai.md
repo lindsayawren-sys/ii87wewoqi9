@@ -1,61 +1,61 @@
-# 东西问｜在张彭春的故乡，多国专家看见中国人权治理的“根”与“果”
+# 22场科普盛宴点亮科学之光 助逾万名大湾区少年逐梦
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-中新社天津6月11日电 题：在张彭春的故乡，多国专家看见中国人权治理的“根”与“果” 中新社记者 孙玲玲 近日，来自冈比亚、科特迪瓦、科摩罗、古巴等国的人权专家，在南开大学校史馆的陈列中了解了一位已故南开大学教授与世界人权事业之间的深刻联结——张彭春，70多年前参与起草《世界人权宣言》的关键人物。 “张彭春先生让不同文明坐在同一张桌上，讨论‘人’的权利。”古巴外交部多边总司高级
+中新网广州4月11日电 题：22场科普盛宴点亮科学之光 助逾万名大湾区少年逐梦 作者 王坚 袁仕联 9位中国科学院院士、4位中国工程院院士等20位专家学者近日走进深圳7所中学和广州14所中小学，带来22场高质量科普报告，覆盖师生逾万人次，带领他们遨游科学海洋，感受科技力量。 日前，由广东院士联合会、深圳中国科学院院士活动基地共同主办的2026“科学与中国——千名院士·千场科普”
 
 ## 正文
 
-中新社天津6月11日电 题：在张彭春的故乡，多国专家看见中国人权治理的“根”与“果” 中新社记者 孙玲玲 近日，来自冈比亚、科特迪瓦、科摩罗、古巴等国的人权专家，在南开大学校史馆的陈列中了解了一位已故南开大学教授与世界人权事业之间的深刻联结——张彭春，70多年前参与起草《世界人权宣言》的关键人物。
+中新网广州4月11日电 题：22场科普盛宴点亮科学之光 助逾万名大湾区少年逐梦 作者 王坚 袁仕联 9位中国科学院院士、4位中国工程院院士等20位专家学者近日走进深圳7所中学和广州14所中小学，带来22场高质量科普报告，覆盖师生逾万人次，带领他们遨游科学海洋，感受科技力量。
 
-“张彭春先生让不同文明坐在同一张桌上，讨论‘人’的权利。
+日前，由广东院士联合会、深圳中国科学院院士活动基地共同主办的2026“科学与中国——千名院士·千场科普”湾区行·院士专家入企进校科普行暨南沙“百名科学家·π课堂”活动在深圳、广州举办。
 
-”古巴外交部多边总司高级人权专家、多边事务与国际法司司长戴伦·瓦利多·埃斯卡洛纳站在展板前说。
+该活动在粤港澳大湾区青少年心中播撒科学种子，掀起崇尚科学的热潮。
 
-1947年，张彭春当选为联合国人权委员会副主席，同时担任《世界人权宣言》起草委员会副主席，全程参与起草工作。
+宇宙浩瀚无垠，探索永无止境。
 
-他多次提出：人权宣言不能只反映西方文化，应该吸收所有文明的传统。
+天体物理、深空探测、地月研究等领域的专家，带领青少年仰望星空、对话宇宙。
 
-他曾建议秘书处花几个月先学习儒家思想的基本原理，而不是急于推敲法律条文。
+其中，中国科学院院士、中国青少年科技教育工作者协会理事长武向平先后走进深圳市南山区文理实验学校(集团)文理学校、深圳市宝安区智造城实验学校，带来《认识我们的宇宙》科普盛宴。
 
-张彭春成功将儒家“仁”的概念引入宣言，解释为“人与人之间的相互感知和换位思考的能力”。
+他介绍中国“悟空”暗物质探测卫星、四川锦屏山地下实验室的探索成果，鼓励青少年敢于挑战权威、勇于突破理论，期待一场新的科学革命在他们手中诞生。
 
-这一思想最终体现在《世界人权宣言》第一条中：“人人生而自由，在尊严和权利上一律平等。
+中国科学院院士、中国科学院广州地球化学研究所深地过程与战略矿产资源全国重点实验室研究员徐义刚走进广州市南沙鱼窝头中学，带来《地月对话，从阿波罗到嫦娥探月》科普讲座。
 
 ## 相关推荐
 
-- 2026-06-30 02:14 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-30 02:19 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 02:00 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-30 02:06 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 02:28 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 02:25 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 02:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 02:23 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 02:15 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 02:28 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 02:10 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 02:11 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 02:03 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 02:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 02:03 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 02:35 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 02:30 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 02:18 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 02:26 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 02:12 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 02:31 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 02:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 02:11 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 02:22 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 02:24 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 02:22 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 02:10 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 02:28 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 02:07 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 02:34 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:02 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/4813971.shtml)
-- 2026-06-30 02:07 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/2547615.shtml)
-- 2026-06-30 02:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/9912194951.shtml)
-- 2026-06-30 02:17 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/9282309686.shtml)
-- 2026-06-30 02:04 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/53390731333.shtml)
-- 2026-06-30 02:06 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/9226748584.shtml)
-- 2026-06-30 02:05 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/3394989.shtml)
-- 2026-06-30 02:10 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/99159.shtml)
-- 2026-06-30 02:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/506313.shtml)
-- 2026-06-30 02:21 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/5716673593.shtml)
-- 2026-06-30 02:20 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/85627591.shtml)
-- 2026-06-30 02:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/76200.shtml)
-- 2026-06-30 02:24 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/381181015.shtml)
-- 2026-06-30 02:16 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/49350808248.shtml)
-- 2026-06-30 02:20 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/9393420513.shtml)
+- 2026-06-30 02:12 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/090265.shtml)
+- 2026-06-30 02:34 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/9608697993.shtml)
+- 2026-06-30 02:24 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/8360267133.shtml)
+- 2026-06-30 02:06 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/053101.shtml)
+- 2026-06-30 02:19 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/14067.shtml)
+- 2026-06-30 02:08 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/34190385.shtml)
+- 2026-06-30 02:24 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/56049.shtml)
+- 2026-06-30 02:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/8093097116.shtml)
+- 2026-06-30 02:27 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/59053.shtml)
+- 2026-06-30 02:34 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/75465235.shtml)
+- 2026-06-30 02:31 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/986447045243.shtml)
+- 2026-06-30 02:26 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/228299920.shtml)
+- 2026-06-30 02:30 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/17804.shtml)
+- 2026-06-30 02:23 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/507897.shtml)
+- 2026-06-30 02:29 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/79955.shtml)

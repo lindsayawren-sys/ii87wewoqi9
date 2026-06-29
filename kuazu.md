@@ -1,47 +1,56 @@
-# 三安光电：公司已与国内外主流供应商建立稳定合作
+# 世界无人机运动会在成都高新区开赛
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-证券日报网讯6月11日，三安光电在互动平台回答投资者提问时表示，公司使用的磷化铟衬底为外购。公司已与国内外主流供应商建立稳定合作，供应链交付正常，满足公司生产需求。
+中新网成都4月11日电 (记者 王鹏)世界无人机运动会11日在成都高新区新川之心机器人公园开赛。来自中小学、高校、企业以及多个国家和地区的443支参赛队伍齐聚高新赛区，展开一场融合科技与体育的“空中对决”。 本次比赛由中国通信工业协会、电子科技大学主办，设置无人机举重、无人机击剑、无人机篮球、低空智控赛四大赛项。比赛现场，伴随阵阵嗡鸣声，各类无人机腾空而起，在选手的精准操控下完
 
 ## 正文
 
-证券日报网讯6月11日，三安光电在互动平台回答投资者提问时表示，公司使用的磷化铟衬底为外购。
+中新网成都4月11日电 (记者 王鹏)世界无人机运动会11日在成都高新区新川之心机器人公园开赛。
 
-公司已与国内外主流供应商建立稳定合作，供应链交付正常，满足公司生产需求。
+来自中小学、高校、企业以及多个国家和地区的443支参赛队伍齐聚高新赛区，展开一场融合科技与体育的“空中对决”。
+
+本次比赛由中国通信工业协会、电子科技大学主办，设置无人机举重、无人机击剑、无人机篮球、低空智控赛四大赛项。
+
+比赛现场，伴随阵阵嗡鸣声，各类无人机腾空而起，在选手的精准操控下完成一系列高难度动作，将技术比拼转化为极具观赏性的空中竞技，吸引众多观众驻足观看。
+
+电子科技大学航空航天学院(四川省无人机学院)学科竞赛中心主任方黎勇表示，此次赛事在规则设计上融合了国际国内顶级赛事标准，并结合院校课程内容与企业技术实践进行优化，既突出技术含量，也兼顾可操作性。
+
+赛项设计过程中，来自体育界、产业界和学术界的多方力量共同参与，裁判团队则由具备丰富执裁经验的专业人士组成。
+
+方黎勇介绍，无人机举重和无人机击剑是本次比赛的难点项目。
+
+其中，无人机举重主要考验两架飞行器在狭小空间内的协同控制与精准操作能力；无人机击剑则侧重对飞行器周边目标的精准识别、定位以及操控水平。
 
 ## 相关推荐
 
-- 2026-06-30 02:08 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 02:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 02:15 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 02:26 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 02:16 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 02:05 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 02:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 02:14 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 02:00 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 02:27 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 02:23 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 02:13 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 02:04 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 02:27 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 02:10 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 02:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 02:26 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 02:15 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 02:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 02:22 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 02:09 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 02:18 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 02:06 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:12 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/60301.shtml)
-- 2026-06-30 02:09 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/616562.shtml)
-- 2026-06-30 02:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/539862342474.shtml)
-- 2026-06-30 02:15 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/940612.shtml)
-- 2026-06-30 02:07 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/136267628477.shtml)
-- 2026-06-30 02:06 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/5730009.shtml)
-- 2026-06-30 02:03 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/719354751584.shtml)
-- 2026-06-30 02:30 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/31741535.shtml)
-- 2026-06-30 02:21 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/094235674471.shtml)
-- 2026-06-30 02:19 - [爱很美味](https://www.share.kurohicncr.top/Article/details/326073477195.shtml)
-- 2026-06-30 02:28 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/77032.shtml)
-- 2026-06-30 02:16 - [美股](https://www.share.minike.top/Article/details/8571273.shtml)
-- 2026-06-30 02:21 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/997663.shtml)
-- 2026-06-30 02:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/91166.shtml)
-- 2026-06-30 02:18 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/28183461.shtml)
+- 2026-06-30 02:21 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/1682465.shtml)
+- 2026-06-30 02:06 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/36261.shtml)
+- 2026-06-30 02:25 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/4476901923.shtml)
+- 2026-06-30 02:10 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/52128687.shtml)
+- 2026-06-30 02:14 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/79650808120.shtml)
+- 2026-06-30 02:18 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/0584668.shtml)
+- 2026-06-30 02:08 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/810148577.shtml)
+- 2026-06-30 02:15 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/8346806743.shtml)
+- 2026-06-30 02:08 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/499385058011.shtml)
+- 2026-06-30 02:12 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/23326919436.shtml)
+- 2026-06-30 02:14 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/344345.shtml)
+- 2026-06-30 02:12 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/903215.shtml)
+- 2026-06-30 02:18 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/10441271126.shtml)
+- 2026-06-30 02:20 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/38143.shtml)
+- 2026-06-30 02:08 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/00964.shtml)

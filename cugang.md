@@ -1,58 +1,59 @@
-# 被立案调查，极兔冤吗？丢件不赔、私自签收，单票收入持续承压
+# 华为董事侯金龙：加快超充网络建设是推动重卡电动化可持续发展的关键
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-专题：极兔速递，被立案调查！股价大跌 文 | 《BUG》栏目 徐苑蕾 今日，国家邮政局依法对极兔速递有限公司立案调查。国家邮政局指出，今年以来，使用“极兔速递”商标、字号、快递运单经营快递业务的企业多发生产安全事故，场所内多次被检查发现生产安全事故隐患。极兔速递有限公司对极兔速递相关企业安全生产管理缺位，未按规定实行安全保障统一管理。 消息一出，资本市场迅速做出反应。极兔速递环
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。华为董事、华为数字能源总裁侯金龙出席并演讲。 侯金龙指出，面向汽车电动化产业，华为数字能源定位为运动与及重点网络解决方案的提供商。在智能电动领域，致力于帮助车企造好车，为用户带来极致的驾乘体验
 
 ## 正文
 
-专题：极兔速递，被立案调查！
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-股价大跌 文 | 《BUG》栏目 徐苑蕾 今日，国家邮政局依法对极兔速递有限公司立案调查。
+华为董事、华为数字能源总裁侯金龙出席并演讲。
 
-国家邮政局指出，今年以来，使用“极兔速递”商标、字号、快递运单经营快递业务的企业多发生产安全事故，场所内多次被检查发现生产安全事故隐患。
+侯金龙指出，面向汽车电动化产业，华为数字能源定位为运动与及重点网络解决方案的提供商。
 
-极兔速递有限公司对极兔速递相关企业安全生产管理缺位，未按规定实行安全保障统一管理。
+在智能电动领域，致力于帮助车企造好车，为用户带来极致的驾乘体验。
 
-消息一出，资本市场迅速做出反应。
+在智能充电领域，致力于为运营商提供高质量的充电解决方案，为用户带来更优质的体验。
 
-极兔速递环球有限公司股价盘中一度大跌超过10%。
+电动重卡走向开放场景，侯金龙认为，打造点线面的超充网络覆盖是关键，加快以兆瓦超充为主的超充网络是推动重卡电动化可持续发展的关键。
 
-极兔方面则回应称，安全生产是不可逾越的红线，公司高度重视，并将全面整改。
+他提出三点建议： 第一，强化产业链的生态协同，包括车装网、运营商联合开展技术创新和商业协同，来供应发展的机遇。
 
-自2020年进入中国市场以来，极兔速递凭借与电商平台的深度合作以及低至“8毛发全国”的价格策略，在六年内从“无名之辈”一跃成为行业第五，2025年包裹量高达220.7亿件。
+他认为，电动重卡物流的电动化转型是个非常大的发展机遇。
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 02:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 02:25 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 02:10 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-30 02:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 02:29 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 02:20 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 02:01 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-30 02:06 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 02:26 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 02:20 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 02:05 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 02:14 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 02:31 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 02:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 02:32 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 02:33 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 02:27 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 02:25 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 02:28 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 02:34 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-30 02:16 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 02:34 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 02:13 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 02:21 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:04 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/13003896.shtml)
-- 2026-06-30 02:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/3452735.shtml)
-- 2026-06-30 02:10 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/59869668.shtml)
-- 2026-06-30 02:16 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/38016783.shtml)
-- 2026-06-30 02:14 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/05040195750.shtml)
-- 2026-06-30 02:03 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/932052148.shtml)
-- 2026-06-30 02:14 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/6899820432.shtml)
-- 2026-06-30 02:22 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/080434.shtml)
-- 2026-06-30 02:09 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/3594884845.shtml)
-- 2026-06-30 02:18 - [天道](http://www.blog.minike.top/Article/details/590352593.shtml)
-- 2026-06-30 02:15 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/77819.shtml)
-- 2026-06-30 02:28 - [速度与激情9](https://www.share.minike.top/Article/details/30399311.shtml)
-- 2026-06-30 02:11 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/660803241.shtml)
-- 2026-06-30 02:03 - [扬名立万](https://www.blog.minike.top/Article/details/2348209912.shtml)
-- 2026-06-30 02:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/530484472377.shtml)
+- 2026-06-30 02:27 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/95847463.shtml)
+- 2026-06-30 02:26 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/55907676906.shtml)
+- 2026-06-30 02:28 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/241557.shtml)
+- 2026-06-30 02:12 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/894915013259.shtml)
+- 2026-06-30 02:28 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/100957371.shtml)
+- 2026-06-30 02:30 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/5005902.shtml)
+- 2026-06-30 02:25 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/05890.shtml)
+- 2026-06-30 02:14 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/3419287104.shtml)
+- 2026-06-30 02:20 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/3290775018.shtml)
+- 2026-06-30 02:28 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/07678705.shtml)
+- 2026-06-30 02:24 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/033361558.shtml)
+- 2026-06-30 02:25 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/9514485.shtml)
+- 2026-06-30 02:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/3353828256.shtml)
+- 2026-06-30 02:12 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/0470861.shtml)
+- 2026-06-30 02:24 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/67812829418.shtml)

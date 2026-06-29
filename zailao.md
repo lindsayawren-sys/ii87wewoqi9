@@ -1,57 +1,61 @@
-# （乡村行·看振兴）湖北秭归：“端午艾”变身“致富宝”
+# 文件显示：迪拜将外国航班限制至5月31日 印度航司受冲击最大
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-中新网湖北秭归6月11日电 题：湖北秭归：“端午艾”变身“致富宝” 作者 李彩云 郭晓莹 临近端午，湖北省秭归县九畹溪村屈艾加工车间内，电动石碾加足马力转动。宜昌市级非物质文化遗产端午制艾技艺代表性传承人宋发龙，捧起一撮刚加工完成的金艾绒，只见其色泽金黄、绒丝如絮。 坐落于三峡西陵峡畔的九畹溪，相传是屈原开坛讲学、植兰修性之地。当地独特的气候条件与肥沃土壤，孕育出叶厚绒密、品质
+文件显示，受伊朗局势影响，迪拜已限制外国航空公司在5月31日前每日仅可运营一班飞往其机场的航班，这引发印度航空公司的营收损失担忧——此前印度航司计划飞往迪拜的航班数量远超其他国家航司。 据印度航空公司联合会（FIA）3月31日致印度政府的信函，该机构代表靛蓝航空（IndiGo）、印度航空、香料航空（SpiceJet）等头部航司，已请求印度政府推动迪拜当局取消此项限制；若未能实现
 
 ## 正文
 
-中新网湖北秭归6月11日电 题：湖北秭归：“端午艾”变身“致富宝” 作者 李彩云 郭晓莹 临近端午，湖北省秭归县九畹溪村屈艾加工车间内，电动石碾加足马力转动。
+文件显示，受伊朗局势影响，迪拜已限制外国航空公司在5月31日前每日仅可运营一班飞往其机场的航班，这引发印度航空公司的营收损失担忧——此前印度航司计划飞往迪拜的航班数量远超其他国家航司。
 
-宜昌市级非物质文化遗产端午制艾技艺代表性传承人宋发龙，捧起一撮刚加工完成的金艾绒，只见其色泽金黄、绒丝如絮。
+据印度航空公司联合会（FIA）3月31日致印度政府的信函，该机构代表靛蓝航空（IndiGo）、印度航空、香料航空（SpiceJet）等头部航司，已请求印度政府推动迪拜当局取消此项限制；若未能实现，则考虑对阿联酋航空、迪拜航空（flydubai）等迪拜航司采取对等反制措施。
 
-坐落于三峡西陵峡畔的九畹溪，相传是屈原开坛讲学、植兰修性之地。
+自去年印巴两国因军事紧张关系禁止印度航司使用巴基斯坦领空后，印度航司已面临燃油价格上涨、飞往西方目的地航线航程拉长带来的财务压力。
 
-当地独特的气候条件与肥沃土壤，孕育出叶厚绒密、品质优良的艾草。
+迪拜机场3月27日致各航司的非公开邮件显示，4月20日至5月31日夏季运营期间，境外航司每日仅可在迪拜国际机场（DXB，全球最繁忙国际航空枢纽）及规模较小的阿勒马克图姆国际机场（DWC）各运营一班往返航班，此项限制是此前冲突爆发后相关管控措施的延续。
 
-挂艾沐浴、缝制香包等端午民俗在此代代相传、绵延至今。
+邮件称：“在运力条件允许增班之前，各航司仍将被限制为每日一班航班……若运力充足，将另行分配额外时刻。
 
-宋发龙自幼跟随长辈研习制艾技艺，长大后扎根家乡深耕艾草特色产业。
+” 印度航空公司联合会向印度政府表示，阿联酋航空、迪拜航空等迪拜本土航司并未受此限制约束，由此形成不公平竞争环境，或将给印度航司带来“巨额”营收损失。
 
-他盘活村内闲置资源，优先流转脱贫户土地建成标准化艾草基地，开办制艾工坊，重点吸纳留守老人、妇女就近就业，将寻常乡间艾草，打造成传承楚文化、带动村民增收的特色富民产业。
+迪拜机场及迪拜媒体办公室未回应多次置评请求。
 
-加工车间内，45岁的王京琼正熟练卷制艾条，动作高效利落。
+迪拜航空称其航班时刻已获相关部门批准，阿联酋航空则未予回应。
 
 ## 相关推荐
 
-- 2026-06-30 02:10 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 02:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 02:09 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 02:06 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 02:28 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 02:14 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 02:11 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 02:11 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 02:22 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 02:13 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 02:05 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 02:20 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 02:24 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 02:33 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 02:17 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 02:21 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-30 02:27 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 02:13 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 02:19 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 02:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 02:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 02:25 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 02:29 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 02:26 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 02:11 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 02:18 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:08 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/105918531611.shtml)
-- 2026-06-30 02:20 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/58013.shtml)
-- 2026-06-30 02:03 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/52902.shtml)
-- 2026-06-30 02:05 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/152572627529.shtml)
-- 2026-06-30 02:26 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/332819.shtml)
-- 2026-06-30 02:12 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/73536.shtml)
-- 2026-06-30 02:08 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/48990237849.shtml)
-- 2026-06-30 02:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/020764181.shtml)
-- 2026-06-30 02:14 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/871213.shtml)
-- 2026-06-30 02:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/60436762594.shtml)
-- 2026-06-30 02:22 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/1724179.shtml)
-- 2026-06-30 02:27 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/9411832.shtml)
-- 2026-06-30 02:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/07724717.shtml)
-- 2026-06-30 02:19 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/23719.shtml)
-- 2026-06-30 02:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/590894.shtml)
+- 2026-06-30 02:17 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/105718.shtml)
+- 2026-06-30 02:28 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/4631951.shtml)
+- 2026-06-30 02:23 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/07730246719.shtml)
+- 2026-06-30 02:10 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/080263665473.shtml)
+- 2026-06-30 02:28 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/5561431607.shtml)
+- 2026-06-30 02:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/14073230.shtml)
+- 2026-06-30 02:21 - [世界杯](https://www.blog.kurohicncr.top/Article/details/0552484.shtml)
+- 2026-06-30 02:26 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/728958729.shtml)
+- 2026-06-30 02:13 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/12096.shtml)
+- 2026-06-30 02:22 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/571375.shtml)
+- 2026-06-30 02:20 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/7142471.shtml)
+- 2026-06-30 02:13 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/8096516.shtml)
+- 2026-06-30 02:08 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/754446729846.shtml)
+- 2026-06-30 02:12 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/0397113.shtml)
+- 2026-06-30 02:11 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/201234.shtml)

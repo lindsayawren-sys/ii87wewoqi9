@@ -1,60 +1,60 @@
-# 亚马逊评选泰雅丽·琼斯《Kin》为2026年迄今最佳图书
+# 巴克莱上调Marvell股票目标价 押注光学网络繁荣
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-亚马逊近日公布了2026年上半年度最佳图书榜单，泰雅丽·琼斯的长篇小说《Kin》荣登榜首。这是琼斯继2018年《美国式婚姻》之后的又一力作，自今年2月出版以来已收获广泛好评。 亚马逊编辑团队在阅读、讨论和投票后，从海量新书中选出了这份年中书单。亚马逊图书编辑总监萨拉·格尔曼表示，团队成员阅读各类图书、口味各异，很少有哪本书能让所有人达成一致，但《Kin》做到了。琼斯的文字温柔而
+巴克莱将Marvell Technology的评级从“持股观望”上调至“超配”，并将这家半导体公司的目标价从105美元上调至150美元。 该机构的分析师指出，Marvell光学网络业务的快速增长是这一更为乐观立场的主要驱动力。行业调研显示，光学端口数量可能在2026年翻倍，然后在2027年再次翻倍，这一趋势似乎使Marvell有望实现显著的收入增长，即使面临日益激烈的竞争。 巴
 
 ## 正文
 
-亚马逊近日公布了2026年上半年度最佳图书榜单，泰雅丽·琼斯的长篇小说《Kin》荣登榜首。
+巴克莱将Marvell Technology的评级从“持股观望”上调至“超配”，并将这家半导体公司的目标价从105美元上调至150美元。
 
-这是琼斯继2018年《美国式婚姻》之后的又一力作，自今年2月出版以来已收获广泛好评。
+该机构的分析师指出，Marvell光学网络业务的快速增长是这一更为乐观立场的主要驱动力。
 
-亚马逊编辑团队在阅读、讨论和投票后，从海量新书中选出了这份年中书单。
+行业调研显示，光学端口数量可能在2026年翻倍，然后在2027年再次翻倍，这一趋势似乎使Marvell有望实现显著的收入增长，即使面临日益激烈的竞争。
 
-亚马逊图书编辑总监萨拉·格尔曼表示，团队成员阅读各类图书、口味各异，很少有哪本书能让所有人达成一致，但《Kin》做到了。
+巴克莱表示，Marvell的光学业务板块今年和明年的收入可能分别增长约90%。
 
-琼斯的文字温柔而精准，是一个读完很久仍会留在心中的故事。
+该报告概述了一种情景：即使在考虑到主要云客户支出和市场份额变化的保守假设下，Marvell的盈利潜力仍具有韧性，约为每股5美元。
 
-《Kin》的故事设定在20世纪中叶的种族隔离时期，聚焦两位从小相伴长大的无母女孩安妮和妮西。
+分析师指出，随着近期生态系统的发展，他们对微软的业务增长越来越有信心。
 
-两人一起在路易斯安那州霍尼萨克镇度过童年，却因人生选择不同而渐行渐远——妮西前往亚特兰大求学，安妮则执意踏上寻找母亲的旅途。
+由于该公司的近期前景与数据中心互连需求密切相关，巴克莱预计对Marvell的投资叙事将更直接地转向光学业务的执行层面，而不再那么关注更广泛的周期性担忧。
 
-小说深刻探讨了友谊、阶级、种族、身份认同等主题，展现了超越血缘的女性情谊。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 02:21 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 02:08 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 02:09 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 02:20 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 02:01 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-30 02:03 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-30 02:27 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 02:23 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 02:10 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 02:10 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 02:00 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 02:06 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 02:20 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 02:26 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 02:16 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 02:07 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 02:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 02:14 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 02:10 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 02:27 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 02:18 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 02:06 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 02:18 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 02:14 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-30 02:19 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 02:24 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 02:17 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 02:09 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:07 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/154335957.shtml)
-- 2026-06-30 02:22 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/50639322107.shtml)
-- 2026-06-30 02:04 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/048148334.shtml)
-- 2026-06-30 02:19 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/359002.shtml)
-- 2026-06-30 02:05 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/76586.shtml)
-- 2026-06-30 02:26 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/989700194.shtml)
-- 2026-06-30 02:09 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/829921960863.shtml)
-- 2026-06-30 02:08 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/297981.shtml)
-- 2026-06-30 02:01 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/179998147740.shtml)
-- 2026-06-30 02:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/6193955871.shtml)
-- 2026-06-30 02:05 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/138307.shtml)
-- 2026-06-30 02:14 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/16595391.shtml)
-- 2026-06-30 02:22 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/7456132.shtml)
-- 2026-06-30 02:21 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/085639224738.shtml)
-- 2026-06-30 02:06 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/31421.shtml)
+- 2026-06-30 02:22 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/79963224254.shtml)
+- 2026-06-30 02:22 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/036791270.shtml)
+- 2026-06-30 02:34 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/5348166.shtml)
+- 2026-06-30 02:25 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/4402666023.shtml)
+- 2026-06-30 02:28 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/626367936610.shtml)
+- 2026-06-30 02:07 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/318747998.shtml)
+- 2026-06-30 02:19 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/006317.shtml)
+- 2026-06-30 02:22 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/5263056351.shtml)
+- 2026-06-30 02:17 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/1734959680.shtml)
+- 2026-06-30 02:30 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/66132.shtml)
+- 2026-06-30 02:11 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/613369.shtml)
+- 2026-06-30 02:22 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/143934367.shtml)
+- 2026-06-30 02:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/405603849041.shtml)
+- 2026-06-30 02:27 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/4772305.shtml)
+- 2026-06-30 02:35 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/70532.shtml)

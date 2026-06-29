@@ -1,48 +1,61 @@
-# 稀美资源遭Jiawei Resources Holding Limited减持3410万股 每股作价16.1港元
+# （粤港澳大湾区）穗港企业共建大湾区航运联合交易中心香港平台
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，6月5日，Jiawei Resources Holding Limited减持稀美资源（09936）3410万股，每股作价16.1港元，总金额约为5.49亿港元。减持后最新持股数目约为1.71亿股，持股比例为44.98%。责任编辑：卢昱君
+中新社广州4月10日电 (记者 王坚)广州航运联合交易中心(简称“航交中心”)10日在广州南沙牵手香港华光海运、海瀚资本，三方签署战略合作协议，共同建设大湾区航运联合交易中心香港平台。 作为建设大湾区航运联合交易中心的重要载体，航交中心已发展成为华南地区最大的船舶交易综合服务平台，服务范围涵盖船舶交易、价格评估、经纪服务等全链条业务，年均交易船舶约200艘，交易金额近40亿元(
 
 ## 正文
 
-香港联交所最新数据显示，6月5日，Jiawei Resources Holding Limited减持稀美资源（09936）3410万股，每股作价16.1港元，总金额约为5.49亿港元。
+中新社广州4月10日电 (记者 王坚)广州航运联合交易中心(简称“航交中心”)10日在广州南沙牵手香港华光海运、海瀚资本，三方签署战略合作协议，共同建设大湾区航运联合交易中心香港平台。
 
-减持后最新持股数目约为1.71亿股，持股比例为44.98%。
+作为建设大湾区航运联合交易中心的重要载体，航交中心已发展成为华南地区最大的船舶交易综合服务平台，服务范围涵盖船舶交易、价格评估、经纪服务等全链条业务，年均交易船舶约200艘，交易金额近40亿元(人民币，下同)。
 
-责任编辑：卢昱君
+华光海运作为香港知名航运企业，行业资源雄厚、全球网络广泛；海瀚资本专注航运金融，拥有专业的跨境资本运作能力。
+
+根据协议，航交中心将通过其香港子公司，与香港华光海运、海瀚资本展开深度合作。
+
+三方将采用广州—香港“一体两翼、双中心协同”模式，充分发挥各自优势，打造大湾区航运资源跨境配置与高端服务一体化标杆平台。
+
+此外，航交中心将依托香港国际航运中心的金融、法律优势，聚焦国际船舶经纪、航运金融咨询、海事技术服务、交易资金第三方托管及跨境交接统筹等核心业务。
+
+这将有效助力破解船舶交易中“成交易、交接难”的行业痛点，推动航运服务要素在大湾区高效流通。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:22 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 02:07 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 02:29 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 02:04 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 02:21 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-30 02:10 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 02:03 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 02:20 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 02:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 02:15 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 02:05 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 02:09 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 02:09 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 02:19 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 02:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 02:13 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 02:33 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 02:08 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 02:06 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 02:33 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 02:11 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 02:16 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 02:29 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 02:30 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 02:31 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 02:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 02:29 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:03 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/34301.shtml)
-- 2026-06-30 02:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/612034.shtml)
-- 2026-06-30 02:10 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/16424573145.shtml)
-- 2026-06-30 02:13 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/9675198984.shtml)
-- 2026-06-30 02:13 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/013834806099.shtml)
-- 2026-06-30 02:27 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/7089995396.shtml)
-- 2026-06-30 02:07 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/37862.shtml)
-- 2026-06-30 02:22 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/763716.shtml)
-- 2026-06-30 02:26 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/083041.shtml)
-- 2026-06-30 02:25 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/5771921.shtml)
-- 2026-06-30 02:22 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/99580961.shtml)
-- 2026-06-30 02:13 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/757925260.shtml)
-- 2026-06-30 02:04 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/34301.shtml)
-- 2026-06-30 02:10 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/92072164.shtml)
-- 2026-06-30 02:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/675464.shtml)
+- 2026-06-30 02:14 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/3640671242.shtml)
+- 2026-06-30 02:11 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/313100.shtml)
+- 2026-06-30 02:31 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/0872022.shtml)
+- 2026-06-30 02:19 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/5408638094.shtml)
+- 2026-06-30 02:27 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/5068016078.shtml)
+- 2026-06-30 02:23 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/906321.shtml)
+- 2026-06-30 02:21 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/857647649543.shtml)
+- 2026-06-30 02:35 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/34814.shtml)
+- 2026-06-30 02:30 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/747488220.shtml)
+- 2026-06-30 02:31 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/8755857370.shtml)
+- 2026-06-30 02:30 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/45362872.shtml)
+- 2026-06-30 02:20 - [扫黑风暴](https://www.blog.minike.top/Article/details/228216320991.shtml)
+- 2026-06-30 02:25 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/018836991418.shtml)
+- 2026-06-30 02:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/746402034.shtml)
+- 2026-06-30 02:28 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/681939211500.shtml)

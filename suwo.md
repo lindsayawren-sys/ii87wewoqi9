@@ -1,59 +1,59 @@
-# Frigidaire调查：美国人每周扔掉大量剩菜
+# OEXN:就业分化信号支撑金价高位震荡
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-尽管大多数美国人怀揣节约食物和节省开支的美好愿望，但现实情况却截然相反。Frigidaire最新发布的一项全国性调查揭示了一个令人困扰的矛盾：高达74%的美国成年人表示，他们每周至少会扔掉一次冰箱里的剩菜。 调查显示，美国人保存剩菜的动机非常明确：64%的人希望避免食物浪费，52%的人是为了省钱。然而，这些良好意愿并未转化为实际行动，食物常常被遗忘在冰箱角落，最终被丢弃，这常常
+4月10日，黄金价格在周四早盘维持在当日高位附近震荡运行，主要受到最新就业数据发布后的市场情绪推动。OEXN认为，就业市场出现一定分化信号，使得投资者对经济前景的判断趋于谨慎，从而对黄金形成一定支撑。整体来看，金价在短线维持偏强走势，但仍缺乏持续突破的明确动能。 最新数据显示，美国初请失业金人数大致高于市场预期，整体处于约二十一万至二十二万区间，同时前值也有所上修。这表明劳动力
 
 ## 正文
 
-尽管大多数美国人怀揣节约食物和节省开支的美好愿望，但现实情况却截然相反。
+4月10日，黄金价格在周四早盘维持在当日高位附近震荡运行，主要受到最新就业数据发布后的市场情绪推动。
 
-Frigidaire最新发布的一项全国性调查揭示了一个令人困扰的矛盾：高达74%的美国成年人表示，他们每周至少会扔掉一次冰箱里的剩菜。
+OEXN认为，就业市场出现一定分化信号，使得投资者对经济前景的判断趋于谨慎，从而对黄金形成一定支撑。
 
-调查显示，美国人保存剩菜的动机非常明确：64%的人希望避免食物浪费，52%的人是为了省钱。
+整体来看，金价在短线维持偏强走势，但仍缺乏持续突破的明确动能。
 
-然而，这些良好意愿并未转化为实际行动，食物常常被遗忘在冰箱角落，最终被丢弃，这常常让消费者感到内疚。
+最新数据显示，美国初请失业金人数大致高于市场预期，整体处于约二十一万至二十二万区间，同时前值也有所上修。
 
-对于部分家庭而言，这种浪费带来了显著的经济损失，超过五分之一的美国人估计，他们每年因此浪费的金钱高达1200美元。
+这表明劳动力市场边际有所走弱，新增失业人数略超预期水平。
 
-Frigidaire品牌经理Hannah Humphreys指出：“调查的特别之处在于，人们在保存食物方面确实怀有最好的意图，但在实践中，他们要么把食物推到冰箱最里面忘掉了，要么开始怀疑它们是否还新鲜。
+与此同时，四周均值维持在约二十万左右的区间，波动相对有限。
 
-” 为应对这一挑战，Frigidaire宣布推出名为“Frankie by Frigidaire”的AI助手。
+OEXN认为，这种数据表现说明就业市场并未出现明显恶化，而是处于温和调整阶段，对市场的影响更多体现在预期层面。
 
-该工具旨在帮助用户利用冰箱中的剩菜创造新的食谱，并提供个性化的加热指南，从而节省时间并减轻食品开支压力。
+另一方面，续请失业金人数表现相对稳健。
 
 ## 相关推荐
 
-- 2026-06-30 02:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 02:11 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 02:05 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 02:07 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 02:02 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 02:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 02:05 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 02:05 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 02:08 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 02:13 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 02:16 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 02:11 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 02:14 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 02:18 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 02:32 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 02:07 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 02:31 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 02:33 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 02:22 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 02:21 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 02:32 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 02:17 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 02:16 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 02:29 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 02:26 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 02:11 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:19 - [请回答王牌2019](http://www.blog.minike.top/Article/details/67704968142.shtml)
-- 2026-06-30 02:19 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/1973538.shtml)
-- 2026-06-30 02:23 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/6349408.shtml)
-- 2026-06-30 02:29 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/46224978241.shtml)
-- 2026-06-30 02:06 - [千香](http://www.share.kurohicncr.top/Article/details/189435594.shtml)
-- 2026-06-30 02:04 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/5639638586.shtml)
-- 2026-06-30 02:05 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/047612.shtml)
-- 2026-06-30 02:12 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/2008730.shtml)
-- 2026-06-30 02:19 - [流金岁月](https://www.blog.minike.top/Article/details/21872845.shtml)
-- 2026-06-30 02:02 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/24730572553.shtml)
-- 2026-06-30 02:17 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/48866823255.shtml)
-- 2026-06-30 02:20 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/030605677.shtml)
-- 2026-06-30 02:14 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/390864.shtml)
-- 2026-06-30 02:18 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/29476291294.shtml)
-- 2026-06-30 02:13 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/029861085742.shtml)
+- 2026-06-30 02:13 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/0002701.shtml)
+- 2026-06-30 02:27 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/33676486689.shtml)
+- 2026-06-30 02:12 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/42844385.shtml)
+- 2026-06-30 02:17 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/9593279273.shtml)
+- 2026-06-30 02:17 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/807907.shtml)
+- 2026-06-30 02:19 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/06116.shtml)
+- 2026-06-30 02:24 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/855658.shtml)
+- 2026-06-30 02:34 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/53279301831.shtml)
+- 2026-06-30 02:26 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/92752548213.shtml)
+- 2026-06-30 02:19 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/54757.shtml)
+- 2026-06-30 02:19 - [绘画区你赢了](https://www.share.minike.top/Article/details/2303373.shtml)
+- 2026-06-30 02:15 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/783809105.shtml)
+- 2026-06-30 02:29 - [《贺子珍》](https://www.blog.minike.top/Article/details/80572796412.shtml)
+- 2026-06-30 02:09 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/316136304.shtml)
+- 2026-06-30 02:29 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/52415481.shtml)

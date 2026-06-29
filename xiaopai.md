@@ -1,49 +1,58 @@
-# OPEC数据显示伊朗上个月石油产量下降19%
+# 营收净利规模增长，增速放缓，1900亿巨头顺丰变“慢”了？
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-根据OPEC的数据，伊朗上个月原油产量下降19%。在此期间，美国在与伊朗的持续冲突中封锁了该国的港口。 根据OPEC周四发布的月度报告，伊朗石油日产量下降54.6万桶，至233万桶。责任编辑：李安桐
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：尺度商业 文 | 杨万里 编辑 | 刘振涛 千亿市值物流巨头顺丰控股（以下简称“顺丰”）交出了一份创纪录的成绩单。 近日，顺丰发布了2025年年报，全年顺丰的营收规模突破3000亿元关口，净利规模突破110亿元关口，同比增长9.3%。受到财报业绩增长影响，财报披露次日（3月31日），顺丰A股股价上涨3
 
 ## 正文
 
-根据OPEC的数据，伊朗上个月原油产量下降19%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在此期间，美国在与伊朗的持续冲突中封锁了该国的港口。
+来源：尺度商业 文 | 杨万里 编辑 | 刘振涛 千亿市值物流巨头顺丰控股（以下简称“顺丰”）交出了一份创纪录的成绩单。
 
-根据OPEC周四发布的月度报告，伊朗石油日产量下降54.6万桶，至233万桶。
+近日，顺丰发布了2025年年报，全年顺丰的营收规模突破3000亿元关口，净利规模突破110亿元关口，同比增长9.3%。
 
-责任编辑：李安桐
+受到财报业绩增长影响，财报披露次日（3月31日），顺丰A股股价上涨3.48%，港股股价上涨5.76%。
+
+近年来，物流行业竞争比较激烈，普遍陷入价格战的泥潭，顺丰交出的这份成绩单，似乎意味着物流龙头的王者归来。
+
+然而，越是行业龙头，聚焦点越多。
+
+如果将目光从顺丰亮眼的业绩移开，深入观察财报中细节部分，虽然顺丰2025年业绩规模取得进展，但营收净利增速均降至个位数。
+
+同时，顺丰的盈利质量下滑，比如扣非净利润增速低于净利增速，且毛利率再次下滑。
 
 ## 相关推荐
 
-- 2026-06-30 02:29 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 02:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 02:11 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 02:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 02:13 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 02:01 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 02:26 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 02:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 02:04 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 02:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 02:15 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 02:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 02:20 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 02:25 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 02:24 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-30 02:12 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 02:33 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 02:29 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 02:26 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 02:10 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 02:27 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 02:07 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 02:13 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:10 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/154384000572.shtml)
-- 2026-06-30 02:08 - [青春环游记第三季](http://www.share.minike.top/Article/details/426713394.shtml)
-- 2026-06-30 02:15 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/412713.shtml)
-- 2026-06-30 02:21 - [日本进球](http://www.share.kurohicncr.top/Article/details/44148487366.shtml)
-- 2026-06-30 02:24 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/18800657.shtml)
-- 2026-06-30 02:21 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/14444.shtml)
-- 2026-06-30 02:09 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/2001708962.shtml)
-- 2026-06-30 02:23 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/020183.shtml)
-- 2026-06-30 02:09 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/17014781958.shtml)
-- 2026-06-30 02:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/37260308.shtml)
-- 2026-06-30 02:00 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/25568.shtml)
-- 2026-06-30 02:12 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/11542910.shtml)
-- 2026-06-30 02:09 - [千与千寻](http://www.blog.minike.top/Article/details/28105607.shtml)
-- 2026-06-30 02:16 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/36942.shtml)
-- 2026-06-30 02:24 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/68330890200.shtml)
+- 2026-06-30 02:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/6077930.shtml)
+- 2026-06-30 02:18 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/835063734.shtml)
+- 2026-06-30 02:11 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/551741083.shtml)
+- 2026-06-30 02:34 - [美股](http://www.share.minike.top/Article/details/15051.shtml)
+- 2026-06-30 02:31 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/27018.shtml)
+- 2026-06-30 02:10 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/80126.shtml)
+- 2026-06-30 02:13 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/6951006.shtml)
+- 2026-06-30 02:18 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/1846935.shtml)
+- 2026-06-30 02:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/27358287.shtml)
+- 2026-06-30 02:24 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/917411.shtml)
+- 2026-06-30 02:09 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/1919944964.shtml)
+- 2026-06-30 02:30 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/4352879711.shtml)
+- 2026-06-30 02:20 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/235751.shtml)
+- 2026-06-30 02:07 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/61993.shtml)
+- 2026-06-30 02:22 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/726058255.shtml)

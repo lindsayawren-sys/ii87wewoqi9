@@ -1,52 +1,52 @@
-# 飞速创新拟回购不超过5%公司H股
+# 上证指数早盘重返4000点 创业板涨超3%创近四年半新高
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-飞速创新（03355）发布公告，于2026年6月10日，董事会通过决议，批准公司在公司股东于2026年5月28日举行的年度股东会上授予董事会的H股回购一般性授权范围内，视乎市况及公司实际情况，不时于香港联交所公开市场回购公司H股。 根据回购授权，公司可回购最多不超过回购授权获批准当日公司已发行及缴足 H股总数（不包括已回购但未注销的H股；不包括库存股份，如有）之5%。 公司拟以
+4月10日，中国资产早盘爆发，沪指重返4000点，港股、富时中国A50指数期货同步上涨！截至10点，上证指数拉升涨超1%，时隔14个交易日重回4000点，创业板指涨逾3%，再度刷新2021年12月底以来的阶段新高，科创综指、深圳成指涨超2%，市场超4600股上涨。 半导体芯片涨幅居前，德明利逼近涨停，续创历史新高，普冉股份、江波龙、佰维存储、兆易创新等跟涨；大金融板块走高，南华
 
 ## 正文
 
-飞速创新（03355）发布公告，于2026年6月10日，董事会通过决议，批准公司在公司股东于2026年5月28日举行的年度股东会上授予董事会的H股回购一般性授权范围内，视乎市况及公司实际情况，不时于香港联交所公开市场回购公司H股。
+4月10日，中国资产早盘爆发，沪指重返4000点，港股、富时中国A50指数期货同步上涨！
 
-根据回购授权，公司可回购最多不超过回购授权获批准当日公司已发行及缴足 H股总数（不包括已回购但未注销的H股；不包括库存股份，如有）之5%。
+截至10点，上证指数拉升涨超1%，时隔14个交易日重回4000点，创业板指涨逾3%，再度刷新2021年12月底以来的阶段新高，科创综指、深圳成指涨超2%，市场超4600股上涨。
 
-公司拟以自有资金及╱或自筹资金为H股回购提供资金。
+半导体芯片涨幅居前，德明利逼近涨停，续创历史新高，普冉股份、江波龙、佰维存储、兆易创新等跟涨；大金融板块走高，南华期货涨停，中信证券涨超8%，东方财富、华泰证券、兴业证券、广发证券、银之杰、同花顺涨超5%。
 
-公司仅可动用根据公司章程、上市规则及适用法律法规合法可作该等用途的资金进行H股回购。
+锂电池产业链拉升，国轩高科、信宇人涨停。
 
-公司拟动用的回购总金额不超过3.5亿港元。
+内蒙古本地股大面积高开，内蒙新华、欧晶科技一字涨停。
 
-责任编辑：卢昱君
+责任编辑：凌辰
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 02:27 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 02:00 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 02:13 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 02:28 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 02:26 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 02:13 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 02:01 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 02:21 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 02:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-30 02:22 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 02:20 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 02:12 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 02:07 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 02:28 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 02:15 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 02:17 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 02:21 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 02:34 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 02:11 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/71519244609.shtml)
-- 2026-06-30 02:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/52451272912.shtml)
-- 2026-06-30 02:23 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/6835338.shtml)
-- 2026-06-30 02:05 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/8022536909.shtml)
-- 2026-06-30 02:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/2920483.shtml)
-- 2026-06-30 02:01 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/9455713669.shtml)
-- 2026-06-30 02:29 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/0361405660.shtml)
-- 2026-06-30 02:07 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/716917719.shtml)
-- 2026-06-30 02:05 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/079944.shtml)
-- 2026-06-30 02:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/99088386.shtml)
-- 2026-06-30 02:22 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/4802288191.shtml)
-- 2026-06-30 02:28 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/44425214.shtml)
-- 2026-06-30 02:17 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/3882847.shtml)
-- 2026-06-30 02:28 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/839994.shtml)
-- 2026-06-30 02:27 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/5581843477.shtml)
+- 2026-06-30 02:20 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/040029.shtml)
+- 2026-06-30 02:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/56571509909.shtml)
+- 2026-06-30 02:11 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/6769338.shtml)
+- 2026-06-30 02:10 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/310886.shtml)
+- 2026-06-30 02:15 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/96334034339.shtml)
+- 2026-06-30 02:12 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/3249423.shtml)
+- 2026-06-30 02:20 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/24953549628.shtml)
+- 2026-06-30 02:13 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/26771731083.shtml)
+- 2026-06-30 02:23 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/115983984.shtml)
+- 2026-06-30 02:19 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/3713226955.shtml)
+- 2026-06-30 02:17 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/140536000.shtml)
+- 2026-06-30 02:32 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/5421339118.shtml)
+- 2026-06-30 02:34 - [日本进球](http://www.share.kurohicncr.top/Article/details/81776151.shtml)
+- 2026-06-30 02:11 - [斗破苍穹](http://www.share.minike.top/Article/details/3193266011.shtml)
+- 2026-06-30 02:21 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/243388465.shtml)

@@ -1,55 +1,59 @@
-# 韩国Kospi指数飙升逾8% 美伊有望达成协议改善市场风险偏好
+# 香港举行学界棋艺大赛 吸引逾800人参与
 
-> 更新时间：2026-06-30 02:30:03 UTC+8
+> 更新时间：2026-06-30 02:36:02 UTC+8
 
 ## 摘要
 
-韩国股市周五大幅上涨，美国总统特朗普表示美伊接近达成协议后，市场风险偏好改善。 Kospi指数早盘飙升逾8%，芯片股领涨。 周五的大涨再次凸显出韩国4.3万亿美元股市的狂野波动。由于股指期货飙升，韩国交易所一度暂停Kospi的程序化买单。此前，特朗普突然取消原定对伊朗的军事打击，推动美股和更广泛的风险资产走高。 三星电子和SK海力士均大涨超过9%，投资者重新涌入被视为AI热潮中
+中新网香港4月10日电 (记者 魏华都)记者10日从相关主办方获悉，香港学界年度盛事——“小棋圣杯”全港学界棋艺大赛近日落幕，多日赛事吸引来自香港数百家大专院校、中学、小学及幼儿园逾800人参加，在围棋、中国象棋及国际象棋三大项目中展开智力对决。 赛事今年踏入第15届，由中国香港棋院、儿童学习能力及心智发展协会主办，香港大湾区围棋促进会、香港棋艺青训学院、中国香港棋艺发展协会及
 
 ## 正文
 
-韩国股市周五大幅上涨，美国总统特朗普表示美伊接近达成协议后，市场风险偏好改善。
+中新网香港4月10日电 (记者 魏华都)记者10日从相关主办方获悉，香港学界年度盛事——“小棋圣杯”全港学界棋艺大赛近日落幕，多日赛事吸引来自香港数百家大专院校、中学、小学及幼儿园逾800人参加，在围棋、中国象棋及国际象棋三大项目中展开智力对决。
 
-Kospi指数早盘飙升逾8%，芯片股领涨。
+赛事今年踏入第15届，由中国香港棋院、儿童学习能力及心智发展协会主办，香港大湾区围棋促进会、香港棋艺青训学院、中国香港棋艺发展协会及弘德围棋合办，香港四洲集团、量子基石投资有限公司及星阵围棋赞助。
 
-周五的大涨再次凸显出韩国4.3万亿美元股市的狂野波动。
+赛事按年龄细分为幼儿组、初小、中小、高小、初中、高中及大专等多个组别。
 
-由于股指期货飙升，韩国交易所一度暂停Kospi的程序化买单。
+经过一番对决后，诞生多位个人赛冠军。
 
-此前，特朗普突然取消原定对伊朗的军事打击，推动美股和更广泛的风险资产走高。
+团体奖项方面，保良局陈守仁小学、香港华人基督教联会真道书院、香港培正小学分别获得围棋、中国象棋和国际象棋项目的金奖。
 
-三星电子和SK海力士均大涨超过9%，投资者重新涌入被视为AI热潮中心的股票。
+主办方表示，赛事展现了中华文化所提倡的“君子之风”。
 
-责任编辑：王永生
+今年适逢中国香港棋院成立20周年，大会特别于赛场外增设周年回顾展区、纪念品市集等，展示中国香港棋院发展历程。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:24 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 02:19 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 02:17 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 02:20 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 02:12 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 02:22 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 02:07 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-30 02:21 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 02:13 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 02:18 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 02:23 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 02:19 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 02:22 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 02:26 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 02:16 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 02:18 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 02:13 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 02:21 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 02:34 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 02:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 02:10 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 02:17 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 02:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 02:26 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:12 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/75712.shtml)
-- 2026-06-30 02:19 - [天道](http://www.share.kurohicncr.top/Article/details/16709694707.shtml)
-- 2026-06-30 02:09 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/30890368.shtml)
-- 2026-06-30 02:09 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/74804.shtml)
-- 2026-06-30 02:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/26285967.shtml)
-- 2026-06-30 02:01 - [TOP Prada](https://www.share.minike.top/Article/details/160293.shtml)
-- 2026-06-30 02:00 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/011557654372.shtml)
-- 2026-06-30 02:23 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/7633960.shtml)
-- 2026-06-30 02:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/1848365519.shtml)
-- 2026-06-30 02:28 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/4026930258.shtml)
-- 2026-06-30 02:21 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/7327327.shtml)
-- 2026-06-30 02:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/64196117.shtml)
-- 2026-06-30 02:07 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/65227627383.shtml)
-- 2026-06-30 02:09 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/125147.shtml)
-- 2026-06-30 02:13 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/335541997373.shtml)
+- 2026-06-30 02:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/8937367960.shtml)
+- 2026-06-30 02:09 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/535611.shtml)
+- 2026-06-30 02:33 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/9967589.shtml)
+- 2026-06-30 02:11 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/81362531.shtml)
+- 2026-06-30 02:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/4903302.shtml)
+- 2026-06-30 02:30 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/5433173985.shtml)
+- 2026-06-30 02:23 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/0485187366.shtml)
+- 2026-06-30 02:24 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/9860134876.shtml)
+- 2026-06-30 02:32 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/0610397.shtml)
+- 2026-06-30 02:11 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/8083412557.shtml)
+- 2026-06-30 02:09 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/950132.shtml)
+- 2026-06-30 02:23 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/7130406800.shtml)
+- 2026-06-30 02:25 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/0512604073.shtml)
+- 2026-06-30 02:09 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/9909743019.shtml)
+- 2026-06-30 02:12 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/951684521.shtml)
