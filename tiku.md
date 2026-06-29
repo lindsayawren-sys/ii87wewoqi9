@@ -1,60 +1,58 @@
-# 青春华章 丝路逐光｜从“李老师”到“李妈妈”：一位河西学院教师与新疆的12年之约
+# 文学的回响：中外人士讲述创作中的中国与世界
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-“每次坐上西行的列车，我的心就格外平静。”55岁的李惠芬这样描述她12年来往返于甘肃和新疆两地间的感受。 李惠芬是河西学院文学院的教师，今年是她从教的第31年。本该在这个夏天退休的她，选择了延期——继续带队去新疆支教。从2014年第一次带队算起，李惠芬已参加了7次援疆支教。 近日，记者跟随“青春华章·丝路逐光”网络主题活动采访团走进河西学院，了解到一个被学生们唤作“李妈妈”的西
+中新网北京6月19日电 题：文学的回响：中外人士讲述创作中的中国与世界 记者 曾玥 在文学作品中寻找中国和世界，如何描摹书页翻飞间的回响？ 6月18日下午，2026“京师世界文学节”主场活动“世界作家话中国”在北京师范大学举行。来自中国、美国、德国、加拿大、意大利、西班牙等十余国的作家、诗人、出版人以“文学的回响：创作中的中国与世界”为主题，分享各自的答案。 对于中国网络文学作
 
 ## 正文
 
-“每次坐上西行的列车，我的心就格外平静。
+中新网北京6月19日电 题：文学的回响：中外人士讲述创作中的中国与世界 记者 曾玥 在文学作品中寻找中国和世界，如何描摹书页翻飞间的回响？
 
-”55岁的李惠芬这样描述她12年来往返于甘肃和新疆两地间的感受。
+6月18日下午，2026“京师世界文学节”主场活动“世界作家话中国”在北京师范大学举行。
 
-李惠芬是河西学院文学院的教师，今年是她从教的第31年。
+来自中国、美国、德国、加拿大、意大利、西班牙等十余国的作家、诗人、出版人以“文学的回响：创作中的中国与世界”为主题，分享各自的答案。
 
-本该在这个夏天退休的她，选择了延期——继续带队去新疆支教。
+对于中国网络文学作家麦苏来说，回响不是回声壁上的单一声波，而是山谷里的此起彼伏，“你喊一声、我应一声、他再喊一声”，最后分不清谁是原声、谁是回响，这才是真正具有生命力的交流。
 
-从2014年第一次带队算起，李惠芬已参加了7次援疆支教。
+网络文学出海便是生动例证。
 
-近日，记者跟随“青春华章·丝路逐光”网络主题活动采访团走进河西学院，了解到一个被学生们唤作“李妈妈”的西行故事。
+随着中国网络文学走向海外，国际翻译平台不断涌现，民间翻译组织自发生长。
 
-2014年的那次出发，几乎是“临时起意”。
+有人专门搭建网站解释“江湖”等概念，还有人用英文创作西方背景下的修仙故事。
 
-彼时学校动员学生赴疆实习，响应者寥寥。
+“网络文学由于其通俗性和强故事性，往往能够绕过一些复杂的文化门槛，直接抵达人类共通的情感，比如对正义的向往、对逆袭的渴望、对友情和爱情的珍视。
 
 ## 相关推荐
 
-- 2026-06-29 21:37 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 21:58 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 21:42 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 21:43 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 21:38 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 21:31 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 21:43 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 21:36 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 21:57 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 21:53 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 21:41 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 21:33 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-29 21:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 21:36 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 21:56 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 21:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 21:38 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 21:41 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 21:46 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 22:04 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 22:05 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 21:36 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 21:44 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 22:04 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 21:45 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 21:46 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/105359026.shtml)
-- 2026-06-29 21:38 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/502694.shtml)
-- 2026-06-29 21:46 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/90702655228.shtml)
-- 2026-06-29 21:55 - [华工科技龙虎榜数据](http://www.blog.minike.top/Article/details/1329345561.shtml)
-- 2026-06-29 21:37 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/0160416307.shtml)
-- 2026-06-29 21:53 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/0423358.shtml)
-- 2026-06-29 21:58 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/108942786771.shtml)
-- 2026-06-29 21:30 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/79312784.shtml)
-- 2026-06-29 21:47 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/18120539010.shtml)
-- 2026-06-29 21:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/015509021.shtml)
-- 2026-06-29 21:34 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/25200894027.shtml)
-- 2026-06-29 21:30 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/388531.shtml)
-- 2026-06-29 21:43 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/563724985035.shtml)
-- 2026-06-29 21:55 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/581419.shtml)
-- 2026-06-29 21:44 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/161734.shtml)
+- 2026-06-29 21:45 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/961501.shtml)
+- 2026-06-29 21:54 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/385314293.shtml)
+- 2026-06-29 21:48 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/09287337702.shtml)
+- 2026-06-29 22:05 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/76976.shtml)
+- 2026-06-29 22:02 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/4181972.shtml)
+- 2026-06-29 21:39 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/573414.shtml)
+- 2026-06-29 22:05 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/9128598661.shtml)
+- 2026-06-29 21:37 - [新官上任三把火](https://www.blog.minike.top/Article/details/10494095166.shtml)
+- 2026-06-29 21:59 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/30373.shtml)
+- 2026-06-29 21:47 - [世界杯高票价为何没劝退球迷](https://www.share.kurohicncr.top/Article/details/0504338.shtml)
+- 2026-06-29 21:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/47904732988.shtml)
+- 2026-06-29 21:52 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/717006.shtml)
+- 2026-06-29 21:48 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/827555414.shtml)
+- 2026-06-29 21:37 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/129001332555.shtml)
+- 2026-06-29 22:04 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/89062066.shtml)

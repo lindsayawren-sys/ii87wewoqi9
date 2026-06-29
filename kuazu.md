@@ -1,59 +1,56 @@
-# 各地推动人才下乡 助力乡村振兴
+# 江西篁岭端午焕活民俗灯彩 “仙鹤”翩跹点亮古村夜
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：乡村振兴，人才先行。“十五五”规划纲要提出，激励各类人才下乡服务和创业就业。各地不断推出一系列举措，吸引青年入乡发展、回乡创业就业，为乡村振兴注入新活力。 浙江湖州安吉的缫舍村，这个创业团队20多位年轻人研发的无人机远销海外。团队负责人张羽泽是上海人，过去他常常来安吉进行无人机测试，这里不仅有试飞场地，还有创业免息贷款等政策，于是他决定把研发基地搬到这里
+中新网上饶6月20日电 (熊锦阳 周菲菲)6月20日，江西省上饶市婺源县篁岭古村内满是粽叶与艾草的清香。入夜后，粉墙黛瓦间灯影流转，传承百年的仙鹤灯让游客在徽派古村的烟火气中感受民俗文脉。 作为婺源当地流传百年的特色民俗灯彩，仙鹤灯已成为篁岭端午假期期间最具辨识度的文化符号。灯身以竹篾扎骨、棉纸糊面，匠人手工彩绘仙鹤羽翼，内置烛火，入夜后通体透亮。表演者以扁担架起双鹤，脚步腾挪
 
 ## 正文
 
-央视网消息(新闻联播)：乡村振兴，人才先行。
+中新网上饶6月20日电 (熊锦阳 周菲菲)6月20日，江西省上饶市婺源县篁岭古村内满是粽叶与艾草的清香。
 
-“十五五”规划纲要提出，激励各类人才下乡服务和创业就业。
+入夜后，粉墙黛瓦间灯影流转，传承百年的仙鹤灯让游客在徽派古村的烟火气中感受民俗文脉。
 
-各地不断推出一系列举措，吸引青年入乡发展、回乡创业就业，为乡村振兴注入新活力。
+作为婺源当地流传百年的特色民俗灯彩，仙鹤灯已成为篁岭端午假期期间最具辨识度的文化符号。
 
-浙江湖州安吉的缫舍村，这个创业团队20多位年轻人研发的无人机远销海外。
+灯身以竹篾扎骨、棉纸糊面，匠人手工彩绘仙鹤羽翼，内置烛火，入夜后通体透亮。
 
-团队负责人张羽泽是上海人，过去他常常来安吉进行无人机测试，这里不仅有试飞场地，还有创业免息贷款等政策，于是他决定把研发基地搬到这里。
+表演者以扁担架起双鹤，脚步腾挪间，纸鹤随扁担上下起伏翩跹起舞，翅羽舒展仿若踏云而行，引得围观游人阵阵喝彩。
 
-分布在湖州乡村的实践站点，能为创业人员提供创业孵化、技能培训、生活配套等服务，吸引了大批来自城市的“新农人”“农创客”。
+“婺源舞仙鹤灯是祖辈传下来的习俗，借仙鹤祥瑞之意，祈愿端午安康、四季平安。
 
-目前，湖州已有入乡青创项目2300多个。
+”仙鹤灯表演者汪宣烈介绍，这门灯彩技艺在婺源代代相传，从艺数十年来，他始终坚持古法扎制，一盏仙鹤灯从破竹、搭架到糊纸、彩绘，全靠手工完成。
 
-福建南平出台了《“回家乡来、助乡村兴”行动实施方案》，组建了10个返乡创业青年联盟，通过政府提供创业资金支持、开展创业帮带等措施，吸引年轻人返回家乡，助力乡村振兴。
+“很高兴能在篁岭把仙鹤灯展示给五湖四海的游客，也希望更多年轻人能喜欢上仙鹤灯，感受婺源的乡土文脉。
 
 ## 相关推荐
 
-- 2026-06-29 21:50 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 21:53 - [温网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 21:45 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 21:36 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 21:45 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 21:51 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 21:51 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 21:32 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 21:42 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 21:39 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 21:56 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 21:38 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 21:33 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 21:45 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 21:40 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 21:46 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 22:01 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 21:53 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 22:04 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 21:38 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 21:46 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 22:00 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 22:05 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:51 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/52369812.shtml)
-- 2026-06-29 21:41 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/27530.shtml)
-- 2026-06-29 21:36 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/0384402.shtml)
-- 2026-06-29 21:44 - [媒体评恋与深空用“引狼入室”台词](http://www.share.kurohicncr.top/Article/details/155409264813.shtml)
-- 2026-06-29 21:52 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/642969.shtml)
-- 2026-06-29 21:44 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/688250.shtml)
-- 2026-06-29 21:46 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/654630723231.shtml)
-- 2026-06-29 21:59 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/10422158560.shtml)
-- 2026-06-29 21:57 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/5179323.shtml)
-- 2026-06-29 21:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/53525.shtml)
-- 2026-06-29 21:33 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/950161349777.shtml)
-- 2026-06-29 21:54 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/005913585.shtml)
-- 2026-06-29 21:51 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/1971352427.shtml)
-- 2026-06-29 21:54 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/229133946.shtml)
-- 2026-06-29 21:31 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/48802817.shtml)
+- 2026-06-29 21:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/9424538.shtml)
+- 2026-06-29 21:53 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/41720134.shtml)
+- 2026-06-29 21:42 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.minike.top/Article/details/53308519.shtml)
+- 2026-06-29 21:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/3977883308.shtml)
+- 2026-06-29 22:01 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/450720293419.shtml)
+- 2026-06-29 22:02 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/369534177.shtml)
+- 2026-06-29 21:41 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/3700655428.shtml)
+- 2026-06-29 21:43 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/94109448166.shtml)
+- 2026-06-29 22:05 - [逃狱兄弟](https://www.share.minike.top/Article/details/674311.shtml)
+- 2026-06-29 21:42 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/9246191541.shtml)
+- 2026-06-29 21:56 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/83723.shtml)
+- 2026-06-29 22:02 - [华工科技龙虎榜数据](http://www.blog.kurohicncr.top/Article/details/83573637235.shtml)
+- 2026-06-29 21:46 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/818213910103.shtml)
+- 2026-06-29 22:04 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/048556438697.shtml)
+- 2026-06-29 21:42 - [李思潼：不会介意大家夸我运气好](http://www.share.kurohicncr.top/Article/details/43887554.shtml)

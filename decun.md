@@ -1,59 +1,61 @@
-# 赛龙舟、挂艾草、品美食，仪式感满满！N种方式“解锁”端午民俗
+# 广东揭阳特色“龙舟抱桩”庆端午
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-央视网消息：端午节将近，多地陆续组织特色龙舟赛事。6月12日下午，在福建福州的罗源湾水域，海峡两岸12支龙舟队踏浪角逐，奏响端午竞渡序曲。 当天下午两点，随着发令枪响，龙舟如离弦之箭冲出起点。队员伴着铿锵鼓点挥桨破浪，在500米海上直道展开竞速比拼。岸边观众呐喊助威声此起彼伏，现场氛围热烈。 本次赛事共集结两岸12支队伍、300余名选手，比拼标准龙舟500米海上直道竞速。不同于
+释永信这记警钟，敲得够响！专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？
 
 ## 正文
 
-央视网消息：端午节将近，多地陆续组织特色龙舟赛事。
+释永信这记警钟，敲得够响！
 
-6月12日下午，在福建福州的罗源湾水域，海峡两岸12支龙舟队踏浪角逐，奏响端午竞渡序曲。
+专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
 
-当天下午两点，随着发令枪响，龙舟如离弦之箭冲出起点。
+中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
 
-队员伴着铿锵鼓点挥桨破浪，在500米海上直道展开竞速比拼。
+学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？
 
-岸边观众呐喊助威声此起彼伏，现场氛围热烈。
+高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？
 
-本次赛事共集结两岸12支队伍、300余名选手，比拼标准龙舟500米海上直道竞速。
+评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！
 
-不同于河湖赛事，海上赛道受潮汐、水流、风向影响大，竞技难度与观赏性兼具。
+孔子为什么说“温故而知新”？
 
-与此同时，赛场同步开设端午龙舟市集，展销罗源非遗好物与特色风味小吃。
+喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？
 
 ## 相关推荐
 
-- 2026-06-29 21:41 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 21:31 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 21:55 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 21:36 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 21:53 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 21:43 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 21:47 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 21:39 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 21:56 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 21:47 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 21:45 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 21:56 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 21:32 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 21:59 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 21:58 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 22:03 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 22:02 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 21:51 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 22:02 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 21:53 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 21:41 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 21:59 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 21:47 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 21:40 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 21:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 21:48 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 22:01 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 21:48 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:55 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/060408.shtml)
-- 2026-06-29 21:46 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/167558600.shtml)
-- 2026-06-29 21:51 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/2078544.shtml)
-- 2026-06-29 21:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/494211253423.shtml)
-- 2026-06-29 21:32 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/47106638933.shtml)
-- 2026-06-29 21:34 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.minike.top/Article/details/064710117.shtml)
-- 2026-06-29 21:30 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/4005905.shtml)
-- 2026-06-29 21:32 - [恋与深空客服的回应](http://www.share.minike.top/Article/details/62985640597.shtml)
-- 2026-06-29 21:40 - [沙丘](http://www.blog.minike.top/Article/details/754514.shtml)
-- 2026-06-29 21:35 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/47523.shtml)
-- 2026-06-29 21:58 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/39761.shtml)
-- 2026-06-29 21:39 - [恋与深空7天掉粉超50万](https://www.blog.minike.top/Article/details/51527.shtml)
-- 2026-06-29 21:52 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/872190392030.shtml)
-- 2026-06-29 21:58 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/0114783.shtml)
-- 2026-06-29 21:41 - [我们的少年时代2](http://www.share.minike.top/Article/details/7564132717.shtml)
+- 2026-06-29 21:55 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/04408.shtml)
+- 2026-06-29 21:56 - [扫黑风暴](https://www.share.minike.top/Article/details/93946707.shtml)
+- 2026-06-29 21:50 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/2315638826.shtml)
+- 2026-06-29 21:44 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/90238616.shtml)
+- 2026-06-29 22:00 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/896963.shtml)
+- 2026-06-29 21:58 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/9799430.shtml)
+- 2026-06-29 22:01 - [恋与深空各大应用商店评分](http://www.share.kurohicncr.top/Article/details/845649.shtml)
+- 2026-06-29 21:37 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/18270407.shtml)
+- 2026-06-29 21:41 - [杨德龙：创新药迎来新的发展机遇](http://www.share.minike.top/Article/details/85415.shtml)
+- 2026-06-29 21:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/964955.shtml)
+- 2026-06-29 22:05 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/66620260.shtml)
+- 2026-06-29 21:46 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/270785436357.shtml)
+- 2026-06-29 21:59 - [乌克兰发广告全球征兵](https://www.blog.kurohicncr.top/Article/details/729330336.shtml)
+- 2026-06-29 21:48 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/7126066477.shtml)
+- 2026-06-29 21:36 - [女心理师](https://www.share.kurohicncr.top/Article/details/161667.shtml)

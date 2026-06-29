@@ -1,57 +1,59 @@
-# 000603及实控人，被立案
+# 如何破解陪诊师紧俏难题
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：中国基金报 【导读】盛达资源及其实控人被中国证监会立案 中国基金报记者 闻言 6月15日晚间，盛达资源发布公告称，当日，公司及实际控制人赵满堂均收到中国证监会下发的《立案告知书》。 《立案告知书》显示，盛达资源、赵满堂被中国证监会立案，原因均为涉嫌信息披露违法违规。 盛达资源针对上述立案调查事项进行自查，提及其2025年4
+“经过这段时间的培训，我掌握了规范的陪诊流程和应急处置方法，心里更有底了。结业后，我愿意主动承担更多陪诊任务，把学到的知识用到实际工作中。”北京四季青敬老院办公室主任金昊对中青报·中青网记者说。 5月26日，“启明星人才培养计划”京津冀公益陪诊首期培训在北京市海淀区四季青敬老院开班，预计8月结束。该计划向京津冀三地养老机构一线人员定向捐赠2000个免费名额，其中北京地区800个
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：中国基金报 【导读】盛达资源及其实控人被中国证监会立案 中国基金报记者 闻言 6月15日晚间，盛达资源发布公告称，当日，公司及实际控制人赵满堂均收到中国证监会下发的《立案告知书》。
+“经过这段时间的培训，我掌握了规范的陪诊流程和应急处置方法，心里更有底了。
 
-《立案告知书》显示，盛达资源、赵满堂被中国证监会立案，原因均为涉嫌信息披露违法违规。
+结业后，我愿意主动承担更多陪诊任务，把学到的知识用到实际工作中。
 
-盛达资源针对上述立案调查事项进行自查，提及其2025年4月29日披露《关于公司自查发现控股股东及其附属企业资金占用并已解决等情况的公告》。
+”北京四季青敬老院办公室主任金昊对中青报·中青网记者说。
 
-2024年2月至2024年12月，盛达资源的控股股东及其附属企业存在间歇性非经营性占用盛达资源资金的情形。
+5月26日，“启明星人才培养计划”京津冀公益陪诊首期培训在北京市海淀区四季青敬老院开班，预计8月结束。
 
-截至2024年12月11日，盛达资源已收回前述全部被占用的资金。
+该计划向京津冀三地养老机构一线人员定向捐赠2000个免费名额，其中北京地区800个，将分4批开展培训，每批200人。
 
-在审计盛达资源2024年度内部控制时，审计机构基于上述情况出具了带强调事项段无保留意见的内部控制审计报告。
+中国社会福利与养老服务协会执行会长徐建中告诉中青报·中青网记者，首期学员来自东城区、西城区、海淀区，这3个区的老年人口占北京全市的1/4，“这次培训是一个重量级的开场。
 
-盛达资源发布最新公告称，目前，公司已收回全部被占用的资金及利息。
+” 这场培训的背后，是一份历时数月、覆盖4000余份样本的行业报告，一项凝聚多方共识的团体标准，以及一个正在从混沌中寻找秩序的行业。
 
-公司已积极对相关问题进行整改，将依法履行相关信息披露义务。
+中国社会福利与养老服务协会(以下简称“中福协”)发布的《陪诊服务发展研究报告(2025)》(以下简称“报告”)显示：88.54%的社区老年人存在家人无法及时陪同就医的情况；在养老机构，这一比例更高达98.30%。
 
 ## 相关推荐
 
-- 2026-06-29 21:38 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 21:40 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 21:47 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 21:54 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 21:56 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 21:34 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 21:59 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 21:53 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 21:57 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 21:55 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 21:50 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 21:45 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 21:52 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 21:54 - [王楚钦开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 21:55 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 21:40 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 21:47 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 21:59 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 21:48 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 21:47 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 22:02 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 21:53 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 21:51 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 22:03 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:42 - [网约车出事故平台拒赔称只是中介](https://www.share.kurohicncr.top/Article/details/6271529.shtml)
-- 2026-06-29 21:58 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/772011.shtml)
-- 2026-06-29 21:54 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/19362.shtml)
-- 2026-06-29 21:47 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/186826.shtml)
-- 2026-06-29 21:42 - [青春环游记第三季](https://www.blog.minike.top/Article/details/5996796.shtml)
-- 2026-06-29 21:40 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/98959265.shtml)
-- 2026-06-29 21:54 - [任泽平：AI浪潮刚刚开始](https://www.share.kurohicncr.top/Article/details/17103783026.shtml)
-- 2026-06-29 21:42 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/07416157163.shtml)
-- 2026-06-29 21:38 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/62252444270.shtml)
-- 2026-06-29 21:39 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/08589.shtml)
-- 2026-06-29 21:30 - [教育部高校学生资助热线7月1日开通](http://www.blog.minike.top/Article/details/9088317496.shtml)
-- 2026-06-29 21:48 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/063439375.shtml)
-- 2026-06-29 21:38 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/388286.shtml)
-- 2026-06-29 21:30 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/200403.shtml)
-- 2026-06-29 21:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/04146890.shtml)
+- 2026-06-29 21:44 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/91241.shtml)
+- 2026-06-29 21:59 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/24947799.shtml)
+- 2026-06-29 21:52 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/741985379160.shtml)
+- 2026-06-29 21:46 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/706107430253.shtml)
+- 2026-06-29 21:59 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/2126494.shtml)
+- 2026-06-29 21:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/7456896620.shtml)
+- 2026-06-29 22:05 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/9981725.shtml)
+- 2026-06-29 21:46 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/256069957.shtml)
+- 2026-06-29 21:51 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/0875067.shtml)
+- 2026-06-29 21:56 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/38839.shtml)
+- 2026-06-29 21:49 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/410361.shtml)
+- 2026-06-29 21:41 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/617462982071.shtml)
+- 2026-06-29 21:59 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/0213197.shtml)
+- 2026-06-29 21:43 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/922738630.shtml)
+- 2026-06-29 21:57 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/590334409560.shtml)

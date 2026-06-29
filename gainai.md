@@ -1,59 +1,45 @@
-# 国家统计局：1-5月份我国共授权发明专利37.2万件，同比增长12.1%
+# 关注俄乌冲突 俄军在多地打击乌军目标
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-中新网6月16日电 国新办16日举行新闻发布会，国家统计局相关负责人介绍2026年5月份国民经济运行情况。 会上，国家统计局新闻发言人、国民经济综合统计司副司长王冠华表示，新旧动能加快转换是当前经济运行的鲜明特征。今年我国在产业提质、数字赋能、绿色转型等方面取得新成效，新质生产力培育壮大，不仅为经济增长提供了重要支撑，而且有效提升了发展的质量、韧性和可持续性。主要表现在： 一是
+发布时间：2026年06月21日 13:40 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网6月16日电 国新办16日举行新闻发布会，国家统计局相关负责人介绍2026年5月份国民经济运行情况。
-
-会上，国家统计局新闻发言人、国民经济综合统计司副司长王冠华表示，新旧动能加快转换是当前经济运行的鲜明特征。
-
-今年我国在产业提质、数字赋能、绿色转型等方面取得新成效，新质生产力培育壮大，不仅为经济增长提供了重要支撑，而且有效提升了发展的质量、韧性和可持续性。
-
-主要表现在： 一是创新成果涌现。
-
-我国依靠创新投入为高质量发展赋能。
-
-2025年研究与试验发展经费投入强度，也就是全社会的研究与试验发展经费投入与国内生产总值之比，首次超过OECD国家平均水平。
-
-在创新资源有力支撑下，航空航天、人工智能、量子计算、生物医药等领域的创新成果竞相涌现。
-
-近期，“九章四号”量子原型机刷新光量子计算世界纪录，国产自研600公斤推力级涡扇发动机首飞成功，诸多创新成果落地，为产业跃迁提供了科技支撑。
+发布时间：2026年06月21日 13:40 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 21:38 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 21:40 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 21:37 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 21:44 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 21:42 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 21:39 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 21:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 21:55 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 21:41 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 21:56 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 22:00 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 21:51 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 21:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 21:54 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 21:47 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 21:45 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 22:01 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 21:36 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 21:43 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 21:41 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 21:49 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 21:51 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 22:02 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 21:53 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 21:43 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 21:52 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:48 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/8342581121.shtml)
-- 2026-06-29 21:35 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/44210467.shtml)
-- 2026-06-29 21:33 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/379287058349.shtml)
-- 2026-06-29 21:39 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.minike.top/Article/details/00623886.shtml)
-- 2026-06-29 21:41 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/7811817.shtml)
-- 2026-06-29 21:56 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/56171437.shtml)
-- 2026-06-29 21:56 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/236602.shtml)
-- 2026-06-29 21:43 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/62120677.shtml)
-- 2026-06-29 21:48 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/522447014140.shtml)
-- 2026-06-29 21:49 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/938846120624.shtml)
-- 2026-06-29 21:39 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/55203229465.shtml)
-- 2026-06-29 21:43 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/2554702.shtml)
-- 2026-06-29 21:47 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/88145131.shtml)
-- 2026-06-29 21:56 - [急先锋](http://www.blog.minike.top/Article/details/44190.shtml)
-- 2026-06-29 21:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/73677.shtml)
+- 2026-06-29 21:47 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/66485789.shtml)
+- 2026-06-29 22:00 - [青春环游记第三季](http://www.share.minike.top/Article/details/12372.shtml)
+- 2026-06-29 21:57 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/656533.shtml)
+- 2026-06-29 22:00 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/7429357.shtml)
+- 2026-06-29 21:58 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/422043113525.shtml)
+- 2026-06-29 21:37 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/8807703400.shtml)
+- 2026-06-29 21:46 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/254604.shtml)
+- 2026-06-29 21:45 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/4473395.shtml)
+- 2026-06-29 21:50 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/743984829181.shtml)
+- 2026-06-29 21:39 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/92321704053.shtml)
+- 2026-06-29 21:38 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/9889977466.shtml)
+- 2026-06-29 22:04 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/9733809871.shtml)
+- 2026-06-29 21:55 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/1597607458.shtml)
+- 2026-06-29 21:46 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/2515331758.shtml)
+- 2026-06-29 21:48 - [爱奇艺抬高国剧新标尺](http://www.share.kurohicncr.top/Article/details/674129623.shtml)

@@ -1,57 +1,59 @@
-# 特朗普警告法国：取消数字税，否则法国葡萄酒将被加征100%关税，“我别无选择”
+# 供应链公司：已向苹果首款折叠屏iPhone小批量供货
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-据报道，美国总统特朗普警告称，法国或将与美国再度爆发贸易战。他在接受采访时表示，若法国政府不取消针对美国科技巨头的数字税，美国“别无选择”，只能对法国葡萄酒加征100%关税。特朗普称，他已直接向法国总统埃马纽埃尔・马克龙发出强硬警告，要求法国废除这项3%的数字税，否则法国输美葡萄酒将面临高额关税冲击。美国市场占据法国葡萄酒全球销量的五分之一，年交易额超20亿美元，关税加征将对该
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！日前，中国证券报记者从一家苹果供应链公司独家获悉，该公司已于近期开始向首款折叠屏iPhone小批量供货。按照公司收到的目标指引，该款产品将于9月发布。 近日，有消息称苹果首款折叠屏iPhone已从原定的2026年秋季推迟至2027年初上市发售。对此，一位苹果供应链公司人士对记者表示，截至目前，其得到的目标指
 
 ## 正文
 
-据报道，美国总统特朗普警告称，法国或将与美国再度爆发贸易战。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-他在接受采访时表示，若法国政府不取消针对美国科技巨头的数字税，美国“别无选择”，只能对法国葡萄酒加征100%关税。
+日前，中国证券报记者从一家苹果供应链公司独家获悉，该公司已于近期开始向首款折叠屏iPhone小批量供货。
 
-特朗普称，他已直接向法国总统埃马纽埃尔・马克龙发出强硬警告，要求法国废除这项3%的数字税，否则法国输美葡萄酒将面临高额关税冲击。
+按照公司收到的目标指引，该款产品将于9月发布。
 
-美国市场占据法国葡萄酒全球销量的五分之一，年交易额超20亿美元，关税加征将对该产业造成沉重打击。
+近日，有消息称苹果首款折叠屏iPhone已从原定的2026年秋季推迟至2027年初上市发售。
 
-特朗普在采访中表示：“我要求他不要向美国企业征税。
+对此，一位苹果供应链公司人士对记者表示，截至目前，其得到的目标指引是，首款折叠屏iPhone将于2026年秋季发布。
 
-如果法国执意这么做，我就只能对所有产自法国的香槟和葡萄酒征收100%的关税。
+对于首款折叠屏iPhone具体发布时间，截至记者发稿，苹果方面暂无公开回应。
 
-马克龙只要取消这项税收，就不会面临这样的压力。
+今年4月初，本报曾独家报道，富士康正试产折叠屏iPhone手机。
 
-”责任编辑：王永生
+详见文章：独家！
 
 ## 相关推荐
 
-- 2026-06-29 21:43 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 21:42 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 21:45 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 21:31 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 21:39 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 21:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 21:34 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 21:40 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 21:50 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 21:47 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 21:40 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 21:45 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 21:36 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 21:38 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 21:56 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 21:47 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 22:03 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 21:42 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 21:47 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 21:39 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 21:57 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 21:39 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 21:37 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 21:37 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:58 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/53263.shtml)
-- 2026-06-29 21:30 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/840437371.shtml)
-- 2026-06-29 21:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/989357.shtml)
-- 2026-06-29 21:31 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/5850059.shtml)
-- 2026-06-29 21:59 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/8695221.shtml)
-- 2026-06-29 21:36 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/4942730.shtml)
-- 2026-06-29 21:59 - [小龙女配音去世 李若彤发文悼念](https://www.share.kurohicncr.top/Article/details/813000999.shtml)
-- 2026-06-29 21:38 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/9185937.shtml)
-- 2026-06-29 21:54 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/6383394.shtml)
-- 2026-06-29 21:34 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/730955380.shtml)
-- 2026-06-29 21:43 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/149807290.shtml)
-- 2026-06-29 21:51 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/364205.shtml)
-- 2026-06-29 21:30 - [金鹰奖第二阶段投票明日开启](http://www.blog.minike.top/Article/details/659100017220.shtml)
-- 2026-06-29 21:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/95413711655.shtml)
-- 2026-06-29 21:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/7212229830.shtml)
+- 2026-06-29 22:02 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/07563179.shtml)
+- 2026-06-29 21:49 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/99693.shtml)
+- 2026-06-29 21:56 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/40729426090.shtml)
+- 2026-06-29 21:37 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/468943908318.shtml)
+- 2026-06-29 21:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/494290212996.shtml)
+- 2026-06-29 22:01 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/23730188337.shtml)
+- 2026-06-29 21:39 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/14352665564.shtml)
+- 2026-06-29 21:59 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/79586769.shtml)
+- 2026-06-29 21:41 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/720562107.shtml)
+- 2026-06-29 21:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/663848192057.shtml)
+- 2026-06-29 21:50 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/0511114.shtml)
+- 2026-06-29 21:52 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/65766.shtml)
+- 2026-06-29 21:38 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/4061795.shtml)
+- 2026-06-29 21:40 - [记者暗访养老机构消防安全](https://www.share.minike.top/Article/details/39805.shtml)
+- 2026-06-29 22:04 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/091984745940.shtml)

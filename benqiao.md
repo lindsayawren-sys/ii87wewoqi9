@@ -1,56 +1,57 @@
-# 华安黄金ETF规模从一月的1275亿降至最新的935亿，缩水340亿元
+# 网传“职业本科无法考研”说法属实吗？专家解读
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-近期黄金调整，相关黄金ETF普遍遭遇赎回，引发关注，头部产品华安黄金ETF调整尤为明显。该产品曾为千亿级热门单品，近三月净值下跌20%，上周单周规模锐减80亿元。 截至6月13日，华安黄金ETF最新规模935亿元，跌破千亿关口；对比1月末的1275亿元的规模，缩水超340亿元。 虽然产品规模回落，但华安黄金ETF依旧是华安基金的核心产品。从管理费收入来看，该产品为基金公司贡献颇
+离高考成绩发布还有几天时间，考生们陆续进入填报志愿阶段。有考生和家长关心，职业本科学生能考研吗？一起来看专家解答。 有人说职业本科的专业代码无法考研，是否正确？ 南京工业职业技术大学党委书记 谢永华：近期有考生和家长关心职业本科能否考研的问题，网传“职业本科专业代码受限、无法考研”的说法其实并不属实。 2022年，《中华人民共和国职业教育法》修订颁布，明确规定：职业教育是与普通
 
 ## 正文
 
-近期黄金调整，相关黄金ETF普遍遭遇赎回，引发关注，头部产品华安黄金ETF调整尤为明显。
+离高考成绩发布还有几天时间，考生们陆续进入填报志愿阶段。
 
-该产品曾为千亿级热门单品，近三月净值下跌20%，上周单周规模锐减80亿元。
+有考生和家长关心，职业本科学生能考研吗？
 
-截至6月13日，华安黄金ETF最新规模935亿元，跌破千亿关口；对比1月末的1275亿元的规模，缩水超340亿元。
+一起来看专家解答。
 
-虽然产品规模回落，但华安黄金ETF依旧是华安基金的核心产品。
+有人说职业本科的专业代码无法考研，是否正确？
 
-从管理费收入来看，该产品为基金公司贡献颇丰：2023年管理人报酬0.54亿元，2024年增至1.06亿元，2025年更是达到2.95亿元。
+南京工业职业技术大学党委书记 谢永华：近期有考生和家长关心职业本科能否考研的问题，网传“职业本科专业代码受限、无法考研”的说法其实并不属实。
 
-责任编辑：公司观察
+2022年，《中华人民共和国职业教育法》修订颁布，明确规定：职业教育是与普通教育具有同等重要地位的教育类型，职业学校学生在升学、就业、职业发展等方面与同层次普通学校学生享有平等机会。
+
+职业本科颁发国家认可、学信网可查的全日制本科学历与学士学位证书。
+
+在证书效用方面，与普通本科价值等同，两者在就业、考研、考公等方面具有同样的效力，不存在学历门槛的区分。
 
 ## 相关推荐
 
-- 2026-06-29 21:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 21:34 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 21:56 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 21:58 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 21:36 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 21:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 21:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 21:46 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 21:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 21:38 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 21:40 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 21:52 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 21:32 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 21:52 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 22:04 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 22:05 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 21:55 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 21:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 22:05 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 21:59 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 21:55 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 22:01 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 22:01 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 21:38 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 21:57 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:54 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/32598.shtml)
-- 2026-06-29 21:40 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/0091583.shtml)
-- 2026-06-29 21:44 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/59975259128.shtml)
-- 2026-06-29 21:57 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/75147.shtml)
-- 2026-06-29 21:46 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/107491574.shtml)
-- 2026-06-29 21:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/6511613241.shtml)
-- 2026-06-29 21:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/71559.shtml)
-- 2026-06-29 21:41 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/2020876290.shtml)
-- 2026-06-29 21:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/94445822.shtml)
-- 2026-06-29 21:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/207356224.shtml)
-- 2026-06-29 21:50 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/72354062388.shtml)
-- 2026-06-29 21:56 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/356181557.shtml)
-- 2026-06-29 21:56 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/104614.shtml)
-- 2026-06-29 21:49 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/06450208.shtml)
-- 2026-06-29 21:57 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/5471467081.shtml)
+- 2026-06-29 22:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/6440088131.shtml)
+- 2026-06-29 21:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/80509603.shtml)
+- 2026-06-29 22:01 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/891302.shtml)
+- 2026-06-29 21:37 - [巴黎区长紧急采购50台中国空调](http://www.share.kurohicncr.top/Article/details/78247098185.shtml)
+- 2026-06-29 21:51 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/09674.shtml)
+- 2026-06-29 21:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/228080015.shtml)
+- 2026-06-29 21:50 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/004481356772.shtml)
+- 2026-06-29 22:01 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/2828452608.shtml)
+- 2026-06-29 21:59 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/9395717245.shtml)
+- 2026-06-29 21:56 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/023109060.shtml)
+- 2026-06-29 21:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/846455.shtml)
+- 2026-06-29 21:57 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/68432184.shtml)
+- 2026-06-29 21:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/7769276432.shtml)
+- 2026-06-29 21:53 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/653101201.shtml)
+- 2026-06-29 22:00 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/431148511946.shtml)

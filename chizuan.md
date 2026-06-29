@@ -1,55 +1,56 @@
-# 儒意电影：拟以8000万元至1.5亿元回购公司股份
+# 有人看球，有人看AI怎么猜球：傅盛一条微博，引爆世界杯场外“人机大战”
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日晚间消息，儒意电影发布回购股份方案，公司拟以集中竞价交易方式回购公司股份，回购金额不低于8000万元（含）且不超过1.5亿元（含），回购价格不超过13.80元/股。按回购金额上限测算，预计回购股份数量约1086.96万股，占公司当前总股本的0.51%。 公告显示，本次回购股份拟用于实施股权激励计划
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！世界杯的热闹，如今早已不只发生在绿茵场上。 昨天，猎豹移动董事长兼CEO傅盛的龙虾三万精准命中法国3：1塞内加尔；随后傅盛让AI助理“龙虾三万”预测葡萄牙对阵民主刚果的比赛，“龙虾三万”给出的判断相当笃定：葡萄牙取胜，C罗将打入1球，并向连续6届世界杯进球的历史纪录发起冲击。AI甚至给出了完整推理：葡萄牙整
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-6月15日晚间消息，儒意电影发布回购股份方案，公司拟以集中竞价交易方式回购公司股份，回购金额不低于8000万元（含）且不超过1.5亿元（含），回购价格不超过13.80元/股。
+世界杯的热闹，如今早已不只发生在绿茵场上。
 
-按回购金额上限测算，预计回购股份数量约1086.96万股，占公司当前总股本的0.51%。
+昨天，猎豹移动董事长兼CEO傅盛的龙虾三万精准命中法国3：1塞内加尔；随后傅盛让AI助理“龙虾三万”预测葡萄牙对阵民主刚果的比赛，“龙虾三万”给出的判断相当笃定：葡萄牙取胜，C罗将打入1球，并向连续6届世界杯进球的历史纪录发起冲击。
 
-公告显示，本次回购股份拟用于实施股权激励计划及/或员工持股计划，以进一步完善长效激励机制，促进公司长期稳健发展。
+AI甚至给出了完整推理：葡萄牙整体实力占优，边路冲击和定位球将制造机会，而C罗的大赛经验与禁区终结能力，仍是决定比赛走势的关键。
 
-公司表示，此次回购基于对未来发展前景的信心以及对公司价值的认可，旨在维护广大股东利益，增强投资者信心。
+很快，#AI预测C罗进1球#、#世界杯预测人机大战#、#C罗冲击连续6届世界杯进球# 等相关话题迅速发酵，吸引大量网友围观讨论，跟风猜球。
 
-责任编辑：宋雅芳
+然而今天比赛结果出来后，“三万”惨遭打脸，葡萄牙刚果1：1战平，C罗并未进球。
+
+随后傅盛发微博晒出“龙虾三万”的赛后复盘：“精准翻车”。
+
+但比预测失误更有意思的，是这只龙虾给出的复盘。
 
 ## 相关推荐
 
-- 2026-06-29 21:58 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 21:38 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 21:39 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 21:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 21:33 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 21:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 21:44 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 21:40 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 21:42 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 21:43 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 21:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 21:34 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 21:55 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 21:53 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 21:52 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 22:02 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 21:40 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 21:58 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 22:05 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 21:47 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 22:04 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 21:50 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 21:39 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/961027501.shtml)
-- 2026-06-29 21:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/10646499760.shtml)
-- 2026-06-29 21:50 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/2743039.shtml)
-- 2026-06-29 21:55 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.minike.top/Article/details/267712190.shtml)
-- 2026-06-29 21:50 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/09602.shtml)
-- 2026-06-29 21:36 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/22594.shtml)
-- 2026-06-29 21:48 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/13237293.shtml)
-- 2026-06-29 21:39 - [吴建豪和老婆差20岁](https://www.share.minike.top/Article/details/16225706.shtml)
-- 2026-06-29 21:57 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/0050621714.shtml)
-- 2026-06-29 21:52 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/750132122.shtml)
-- 2026-06-29 21:53 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/21752049977.shtml)
-- 2026-06-29 21:59 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/047959071847.shtml)
-- 2026-06-29 21:50 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/59062.shtml)
-- 2026-06-29 21:34 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/352716258.shtml)
-- 2026-06-29 21:37 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/79836060.shtml)
+- 2026-06-29 21:37 - [美人鱼](http://www.blog.minike.top/Article/details/30206453854.shtml)
+- 2026-06-29 21:36 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/090817.shtml)
+- 2026-06-29 21:55 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/290863911.shtml)
+- 2026-06-29 21:42 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/308837795188.shtml)
+- 2026-06-29 21:41 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/297658169.shtml)
+- 2026-06-29 22:05 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/651935791523.shtml)
+- 2026-06-29 21:45 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/5907704.shtml)
+- 2026-06-29 21:54 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/4294098409.shtml)
+- 2026-06-29 21:36 - [女心理师](http://www.share.kurohicncr.top/Article/details/34000.shtml)
+- 2026-06-29 21:41 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/1377002.shtml)
+- 2026-06-29 22:02 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/110051.shtml)
+- 2026-06-29 21:57 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/07585875.shtml)
+- 2026-06-29 21:56 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/55313.shtml)
+- 2026-06-29 21:37 - [日防卫省正考虑引进美企人工智能系统](https://www.share.kurohicncr.top/Article/details/3882501689.shtml)
+- 2026-06-29 21:52 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/364275978.shtml)

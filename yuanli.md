@@ -1,56 +1,56 @@
-# 花旗：新奥能源H股目标价下调至50港元 降至“中性”评级
+# 一见·从这封回信，读懂“嘀嗒、嘀嗒”的回响
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-花旗发布研报称，下调新奥能源（02688）H股目标价31%，从72港元降至50港元，评级从“买入”降至“中性”。花旗指，新奥能源母公司新奥股份（600803.SH）取消对其私有化计划，因此下调评级至“中性”。该交易已等待中国证监会批准近一年，且满足所有条件的时间表尚不明朗。从基本面来看，新奥能源前景并不好，零售天然气销售增长乏力，新增家庭用户数减少，综合能源销售额下降。 该行认
+原标题：一见·从这封回信，读懂“嘀嗒、嘀嗒”的回响 捧读一封回信，听见历史的回响。 在中国共产党成立105周年之际，习近平总书记给新华社102岁老党员、曾经的中央纵队“四大队”报务员张连生回信，向这位“扎根通信技术岗位辛勤付出一辈子”的老党员表示敬意，并殷殷寄语：“新时代共产党人要传承红色基因，不忘初心、牢记使命，履职尽责、实干担当，在新征程上书写优异答卷。” 笺短情长。从青丝
 
 ## 正文
 
-花旗发布研报称，下调新奥能源（02688）H股目标价31%，从72港元降至50港元，评级从“买入”降至“中性”。
+原标题：一见·从这封回信，读懂“嘀嗒、嘀嗒”的回响 捧读一封回信，听见历史的回响。
 
-花旗指，新奥能源母公司新奥股份（600803.SH）取消对其私有化计划，因此下调评级至“中性”。
+在中国共产党成立105周年之际，习近平总书记给新华社102岁老党员、曾经的中央纵队“四大队”报务员张连生回信，向这位“扎根通信技术岗位辛勤付出一辈子”的老党员表示敬意，并殷殷寄语：“新时代共产党人要传承红色基因，不忘初心、牢记使命，履职尽责、实干担当，在新征程上书写优异答卷。
 
-该交易已等待中国证监会批准近一年，且满足所有条件的时间表尚不明朗。
+” 笺短情长。
 
-从基本面来看，新奥能源前景并不好，零售天然气销售增长乏力，新增家庭用户数减少，综合能源销售额下降。
+从青丝到白首，百岁党员的一生坚守，诠释了怎样的初心？
 
-该行认为，私有化计划的取消意味着该股近期内不会出现任何积极因素。
+中央纵队“四大队”，这支解放战争时期新华社跟随党中央和毛主席转战陕北、负责新闻通讯联络的工作队，如何将红色的声音传遍全国，用行动践行信仰？
 
-对于其2026年预测股息率为6.4%。
+回望，展望。
 
-鉴于全球液化天然气价格上涨，该行更看好其母公司新奥股份，认为其上游直接天然气销售业务有望扩大。
+“嘀嗒、嘀嗒”的红色电波，蕴含答案。
 
-责任编辑：卢昱君
+那是“一切行动听指挥”的如山号令—— 革命战争年代，党中央靠什么指挥千军万马？
 
 ## 相关推荐
 
-- 2026-06-29 21:45 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 21:34 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 21:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 21:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 21:58 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 21:49 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 21:49 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 21:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 21:56 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 21:35 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 22:04 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 22:02 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 22:04 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 21:45 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 21:52 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 21:44 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 21:53 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 21:55 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 21:47 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 21:54 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:54 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/578813065401.shtml)
-- 2026-06-29 21:39 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/075860.shtml)
-- 2026-06-29 21:40 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/203200348.shtml)
-- 2026-06-29 21:51 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/08078.shtml)
-- 2026-06-29 21:32 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/914780520.shtml)
-- 2026-06-29 21:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/0701950722.shtml)
-- 2026-06-29 21:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/2003381.shtml)
-- 2026-06-29 21:50 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/6561800719.shtml)
-- 2026-06-29 21:55 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/7690056.shtml)
-- 2026-06-29 21:53 - [乌克兰发广告全球征兵](https://www.share.minike.top/Article/details/5098590332.shtml)
-- 2026-06-29 21:47 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/6600172062.shtml)
-- 2026-06-29 21:50 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/1351969.shtml)
-- 2026-06-29 21:51 - [东方风云榜直播](http://www.blog.minike.top/Article/details/820724495.shtml)
-- 2026-06-29 21:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/29848956209.shtml)
-- 2026-06-29 21:50 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/86544485.shtml)
+- 2026-06-29 21:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/18275339.shtml)
+- 2026-06-29 21:39 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/018884.shtml)
+- 2026-06-29 22:04 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/1949965.shtml)
+- 2026-06-29 22:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/120833391320.shtml)
+- 2026-06-29 21:46 - [流金岁月](http://www.share.minike.top/Article/details/3326445.shtml)
+- 2026-06-29 21:47 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/554610254.shtml)
+- 2026-06-29 21:57 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/0706788.shtml)
+- 2026-06-29 21:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/56324274.shtml)
+- 2026-06-29 21:37 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/26605658.shtml)
+- 2026-06-29 22:01 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/45638797.shtml)
+- 2026-06-29 21:50 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/17953.shtml)
+- 2026-06-29 22:03 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/92446701443.shtml)
+- 2026-06-29 21:48 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/354095384.shtml)
+- 2026-06-29 22:02 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/57330372000.shtml)
+- 2026-06-29 22:03 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/7629142679.shtml)

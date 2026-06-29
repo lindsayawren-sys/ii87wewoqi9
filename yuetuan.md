@@ -1,46 +1,55 @@
-# 联合国：黎巴嫩暴力交火情况有所减少
+# 年过古稀的他们坐上火车 赴一场迟到多年的“西藏之约”
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 13:20 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年06月18日 17:07 来源：中国新闻网 2026年是青藏铁路全线通车20周年，记者在青藏铁路出藏列车上遇到4位来自湖北、平均年龄超过70岁的老人。他们是大学同窗，退休后结伴旅行，进出藏均选择乘坐火车。对他们而言，这趟旅程是一场期待多年的圆梦之行。 采访中记者还发现，其中一位老人的弟弟曾是2006年青藏铁路首批进藏列车乘客之一，姐弟俩通过视频通话对比20年
 
 ## 正文
 
-发布时间：2026年06月16日 13:20 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年06月18日 17:07 来源：中国新闻网 2026年是青藏铁路全线通车20周年，记者在青藏铁路出藏列车上遇到4位来自湖北、平均年龄超过70岁的老人。
+
+他们是大学同窗，退休后结伴旅行，进出藏均选择乘坐火车。
+
+对他们而言，这趟旅程是一场期待多年的圆梦之行。
+
+采访中记者还发现，其中一位老人的弟弟曾是2006年青藏铁路首批进藏列车乘客之一，姐弟俩通过视频通话对比20年前与如今的乘车体验。
+
+列车继续向前，青藏铁路不断拉近沿线与远方的距离，也承载着人们的出行、团聚与期待。
+
+列车驶过雪山草原，驶过一代人的记忆，也驶向更多尚未抵达的远方。
+
+(谢牧 青海格尔木报道） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 21:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 21:48 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 21:53 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 21:49 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 21:53 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 21:30 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 21:40 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 21:49 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 21:39 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 21:54 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 21:31 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 21:47 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 21:49 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 21:39 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 21:48 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 21:53 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 21:44 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 22:00 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 21:56 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 21:42 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 22:02 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 21:54 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 21:50 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 21:44 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 22:00 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:30 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/08561717.shtml)
-- 2026-06-29 21:39 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/989999703587.shtml)
-- 2026-06-29 21:43 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/21412215962.shtml)
-- 2026-06-29 21:39 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/3768673332.shtml)
-- 2026-06-29 21:39 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/111802.shtml)
-- 2026-06-29 21:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/87569.shtml)
-- 2026-06-29 21:46 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/892794829.shtml)
-- 2026-06-29 21:48 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/85191.shtml)
-- 2026-06-29 21:34 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/81808607.shtml)
-- 2026-06-29 21:33 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/341752.shtml)
-- 2026-06-29 21:55 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/249386.shtml)
-- 2026-06-29 21:30 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/429975466.shtml)
-- 2026-06-29 21:56 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.kurohicncr.top/Article/details/74282.shtml)
-- 2026-06-29 21:31 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/5163563.shtml)
-- 2026-06-29 21:48 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/64487.shtml)
+- 2026-06-29 21:59 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/8730091.shtml)
+- 2026-06-29 21:41 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/999183737.shtml)
+- 2026-06-29 21:49 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/251856306.shtml)
+- 2026-06-29 21:51 - [乌克兰发广告全球征兵](https://www.share.kurohicncr.top/Article/details/997978.shtml)
+- 2026-06-29 22:03 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/58760591.shtml)
+- 2026-06-29 22:03 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/477803.shtml)
+- 2026-06-29 21:58 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/301417.shtml)
+- 2026-06-29 22:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/718804731.shtml)
+- 2026-06-29 21:43 - [一诺变着花样秀新驾照](http://www.blog.minike.top/Article/details/875633719656.shtml)
+- 2026-06-29 22:02 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/77103.shtml)
+- 2026-06-29 21:56 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/908306672350.shtml)
+- 2026-06-29 22:01 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/7012808138.shtml)
+- 2026-06-29 21:50 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/640752.shtml)
+- 2026-06-29 21:55 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/126878973.shtml)
+- 2026-06-29 21:44 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/77571.shtml)

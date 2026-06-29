@@ -1,44 +1,53 @@
-# 关注巴以局势：以军袭击加沙地带多地 多人伤亡
+# 新疆维吾尔自治区政府原副主席朱昌杰被查
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 10:17 来源：央视新闻 责任编辑：【王祎】
+中新社北京6月20日电 中国官方20日通报，新疆维吾尔自治区政府原党组成员、副主席朱昌杰涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。 公开资料显示，朱昌杰，1957年6月生，山东东明人，长期在新疆工作。他曾任新疆维吾尔自治区巴音郭楞蒙古自治州党委副书记，阿克苏地委书记，新疆生产建设兵团农一师党委第一书记、第一政委，新疆维吾尔自治区公安厅党委书记、厅长等职。2
 
 ## 正文
 
-发布时间：2026年06月15日 10:17 来源：央视新闻 责任编辑：【王祎】
+中新社北京6月20日电 中国官方20日通报，新疆维吾尔自治区政府原党组成员、副主席朱昌杰涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
+
+公开资料显示，朱昌杰，1957年6月生，山东东明人，长期在新疆工作。
+
+他曾任新疆维吾尔自治区巴音郭楞蒙古自治州党委副书记，阿克苏地委书记，新疆生产建设兵团农一师党委第一书记、第一政委，新疆维吾尔自治区公安厅党委书记、厅长等职。
+
+2011年，朱昌杰任新疆维吾尔自治区人民政府副主席，2018年卸任。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:49 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 21:59 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 21:43 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 21:42 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 21:50 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 21:53 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 21:50 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 21:39 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 21:47 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 21:36 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 21:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 22:00 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 22:05 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 22:02 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 21:58 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 21:52 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 21:37 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 21:43 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 21:54 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 21:36 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 21:55 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 21:45 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 22:01 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 22:04 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 21:41 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:55 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/4151576.shtml)
-- 2026-06-29 21:48 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/854176239.shtml)
-- 2026-06-29 21:53 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/6038556.shtml)
-- 2026-06-29 21:34 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/58217265095.shtml)
-- 2026-06-29 21:32 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/0577106426.shtml)
-- 2026-06-29 21:37 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/8392646193.shtml)
-- 2026-06-29 21:50 - [女生学医适合选什么专业](https://www.blog.minike.top/Article/details/4340096948.shtml)
-- 2026-06-29 21:57 - [炽夏](https://www.blog.minike.top/Article/details/19398669.shtml)
-- 2026-06-29 21:48 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/833118094088.shtml)
-- 2026-06-29 21:45 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/56746718.shtml)
-- 2026-06-29 21:49 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/39851235133.shtml)
-- 2026-06-29 21:33 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/48649835.shtml)
-- 2026-06-29 21:52 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/76274235511.shtml)
-- 2026-06-29 21:58 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/252334295.shtml)
-- 2026-06-29 21:58 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/37797.shtml)
+- 2026-06-29 21:58 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/559679433044.shtml)
+- 2026-06-29 21:45 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/1042952145.shtml)
+- 2026-06-29 21:52 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/10209.shtml)
+- 2026-06-29 21:59 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/00951938.shtml)
+- 2026-06-29 21:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/86289.shtml)
+- 2026-06-29 21:49 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/971634636.shtml)
+- 2026-06-29 21:44 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/3444033933.shtml)
+- 2026-06-29 21:43 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/432364.shtml)
+- 2026-06-29 21:41 - [田曦薇没招了](https://www.share.minike.top/Article/details/30059904.shtml)
+- 2026-06-29 22:03 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/51662.shtml)
+- 2026-06-29 21:46 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/12052.shtml)
+- 2026-06-29 21:55 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/4665219.shtml)
+- 2026-06-29 21:59 - [恋与深空致歉](https://www.blog.minike.top/Article/details/795287967865.shtml)
+- 2026-06-29 21:42 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/447928869925.shtml)
+- 2026-06-29 22:01 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/88080042.shtml)

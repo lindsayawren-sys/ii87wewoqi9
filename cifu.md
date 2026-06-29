@@ -1,57 +1,51 @@
-# 青茂海关老旧设施维修改造项目公开招标公告
+# 卡塔尔称美伊谈判已成立专家组
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-项目概况 青茂海关老旧设施维修改造项目 招标项目的潜在投标人应在海市香洲区银桦路598号5栋202-2号之4号(彩虹路与童心路交会处)珠海市平正咨询有限公司获取招标文件，并于2026年07月03日 09点30分(北京时间)前递交投标文件。 一、项目基本情况 项目编号：ZHPZ2026-048项目名称：青茂海关老旧设施维修改造项目 预算金额：58.669629 万元(含预留金17
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社多哈6月21日电美国和伊朗谈判调解方卡塔尔外交部21日发表声明说，已组建专门技术专家组，就美伊最终协议的各项条款进行谈判。此外，还成立了后续工作组，负责监督美伊谅解备忘录的执行并跟进进展情况，直至最终协议达成。（完）责任编辑：宋雅芳
 
 ## 正文
 
-项目概况 青茂海关老旧设施维修改造项目 招标项目的潜在投标人应在海市香洲区银桦路598号5栋202-2号之4号(彩虹路与童心路交会处)珠海市平正咨询有限公司获取招标文件，并于2026年07月03日 09点30分(北京时间)前递交投标文件。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-一、项目基本情况 项目编号：ZHPZ2026-048项目名称：青茂海关老旧设施维修改造项目 预算金额：58.669629 万元(含预留金17088.24元) 最高限价(如有)：58.669629 万元(人民币) 采购需求： 1.青茂海关老旧设施维修改造项目项目，建设地点位于广东省珠海市香洲区，工程采购内容：原装饰面及设施拆除，新做隔墙、铺贴、天花、油漆、防水、屋面、水电、厨卫、空调及外墙修缮工程。
+新华社多哈6月21日电美国和伊朗谈判调解方卡塔尔外交部21日发表声明说，已组建专门技术专家组，就美伊最终协议的各项条款进行谈判。
 
-2.拱北海关后勤管理中心受中华人民共和国青茂海关的委托作为招标人负责项目的整体采购活动，承担投标人的质疑回复等义务。
+此外，还成立了后续工作组，负责监督美伊谅解备忘录的执行并跟进进展情况，直至最终协议达成。
 
-中华人民共和国青茂海关负责项目的整体规划、技术方案可行性设计论证与实施，招标合同签订、招标合同履约、验收与评价、配合做好质疑回复等义务。
-
-3.施工工期：自合同签订生效之日起60个日历天(以招标人出具开工令开始算) 本项目( 不接受 )联合体投标。
-
-二、申请人的资格要求： 1.满足《中华人民共和国政府采购法》第二十二条规定； 2.落实政府采购政策需满足的资格要求： 本项目专门面向中小企业采购，投标人必须是《政府采购促进中小企业发展管理办法》(财库﹝2020﹞46 号)所规定的中小企业，提供《中小企业声明函》原件(格式见招标文件格式)。
-
-若投标人为符合《财政部 民政部 中国残疾人联合会关于促进残疾人就业政府采购政策的通知》(财库〔2017〕141号)的规定残疾人福利性单位，并在投标文件中提供《残疾人福利性单位声明函》原件(格式见招标文件格式)，则视同小型、微型企业；若投标人为符合《财政部 司法部关于政府采购支持监狱企业发展有关问题的通知》(财库\[2014\]68号)的规定监狱企业，并在投标文件中提供提供由省级以上监狱管理局、戒毒管理局(含新疆生产建设兵团)出具的属于监狱企业的证明文件复印件加盖投标人公章，则视同小型、微型企业。
-
-本项目采购标的对应的中小企业划分标准所属行业为(建筑业)。
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 21:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 21:39 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 21:54 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 21:40 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 21:58 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 21:57 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 21:49 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 21:34 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 21:50 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 21:52 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 21:41 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 21:41 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 21:52 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 22:03 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 21:58 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 21:44 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 21:44 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 22:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 22:05 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 21:37 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 21:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 21:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 22:05 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 21:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:44 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/177793.shtml)
-- 2026-06-29 21:44 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/1403566.shtml)
-- 2026-06-29 21:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/464069270035.shtml)
-- 2026-06-29 21:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/33850880739.shtml)
-- 2026-06-29 21:47 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/203564597.shtml)
-- 2026-06-29 21:42 - [沙丘](http://www.share.kurohicncr.top/Article/details/6244355343.shtml)
-- 2026-06-29 21:55 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/48358.shtml)
-- 2026-06-29 21:36 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/723043.shtml)
-- 2026-06-29 21:48 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/369054724.shtml)
-- 2026-06-29 21:43 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/546034493725.shtml)
-- 2026-06-29 21:49 - [C罗10球7球对垫底队](https://www.blog.minike.top/Article/details/04267535885.shtml)
-- 2026-06-29 21:41 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/06056.shtml)
-- 2026-06-29 21:55 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/47212702.shtml)
-- 2026-06-29 21:41 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/051974568686.shtml)
-- 2026-06-29 21:37 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/52857241134.shtml)
+- 2026-06-29 22:05 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/647082369.shtml)
+- 2026-06-29 22:05 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/487466.shtml)
+- 2026-06-29 21:43 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/802691375.shtml)
+- 2026-06-29 22:03 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/3391191000.shtml)
+- 2026-06-29 21:55 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/177708284582.shtml)
+- 2026-06-29 21:51 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/8247408618.shtml)
+- 2026-06-29 21:48 - [爱很美味](https://www.share.kurohicncr.top/Article/details/0486131813.shtml)
+- 2026-06-29 21:58 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/4826523698.shtml)
+- 2026-06-29 22:05 - [上世纪90年代玩具成新宠](https://www.blog.kurohicncr.top/Article/details/067974959.shtml)
+- 2026-06-29 21:49 - [一见倾心](https://www.share.minike.top/Article/details/274378651.shtml)
+- 2026-06-29 21:47 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/697173060.shtml)
+- 2026-06-29 21:49 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/1358368.shtml)
+- 2026-06-29 21:58 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/86227929010.shtml)
+- 2026-06-29 22:03 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/128810.shtml)
+- 2026-06-29 22:03 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/841188437684.shtml)

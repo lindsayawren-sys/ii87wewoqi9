@@ -1,60 +1,57 @@
-# 钨退钼进，势不可挡？
+# 5月中国全社会用电量同比增长6.9%
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-专题：AI超级周期未结束 重新审视避险资产 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！半导体行业观察 近日，据韩国媒体The Elec报道，SK海力士已顺利完成下一代V10系列375层3D NAND闪存的生产验证工作，并计划于今年年底前在韩国清州M15工厂正式实现量产。 这款产品最初在SK海力士内部被称为“400层级”NAND闪存，但因超高层数堆叠
+中新社北京6月18日电 中国国家能源局18日发布的数据显示，5月，中国全社会用电量8671亿千瓦时，同比增长6.9%。 从分产业用电看，第一产业用电量124亿千瓦时，同比增长5%。第二产业用电量5753亿千瓦时，同比增长6%；其中，工业用电量同比增长6.2%，高技术装备制造业用电量同比增长12.2%。第三产业用电量1704亿千瓦时，同比增长9.7%；其中，充换电服务业、互联网数
 
 ## 正文
 
-专题：AI超级周期未结束 重新审视避险资产 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京6月18日电 中国国家能源局18日发布的数据显示，5月，中国全社会用电量8671亿千瓦时，同比增长6.9%。
 
-半导体行业观察 近日，据韩国媒体The Elec报道，SK海力士已顺利完成下一代V10系列375层3D NAND闪存的生产验证工作，并计划于今年年底前在韩国清州M15工厂正式实现量产。
+从分产业用电看，第一产业用电量124亿千瓦时，同比增长5%。
 
-这款产品最初在SK海力士内部被称为“400层级”NAND闪存，但因超高层数堆叠工艺面临的技术挑战，尤其是沟道孔蚀刻等关键制程难度指数级上升，最终将实际量产层数下修至375层。
+第二产业用电量5753亿千瓦时，同比增长6%；其中，工业用电量同比增长6.2%，高技术装备制造业用电量同比增长12.2%。
 
-然而，相较于层数的微调，真正令业界关注的关键变革，隐藏在一个细节里：这款375层NAND闪存首次在字线金属栅极中引入了钼（Mo）材料，取代了传统上已沿用了十余年的钨（W）薄膜。
+第三产业用电量1704亿千瓦时，同比增长9.7%；其中，充换电服务业、互联网数据服务用电量增速分别达到59.9%、45.4%。
 
-然而，SK海力士的技术转向，并非孤例。
+城乡居民生活用电量1090亿千瓦时，同比增长7.5%。
 
-在此之前，三星电子、美光等存储巨头就已布局了采用钼材料的相关产品；全球半导体设备龙头泛林半导体也明确表态，钨向钼的技术切换，是高层数3D NAND演进的唯一可行路径。
+1至5月，中国全社会用电量累计42018亿千瓦时，同比增长5.7%。
 
-随着行业巨头相继从钨转向钼，行业释放出一个清晰的信号：曾在存储芯片行业沿用十余年的钨材料体系迎来替代拐点。
+从分产业用电看，第一产业用电量574亿千瓦时，同比增长5.6%。
 
-钼金属一跃成为支撑300层以上超高堆叠NAND闪存落地的核心关键材料。
+第二产业用电量27324亿千瓦时，同比增长5.1%；其中，工业用电量同比增长5.3%，高技术及装备制造业用电量同比增长9.7%。
 
 ## 相关推荐
 
-- 2026-06-29 21:49 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 21:44 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 21:40 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 21:58 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 21:30 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 21:41 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 21:56 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 21:33 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 21:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 21:41 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 21:44 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 21:30 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 21:46 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 21:59 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 21:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 21:55 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 21:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 22:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 22:00 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 21:56 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 21:40 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 21:36 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 21:46 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 21:55 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 21:39 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:54 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/1738337639.shtml)
-- 2026-06-29 21:39 - [爱很美味](http://www.blog.minike.top/Article/details/157865.shtml)
-- 2026-06-29 21:31 - [扫黑风暴](https://www.blog.minike.top/Article/details/026533915934.shtml)
-- 2026-06-29 21:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/74663959037.shtml)
-- 2026-06-29 21:43 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/35075.shtml)
-- 2026-06-29 21:33 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/0154982.shtml)
-- 2026-06-29 21:39 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/580382176472.shtml)
-- 2026-06-29 21:30 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/1392041.shtml)
-- 2026-06-29 21:52 - [济南航空航天全面起势](https://www.share.minike.top/Article/details/5905126.shtml)
-- 2026-06-29 21:43 - [《恋与深空》回应争议](https://www.share.kurohicncr.top/Article/details/79957740.shtml)
-- 2026-06-29 21:39 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/531840.shtml)
-- 2026-06-29 21:34 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/9285892486.shtml)
-- 2026-06-29 21:46 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/07412021825.shtml)
-- 2026-06-29 21:30 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/7603638.shtml)
-- 2026-06-29 21:57 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/02977406780.shtml)
+- 2026-06-29 21:52 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/83478.shtml)
+- 2026-06-29 21:59 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/69186962.shtml)
+- 2026-06-29 21:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/85735.shtml)
+- 2026-06-29 21:55 - [国常会听取人工智能发展情况汇报](https://www.blog.kurohicncr.top/Article/details/4194282.shtml)
+- 2026-06-29 22:03 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/11369106.shtml)
+- 2026-06-29 21:54 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/663599.shtml)
+- 2026-06-29 22:00 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/6084368153.shtml)
+- 2026-06-29 21:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/0497805.shtml)
+- 2026-06-29 21:37 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/7174328.shtml)
+- 2026-06-29 21:48 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/83744.shtml)
+- 2026-06-29 22:01 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/86511251504.shtml)
+- 2026-06-29 21:48 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/87742172.shtml)
+- 2026-06-29 21:49 - [一见倾心](http://www.blog.minike.top/Article/details/95575.shtml)
+- 2026-06-29 21:47 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/0553980621.shtml)
+- 2026-06-29 22:04 - [2026全国田径冠军赛江苏队4金收官](http://www.share.kurohicncr.top/Article/details/32512347248.shtml)

@@ -1,55 +1,61 @@
-# 自动盘点、实时监测…… “AI养猪”为生猪产业装上“智慧大脑”
+# 中央网信办决定自即日起开展“清朗·整治账号名称信息乱象”专项行动
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 20:19 来源：中国新闻网 6月15日，记者走进位于重庆荣昌区的国家级生猪大数据中心，猪只自动盘点、智能环控监测、实时体征数据……一项项生猪数据汇聚到大屏之上。生猪养殖统计、价格趋势、产品生产走势、养殖户与屠宰场数量等信息一目了然。 在中心的智能猪场养殖监测屏幕上，显示着各个猪场的实时猪舍画面。据介绍，这些猪场均采取全封闭式管理，猪舍内采用的
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！按照2026年“清朗”系列专项行动总体安排，中央网信办决定自即日起，开展为期3个月的“清朗·整治账号名称信息乱象”专项行动。现就有关事项通知如下： 一、工作目标 坚持问题导向和效果导向，通过开展专项行动，集中整治账号名称信息存在的突出问题。针对名称冒充、身份伪装、夹带违规信息、名称信息黑灰产等4类问题，督促
 
 ## 正文
 
-发布时间：2026年06月15日 20:19 来源：中国新闻网 6月15日，记者走进位于重庆荣昌区的国家级生猪大数据中心，猪只自动盘点、智能环控监测、实时体征数据……一项项生猪数据汇聚到大屏之上。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-生猪养殖统计、价格趋势、产品生产走势、养殖户与屠宰场数量等信息一目了然。
+按照2026年“清朗”系列专项行动总体安排，中央网信办决定自即日起，开展为期3个月的“清朗·整治账号名称信息乱象”专项行动。
 
-在中心的智能猪场养殖监测屏幕上，显示着各个猪场的实时猪舍画面。
+现就有关事项通知如下： 一、工作目标 坚持问题导向和效果导向，通过开展专项行动，集中整治账号名称信息存在的突出问题。
 
-据介绍，这些猪场均采取全封闭式管理，猪舍内采用的智能风机、水帘等设备根据实时环境参数自动调节，保持舍内舒适；饲喂系统通过智能耳标识别身份后，为每头猪投喂量身定制的营养餐，从而提升饲料转化效率。
+针对名称冒充、身份伪装、夹带违规信息、名称信息黑灰产等4类问题，督促网站平台严格落实主体责任，进一步完善账号名称信息全流程管理，持续营造清朗网络空间。
 
-此外，该大数据中心推出的智慧“阳光码”能够精准识别来源不明的猪肉，有效保障食品安全。
+二、整治重点 专项行动重点整治4类突出问题： 1．名称冒充问题。
 
-据悉，国家级生猪大数据中心是农业农村部批准建设的全国首个、目前唯一的畜牧单品种国家级大数据服务平台。
+一是假冒仿冒官方机构账号。
 
-(贾楠 景诗雁） 责任编辑：【李季】
+在账号名称、简介中嵌入党政军机关等官方机构信息，使用相同或相似名称、标识，恶意误导公众。
+
+使用、关联县级以上行政区划地名，使用“某某政事”等组合表述，易被误认为官方账号，使公众产生错误认知。
 
 ## 相关推荐
 
-- 2026-06-29 21:46 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 21:59 - [东方风云榜直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 21:35 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 21:49 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 21:44 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 21:44 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 21:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 21:34 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 21:42 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 21:42 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 21:46 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 22:01 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 21:54 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 21:45 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 21:55 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 21:40 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 21:54 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 21:49 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 21:50 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 21:44 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 21:39 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 22:00 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 21:44 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 22:04 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 21:50 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 21:58 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:52 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/60544.shtml)
-- 2026-06-29 21:49 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/651974994.shtml)
-- 2026-06-29 21:57 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/083211484.shtml)
-- 2026-06-29 21:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/52861196445.shtml)
-- 2026-06-29 21:50 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/84231744.shtml)
-- 2026-06-29 21:58 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/884847402.shtml)
-- 2026-06-29 21:47 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/497716.shtml)
-- 2026-06-29 21:39 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/9908843.shtml)
-- 2026-06-29 21:35 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/1770251800.shtml)
-- 2026-06-29 21:47 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/166987.shtml)
-- 2026-06-29 21:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/23495.shtml)
-- 2026-06-29 21:45 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/75896.shtml)
-- 2026-06-29 21:53 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/208062343.shtml)
-- 2026-06-29 21:56 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/72375223102.shtml)
-- 2026-06-29 21:53 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/0982471179.shtml)
+- 2026-06-29 21:47 - [记者乘坐无人驾驶汽车去采访](http://www.share.minike.top/Article/details/53800622.shtml)
+- 2026-06-29 21:56 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/3777664.shtml)
+- 2026-06-29 21:48 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/79106730096.shtml)
+- 2026-06-29 22:01 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/22734.shtml)
+- 2026-06-29 21:36 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/2901886.shtml)
+- 2026-06-29 21:48 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/96201912.shtml)
+- 2026-06-29 21:53 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/433308562.shtml)
+- 2026-06-29 22:02 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/96582.shtml)
+- 2026-06-29 21:53 - [女生学医适合选什么专业](http://www.share.minike.top/Article/details/45588396.shtml)
+- 2026-06-29 21:51 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/816323757.shtml)
+- 2026-06-29 21:56 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/105735936.shtml)
+- 2026-06-29 21:37 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/867951.shtml)
+- 2026-06-29 21:52 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/02178457.shtml)
+- 2026-06-29 22:03 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/080285313.shtml)
+- 2026-06-29 21:44 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/4112693.shtml)

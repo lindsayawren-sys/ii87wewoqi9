@@ -1,57 +1,57 @@
-# 全球版画佳作齐聚第二届嘉德国际版画大会
+# 花旗：中国铝业重申“买入”评级 目标价为17.08港元
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-中新网北京6月14日电 (记者 应妮)第二届嘉德国际版画大会13日在北京嘉德艺术中心正式对公众开放。大会汇聚全球版画资源，致力于打造一场兼具国际视野及大众影响力的艺术盛宴。 现场汇集了来自中国、意大利、美国、英国、韩国、荷兰、德国、日本等8个国家的52家国际知名版画机构与画廊，集结国内外艺术家的优秀版画作品。展览作品跨越时空边界、包揽多元流派，既有丢勒、伦勃朗、葛饰北斋等古典艺
+花旗发布研报称，由于投资者担忧能源价格上涨背景下需求走弱，以及投资者资金配置从大宗商品板块转向AI相关科技板块，中国宏桥（01378）和中国铝业（02600）的股价表现均明显跑输铝价走势。与此同时，根据花旗近期与投资者的交流，市场又出现了一些新的担忧，包括印尼项目建设加速、以及担心中国电解铝产能天花板被突破。 对于市场的担忧，花旗表示，对于中国电解铝产能天花板被突破的担忧源于部
 
 ## 正文
 
-中新网北京6月14日电 (记者 应妮)第二届嘉德国际版画大会13日在北京嘉德艺术中心正式对公众开放。
+花旗发布研报称，由于投资者担忧能源价格上涨背景下需求走弱，以及投资者资金配置从大宗商品板块转向AI相关科技板块，中国宏桥（01378）和中国铝业（02600）的股价表现均明显跑输铝价走势。
 
-大会汇聚全球版画资源，致力于打造一场兼具国际视野及大众影响力的艺术盛宴。
+与此同时，根据花旗近期与投资者的交流，市场又出现了一些新的担忧，包括印尼项目建设加速、以及担心中国电解铝产能天花板被突破。
 
-现场汇集了来自中国、意大利、美国、英国、韩国、荷兰、德国、日本等8个国家的52家国际知名版画机构与画廊，集结国内外艺术家的优秀版画作品。
+对于市场的担忧，花旗表示，对于中国电解铝产能天花板被突破的担忧源于部分企业因高盈利水平而出现超产现象。
 
-展览作品跨越时空边界、包揽多元流派，既有丢勒、伦勃朗、葛饰北斋等古典艺术大师的传世经典，也有弗朗西斯·培根、赵无极、常玉等现代艺术大家的扛鼎之作。
+尽管中国有效产能上限已从4550万吨提升至4800万吨，但中国的产能上限不会发生变化。
 
-在工艺表现上，展品囊括了石版、木版、丝网版、铜版、数码版等丰富门类，集中呈现在不同时代与文化语境下版画艺术的无尽张力。
+据该行了解，在中国这并不是普遍现象，因为大多数大型冶炼厂都会避免超出获批产能进行生产。
 
-展会期间，嘉德国际版画大会特设“艺术市集”，为版画机构、先锋版画工作室及青年艺术家提供成果展示的平台。
+部分冶炼厂的超产行为本质上属于机会主义行为，从长期来看不可持续。
 
-从极具力量感的粗犷传统木刻、工艺细腻的铜版画，到深受潮流追捧的丝网版画，市集现场展出的作品涉猎领域广泛。
+关于印尼项目建设加速，花旗指出，印尼项目加速推进将在2026至2027年带来290万吨新增铝产量，这一判断很可能是假设所有项目都能够按照项目业主宣称的计划实现全面达产。
 
-同时，艺术机构主理人及艺术家将亲临现场，为观众解密作品背后的故事；这种互动模式不仅为公众打开了鉴赏窗口，热烈的反馈也能为艺术创作者注入灵感与动力。
+在进行供给预测时，直接按照项目储备规模进行测算通常会导致供应预期被高估。
 
 ## 相关推荐
 
-- 2026-06-29 21:31 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 21:33 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 21:54 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 21:58 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 21:30 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 21:49 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 21:36 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 21:58 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 21:32 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 21:49 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 21:38 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 21:59 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 22:05 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 22:02 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 21:57 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 22:01 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 21:47 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 21:40 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 21:40 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 21:55 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 21:47 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 21:38 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/8666045.shtml)
-- 2026-06-29 21:33 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/9328544.shtml)
-- 2026-06-29 21:35 - [逃狱兄弟](https://www.share.minike.top/Article/details/7889443923.shtml)
-- 2026-06-29 21:31 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/210067.shtml)
-- 2026-06-29 21:50 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/600969773379.shtml)
-- 2026-06-29 21:44 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/069672298.shtml)
-- 2026-06-29 21:57 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/65690591856.shtml)
-- 2026-06-29 21:33 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/63233380.shtml)
-- 2026-06-29 21:47 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/415373918675.shtml)
-- 2026-06-29 21:58 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/64178268220.shtml)
-- 2026-06-29 21:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/8243951.shtml)
-- 2026-06-29 21:44 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/99844.shtml)
-- 2026-06-29 21:53 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/8031442.shtml)
-- 2026-06-29 21:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/353142.shtml)
-- 2026-06-29 21:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/784430.shtml)
+- 2026-06-29 21:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/63664936.shtml)
+- 2026-06-29 21:47 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.kurohicncr.top/Article/details/41769.shtml)
+- 2026-06-29 22:00 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/184453.shtml)
+- 2026-06-29 21:46 - [一生一世](http://www.share.minike.top/Article/details/46325158732.shtml)
+- 2026-06-29 22:05 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/373355152901.shtml)
+- 2026-06-29 21:51 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/837426301216.shtml)
+- 2026-06-29 21:37 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/82251.shtml)
+- 2026-06-29 21:57 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/552284.shtml)
+- 2026-06-29 22:04 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/87419672582.shtml)
+- 2026-06-29 21:37 - [谁在推动“成都造”影视持续出圈](http://www.blog.kurohicncr.top/Article/details/563054105743.shtml)
+- 2026-06-29 22:01 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/497846.shtml)
+- 2026-06-29 21:43 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/75565984161.shtml)
+- 2026-06-29 21:46 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/57454122266.shtml)
+- 2026-06-29 22:04 - [扫黑风暴](https://www.blog.minike.top/Article/details/49137.shtml)
+- 2026-06-29 21:55 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/08992.shtml)

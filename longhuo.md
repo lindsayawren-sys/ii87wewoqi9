@@ -1,59 +1,60 @@
-# 金力永磁早盘涨超6% AI高容MLCC爆发带动高纯氧化镝需求激增
+# 韩国股市小幅收跌结束六连涨，盘中一度站上9300点
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-金力永磁（06680）盘中涨近7%，截至发稿，股价上涨6.37%，现报20.18港元，成交额1.31亿港元。 据Citrini Research统计数据显示，消费类MLCC的现货与经销商价格已较此前上涨20%至40%。值得关注的是，近期，日韩MLCC龙头（村田、三星电机、太阳诱电）正全力扩产，但因高纯镝库存仅支撑一个月满产，已引发全球抢购态势，进一步强化市场供应紧张预期。晨星分
+韩国股市在连续六个交易日上涨后，周五出现回调。受伊朗局势不确定性再度升温影响，投资者纷纷兑现人工智能板块行情带来的收益 韩国综合股价指数（KOSPI）在经历震荡后，最终收跌11.42点，跌幅0.13%，报9052.42点，盘中最高触及9385.59点。 当天成交量达5.111亿股，成交额达65.3万亿韩元（约合427亿美元）。散户投资者净买入1.7万亿韩元，机构投资者和外国投资
 
 ## 正文
 
-金力永磁（06680）盘中涨近7%，截至发稿，股价上涨6.37%，现报20.18港元，成交额1.31亿港元。
+韩国股市在连续六个交易日上涨后，周五出现回调。
 
-据Citrini Research统计数据显示，消费类MLCC的现货与经销商价格已较此前上涨20%至40%。
+受伊朗局势不确定性再度升温影响，投资者纷纷兑现人工智能板块行情带来的收益 韩国综合股价指数（KOSPI）在经历震荡后，最终收跌11.42点，跌幅0.13%，报9052.42点，盘中最高触及9385.59点。
 
-值得关注的是，近期，日韩MLCC龙头（村田、三星电机、太阳诱电）正全力扩产，但因高纯镝库存仅支撑一个月满产，已引发全球抢购态势，进一步强化市场供应紧张预期。
+当天成交量达5.111亿股，成交额达65.3万亿韩元（约合427亿美元）。
 
-晨星分析师预期AI服务器及基础设施投资将“至少持续增长至2028年”，这将为MLCC等被动元件提供较为清晰的中期成长能见度。
+散户投资者净买入1.7万亿韩元，机构投资者和外国投资者合计净卖出1.6万亿韩元。
 
-公开资料显示，氧化镝是应用于制造车规级MLCC（需承受发动机舱高温）和AI服务器MLCC（需处理高功耗产生的热量）的刚需材料，高端MLCC必须使用纯度高达 99.999% （5N） 的高纯氧化镝。
+受芯片股上涨带动，KOSPI指数开盘大幅走高，但午后因美伊后续谈判推迟的消息而一度下跌。
 
-国投证券指出，AI高容MLCC爆发带动高纯氧化镝需求激增，该材料为必备且无成熟替代。
+此前，白宫宣布副总统万斯将推迟原定前往瑞士与伊朗直接会谈的行程。
 
-2027年AI-MLCC将新增氧化镝需求1500吨，占全球总供给3500吨近四成，重稀土供需格局将彻底扭转，价格进入涨价周期。
+个股方面，三星电子股价下跌2.34%，收于35.4万韩元；其竞争对手SK海力士股价上涨2.94%，收于276.4万韩元。
 
-责任编辑：卢昱君
+现代汽车股价上涨2%，收于61.3万韩元；电池制造商LG新能源股价上涨1.12%，收于40.45万韩元；国防巨头韩华航天股价下跌5.63%，收于112.2万韩元。
 
 ## 相关推荐
 
-- 2026-06-29 21:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 21:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 21:33 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 21:40 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 21:47 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 21:59 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 21:57 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 21:49 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 21:31 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 21:52 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 21:31 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 21:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 21:59 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 21:38 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 21:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 21:47 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 21:47 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 21:47 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 22:01 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 21:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 22:05 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 21:57 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 21:43 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 21:50 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 22:03 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 21:51 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 21:59 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:51 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/775251570.shtml)
-- 2026-06-29 21:31 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/840892380.shtml)
-- 2026-06-29 21:30 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/3241789021.shtml)
-- 2026-06-29 21:53 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/0821729403.shtml)
-- 2026-06-29 21:48 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/64340652011.shtml)
-- 2026-06-29 21:58 - [天道](https://www.share.kurohicncr.top/Article/details/81183063039.shtml)
-- 2026-06-29 21:55 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/720785.shtml)
-- 2026-06-29 21:34 - [湖南姑娘被东北同事带偏口音](http://www.blog.kurohicncr.top/Article/details/5672027752.shtml)
-- 2026-06-29 21:59 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/5777949479.shtml)
-- 2026-06-29 21:50 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/82478243239.shtml)
-- 2026-06-29 21:55 - [高质量发展看新疆](http://www.share.minike.top/Article/details/60804557356.shtml)
-- 2026-06-29 21:53 - [爱很美味](http://www.share.kurohicncr.top/Article/details/54149207.shtml)
-- 2026-06-29 21:31 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/997307476.shtml)
-- 2026-06-29 21:51 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/0795302.shtml)
-- 2026-06-29 21:38 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/18679.shtml)
+- 2026-06-29 21:37 - [温网](https://www.blog.kurohicncr.top/Article/details/34464429434.shtml)
+- 2026-06-29 21:58 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/63649499.shtml)
+- 2026-06-29 22:01 - [委内瑞拉发生余震](https://www.blog.minike.top/Article/details/0052395.shtml)
+- 2026-06-29 21:54 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/375371878.shtml)
+- 2026-06-29 21:42 - [一诺变着花样秀新驾照](http://www.blog.kurohicncr.top/Article/details/466798726.shtml)
+- 2026-06-29 21:55 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/90658324.shtml)
+- 2026-06-29 21:41 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/388456892.shtml)
+- 2026-06-29 21:45 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/0523794.shtml)
+- 2026-06-29 21:47 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/07019538766.shtml)
+- 2026-06-29 21:43 - [爱很美味](http://www.blog.minike.top/Article/details/5278693510.shtml)
+- 2026-06-29 21:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/430639.shtml)
+- 2026-06-29 22:01 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/1842829874.shtml)
+- 2026-06-29 21:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/227169138001.shtml)
+- 2026-06-29 22:01 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/7531147.shtml)
+- 2026-06-29 21:36 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/44189.shtml)

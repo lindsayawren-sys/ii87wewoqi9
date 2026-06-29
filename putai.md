@@ -1,56 +1,50 @@
-# 新易盛，融资客大举买入，A股第一名
+# 亲爱的老爸，我有些话想对您说…
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！上周A股市场震荡分化。 Wind数据显示，截至6月12日，A股市场融资余额报28523.23亿元，融券余额报211.59亿元，上周融资余额减少333.92亿元。 上周基础化工行业融资余额增加超26亿元，A股市场融资净买入金额最大的股票为新易盛，净卖出金额最大的股票为佰维存储。 加仓基础化工行业超26亿元 W
+发布时间：2026年06月21日 09:31 来源：中国新闻网 爸：提笔时，训练场的风正拂过我的肩章。我在此摔打磨砺，以青春之躯守护一方山河；您于烟火里躬身半生，凭沉默肩膀撑起阖家温软。千言万语久藏心底，纸短情长，道不尽半生养育深恩。惟愿您眉目常舒，腰背硬朗，历经风霜体魄不衰，岁岁年年平安顺遂。(作者：张钧尧、刘颢涵、李泽鑫、陈郝宇、欧阳皓鹏、孟令照） 责任编辑：【魏聪聪】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年06月21日 09:31 来源：中国新闻网 爸：提笔时，训练场的风正拂过我的肩章。
 
-上周A股市场震荡分化。
+我在此摔打磨砺，以青春之躯守护一方山河；您于烟火里躬身半生，凭沉默肩膀撑起阖家温软。
 
-Wind数据显示，截至6月12日，A股市场融资余额报28523.23亿元，融券余额报211.59亿元，上周融资余额减少333.92亿元。
+千言万语久藏心底，纸短情长，道不尽半生养育深恩。
 
-上周基础化工行业融资余额增加超26亿元，A股市场融资净买入金额最大的股票为新易盛，净卖出金额最大的股票为佰维存储。
+惟愿您眉目常舒，腰背硬朗，历经风霜体魄不衰，岁岁年年平安顺遂。
 
-加仓基础化工行业超26亿元 Wind数据显示，截至6月12日，A股两融余额报28734.82亿元，融资余额报28523.23亿元，上周A股市场融资余额减少333.92亿元，已连续两周下滑。
-
-具体来看，6月8日A股融资余额减少232.73亿元，6月9日增加37.42亿元，6月10日减少82.01亿元，6月11日减少52.72亿元，6月12日减少3.87亿元。
-
-从行业情况来看，上周31个申万一级行业中有7个行业融资余额增加，基础化工、机械设备、交通运输行业融资净买入金额居前，分别为26.60亿元、3.71亿元、3.04亿元。
-
-在出现融资净卖出的24个行业中，电力设备、计算机、医药生物行业融资净卖出金额居前，分别为42.82亿元、41.24亿元、36.07亿元。
+(作者：张钧尧、刘颢涵、李泽鑫、陈郝宇、欧阳皓鹏、孟令照） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 21:53 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 21:53 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 21:47 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 21:43 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 21:38 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 21:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 21:32 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 21:57 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 21:58 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 21:49 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 22:05 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 21:55 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 21:41 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 22:03 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 22:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 21:46 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 21:51 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 21:53 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 21:44 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 22:02 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/943588.shtml)
-- 2026-06-29 21:37 - [Ella回应SHE何时合体](http://www.share.minike.top/Article/details/926181386.shtml)
-- 2026-06-29 21:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/194910.shtml)
-- 2026-06-29 21:46 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/887118.shtml)
-- 2026-06-29 21:33 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/983819790474.shtml)
-- 2026-06-29 21:58 - [第一炉香](http://www.share.minike.top/Article/details/256869896.shtml)
-- 2026-06-29 21:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/46913980624.shtml)
-- 2026-06-29 21:58 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/06606.shtml)
-- 2026-06-29 21:37 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/888088.shtml)
-- 2026-06-29 21:35 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/679022974665.shtml)
-- 2026-06-29 21:42 - [一生一世](http://www.share.kurohicncr.top/Article/details/395527.shtml)
-- 2026-06-29 21:37 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.minike.top/Article/details/759501416227.shtml)
-- 2026-06-29 21:38 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/47313750799.shtml)
-- 2026-06-29 21:43 - [半导体和股市为何没让韩国人起飞](https://www.share.minike.top/Article/details/1838459.shtml)
-- 2026-06-29 21:57 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/7283613.shtml)
+- 2026-06-29 22:01 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/819034.shtml)
+- 2026-06-29 22:04 - [女心理师](https://www.blog.kurohicncr.top/Article/details/49657.shtml)
+- 2026-06-29 21:44 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/2819558.shtml)
+- 2026-06-29 22:03 - [18岁高二体育生训练晕倒后离世](https://www.share.minike.top/Article/details/78071.shtml)
+- 2026-06-29 21:40 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/312447471655.shtml)
+- 2026-06-29 21:36 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/76134077168.shtml)
+- 2026-06-29 21:50 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/2181747.shtml)
+- 2026-06-29 22:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/398156958.shtml)
+- 2026-06-29 21:51 - [一生一世](http://www.share.kurohicncr.top/Article/details/051924529469.shtml)
+- 2026-06-29 21:42 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/30945379.shtml)
+- 2026-06-29 21:47 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/754303.shtml)
+- 2026-06-29 22:05 - [不烧钱的低成本爱好](https://www.blog.kurohicncr.top/Article/details/97434951.shtml)
+- 2026-06-29 21:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/42387429645.shtml)
+- 2026-06-29 21:42 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.kurohicncr.top/Article/details/12438171669.shtml)
+- 2026-06-29 21:48 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/7444569553.shtml)

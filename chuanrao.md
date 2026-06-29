@@ -1,58 +1,56 @@
-# 厦门市2026年全国节能宣传周启动
+# 浙江嘉兴开通至匈牙利布达佩斯国际货运航线
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-中新网厦门6月15日电 (吴冠标)6月15日，厦门市2026年全国节能宣传周启动。 围绕“节能新起点 低碳向未来”主题，本次宣传周厦门策划并部署了绿色技术产品展、低碳日主题活动、ESG和绿色制造建设专题培训等活动，旨在搭建交流展示平台，普及节能降碳知识，推广先进技术，倡导简约适度、绿色低碳、文明健康的生活理念和消费方式。 近年来，厦门始终把绿色发展理念贯穿经济社会发展全过程各方
+中新网嘉兴6月20日电(傅飞扬 朱哲熙)6月20日，一架满载服装、面料等跨境电商包裹的全货机从浙江嘉兴南湖机场起飞，经中转后飞往匈牙利布达佩斯，标志着“嘉兴—布达佩斯”国际货运航线正式开通运行。这是继“嘉兴—达卡”航线后，当地开通的第二条国际货运航线，也是嘉兴空港开通的首条欧洲方向航线。 新航线的开通，进一步完善了嘉兴航空口岸国际物流布局，为区域外贸转型升级、高水平对外开放注入
 
 ## 正文
 
-中新网厦门6月15日电 (吴冠标)6月15日，厦门市2026年全国节能宣传周启动。
+中新网嘉兴6月20日电(傅飞扬 朱哲熙)6月20日，一架满载服装、面料等跨境电商包裹的全货机从浙江嘉兴南湖机场起飞，经中转后飞往匈牙利布达佩斯，标志着“嘉兴—布达佩斯”国际货运航线正式开通运行。
 
-围绕“节能新起点 低碳向未来”主题，本次宣传周厦门策划并部署了绿色技术产品展、低碳日主题活动、ESG和绿色制造建设专题培训等活动，旨在搭建交流展示平台，普及节能降碳知识，推广先进技术，倡导简约适度、绿色低碳、文明健康的生活理念和消费方式。
+这是继“嘉兴—达卡”航线后，当地开通的第二条国际货运航线，也是嘉兴空港开通的首条欧洲方向航线。
 
-近年来，厦门始终把绿色发展理念贯穿经济社会发展全过程各方面，节能降碳工作成效显著：厦门市每万元GDP能耗、电耗、水耗均保持全国领先，累计创建国家级绿色工厂86家、绿色工业园区1个，推动火炬同翔高新城入选首批国家级零碳园区建设名单。
+新航线的开通，进一步完善了嘉兴航空口岸国际物流布局，为区域外贸转型升级、高水平对外开放注入新动能。
 
-启动仪式上，厦门市节能协会发出全民节能低碳行动倡议，呼吁全社会树立绿色理念、践行低碳行为。
+嘉兴空港口岸发展有限公司总经理何耀琦表示，新航线打通了嘉兴及浙北地区通往中东欧市场的直达物流链路，有效解决了以往外贸货物出口中东欧中转环节多、运输周期长、物流成本高的痛点，为本土企业开拓欧洲市场提供新的物流选择，是嘉兴机场完善国际货运网络、助力区域对外开放的重要突破。
 
-两家厦门企业在案例分享环节分别从能源转型和绿色物流两个维度，展示企业在节能降碳领域的积极探索与创新实践。
+为保障此次布达佩斯国际货运航线顺利首航并保持常态化稳定运行，嘉兴海关靠前服务，针对中东欧航线跨境运输特点和出口货物特性，量身定制专属监管保障方案，全面推广智能审图、机器狗巡场等数字化监管手段；开启“绿色通道”，推行全天候预约通关、预约查验等服务，持续压缩货物通关时长，降低企业物流、仓储成本。
 
-本次节能宣传周及其配套活动持续半个月，厦门还将集中开展形式丰富的节能宣传“六进”活动，走进社区、学校、企业、商场、公共机构及产业园区，线下通过互动问答、发放宣传手册、派送可循环购物袋等形式，广泛普及“双碳”相关知识，持续强化公众节能降碳意识。
+“新航线精准匹配嘉兴高端制造、跨境电商、纺织产业的出口需求，助力本地优质产品直达欧洲市场。
 
-厦门市发展和改革委员会党组成员、副主任简永丰表示，2026年是“十五五”的开局之年，是从能耗双控全面转向碳排放双控的第一年，厦门将坚持“双碳”引领，一以贯之坚持节约优先方针，更高水平、更高质量做好节能降碳工作，加快经济社会发展全面绿色转型。
+我们围绕新航线开通的通关痛点、企业难点，打通数据壁垒，助力企业快速通关。
 
-本次活动由厦门市发展和改革委员会、厦门火炬高新区管委会联合主办，厦门市工信局、交通局、住建局、机关管理局、生态环境局、市场监管局、统计局协办，厦门市能源发展中心承办。
+”嘉兴海关监管六科科长宋健说。
 
 ## 相关推荐
 
-- 2026-06-29 21:30 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 21:59 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 21:51 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 21:48 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 21:56 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 21:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 21:35 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 21:54 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 21:56 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 21:44 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 21:36 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 21:54 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 21:46 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 21:37 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 21:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 21:41 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 21:54 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 21:59 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 21:57 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 21:50 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 21:53 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 21:47 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/720265.shtml)
-- 2026-06-29 21:56 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/85338757129.shtml)
-- 2026-06-29 21:53 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/20637.shtml)
-- 2026-06-29 21:33 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/336016926.shtml)
-- 2026-06-29 21:30 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/0881966.shtml)
-- 2026-06-29 21:44 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/32818.shtml)
-- 2026-06-29 21:46 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/4456062.shtml)
-- 2026-06-29 21:43 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/8136755683.shtml)
-- 2026-06-29 21:41 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/29856.shtml)
-- 2026-06-29 21:55 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/4639125778.shtml)
-- 2026-06-29 21:56 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/009285125.shtml)
-- 2026-06-29 21:50 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/42679424201.shtml)
-- 2026-06-29 21:56 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/40178893080.shtml)
-- 2026-06-29 21:43 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/48319765742.shtml)
-- 2026-06-29 21:35 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/84163664.shtml)
+- 2026-06-29 21:56 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/20538.shtml)
+- 2026-06-29 21:48 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/6262313192.shtml)
+- 2026-06-29 21:42 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/414114571.shtml)
+- 2026-06-29 21:39 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/521433.shtml)
+- 2026-06-29 21:42 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/0480055044.shtml)
+- 2026-06-29 21:39 - [起风了](https://www.blog.kurohicncr.top/Article/details/0131330.shtml)
+- 2026-06-29 21:36 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/81688.shtml)
+- 2026-06-29 21:56 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/344699172530.shtml)
+- 2026-06-29 22:02 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/46808715.shtml)
+- 2026-06-29 21:52 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/195961538776.shtml)
+- 2026-06-29 22:05 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/947343856119.shtml)
+- 2026-06-29 21:47 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/297736766.shtml)
+- 2026-06-29 21:39 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/22315388.shtml)
+- 2026-06-29 21:42 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/36553.shtml)
+- 2026-06-29 21:44 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/1818258.shtml)

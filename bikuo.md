@@ -1,48 +1,59 @@
-# 第一太平获Brandes Investment Partners, L.P.增持约176.01万股 每股作价4.89港元
+# 6月19日美股成交额前20：英特尔大涨10% 将与苹果合作在美设计和生产芯片
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，6月10日，Brandes Investment Partners， L.P．增持第一太平（00142）176.011万股，每股作价4.89港元，总金额约为860.69万港元。增持后最新持股数目约为3.84亿股，最新持股比例为9.01%。责任编辑：卢昱君
+周四美股成交额第1名迈威尔科技，收涨7.27%，成交786.31亿美元。第2名美光科技，涨8.70%，成交716.42亿美元。第4名英伟达，涨2.95%，成交499.47亿美元。第7名英特尔涨10.64%，成交306.15亿美元。第8名闪迪，收涨11.54%，成交259.09亿美元。第9名苹果，涨0.70%，成交254.44亿美元。第10名AMD，涨4.86%，成交232.97
 
 ## 正文
 
-香港联交所最新资料显示，6月10日，Brandes Investment Partners， L.P．增持第一太平（00142）176.011万股，每股作价4.89港元，总金额约为860.69万港元。
+周四美股成交额第1名迈威尔科技，收涨7.27%，成交786.31亿美元。
 
-增持后最新持股数目约为3.84亿股，最新持股比例为9.01%。
+第2名美光科技，涨8.70%，成交716.42亿美元。
 
-责任编辑：卢昱君
+第4名英伟达，涨2.95%，成交499.47亿美元。
+
+第7名英特尔涨10.64%，成交306.15亿美元。
+
+第8名闪迪，收涨11.54%，成交259.09亿美元。
+
+第9名苹果，涨0.70%，成交254.44亿美元。
+
+第10名AMD，涨4.86%，成交232.97亿美元。
+
+此前美国总统唐纳德·特朗普表示，英特尔将与苹果公司合作，在美国本土设计和生产芯片。
 
 ## 相关推荐
 
-- 2026-06-29 21:44 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 21:40 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 21:49 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 21:59 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 21:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 21:51 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 21:59 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 21:34 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 21:55 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 21:43 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 21:58 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 21:30 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 21:43 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 21:41 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 21:47 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 21:59 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 21:51 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 22:00 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 21:43 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 21:45 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 22:02 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 22:05 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 21:49 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 22:04 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 21:56 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:40 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/08981496734.shtml)
-- 2026-06-29 21:50 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/12530152439.shtml)
-- 2026-06-29 21:50 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/017925.shtml)
-- 2026-06-29 21:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/49295.shtml)
-- 2026-06-29 21:57 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/358458207.shtml)
-- 2026-06-29 21:59 - [千与千寻](http://www.share.kurohicncr.top/Article/details/732077.shtml)
-- 2026-06-29 21:37 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/0514623.shtml)
-- 2026-06-29 21:31 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/519751492350.shtml)
-- 2026-06-29 21:40 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/604218042889.shtml)
-- 2026-06-29 21:53 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/97477452827.shtml)
-- 2026-06-29 21:48 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/28894247.shtml)
-- 2026-06-29 21:56 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/81990956.shtml)
-- 2026-06-29 21:54 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/65522862221.shtml)
-- 2026-06-29 21:44 - [记者：预计热火将追求小哈达威和康利](https://www.blog.minike.top/Article/details/079207198969.shtml)
-- 2026-06-29 21:39 - [蔚来车主罚站](https://www.share.minike.top/Article/details/04516698.shtml)
+- 2026-06-29 21:37 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/770464294585.shtml)
+- 2026-06-29 21:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/4736125880.shtml)
+- 2026-06-29 22:01 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/4543320396.shtml)
+- 2026-06-29 21:44 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.minike.top/Article/details/8439148328.shtml)
+- 2026-06-29 21:53 - [佛得角队长门德斯被控强奸](http://www.blog.kurohicncr.top/Article/details/3414772527.shtml)
+- 2026-06-29 21:55 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/77256542.shtml)
+- 2026-06-29 21:57 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/194738.shtml)
+- 2026-06-29 22:02 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/974348906808.shtml)
+- 2026-06-29 21:46 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/711885.shtml)
+- 2026-06-29 22:03 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/600078.shtml)
+- 2026-06-29 21:57 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/834498281052.shtml)
+- 2026-06-29 22:05 - [厨房装空调还是装冷烟机](https://www.share.minike.top/Article/details/9838213.shtml)
+- 2026-06-29 21:51 - [东方风云榜](http://www.share.minike.top/Article/details/6370299.shtml)
+- 2026-06-29 21:44 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/0691115131.shtml)
+- 2026-06-29 21:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/095445921.shtml)

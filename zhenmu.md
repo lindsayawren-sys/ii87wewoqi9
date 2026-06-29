@@ -1,53 +1,58 @@
-# 直击武警多课目比武竞赛现场
+# 美联储货币政策风向更趋鹰派，金银价格大跌
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 11:28 来源：中国新闻网 号角催征，战鼓擂响。近日，武警河北总队某部组织多课目比武竞赛。比武赛场上，官兵精神抖擞、士气高昂，尽显过硬战斗作风。(作者：赵亮 左晓军 闫皇辉 刘元瑞） 责任编辑：【魏聪聪】
+由于美国联邦储备委员会在17日结束的议息会议上释放的货币政策信号更趋鹰派，国际黄金和白银价格18日大跌。 纽约商品交易所8月交货的黄金期货价格18日逼近每盎司4200美元，跌幅一度超过3.5%；7月交货的白银期货价格跌破每盎司66美元，跌幅一度超过6.5%。 美联储17日维持联邦基金利率目标区间在3.5%至3.75%之间不变。会后发布的经济预测摘要显示，预计今年加息的美联储官员
 
 ## 正文
 
-发布时间：2026年06月16日 11:28 来源：中国新闻网 号角催征，战鼓擂响。
+由于美国联邦储备委员会在17日结束的议息会议上释放的货币政策信号更趋鹰派，国际黄金和白银价格18日大跌。
 
-近日，武警河北总队某部组织多课目比武竞赛。
+纽约商品交易所8月交货的黄金期货价格18日逼近每盎司4200美元，跌幅一度超过3.5%；7月交货的白银期货价格跌破每盎司66美元，跌幅一度超过6.5%。
 
-比武赛场上，官兵精神抖擞、士气高昂，尽显过硬战斗作风。
+美联储17日维持联邦基金利率目标区间在3.5%至3.75%之间不变。
 
-(作者：赵亮 左晓军 闫皇辉 刘元瑞） 责任编辑：【魏聪聪】
+会后发布的经济预测摘要显示，预计今年加息的美联储官员人数大幅增加。
+
+市场人士解读，美联储货币政策风向更趋鹰派，已基本排除今年降息的可能。
+
+美联储利率决议公布后，美国国债收益率上升，美元走强。
+
+（新华社）责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 21:56 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 21:32 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 21:47 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 21:48 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 21:46 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 21:48 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 21:34 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 21:33 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 21:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 21:57 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 21:32 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 21:42 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 21:53 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 21:48 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 21:31 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 21:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 22:05 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 22:05 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 22:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 21:46 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 21:50 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 21:50 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 21:52 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 21:51 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 22:04 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 21:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 21:41 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 21:53 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 22:04 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:39 - [国际清算银行警告AI投资热潮](https://www.share.kurohicncr.top/Article/details/8114295.shtml)
-- 2026-06-29 21:52 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/817434386.shtml)
-- 2026-06-29 21:36 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/3101754.shtml)
-- 2026-06-29 21:56 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/91417.shtml)
-- 2026-06-29 21:30 - [2026全国田径冠军赛江苏队4金收官](https://www.blog.minike.top/Article/details/6586407.shtml)
-- 2026-06-29 21:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/43531052.shtml)
-- 2026-06-29 21:35 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.kurohicncr.top/Article/details/047028.shtml)
-- 2026-06-29 21:54 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/97545.shtml)
-- 2026-06-29 21:48 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/69985398.shtml)
-- 2026-06-29 21:49 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/504992565.shtml)
-- 2026-06-29 21:54 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/185046532.shtml)
-- 2026-06-29 21:46 - [金牌调解](http://www.blog.minike.top/Article/details/39889.shtml)
-- 2026-06-29 21:53 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/67899123394.shtml)
-- 2026-06-29 21:32 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/5267490336.shtml)
-- 2026-06-29 21:43 - [返利科技盘中上演“天地板”](https://www.share.minike.top/Article/details/6443423.shtml)
+- 2026-06-29 21:40 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/622223847554.shtml)
+- 2026-06-29 21:41 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/296611.shtml)
+- 2026-06-29 22:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/616725276602.shtml)
+- 2026-06-29 21:36 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/8553783.shtml)
+- 2026-06-29 21:39 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/015705089637.shtml)
+- 2026-06-29 22:03 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/42577.shtml)
+- 2026-06-29 21:57 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/23825.shtml)
+- 2026-06-29 21:37 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/09997677.shtml)
+- 2026-06-29 21:49 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/62772.shtml)
+- 2026-06-29 21:48 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/34871.shtml)
+- 2026-06-29 21:40 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/03081743128.shtml)
+- 2026-06-29 21:53 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/478247280.shtml)
+- 2026-06-29 21:37 - [周杰伦千禧年就有小卡了](http://www.share.minike.top/Article/details/2802863527.shtml)
+- 2026-06-29 21:40 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/99541870.shtml)
+- 2026-06-29 21:57 - [东方风云榜直播](http://www.blog.minike.top/Article/details/095130.shtml)

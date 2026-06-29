@@ -1,56 +1,59 @@
-# 中欧班列“东通道”累计通行量突破4万列
+# 2026端午游园会在悉尼举行
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-记者从中国铁路哈尔滨局获悉，截至2026年6月16日，经中欧班列“东通道”满洲里、绥芬河、同江铁路口岸累计通行的中欧班列已突破4万列大关，发送货物超390万标箱。 中欧班列“东通道”由满洲里、绥芬河、同江北三大铁路口岸组成，年通行量已攀升至5000列以上。货物品类从最初的板材、小商品为主，拓展至覆盖新能源汽车、光伏组件等千余种产品，高附加值货物占比持续提升。依托“数字口岸”系统
+中新网悉尼6月20日电 (记者 薄雯雯)2026端午游园会19日在澳大利亚悉尼举行，吸引当地多所高校300余名学生参与。 本次活动由悉尼科技大学中国学生学者联谊会和悉尼大学中国学生学者联谊会联合举办。活动现场，中外青年齐聚一堂，共同体验包粽子、香包及漆扇制作、诗词飞花令等项目，在互动交流中共度端午佳节，感受中华优秀传统文化的魅力。 中国驻悉尼总领馆负责教育事务的参赞衔领事林晓青
 
 ## 正文
 
-记者从中国铁路哈尔滨局获悉，截至2026年6月16日，经中欧班列“东通道”满洲里、绥芬河、同江铁路口岸累计通行的中欧班列已突破4万列大关，发送货物超390万标箱。
+中新网悉尼6月20日电 (记者 薄雯雯)2026端午游园会19日在澳大利亚悉尼举行，吸引当地多所高校300余名学生参与。
 
-中欧班列“东通道”由满洲里、绥芬河、同江北三大铁路口岸组成，年通行量已攀升至5000列以上。
+本次活动由悉尼科技大学中国学生学者联谊会和悉尼大学中国学生学者联谊会联合举办。
 
-货物品类从最初的板材、小商品为主，拓展至覆盖新能源汽车、光伏组件等千余种产品，高附加值货物占比持续提升。
+活动现场，中外青年齐聚一堂，共同体验包粽子、香包及漆扇制作、诗词飞花令等项目，在互动交流中共度端午佳节，感受中华优秀传统文化的魅力。
 
-依托“数字口岸”系统与“铁路快通”模式，通关时间最快压缩至30分钟以内。
+中国驻悉尼总领馆负责教育事务的参赞衔领事林晓青在致辞中表示，端午节是中华民族传统节日之一。
 
-目前，“东通道”已联通国内60余个城市、稳定线路27条，通达波兰、德国等14个欧洲国家。
+两千多年来，人们通过赛龙舟、包粽子、挂艾草、佩香囊等丰富多彩的民俗活动，传承中华文化，寄托家国情怀。
 
-近年来，口岸通道能力持续扩充，推动了中欧班列朝着更高质量、更好效益、更加安全的方向发展，为高水平对外开放提供了有力的运输服务保障。
+希望同学们通过此次活动共庆佳节、共叙友谊、共话未来。
 
-目前，中欧班列“东通道”进口量约为出口量的1.55倍，累计通行量占全国总量的三分之一以上。
+“端午节是海外游子寄托乡愁、凝聚同胞情谊的重要传统节日。
 
-(总台记者 于文波)
+”悉尼科技大学中国学联主席买超向记者表示，本届游园会以“游园寻古韵，佳节寄乡情”为主题，精心设置了一系列趣味十足的民俗互动环节，希望以青春力量搭建中外文化交流桥梁，让更多海外友人增进对中华文化的了解和认识。
 
 ## 相关推荐
 
-- 2026-06-29 21:57 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 21:57 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 21:33 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 21:34 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 21:59 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 21:38 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 21:55 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 21:47 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 21:51 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 21:35 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 21:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 22:02 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 21:47 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 21:47 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 21:52 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 21:46 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 22:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 21:43 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 21:57 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 21:58 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 22:03 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 21:46 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 21:56 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:47 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/745647.shtml)
-- 2026-06-29 21:35 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/973319.shtml)
-- 2026-06-29 21:51 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/5309960013.shtml)
-- 2026-06-29 21:42 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.minike.top/Article/details/99700.shtml)
-- 2026-06-29 21:31 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/202834491811.shtml)
-- 2026-06-29 21:31 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/990579415.shtml)
-- 2026-06-29 21:51 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/93943405565.shtml)
-- 2026-06-29 21:44 - [东方风云榜](http://www.share.minike.top/Article/details/33643840.shtml)
-- 2026-06-29 21:30 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/27466.shtml)
-- 2026-06-29 21:36 - [锐评白玉兰提名片段](https://www.blog.minike.top/Article/details/982519919752.shtml)
-- 2026-06-29 21:42 - [郑钦文谈再战西尼亚科娃](https://www.blog.minike.top/Article/details/75132939267.shtml)
-- 2026-06-29 21:45 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/410815266437.shtml)
-- 2026-06-29 21:54 - [天道](https://www.share.minike.top/Article/details/698842062.shtml)
-- 2026-06-29 21:38 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/489366.shtml)
-- 2026-06-29 21:32 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/69988725.shtml)
+- 2026-06-29 22:00 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/50980.shtml)
+- 2026-06-29 21:59 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/4950964.shtml)
+- 2026-06-29 21:59 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/42530014381.shtml)
+- 2026-06-29 21:42 - [毒液2](http://www.share.kurohicncr.top/Article/details/893506075927.shtml)
+- 2026-06-29 21:53 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/7199119.shtml)
+- 2026-06-29 21:42 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/866766.shtml)
+- 2026-06-29 21:36 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/953134260616.shtml)
+- 2026-06-29 22:05 - [一诺变着花样秀新驾照](https://www.blog.kurohicncr.top/Article/details/24538555.shtml)
+- 2026-06-29 22:03 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.minike.top/Article/details/24044585693.shtml)
+- 2026-06-29 21:36 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/562249291.shtml)
+- 2026-06-29 21:54 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/55961887.shtml)
+- 2026-06-29 21:39 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/69827.shtml)
+- 2026-06-29 21:41 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/348538485.shtml)
+- 2026-06-29 21:46 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/13245971.shtml)
+- 2026-06-29 21:47 - [记者：预计热火将追求小哈达威和康利](http://www.share.kurohicncr.top/Article/details/570692097.shtml)

@@ -1,52 +1,56 @@
-# 1200亿锂电龙头，净利预计翻倍
+# 端午小长假运输启动：哈铁临客同比增幅25% 加开5趟踏青列车
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-6月15日，A股锂电龙头亿纬锂能（维权）（300014）发布2026年半年度业绩预告，预计上半年归属于上市公司股东的净利润31.3亿元—33.71亿元，同比增长95%—110%。 报告期内，公司营业收入同比增长约60%；公司通过供应链多元化布局、战略性采购规划及审慎运用金融工具，有力地缓冲了材料成本上涨波动，确保了主营业务盈利能力的稳定性。 亿纬锂能Q1净利14.46亿元，据此
+中新网哈尔滨6月18日电 (孙涛)中国铁路哈尔滨局集团有限公司(以下简称“哈尔滨局集团公司”)18日发布消息，2026年铁路“端午”小长假运输自即日起至6月22日结束，共计5天，客流呈现头尾高峰、中间平稳的态势。哈尔滨局集团公司预计发送旅客157.6万人次，日均31.5万人次，同比增加0.8%。 今年的端午假期与周末相连，客流以探亲流、旅游流为主，热门直通方向主要集中在沈阳、长
 
 ## 正文
 
-6月15日，A股锂电龙头亿纬锂能（维权）（300014）发布2026年半年度业绩预告，预计上半年归属于上市公司股东的净利润31.3亿元—33.71亿元，同比增长95%—110%。
+中新网哈尔滨6月18日电 (孙涛)中国铁路哈尔滨局集团有限公司(以下简称“哈尔滨局集团公司”)18日发布消息，2026年铁路“端午”小长假运输自即日起至6月22日结束，共计5天，客流呈现头尾高峰、中间平稳的态势。
 
-报告期内，公司营业收入同比增长约60%；公司通过供应链多元化布局、战略性采购规划及审慎运用金融工具，有力地缓冲了材料成本上涨波动，确保了主营业务盈利能力的稳定性。
+哈尔滨局集团公司预计发送旅客157.6万人次，日均31.5万人次，同比增加0.8%。
 
-亿纬锂能Q1净利14.46亿元，据此计算，Q2净利预计16.84亿元-19.25亿元，环比增长16.46%-33.13%。
+今年的端午假期与周末相连，客流以探亲流、旅游流为主，热门直通方向主要集中在沈阳、长春、延吉等，省内以哈尔滨、齐齐哈尔、牡丹江、佳木斯等方向为主。
 
-截至6月15日收盘，亿纬锂能报58.77元/股，日内上涨1.91%，最新市值1277亿元，年内累计下跌超10%。
+哈尔滨局集团公司密切追踪客流变化，精准施策，通过加开旅客列车和夜间高铁、动车组重联、普速列车加挂车厢等方式，加大运力投放，同时在省内主要城市间加开5列早间踏青列车，满足节日期间旅客踏青需求。
 
-责任编辑：刘万里 SF014
+假日期间计划增开临客77.5对，同比增幅达25%，其中省外方向12对、省内方向65.5对。
+
+同时，安排动车组重联37.5对，其中省外动车组16对(北京、大连、长白山、石家庄、延吉、济南、珲春等方向)，省内动车组21.5对(齐齐哈尔、佳木斯、牡丹江方向)。
+
+哈尔滨局集团公司全面做好售票、候车、乘车等各环节服务，保障重点旅客出行。
+
+为旅客营造浓厚节日氛围，哈尔滨局管内站车单位精心推出形式多样的端午民俗文化服务，同步开展“我的铁路风景：美好旅途·‘粽’享端午”主题活动。
 
 ## 相关推荐
 
-- 2026-06-29 21:40 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 21:33 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 21:38 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 21:58 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 21:58 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 21:58 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 21:44 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 21:32 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 21:52 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 21:33 - [任泽平：AI浪潮刚刚开始](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 21:45 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 21:34 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 21:51 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 21:43 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 21:47 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 22:04 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 21:49 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 21:36 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 21:49 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 21:42 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 21:56 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 21:51 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:44 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/15364405255.shtml)
-- 2026-06-29 21:33 - [LPL第三赛段赛制公布](https://www.share.minike.top/Article/details/5470451156.shtml)
-- 2026-06-29 21:34 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/26868091484.shtml)
-- 2026-06-29 21:56 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/190920024575.shtml)
-- 2026-06-29 21:38 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/468410895765.shtml)
-- 2026-06-29 21:31 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/597411.shtml)
-- 2026-06-29 21:58 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/62017.shtml)
-- 2026-06-29 21:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/68847073769.shtml)
-- 2026-06-29 21:58 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/7091358133.shtml)
-- 2026-06-29 21:32 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/24083936.shtml)
-- 2026-06-29 21:57 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/13037.shtml)
-- 2026-06-29 21:56 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/423026.shtml)
-- 2026-06-29 21:52 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/708084399.shtml)
-- 2026-06-29 21:53 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/476846622770.shtml)
-- 2026-06-29 21:36 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/82050274943.shtml)
+- 2026-06-29 21:50 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/356695500.shtml)
+- 2026-06-29 21:55 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/778976172.shtml)
+- 2026-06-29 21:50 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/1917149.shtml)
+- 2026-06-29 21:46 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/898437436898.shtml)
+- 2026-06-29 21:45 - [被裁员后30岁儿子被抓去戒网瘾](http://www.share.kurohicncr.top/Article/details/837670.shtml)
+- 2026-06-29 21:51 - [返利科技盘中上演“天地板”](https://www.blog.minike.top/Article/details/148233789516.shtml)
+- 2026-06-29 22:05 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/6479219414.shtml)
+- 2026-06-29 21:45 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/601381080.shtml)
+- 2026-06-29 21:57 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/266585098.shtml)
+- 2026-06-29 21:37 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/804666.shtml)
+- 2026-06-29 21:49 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/250403.shtml)
+- 2026-06-29 21:38 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/602496631483.shtml)
+- 2026-06-29 21:54 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/12355644210.shtml)
+- 2026-06-29 21:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/721159238823.shtml)
+- 2026-06-29 21:41 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/875088314046.shtml)

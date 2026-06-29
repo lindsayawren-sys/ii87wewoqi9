@@ -1,60 +1,58 @@
-# 国家统计局：5月份一二三线城市商品住宅销售价格同比降幅总体收窄
+# “中国西南地区青铜文明特展”亮相山东烟台
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-中新网6月16日电 据国家统计局网站消息，国家统计局城市司高级统计师杨彩芳解读2026年5月份商品住宅销售价格变动情况统计数据指出，2026年5月份，70个大中城市中，一线城市商品住宅销售价格环比上涨，二三线城市环比下降，一二三线城市同比降幅总体收窄。新建商品住宅销售价格环比上涨城市个数比上月增加。一、一线城市商品住宅销售价格环比上涨，二三线城市环比下降 5月份，一线城市新建商
+中新网烟台6月18日电 (记者 王娇妮)“吉金万里——中国西南地区青铜文明特展”18日在山东烟台市博物馆启幕，这是当地临展史上参与文博单位数量最多的一次展览。 此次展览从中国西南地区宏观视角出发，以先秦至秦汉时期的青铜器为代表，展出四川、云南、贵州、广西4省9家文博单位馆藏的150件(套)展品，其中共展出18件(套)三星堆文物展品，45件(套)金沙文物展品。 该展览分为“序厅”
 
 ## 正文
 
-中新网6月16日电 据国家统计局网站消息，国家统计局城市司高级统计师杨彩芳解读2026年5月份商品住宅销售价格变动情况统计数据指出，2026年5月份，70个大中城市中，一线城市商品住宅销售价格环比上涨，二三线城市环比下降，一二三线城市同比降幅总体收窄。
+中新网烟台6月18日电 (记者 王娇妮)“吉金万里——中国西南地区青铜文明特展”18日在山东烟台市博物馆启幕，这是当地临展史上参与文博单位数量最多的一次展览。
 
-新建商品住宅销售价格环比上涨城市个数比上月增加。
+此次展览从中国西南地区宏观视角出发，以先秦至秦汉时期的青铜器为代表，展出四川、云南、贵州、广西4省9家文博单位馆藏的150件(套)展品，其中共展出18件(套)三星堆文物展品，45件(套)金沙文物展品。
 
-一、一线城市商品住宅销售价格环比上涨，二三线城市环比下降 5月份，一线城市新建商品住宅销售价格环比上涨0.2%，涨幅比上月扩大0.1个百分点。
+该展览分为“序厅”“川渝地区”“云南地区”“黔桂地区”和“多元融汇”五个部分。
 
-其中，上海、广州和深圳分别上涨0.2%、0.2%和0.4%，北京下降0.2%。
+在“川渝地区”单元，三星堆铜人头像、铜眼形器与金沙铜人形器、金人面像同台展出；“云南地区”展出的驯马场面铜贮贝器是滇文化最具代表性的器物之一，带有鲜明的地方特色。
 
-二线城市新建商品住宅销售价格环比下降0.1%，降幅与上月相同。
+开展首日，展厅内观众络绎不绝，人们在一件件展品前驻足凝望。
 
-三线城市新建商品住宅销售价格环比下降0.4%，降幅比上月扩大0.1个百分点。
+“这些青铜器造型天马行空，感觉古人脑洞太大了。
 
-70个大中城市中，新建商品住宅销售价格环比上涨城市有16个，比上月增加2个。
+”专程赶来观展的“00后”李小帆说。
 
-5月份，一线城市二手住宅销售价格环比上涨0.4%，涨幅与上月相同。
+烟台市博物馆展陈部主任刁鹏表示，观众对历史文化兴趣的持续高涨，正为“博物馆热”提供源源不断的动力。
 
 ## 相关推荐
 
-- 2026-06-29 21:53 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 21:40 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 21:40 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 21:44 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 21:55 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 21:45 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 21:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 21:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 21:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 21:43 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 21:49 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 21:34 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 21:42 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 21:57 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 21:48 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 21:44 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 21:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 21:55 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 21:36 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 21:42 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 21:44 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 22:05 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 22:04 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 22:01 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 21:42 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 22:02 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:45 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/126499879.shtml)
-- 2026-06-29 21:43 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/743180521921.shtml)
-- 2026-06-29 21:44 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/94124645.shtml)
-- 2026-06-29 21:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/531591794343.shtml)
-- 2026-06-29 21:44 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/9363884.shtml)
-- 2026-06-29 21:38 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/10275377.shtml)
-- 2026-06-29 21:47 - [明星大侦探第一季](https://www.share.minike.top/Article/details/5791989468.shtml)
-- 2026-06-29 21:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/84220749.shtml)
-- 2026-06-29 21:41 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/26491990678.shtml)
-- 2026-06-29 21:59 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/924888662.shtml)
-- 2026-06-29 21:58 - [C罗10球7球对垫底队](http://www.share.kurohicncr.top/Article/details/56478233317.shtml)
-- 2026-06-29 21:58 - [教育部高校学生资助热线7月1日开通](https://www.blog.kurohicncr.top/Article/details/9994824230.shtml)
-- 2026-06-29 21:46 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/8681448217.shtml)
-- 2026-06-29 21:53 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/3905492.shtml)
-- 2026-06-29 21:32 - [千与千寻](https://www.share.minike.top/Article/details/946448.shtml)
+- 2026-06-29 21:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/740682387.shtml)
+- 2026-06-29 21:48 - [美人鱼](http://www.share.minike.top/Article/details/44805527074.shtml)
+- 2026-06-29 22:01 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/43278.shtml)
+- 2026-06-29 21:41 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/5913768995.shtml)
+- 2026-06-29 21:56 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/4680170048.shtml)
+- 2026-06-29 22:02 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/39724242065.shtml)
+- 2026-06-29 21:42 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/90633.shtml)
+- 2026-06-29 21:45 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/158701.shtml)
+- 2026-06-29 21:56 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/9835101.shtml)
+- 2026-06-29 21:57 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/837086.shtml)
+- 2026-06-29 21:53 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/529871348.shtml)
+- 2026-06-29 21:54 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/046515659.shtml)
+- 2026-06-29 21:50 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/8481309.shtml)
+- 2026-06-29 21:46 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/0237218.shtml)
+- 2026-06-29 21:37 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/5717590060.shtml)

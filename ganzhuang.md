@@ -1,56 +1,56 @@
-# 榴莲产品席卷南博会
+# 尼泊尔古城巴德岗举行国际瑜伽日活动
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-中新社昆明6月14日电 (记者 缪超)正在昆明举办的第10届中国—南亚博览会(南博会)上，气味浓烈的榴莲鲜果首次进入人流密集的场馆，榴莲饼、榴莲糖、榴莲蛋糕、榴莲冰淇淋，甚至榴莲形玩具和手提包，把东南亚馆打造成“榴莲宇宙”。 据中国海关总署数据，2025年中国鲜榴莲进口量达186.8万吨，进口额达74.9亿美元，稳坐中国第一大水果进口品类宝座，并保持快速增长态势。 泰国、越南、
+端午食粽习俗为何成为具有广泛影响力的文化现象？“桑巴军团”卷土重来，内马尔去哪了？比尔根山会谈临时取消，美伊僵局是否难破？一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！专访
 
 ## 正文
 
-中新社昆明6月14日电 (记者 缪超)正在昆明举办的第10届中国—南亚博览会(南博会)上，气味浓烈的榴莲鲜果首次进入人流密集的场馆，榴莲饼、榴莲糖、榴莲蛋糕、榴莲冰淇淋，甚至榴莲形玩具和手提包，把东南亚馆打造成“榴莲宇宙”。
+端午食粽习俗为何成为具有广泛影响力的文化现象？
 
-据中国海关总署数据，2025年中国鲜榴莲进口量达186.8万吨，进口额达74.9亿美元，稳坐中国第一大水果进口品类宝座，并保持快速增长态势。
+“桑巴军团”卷土重来，内马尔去哪了？
 
-泰国、越南、马来西亚等东南亚国家的榴莲正角逐中国大市场。
+比尔根山会谈临时取消，美伊僵局是否难破？
 
-曾经每公斤动辄上百元(人民币，下同)的榴莲鲜果，今年在中国部分地区已低至每公斤30余元。
+一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？
 
-从事热带水果进出口贸易的云南营家智慧产业投资有限责任公司总经理黄卓超表示，东南亚热带水果输华的产业竞争已逐步从单纯的商品竞争向供应链竞争转变，对产地资源整合能力、跨境物流能力、仓储分拨能力、市场渠道能力以及产业协同能力提出更高要求。
+浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？
 
-“特别是在榴莲等热带水果领域，越来越多的货物流、资金流、信息流正向云南聚集。
+外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！
 
-”云南鸿运国际贸易港负责人李荣平说，云南正从传统意义上的消费市场，逐步向东南亚特色农产品进入中国市场的重要集散中心、供应链组织中心和资源配置中心转变。
+专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
 
-今年1月至6月初，中老铁路累计运输进口水果超13万吨、同比增长超40%，其中榴莲达12万吨、同比增长56%。
+中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
 
 ## 相关推荐
 
-- 2026-06-29 21:38 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-29 21:44 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 21:38 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 21:40 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 21:35 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 21:46 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 21:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 21:49 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 21:47 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 21:40 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 21:43 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 22:00 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 21:56 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 21:44 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 21:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 22:01 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 21:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 21:54 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 21:56 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 22:00 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:58 - [LPL第三赛段赛制公布](https://www.share.minike.top/Article/details/64757.shtml)
-- 2026-06-29 21:34 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/56583862848.shtml)
-- 2026-06-29 21:58 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/62786.shtml)
-- 2026-06-29 21:54 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/004629983.shtml)
-- 2026-06-29 21:58 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/03005959.shtml)
-- 2026-06-29 21:48 - [速度与激情9](https://www.blog.minike.top/Article/details/4316117.shtml)
-- 2026-06-29 21:57 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/43467923.shtml)
-- 2026-06-29 21:33 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/500034.shtml)
-- 2026-06-29 21:39 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/43159.shtml)
-- 2026-06-29 21:45 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/833339.shtml)
-- 2026-06-29 21:36 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/85981386987.shtml)
-- 2026-06-29 21:44 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/794614.shtml)
-- 2026-06-29 21:47 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/484701374154.shtml)
-- 2026-06-29 21:30 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/660024663115.shtml)
-- 2026-06-29 21:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/295562148.shtml)
+- 2026-06-29 21:37 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/293457.shtml)
+- 2026-06-29 21:43 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/63738.shtml)
+- 2026-06-29 21:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/45420545901.shtml)
+- 2026-06-29 21:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/922759.shtml)
+- 2026-06-29 21:45 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/0475844763.shtml)
+- 2026-06-29 21:37 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/28139.shtml)
+- 2026-06-29 22:04 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/36256046637.shtml)
+- 2026-06-29 21:36 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/206693422649.shtml)
+- 2026-06-29 21:49 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/155361565622.shtml)
+- 2026-06-29 21:36 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/608878571.shtml)
+- 2026-06-29 21:43 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/60295510313.shtml)
+- 2026-06-29 21:45 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/910523294.shtml)
+- 2026-06-29 21:39 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/93102.shtml)
+- 2026-06-29 21:51 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/32962878660.shtml)
+- 2026-06-29 22:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/1528808035.shtml)

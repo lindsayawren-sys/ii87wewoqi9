@@ -1,56 +1,60 @@
-# SpaceX IPO将为硅谷新阶层创造数十亿美元财富
+# 专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-专题：SpaceX上市首秀：创纪录IPO首日涨19% 市值美股第七 SpaceX进行的首次公开募股（IPO），有望为那些早期投资埃隆·马斯克旗下这家火箭、卫星和人工智能公司的极少数幸运投资者带来数十亿美元的利润。 但除了这场具有历史意义的财富事件之外，这笔巨额交易也在重塑市场对庞大资本网络的预期——这个由初创企业、风险投资基金和高净值投机者构成的网络主导着未上市科技股的私募市场
+中新网北京6月19日电(记者 王诗尧)“不好意思，我找了几间教室才找到合适的地方，我们开始吧。” 2026年的夏天，对于大四毕业生李思潼来说，注定是一个难忘的季节。两年前，她在机缘巧合下拍摄了一部潮汕电影，就此命运的齿轮缓缓转动。 就像现在，原本应该按部就班准备论文、找工作的毕业季，早已被电影宣传占据了大量时间。而难得在宣传期抽空回校处理事情的李思潼，在午休时间接受了本次采访。
 
 ## 正文
 
-专题：SpaceX上市首秀：创纪录IPO首日涨19% 市值美股第七 SpaceX进行的首次公开募股（IPO），有望为那些早期投资埃隆·马斯克旗下这家火箭、卫星和人工智能公司的极少数幸运投资者带来数十亿美元的利润。
+中新网北京6月19日电(记者 王诗尧)“不好意思，我找了几间教室才找到合适的地方，我们开始吧。
 
-但除了这场具有历史意义的财富事件之外，这笔巨额交易也在重塑市场对庞大资本网络的预期——这个由初创企业、风险投资基金和高净值投机者构成的网络主导着未上市科技股的私募市场——以及市场对此后每次重大首次公开募股的期望。
+” 2026年的夏天，对于大四毕业生李思潼来说，注定是一个难忘的季节。
 
-尤其是华尔街将试图评估人工智能开发商OpenAI和Anthropic即将进行的重磅IPO将获得怎样的市场反响。
+两年前，她在机缘巧合下拍摄了一部潮汕电影，就此命运的齿轮缓缓转动。
 
-这三家公司构成的IPO队列，最终可能为公开市场带来高达3.6万亿美元的市值。
+就像现在，原本应该按部就班准备论文、找工作的毕业季，早已被电影宣传占据了大量时间。
 
-目前华尔街正在热烈讨论：市场是否拥有足够的资金需求来消化如此大规模的新股发行，同时又不会从多年来引领市场走高的科技巨头分流资金。
+而难得在宣传期抽空回校处理事情的李思潼，在午休时间接受了本次采访。
 
-SpaceX以约1.8万亿美元的估值筹集750亿美元资金，成为了华尔街有史以来规模最大的IPO，使其跻身全球十大上市公司之列，市值甚至超过马斯克旗下的电动汽车制造商特斯拉公司。
+这部改变了她人生轨迹的电影叫做《给阿嬷的情书》，目前已收获了超17亿元的票房奇迹，她在片中饰演女主角——谢南枝。
 
-据悉，此次发行已出现超额认购，多家机构投资者认购100亿美元或以上的该公司股票。
+这不是娱乐圈里一夜成名的俗套故事，而是一个普通女生，一个素人剧组，用真诚谱写的逆袭脚本。
 
-据知情人士透露，此次发行还吸引了超过1000亿美元的散户投资者认购订单。
+属于李思潼与谢南枝的人生交汇与彼此成就，就由她来亲自讲述。
 
 ## 相关推荐
 
-- 2026-06-29 21:52 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 21:37 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 21:52 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 21:40 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 21:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 21:30 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 21:46 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 21:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 21:36 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 21:46 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 21:48 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 21:38 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 21:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 21:39 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 21:40 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 21:52 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 21:55 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 21:43 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 21:48 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 21:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 22:03 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 22:04 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 22:04 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 22:05 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [郑钦文谈再战西尼亚科娃](https://www.share.kurohicncr.top/Article/details/33384.shtml)
-- 2026-06-29 21:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/31163367.shtml)
-- 2026-06-29 21:35 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/82129312737.shtml)
-- 2026-06-29 21:39 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.kurohicncr.top/Article/details/28096494.shtml)
-- 2026-06-29 21:39 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/767405.shtml)
-- 2026-06-29 21:30 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/0134168.shtml)
-- 2026-06-29 21:33 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/715317.shtml)
-- 2026-06-29 21:36 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/795704.shtml)
-- 2026-06-29 21:50 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/8573784213.shtml)
-- 2026-06-29 21:55 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/5043539367.shtml)
-- 2026-06-29 21:59 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/866580.shtml)
-- 2026-06-29 21:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/565119639.shtml)
-- 2026-06-29 21:37 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/183855965.shtml)
-- 2026-06-29 21:58 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/481521616925.shtml)
-- 2026-06-29 21:42 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/09975088109.shtml)
+- 2026-06-29 22:05 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/350067.shtml)
+- 2026-06-29 21:44 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/664990646.shtml)
+- 2026-06-29 21:44 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/9093175.shtml)
+- 2026-06-29 22:01 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/8640510058.shtml)
+- 2026-06-29 21:39 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/649528.shtml)
+- 2026-06-29 22:00 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/526503353.shtml)
+- 2026-06-29 21:58 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/961915.shtml)
+- 2026-06-29 21:38 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/764876.shtml)
+- 2026-06-29 21:44 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/554317587.shtml)
+- 2026-06-29 21:56 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/95491879946.shtml)
+- 2026-06-29 21:51 - [佛得角队长门德斯被控强奸](https://www.blog.minike.top/Article/details/76921.shtml)
+- 2026-06-29 21:54 - [斗破苍穹](http://www.share.minike.top/Article/details/08480188866.shtml)
+- 2026-06-29 21:49 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/702230048065.shtml)
+- 2026-06-29 21:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/416412020983.shtml)
+- 2026-06-29 22:03 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/67363.shtml)

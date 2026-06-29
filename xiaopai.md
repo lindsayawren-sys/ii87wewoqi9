@@ -1,47 +1,61 @@
-# 两广遇最强“龙舟水”多因素助推降雨持续
+# 三房巷2025年度财报非标 受损投资可进行预索赔登记
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 13:19 来源：央视新闻 责任编辑：【王祎】
+此前，江苏三房巷聚材股份有限公司（以下简称“三房巷”）2025 年度财务报表被出具无法表示意见的审计报告。上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2026年4月30日之前买入且有持仓，无论在2026年4月30日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。（赵敬国律师专栏） 回顾本案，2026年4月29日，三房巷
 
 ## 正文
 
-发布时间：2026年06月16日 13:19 来源：央视新闻 责任编辑：【王祎】
+此前，江苏三房巷聚材股份有限公司（以下简称“三房巷”）2025 年度财务报表被出具无法表示意见的审计报告。
+
+上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2026年4月30日之前买入且有持仓，无论在2026年4月30日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。
+
+（赵敬国律师专栏） 回顾本案，2026年4月29日，三房巷发布《出具无法表示意见涉及事项的专项说明》的公告。
+
+公告显示，北京德皓国际会计师事务所（特殊普通合伙）对三房巷公司2025年度财务报表进行审计，并出具了德皓审字\[2026\]00001910 号无法表示意见的审计报告。
+
+信本股民索赔团队提醒，三房巷2025年度财报被出具无法表示意见，受损投资者可通过“新浪股民维权平台”自愿预登记索赔。
+
+索赔条件： 三房巷：于2026年4月30日之前买入且有持仓，无论在2026年4月30日及之后是否卖出（具体赔付范围由法院确定）（三房巷维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
+
+赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
+
+2004年起开始律师执业，承办过千余起各类诉讼案件，积累了十分丰富的争议处理经验，尤其擅长处理证券纠纷、金融、不良资产等方面的业务。
 
 ## 相关推荐
 
-- 2026-06-29 21:40 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 21:35 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 21:51 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 21:36 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 21:35 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 21:42 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 21:45 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 21:30 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 21:44 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 21:52 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 21:54 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 21:40 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 21:39 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 21:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 21:50 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 21:50 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 21:37 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 22:04 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 21:50 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 21:51 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 21:50 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 21:42 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 21:59 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 21:56 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 21:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 22:00 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 21:53 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 21:56 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 21:40 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 22:00 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:46 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/87325803.shtml)
-- 2026-06-29 21:40 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.minike.top/Article/details/0531397095.shtml)
-- 2026-06-29 21:44 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/43234232138.shtml)
-- 2026-06-29 21:38 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/2711754.shtml)
-- 2026-06-29 21:42 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/8124657.shtml)
-- 2026-06-29 21:51 - [第一炉香](https://www.blog.minike.top/Article/details/88921178.shtml)
-- 2026-06-29 21:32 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/84780.shtml)
-- 2026-06-29 21:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/086630177787.shtml)
-- 2026-06-29 21:37 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/480087860.shtml)
-- 2026-06-29 21:40 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/155117.shtml)
-- 2026-06-29 21:44 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/601165328715.shtml)
-- 2026-06-29 21:37 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/7604013.shtml)
-- 2026-06-29 21:58 - [我和我的家乡](https://www.blog.minike.top/Article/details/6758862.shtml)
-- 2026-06-29 21:32 - [乔家的儿女](http://www.blog.minike.top/Article/details/82133123209.shtml)
-- 2026-06-29 21:39 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/61721.shtml)
+- 2026-06-29 21:48 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/8344437.shtml)
+- 2026-06-29 21:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/8336563.shtml)
+- 2026-06-29 21:59 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/8744617.shtml)
+- 2026-06-29 21:42 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/7791422.shtml)
+- 2026-06-29 22:02 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/47255.shtml)
+- 2026-06-29 22:00 - [周杰伦千禧年就有小卡了](http://www.share.minike.top/Article/details/83494111.shtml)
+- 2026-06-29 21:54 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/8201295.shtml)
+- 2026-06-29 21:50 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.minike.top/Article/details/49410409.shtml)
+- 2026-06-29 21:36 - [一生一世](http://www.blog.minike.top/Article/details/3767629.shtml)
+- 2026-06-29 21:55 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/96405370.shtml)
+- 2026-06-29 21:56 - [半导体和股市为何没让韩国人起飞](http://www.blog.kurohicncr.top/Article/details/59515284411.shtml)
+- 2026-06-29 21:58 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/963339022557.shtml)
+- 2026-06-29 21:44 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/1842937863.shtml)
+- 2026-06-29 21:55 - [济南航空航天全面起势](https://www.share.kurohicncr.top/Article/details/01004.shtml)
+- 2026-06-29 21:59 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/6244672.shtml)

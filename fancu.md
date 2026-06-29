@@ -1,48 +1,57 @@
-# 中国首批自研海洋工程柔性制造智能焊接机器人系统投用
+# 《给阿嬷的情书》马来西亚公映 华社掀包场观影热潮
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 13:17 来源：中国新闻网 6月14日，中国首批自主研发的海洋工程柔性制造智能焊接机器人设备系统在天津正式投用。 该系统专为海洋油气平台组块节点、TKY管节点以及深水导管架加强环及压溃环等高难度、定制化重装焊接场景研发，设计寿命20年，最大承载能力达30吨，核心软件与工艺库实现100%国产化。 据悉，海油工程天津智能制造基地已构建起涵盖柔性焊
+中新社吉隆坡6月18日电 (刘育英 贾天文)电影《给阿嬷的情书》6月18日正式登陆马来西亚院线。公映前夕及上映首日，各类宗乡会馆、华商商会等本地华团接连推出专场包场，围绕亲情、侨乡乡愁的叙事在马来西亚华社引发共同记忆，掀起观影热潮。 电影公映当日，马来西亚中国企业家联合会在吉隆坡城中城(KLCC)TGV影院举办专场观影活动，逾百名会员参与。 马来西亚中国企业家联合会总会长李中平
 
 ## 正文
 
-发布时间：2026年06月15日 13:17 来源：中国新闻网 6月14日，中国首批自主研发的海洋工程柔性制造智能焊接机器人设备系统在天津正式投用。
+中新社吉隆坡6月18日电 (刘育英 贾天文)电影《给阿嬷的情书》6月18日正式登陆马来西亚院线。
 
-该系统专为海洋油气平台组块节点、TKY管节点以及深水导管架加强环及压溃环等高难度、定制化重装焊接场景研发，设计寿命20年，最大承载能力达30吨，核心软件与工艺库实现100%国产化。
+公映前夕及上映首日，各类宗乡会馆、华商商会等本地华团接连推出专场包场，围绕亲情、侨乡乡愁的叙事在马来西亚华社引发共同记忆，掀起观影热潮。
 
-据悉，海油工程天津智能制造基地已构建起涵盖柔性焊接、打磨、喷涂等环节的自动化生产能力。
+电影公映当日，马来西亚中国企业家联合会在吉隆坡城中城(KLCC)TGV影院举办专场观影活动，逾百名会员参与。
 
-(汤润青 视频来源 海油工程） 责任编辑：【罗攀】
+马来西亚中国企业家联合会总会长李中平表示，影片通过家书、亲情与乡愁，再现早年华人漂洋过海南下谋生、白手起家的岁月。
+
+“影片中的家书承载着海外华人坚韧不拔、重情重义的精神，与今天在马来西亚奋斗发展的华商心境高度契合，引发共鸣。
+
+”李中平说。
+
+本地宗乡会馆率先掀起超前包场热潮。
+
+马来西亚潮州公会联合会(马潮联会)牵头发起全国联动观影，全马20多个属会同步开设专场，数千名潮籍乡亲参与，多数场次安排在6月17日，较全国公映提前一日。
 
 ## 相关推荐
 
-- 2026-06-29 21:49 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 21:52 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 21:40 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 21:47 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 21:46 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 21:41 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 21:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 21:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 21:56 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 21:35 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 21:40 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 21:49 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 21:50 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 22:05 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 21:49 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 21:43 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 21:46 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 21:37 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 22:04 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 21:47 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 21:44 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:52 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/7061892924.shtml)
-- 2026-06-29 21:35 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/7436011.shtml)
-- 2026-06-29 21:48 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/8044865531.shtml)
-- 2026-06-29 21:41 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.kurohicncr.top/Article/details/53058124489.shtml)
-- 2026-06-29 21:38 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/0196207727.shtml)
-- 2026-06-29 21:31 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/666138480459.shtml)
-- 2026-06-29 21:53 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/914613.shtml)
-- 2026-06-29 21:46 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/02357.shtml)
-- 2026-06-29 21:32 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/904215.shtml)
-- 2026-06-29 21:48 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/399317.shtml)
-- 2026-06-29 21:36 - [半导体和股市为何没让韩国人起飞](http://www.share.kurohicncr.top/Article/details/764408736.shtml)
-- 2026-06-29 21:30 - [第一炉香](http://www.share.kurohicncr.top/Article/details/67846756724.shtml)
-- 2026-06-29 21:36 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/03414687.shtml)
-- 2026-06-29 21:36 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/2826479681.shtml)
-- 2026-06-29 21:51 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/765913.shtml)
+- 2026-06-29 21:43 - [沙丘](https://www.share.kurohicncr.top/Article/details/3920511318.shtml)
+- 2026-06-29 21:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/0269486.shtml)
+- 2026-06-29 21:53 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/566523.shtml)
+- 2026-06-29 21:55 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/722683.shtml)
+- 2026-06-29 21:47 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/70016861628.shtml)
+- 2026-06-29 21:45 - [天道](https://www.share.minike.top/Article/details/08746014402.shtml)
+- 2026-06-29 22:05 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/8308339495.shtml)
+- 2026-06-29 21:41 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/832172.shtml)
+- 2026-06-29 21:38 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/9767006508.shtml)
+- 2026-06-29 21:48 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/8017731385.shtml)
+- 2026-06-29 21:49 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/30618920100.shtml)
+- 2026-06-29 21:44 - [女生学医适合选什么专业](https://www.share.kurohicncr.top/Article/details/55747715538.shtml)
+- 2026-06-29 21:38 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/525456167.shtml)
+- 2026-06-29 21:41 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/015991.shtml)
+- 2026-06-29 21:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/3526451.shtml)

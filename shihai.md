@@ -1,60 +1,61 @@
-# 引黄补水、治污复绿：山西左云走出黄河流域生态保护新路
+# 埃森哲下调营收预期引发市场对AI业务前景担忧，股价大跌 18%
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-中新网大同6月15日电 (胡健 马静波)山西省大同市左云县是大同市唯一被纳入黄河流域的县区，地跨黄河与海河两大流域。近年来，该县紧扣“让黄河成为造福人民的幸福河”目标，统筹推进生态保护修复，全力筑牢黄河流域生态安全屏障。在生态修复方面，左云县采取工程措施与自然恢复相结合，有效消除地质灾害隐患，恢复植被。大力推进采煤沉陷区综合治理，实施旧房拆除和土地复垦，新增耕地面积显著，昔日沉
+科技咨询企业埃森哲公布 5 月财季新增订单与营收增速双双下滑后，其股价周四暴跌 18%，跌至 2017 年以来最低水平。这份财报印证了市场观点：人工智能工具会冲击埃森哲这类依靠大批软件工程师承接客户项目的咨询公司。 埃森哲本财季新增订单（即当期签署合同总金额）为 193 亿美元，同比下降 2%；上一财季新增订单同比还上涨 6%。公司 5 月财季营收 187 亿美元，同比增长 6
 
 ## 正文
 
-中新网大同6月15日电 (胡健 马静波)山西省大同市左云县是大同市唯一被纳入黄河流域的县区，地跨黄河与海河两大流域。
+科技咨询企业埃森哲公布 5 月财季新增订单与营收增速双双下滑后，其股价周四暴跌 18%，跌至 2017 年以来最低水平。
 
-近年来，该县紧扣“让黄河成为造福人民的幸福河”目标，统筹推进生态保护修复，全力筑牢黄河流域生态安全屏障。
+这份财报印证了市场观点：人工智能工具会冲击埃森哲这类依靠大批软件工程师承接客户项目的咨询公司。
 
-在生态修复方面，左云县采取工程措施与自然恢复相结合，有效消除地质灾害隐患，恢复植被。
+埃森哲本财季新增订单（即当期签署合同总金额）为 193 亿美元，同比下降 2%；上一财季新增订单同比还上涨 6%。
 
-大力推进采煤沉陷区综合治理，实施旧房拆除和土地复垦，新增耕地面积显著，昔日沉陷区逐步变为良田。
+公司 5 月财季营收 187 亿美元，同比增长 6%，相较于 2 月财季 8% 的增速小幅放缓。
 
-以“三北”工程为牵引，持续开展风沙源生态保护和修复，实施人工造林、封山育林、人工种草。
+首席执行官朱莉・斯威特表示，中东局势冲突导致业务开展放缓、销售额不及预期，且这一低迷态势将延续至当前财季。
 
-同时，该县探索“光伏+生态修复”模式，在采煤沉陷区布局光伏和风电项目，实现生态效益与能源保供双赢。
+埃森哲同时下调了投资者对其 8 月结束的完整财年业绩预期，预计固定汇率下全年营收最高仅增长 4%，此前公司给出的预期为 5%。
 
-2025年，该县完成水土流失治理面积4.27万亩，水土保持率达76.53%，有效控制入河泥沙量。
+周四收盘时，埃森哲总市值约 790 亿美元，较前一日缩水约 170 亿美元。
 
-此外，该县以黄河干流流经县生态环境综合治理为抓手，开展非法倾倒处置固体废物专项整治，推动煤矸石、粉煤灰等大宗固废综合利用。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 21:53 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 21:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 21:56 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 21:52 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 21:52 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 21:49 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 21:45 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 21:59 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 21:34 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 21:53 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 21:44 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 21:47 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 21:42 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 21:38 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 21:43 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 21:37 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 21:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 22:02 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 21:41 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 21:50 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 21:54 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 21:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 22:01 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 21:55 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 21:45 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 21:41 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 21:43 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 21:54 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 21:37 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/9545830689.shtml)
-- 2026-06-29 21:39 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/554445725.shtml)
-- 2026-06-29 21:33 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/79197639.shtml)
-- 2026-06-29 21:41 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/41212033.shtml)
-- 2026-06-29 21:56 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/958580.shtml)
-- 2026-06-29 21:42 - [C罗10球7球对垫底队](https://www.blog.kurohicncr.top/Article/details/10496664.shtml)
-- 2026-06-29 21:41 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/311299397.shtml)
-- 2026-06-29 21:37 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/9379804.shtml)
-- 2026-06-29 21:37 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/53544394.shtml)
-- 2026-06-29 21:31 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/0800094.shtml)
-- 2026-06-29 21:56 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/7737144.shtml)
-- 2026-06-29 21:40 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/97985.shtml)
-- 2026-06-29 21:56 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/7076660398.shtml)
-- 2026-06-29 21:31 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/01804350.shtml)
-- 2026-06-29 21:30 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/0829975056.shtml)
+- 2026-06-29 21:56 - [温网](https://www.share.minike.top/Article/details/497695569.shtml)
+- 2026-06-29 21:37 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/12424197998.shtml)
+- 2026-06-29 22:05 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/73271221.shtml)
+- 2026-06-29 21:39 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/925212741056.shtml)
+- 2026-06-29 21:43 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/80936.shtml)
+- 2026-06-29 21:48 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/382455059345.shtml)
+- 2026-06-29 22:04 - [郑钦文谈再战西尼亚科娃](https://www.blog.minike.top/Article/details/31920.shtml)
+- 2026-06-29 21:43 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/248248.shtml)
+- 2026-06-29 21:51 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/74399557.shtml)
+- 2026-06-29 21:47 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/315698593.shtml)
+- 2026-06-29 21:47 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/250166584.shtml)
+- 2026-06-29 21:39 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/66424.shtml)
+- 2026-06-29 21:43 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/19109969.shtml)
+- 2026-06-29 21:55 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/437163.shtml)
+- 2026-06-29 21:50 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/924631752.shtml)

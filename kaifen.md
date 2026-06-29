@@ -1,57 +1,56 @@
-# 霍尔木兹海峡再起冲突 美国和伊朗仍接近达成和平协议
+# 出行旺、文旅忙、粽飘香 端午假期消费热潮助力夏日经济“热辣滚烫”
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-巴基斯坦表示，一项旨在重开霍尔木兹海峡的美伊临时协议可能在24小时内敲定。在此前这一战略航道附近发生冲突后，这一表态拉高了市场对双方可能正接近达成更广泛协议的预期。 作为华盛顿与德黑兰谈判的重要斡旋方，巴基斯坦总理夏巴兹·谢里夫表示，巴方正准备“随后立即”举行和平协议的电子签署，“随后在下周进行技术层面的会谈”。 在谢里夫周六发表讲话前不久，美国中央司令部表示击落了多架针对霍尔
+央视网消息：今年端午假期铁路运输期内，国铁沈阳局预计发送旅客395万人次，日均79万人次，同比增幅3.2%。其中，6月21日将迎来假期出行最高峰，单日客流将突破95万人次。今年端午恰逢高考结束、探亲、短途旅游、学生客流集中爆发。客流以沈阳、大连、长春为中心的2小时高铁圈为主。为了满足广大旅客出行需求，沈阳局计划增开临客及高峰线83对。北京：晚高峰提前 交通枢纽客流明显增长 6月
 
 ## 正文
 
-巴基斯坦表示，一项旨在重开霍尔木兹海峡的美伊临时协议可能在24小时内敲定。
+央视网消息：今年端午假期铁路运输期内，国铁沈阳局预计发送旅客395万人次，日均79万人次，同比增幅3.2%。
 
-在此前这一战略航道附近发生冲突后，这一表态拉高了市场对双方可能正接近达成更广泛协议的预期。
+其中，6月21日将迎来假期出行最高峰，单日客流将突破95万人次。
 
-作为华盛顿与德黑兰谈判的重要斡旋方，巴基斯坦总理夏巴兹·谢里夫表示，巴方正准备“随后立即”举行和平协议的电子签署，“随后在下周进行技术层面的会谈”。
+今年端午恰逢高考结束、探亲、短途旅游、学生客流集中爆发。
 
-在谢里夫周六发表讲话前不久，美国中央司令部表示击落了多架针对霍尔木兹海峡附近商船的伊朗无人机。
+客流以沈阳、大连、长春为中心的2小时高铁圈为主。
 
-特朗普政府一位高级官员周五表示，协议将很快签署的概率达到80%至85%。
+为了满足广大旅客出行需求，沈阳局计划增开临客及高峰线83对。
 
-伊朗外长阿巴斯·阿拉格齐周五在国家电视台播出的讲话中也表达了类似预期，并称可能在未来数日内签署。
+北京：晚高峰提前 交通枢纽客流明显增长 6月18日是端午假期前的最后一个工作日，记者从北京市交通委员会了解到，受通勤、假期出行等因素叠加影响，预计18日晚高峰会提前，下午3点起，城市路网交通量明显加大，下午5点至晚上7点会出现出京峰值，到晚上8点左右逐步缓解。
 
-据伊朗国营的IRIB报道，伊朗外交部发言人排除了周日签署协议的可能性。
+城区东部、西部、北部主要环路等联络线出城方向局部路段，京藏、京港澳、首都机场高速等高速公路出京方向部分路段，以及六环路部分路段车流集中。
 
-美国总统唐纳德·特朗普数十次表示，自2月爆发的战争即将结束，但迄今尚未实现。
+公众出行需合理规划路线，避开高峰。
 
 ## 相关推荐
 
-- 2026-06-29 21:47 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 21:48 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 21:33 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 21:51 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 21:54 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 21:50 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 21:39 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 21:40 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 21:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 21:45 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 21:54 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 21:51 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 21:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 22:05 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 21:41 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 21:49 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 22:05 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 22:04 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 21:37 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 22:02 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 21:56 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:32 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/8381145338.shtml)
-- 2026-06-29 21:30 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/68935893181.shtml)
-- 2026-06-29 21:59 - [英法德葡存在什么隐患](http://www.share.minike.top/Article/details/45952.shtml)
-- 2026-06-29 21:50 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.minike.top/Article/details/07207.shtml)
-- 2026-06-29 21:48 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/802309775935.shtml)
-- 2026-06-29 21:31 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/417365242.shtml)
-- 2026-06-29 21:51 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/4640691.shtml)
-- 2026-06-29 21:32 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/132262.shtml)
-- 2026-06-29 21:53 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/31654.shtml)
-- 2026-06-29 21:41 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/41909.shtml)
-- 2026-06-29 21:49 - [肝不好身体这几处会“说话”](https://www.blog.minike.top/Article/details/4375896383.shtml)
-- 2026-06-29 21:58 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/433838.shtml)
-- 2026-06-29 21:41 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/51451840493.shtml)
-- 2026-06-29 21:54 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/537967.shtml)
-- 2026-06-29 21:54 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/55853.shtml)
+- 2026-06-29 21:46 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/11590817.shtml)
+- 2026-06-29 21:55 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/9069931203.shtml)
+- 2026-06-29 22:01 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/553277.shtml)
+- 2026-06-29 21:59 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/7880848.shtml)
+- 2026-06-29 21:53 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/62396213023.shtml)
+- 2026-06-29 21:38 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/3758540.shtml)
+- 2026-06-29 21:51 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/0961526.shtml)
+- 2026-06-29 21:59 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/284123392109.shtml)
+- 2026-06-29 21:52 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/39144765.shtml)
+- 2026-06-29 22:03 - [千与千寻](https://www.share.minike.top/Article/details/97551192565.shtml)
+- 2026-06-29 21:47 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/20480395.shtml)
+- 2026-06-29 21:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/4377160.shtml)
+- 2026-06-29 21:54 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/9050804.shtml)
+- 2026-06-29 21:58 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/632481.shtml)
+- 2026-06-29 21:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/4652052.shtml)

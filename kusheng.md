@@ -1,56 +1,47 @@
-# 《求是》杂志发表习近平总书记重要文章《一体推进教育科技人才发展》
+# 这份孝心令人动容！85岁外婆在路边等车 外孙女跪地为她支撑
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-新华社北京6月15日电 6月16日出版的第12期《求是》杂志将发表中共中央总书记、国家主席、中央军委主席习近平的重要文章《一体推进教育科技人才发展》。这是习近平总书记2012年12月至2026年4月期间有关重要论述的节录。 文章强调，教育、科技、人才是全面建设社会主义现代化国家的基础性、战略性支撑。建设教育强国、科技强国、人才强国具有内在一致性和相互支撑性。要增强系统观念，坚持
+发布时间：2026年06月21日 15:57 来源：中国新闻网 这份孝心令人动容！85岁外婆在路边等车 外孙女跪地为她支撑 责任编辑：【李光伟】
 
 ## 正文
 
-新华社北京6月15日电 6月16日出版的第12期《求是》杂志将发表中共中央总书记、国家主席、中央军委主席习近平的重要文章《一体推进教育科技人才发展》。
+发布时间：2026年06月21日 15:57 来源：中国新闻网 这份孝心令人动容！
 
-这是习近平总书记2012年12月至2026年4月期间有关重要论述的节录。
-
-文章强调，教育、科技、人才是全面建设社会主义现代化国家的基础性、战略性支撑。
-
-建设教育强国、科技强国、人才强国具有内在一致性和相互支撑性。
-
-要增强系统观念，坚持教育优先发展、科技自立自强、人才引领驱动，统筹推进教育科技人才体制机制一体改革，实现科教兴国战略、人才强国战略、创新驱动发展战略有效联动，形成推动高质量发展的倍增效应。
-
-文章指出，要强化教育对科技和人才的支撑作用。
-
-科技创新靠人才，人才培养靠教育。
-
-要强化高水平研究型大学国家基础研究主力军和重大科技突破策源地作用，建立科技创新与人才培养相互支撑、带动学科高质量发展的有效机制，从国家战略需求中凝练重大科技问题，持续产出原创性、颠覆性科技创新成果。
+85岁外婆在路边等车 外孙女跪地为她支撑 责任编辑：【李光伟】
 
 ## 相关推荐
 
-- 2026-06-29 21:45 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 21:43 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-29 21:50 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 21:41 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 21:35 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 21:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 21:59 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 22:00 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 21:56 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 21:46 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 21:45 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 21:54 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 21:37 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 21:50 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 21:39 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 21:57 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 21:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 21:48 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 21:56 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 21:53 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 21:44 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 22:05 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 21:56 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:34 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/686213939.shtml)
-- 2026-06-29 21:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/69947.shtml)
-- 2026-06-29 21:31 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/0524829.shtml)
-- 2026-06-29 21:48 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/70828330712.shtml)
-- 2026-06-29 21:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/507778505922.shtml)
-- 2026-06-29 21:31 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.minike.top/Article/details/24953259100.shtml)
-- 2026-06-29 21:43 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/639857772.shtml)
-- 2026-06-29 21:35 - [李思潼：不会介意大家夸我运气好](http://www.share.kurohicncr.top/Article/details/79757243.shtml)
-- 2026-06-29 21:35 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/887297078.shtml)
-- 2026-06-29 21:48 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/93569166039.shtml)
-- 2026-06-29 21:50 - [国际清算银行警告AI投资热潮](http://www.share.kurohicncr.top/Article/details/846604127279.shtml)
-- 2026-06-29 21:32 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/83985750.shtml)
-- 2026-06-29 21:43 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/51381.shtml)
-- 2026-06-29 21:46 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/282922628.shtml)
-- 2026-06-29 21:30 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/344297249416.shtml)
+- 2026-06-29 21:40 - [85花告别古偶](http://www.share.minike.top/Article/details/45186977.shtml)
+- 2026-06-29 22:01 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/705541696147.shtml)
+- 2026-06-29 21:36 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/887529344152.shtml)
+- 2026-06-29 21:58 - [恋与深空7天掉粉超50万](http://www.share.kurohicncr.top/Article/details/735487.shtml)
+- 2026-06-29 21:52 - [半导体和股市为何没让韩国人起飞](https://www.share.minike.top/Article/details/785331.shtml)
+- 2026-06-29 21:51 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/208417.shtml)
+- 2026-06-29 21:40 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/60320245889.shtml)
+- 2026-06-29 21:51 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/821246834.shtml)
+- 2026-06-29 21:41 - [温网](http://www.share.kurohicncr.top/Article/details/57297430263.shtml)
+- 2026-06-29 21:43 - [第一炉香](http://www.share.kurohicncr.top/Article/details/3757008.shtml)
+- 2026-06-29 21:43 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/463583795162.shtml)
+- 2026-06-29 21:50 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/2989434.shtml)
+- 2026-06-29 22:01 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/2529700700.shtml)
+- 2026-06-29 21:52 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/3029539489.shtml)
+- 2026-06-29 21:48 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/46216429.shtml)

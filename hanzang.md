@@ -1,59 +1,59 @@
-# 河北金融监管局发布消费者风险提示：识破保险旅游营销套路
+# 青海海西6.3级地震最高烈度8度 6度区及以上面积约6144平方公里
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-6月15日金融一线消息，河北金融监管局发布消费者提示表示，近年来，一些保险机构、保险销售人员以“康养出行、户外团建、客户答谢”等名义组织旅游活动，借机开展保险产品宣讲、推介活动（俗称“旅说会”），通过给予保险合同外利益吸引、人情氛围裹挟、集中宣讲洗脑等方式，引发消费者冲动投保、权益受损，严重扰乱金融秩序，侵害消费者合法权益。 为此，河北金融监管局发布风险提示： 一是谨慎参与营销
+中新网北京6月19日电 (记者 孙自法)中国地震局6月18日晚发布的《青海海西6.3级地震烈度图》显示，此次地震最高烈度为Ⅷ度(8度)，Ⅵ度(6度)区及以上面积约6144平方公里。 青海海西6月16日下午发生6.3级地震后，中国地震局派出地震现场工作队，依照《地震现场工作第3部分：调查规范》《中国地震烈度表》《地震烈度现场评定》等标准规范要求，在灾区范围内开展地震烈度调查工作。
 
 ## 正文
 
-6月15日金融一线消息，河北金融监管局发布消费者提示表示，近年来，一些保险机构、保险销售人员以“康养出行、户外团建、客户答谢”等名义组织旅游活动，借机开展保险产品宣讲、推介活动（俗称“旅说会”），通过给予保险合同外利益吸引、人情氛围裹挟、集中宣讲洗脑等方式，引发消费者冲动投保、权益受损，严重扰乱金融秩序，侵害消费者合法权益。
+中新网北京6月19日电 (记者 孙自法)中国地震局6月18日晚发布的《青海海西6.3级地震烈度图》显示，此次地震最高烈度为Ⅷ度(8度)，Ⅵ度(6度)区及以上面积约6144平方公里。
 
-为此，河北金融监管局发布风险提示： 一是谨慎参与营销活动。
+青海海西6月16日下午发生6.3级地震后，中国地震局派出地震现场工作队，依照《地震现场工作第3部分：调查规范》《中国地震烈度表》《地震烈度现场评定》等标准规范要求，在灾区范围内开展地震烈度调查工作。
 
-面对保险公司以客户答谢、感恩回馈为名推出的低价旅游活动，消费者务必要提高警惕，自觉远离此类陷阱，切勿因贪图小利贸然参与。
+通过对灾区69个调查点的震害调查，参考余震分布、震源机制解、仪器烈度分布图等科技支撑成果，结合强震动观测记录，中国地震局地震现场工作队确定此次地震的烈度分布，完成《青海海西6.3级地震烈度图》编制工作并向社会发布。
 
-远离无资质旅游，远离违规营销场所，提高安全防范意识。
+根据《青海海西6.3级地震烈度图》，此次地震最高烈度为8度，等震线长轴呈北西走向，长轴约112公里，短轴约70公里。
 
-二是坚持理性投保原则。
+6度区及以上面积约6144平方公里，共涉及青海省海西蒙古族藏族自治州大柴旦行政委员会柴旦镇、锡铁山镇，德令哈市怀头他拉镇3个镇。
 
-树立健康的保险消费观念，选择适配的保险产品，不贪图额外福利，不轻信口头宣传，避免盲目投保。
+其中，8度区面积约31平方公里，主要涉及海西州大柴旦行政委员会柴旦镇。
 
-投保前务必仔细阅读保险条款，认清产品责任与风险，结合自身经济状况与实际需求综合考量。
+7度区面积约957平方公里，主要涉及海西州大柴旦行政委员会柴旦镇，德令哈市怀头他拉镇2个镇。
 
-三是切实增强维权意识。
+6度区面积约5156平方公里，主要涉及海西州大柴旦行政委员会柴旦镇、锡铁山镇，德令哈市怀头他拉镇3个镇。
 
 ## 相关推荐
 
-- 2026-06-29 21:32 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 21:56 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 21:44 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 21:43 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 21:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 21:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 21:55 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 21:45 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 21:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 21:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 21:49 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 21:32 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 21:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 21:40 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 21:38 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 21:59 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 21:53 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 22:04 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 21:57 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-29 21:51 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 21:47 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 21:44 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 21:40 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 21:36 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 21:53 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 22:05 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:52 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/99283.shtml)
-- 2026-06-29 21:46 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/2166276817.shtml)
-- 2026-06-29 21:38 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/26595341.shtml)
-- 2026-06-29 21:38 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/254917.shtml)
-- 2026-06-29 21:32 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/061757780247.shtml)
-- 2026-06-29 21:31 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/6322916.shtml)
-- 2026-06-29 21:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/404591.shtml)
-- 2026-06-29 21:55 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/31478811.shtml)
-- 2026-06-29 21:43 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/5193055345.shtml)
-- 2026-06-29 21:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/832078906.shtml)
-- 2026-06-29 21:39 - [英法德葡存在什么隐患](https://www.blog.kurohicncr.top/Article/details/880438.shtml)
-- 2026-06-29 21:53 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/236916784.shtml)
-- 2026-06-29 21:51 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/75568842.shtml)
-- 2026-06-29 21:35 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/663997.shtml)
-- 2026-06-29 21:47 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/7370974.shtml)
+- 2026-06-29 21:54 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/475354150.shtml)
+- 2026-06-29 21:59 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/1099963.shtml)
+- 2026-06-29 21:39 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/25764195.shtml)
+- 2026-06-29 21:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/3313615395.shtml)
+- 2026-06-29 21:48 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/763723273456.shtml)
+- 2026-06-29 22:03 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/68222988450.shtml)
+- 2026-06-29 21:50 - [爱很美味](http://www.share.minike.top/Article/details/681190373.shtml)
+- 2026-06-29 21:38 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/151680.shtml)
+- 2026-06-29 21:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/42444535.shtml)
+- 2026-06-29 21:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/04750237.shtml)
+- 2026-06-29 21:55 - [货车司机恶意闯卡逃费被行拘](https://www.share.minike.top/Article/details/4331315181.shtml)
+- 2026-06-29 21:53 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/651325.shtml)
+- 2026-06-29 21:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/435726311.shtml)
+- 2026-06-29 21:46 - [一汽大众黄金超混技术来袭](http://www.share.minike.top/Article/details/29036126887.shtml)
+- 2026-06-29 21:56 - [返利科技盘中上演“天地板”](https://www.share.kurohicncr.top/Article/details/181019999.shtml)

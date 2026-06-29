@@ -1,56 +1,46 @@
-# （机遇澳门）澳门招商局主席：让企业“引得进、留得住、发展好”
+# 外媒：美伊谈判代表均已抵达瑞士
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-中新网澳门6月15日电 (记者 郑嘉伟)澳门特区政府招商投资促进局(简称“澳门招商局”)主席谢永强15日表示，澳门正持续增强对优质企业的吸引力与黏性，让企业不仅“引得进”，更“留得住、发展好”，为澳门经济适度多元发展注入持久动力。 当日，谢永强在中国与葡语国家商贸合作服务平台综合体接受“机遇澳门”主题采访活动专访时作上述表述。他指出，特区政府正围绕“1+4”经济适度多元发展策略
+中新网6月21日电 据卡塔尔半岛电视台及美国有线电视新闻网(CNN)报道，当地时间21日，美国副总统万斯已抵达瑞士，他将参加定于当天在比尔根山举行的美伊谈判。 万斯在出发前对媒体说，他预计在瑞士停留一到两天，在与伊朗的谈判中，他的首要任务是确立谈判框架，在核问题上“取得进展”，并实现黎巴嫩停火。 据此前报道，瑞士外交部20日在社交平台上发文欢迎伊朗代表团抵达瑞士，称伊朗代表团正
 
 ## 正文
 
-中新网澳门6月15日电 (记者 郑嘉伟)澳门特区政府招商投资促进局(简称“澳门招商局”)主席谢永强15日表示，澳门正持续增强对优质企业的吸引力与黏性，让企业不仅“引得进”，更“留得住、发展好”，为澳门经济适度多元发展注入持久动力。
+中新网6月21日电 据卡塔尔半岛电视台及美国有线电视新闻网(CNN)报道，当地时间21日，美国副总统万斯已抵达瑞士，他将参加定于当天在比尔根山举行的美伊谈判。
 
-当日，谢永强在中国与葡语国家商贸合作服务平台综合体接受“机遇澳门”主题采访活动专访时作上述表述。
+万斯在出发前对媒体说，他预计在瑞士停留一到两天，在与伊朗的谈判中，他的首要任务是确立谈判框架，在核问题上“取得进展”，并实现黎巴嫩停火。
 
-他指出，特区政府正围绕“1+4”经济适度多元发展策略，构建“机制赋能、平台支撑、政策保障”三位一体的引才引企体系。
-
-谢永强介绍，澳门招商局在中国内地设有6个代表处，近年通过与葡萄牙、西班牙等地顾问团队合作拓展海外商业网络。
-
-以投资者“一站式”服务为抓手，贯穿项目事前政策解读、事中跨部门协调注册及牌照申领、事后商业配对全过程，特设投资委员会统筹审批绿色通道。
-
-据悉，2025年，“一站式”服务跟进286个投资项目，创造就业1611个，近五成属“1+4”重点产业；同年依托会展平台组织2200余场商务洽谈，促成240多份合作签约，推动148家葡萄牙、巴西、印尼等地企业提交投资立项，近三成已完成公司设立。
-
-谢永强表示，平台支撑方面，招商局通过“中葡商贸导航”服务，发挥“精准联络人”作用，已促成中国500强企业在巴西、安哥拉投建生产基地，以及全国前十粮油企业采购巴西大宗商品等标志性项目。
-
-他还指出，通过产业基金、科技园区、人才政策、首店计划等多维政策工具的协同发力，澳门正持续增强对国际高端人才与优质企业的吸引力。
+据此前报道，瑞士外交部20日在社交平台上发文欢迎伊朗代表团抵达瑞士，称伊朗代表团正在前往比尔根山，此行旨在落实美伊谅解备忘录。
 
 ## 相关推荐
 
-- 2026-06-29 21:38 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 21:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 21:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 21:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 21:33 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 21:30 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 21:50 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 21:59 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 21:30 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 21:41 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 21:50 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 21:46 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 21:39 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 21:57 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 21:40 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 21:42 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 21:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 21:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 21:49 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 21:52 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:34 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/3238241414.shtml)
-- 2026-06-29 21:30 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/10611.shtml)
-- 2026-06-29 21:49 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/16727.shtml)
-- 2026-06-29 21:41 - [日防卫省正考虑引进美企人工智能系统](https://www.share.kurohicncr.top/Article/details/164936.shtml)
-- 2026-06-29 21:49 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/83563609.shtml)
-- 2026-06-29 21:50 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/4377726637.shtml)
-- 2026-06-29 21:55 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/739750718380.shtml)
-- 2026-06-29 21:52 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/74074188206.shtml)
-- 2026-06-29 21:39 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/963884903887.shtml)
-- 2026-06-29 21:50 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/0949802718.shtml)
-- 2026-06-29 21:44 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/513099645193.shtml)
-- 2026-06-29 21:57 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/3062955.shtml)
-- 2026-06-29 21:36 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/23240723.shtml)
-- 2026-06-29 21:35 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/470212405.shtml)
-- 2026-06-29 21:53 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/256457.shtml)
+- 2026-06-29 21:54 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/3492612910.shtml)
+- 2026-06-29 21:45 - [沙丘](https://www.blog.kurohicncr.top/Article/details/69948690.shtml)
+- 2026-06-29 21:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/835914036.shtml)
+- 2026-06-29 21:37 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/453246564486.shtml)
+- 2026-06-29 21:55 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/08954777741.shtml)
+- 2026-06-29 21:41 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.kurohicncr.top/Article/details/06475695.shtml)
+- 2026-06-29 22:04 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/93592918.shtml)
+- 2026-06-29 21:53 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/7533720675.shtml)
+- 2026-06-29 21:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/3944409782.shtml)
+- 2026-06-29 21:46 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/5130701.shtml)
+- 2026-06-29 21:55 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/656563764695.shtml)
+- 2026-06-29 21:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/5765507.shtml)
+- 2026-06-29 21:49 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/695765120.shtml)
+- 2026-06-29 21:42 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/12399034.shtml)
+- 2026-06-29 21:40 - [毒液2](https://www.blog.minike.top/Article/details/11518.shtml)

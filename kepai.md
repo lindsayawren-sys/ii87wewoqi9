@@ -1,61 +1,60 @@
-# “存款搬家”最新进展？业内人士：真实存在但并非大规模迁移
+# 12大AI战绩出炉：阶跃星辰为何垫底？回应来了——“我选择押注最不确定的可能性”
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 曹媛 2026年，市场对“存款搬家”的讨论热度依旧不减，多家机构判断今年将迎来大量长期定期存款的集中“到期潮”，年内到期定存规模可达30万亿元至70余万亿元，资金是否会大规模“撤离”银行体系？ 近日，多位一线人士给出了不同判断：“存款搬家”真实存在，但并非大规模迁移。那么，几十万亿元居民存款究竟流向何方？低利率时代，低风险偏好的居民储蓄又该如何安放？ “存
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026世界杯小组赛持续进行，围绕AI预测的“人机大战”也进入白热化。在联想AI猜球天团的12个大模型中，绝大多数模型的预测逻辑都高度相似：优先参考球队实力、世界排名、历史交锋和近期状态，因此给出的结果大多偏向“强队稳赢”的传统判断。 但有一个模型显得格格不入——阶跃星辰。 当其他AI预测西班牙击败佛得角时
 
 ## 正文
 
-21世纪经济报道记者 曹媛 2026年，市场对“存款搬家”的讨论热度依旧不减，多家机构判断今年将迎来大量长期定期存款的集中“到期潮”，年内到期定存规模可达30万亿元至70余万亿元，资金是否会大规模“撤离”银行体系？
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-近日，多位一线人士给出了不同判断：“存款搬家”真实存在，但并非大规模迁移。
+2026世界杯小组赛持续进行，围绕AI预测的“人机大战”也进入白热化。
 
-那么，几十万亿元居民存款究竟流向何方？
+在联想AI猜球天团的12个大模型中，绝大多数模型的预测逻辑都高度相似：优先参考球队实力、世界排名、历史交锋和近期状态，因此给出的结果大多偏向“强队稳赢”的传统判断。
 
-低利率时代，低风险偏好的居民储蓄又该如何安放？
+但有一个模型显得格格不入——阶跃星辰。
 
-“存款搬家”真实存在，但并非大规模迁移 回顾银行存款市场，2023-2024年大量城商行、农商行及民营银行发行的三年期、五年期长期定存利率普遍处于3%-4%的高位，国有大行、头部股份行利率相对偏低但也处在相对高点，而当前新增定存利率已回落至1.5%-2%区间，悬殊的收益差让市场普遍预判，存款到期后将迎来集中外流，即出现所谓的“存款搬家”现象。
+当其他AI预测西班牙击败佛得角时，阶跃星辰给出的却是：佛得角5：1西班牙。
 
-“‘存款搬家’现象并不明显，这一点和市场年初时的判断不一致。
+当多数模型看好荷兰时，它直接押：日本3：0荷兰。
 
-”在近日由21世纪经济报道、广东粤港澳大湾区研究院主办的2026湾区财富大会上，招银理财业务总监、多资产投资部总经理袁尧表示，“从二季度的数据来看，这个现象没有发生，或者说发生的规模比较小。
+更夸张的是，它甚至预测出法国5：5塞内加尔、科特迪瓦5：4厄瓜多尔、伊拉克4：4挪威这样的超大比分。
 
-” 平安理财混合投资部总经理唐沪军肯定了“存款搬家”现象的存在，他认为这并非突发事件，而是自2025年下半年起行业对该现象的讨论热度持续上升，“2025年7月份居民存款单月减少了1.1万亿元，同期非银机构的存款增加了2.14万亿元，去年10月份和今年4月居民存款更是出现明显回落。
+这些预测放在12个模型里，几乎像是另类的存在。
 
 ## 相关推荐
 
-- 2026-06-29 21:58 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 21:42 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 21:52 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 21:42 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 21:54 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 21:51 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 21:37 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 21:52 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 21:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 21:53 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 21:59 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 21:30 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-29 21:36 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 21:52 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 21:33 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 21:44 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 21:49 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 21:57 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 21:49 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 22:04 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 22:04 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 21:42 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 21:49 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 21:49 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 21:39 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 21:36 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 21:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 21:45 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 22:03 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:58 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/9552017.shtml)
-- 2026-06-29 21:32 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.minike.top/Article/details/740701.shtml)
-- 2026-06-29 21:56 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/65503.shtml)
-- 2026-06-29 21:32 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/040080236.shtml)
-- 2026-06-29 21:43 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/7105060.shtml)
-- 2026-06-29 21:58 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/268284501859.shtml)
-- 2026-06-29 21:30 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/11766948.shtml)
-- 2026-06-29 21:44 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/316396.shtml)
-- 2026-06-29 21:59 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/48116205.shtml)
-- 2026-06-29 21:49 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/3921903.shtml)
-- 2026-06-29 21:56 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/710931677727.shtml)
-- 2026-06-29 21:38 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.kurohicncr.top/Article/details/3394726.shtml)
-- 2026-06-29 21:36 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/74176639.shtml)
-- 2026-06-29 21:44 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/754587.shtml)
-- 2026-06-29 21:47 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/28283024033.shtml)
+- 2026-06-29 21:44 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/380799363717.shtml)
+- 2026-06-29 21:40 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/8648254140.shtml)
+- 2026-06-29 22:02 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/9860194268.shtml)
+- 2026-06-29 21:56 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/44474497.shtml)
+- 2026-06-29 21:55 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/593867429.shtml)
+- 2026-06-29 22:04 - [18岁高二体育生训练晕倒后离世](http://www.blog.minike.top/Article/details/9143300103.shtml)
+- 2026-06-29 21:59 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/97867589562.shtml)
+- 2026-06-29 21:49 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/752628.shtml)
+- 2026-06-29 21:54 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/02628747.shtml)
+- 2026-06-29 21:38 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/30013897.shtml)
+- 2026-06-29 21:37 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/29165201.shtml)
+- 2026-06-29 21:43 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/4223668963.shtml)
+- 2026-06-29 21:53 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/076347283.shtml)
+- 2026-06-29 21:57 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/3915499553.shtml)
+- 2026-06-29 21:58 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/75382163112.shtml)

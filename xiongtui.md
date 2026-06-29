@@ -1,58 +1,57 @@
-# 告别0.75%，日本央行利率重返1%！购债缩减却踩刹车
+# 七部门共促平台经济大中小企业协同发展
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——北京时间6月16日，日本央行完成了一场令全球金融市场屏息的重要决策——将政策利率由0.75%上调25个基点至1.00%，利率水平重返1995年以来的最高水位。 这是自2024年3月日本央行结束负利率政策以来的第五次加息，也是继此前连续三次会议按兵不动之后的首次行动，但并非令市场感到意外的决策。彭博此前的调查显示，受调的51位经济学家中多达49人预计本月将加息
+又逢“618”，各大电商平台大促热潮之下，一场平台经济生态的深层转型正悄然开启。 6月18日，工业和信息化部等7部门发布《促进平台经济大中小企业协同发展行动方案(2026—2028年)》。 重要信号跃然纸上——大中小企业协同发展，将成为平台经济未来发展的重要主线。 中国信息通信研究院院长余晓晖向三里河表示，《行动方案》的出台，标志着我国平台经济正迈向多元化、协同化发展的新阶段。
 
 ## 正文
 
-汇通财经APP讯——北京时间6月16日，日本央行完成了一场令全球金融市场屏息的重要决策——将政策利率由0.75%上调25个基点至1.00%，利率水平重返1995年以来的最高水位。
+又逢“618”，各大电商平台大促热潮之下，一场平台经济生态的深层转型正悄然开启。
 
-这是自2024年3月日本央行结束负利率政策以来的第五次加息，也是继此前连续三次会议按兵不动之后的首次行动，但并非令市场感到意外的决策。
+6月18日，工业和信息化部等7部门发布《促进平台经济大中小企业协同发展行动方案(2026—2028年)》。
 
-彭博此前的调查显示，受调的51位经济学家中多达49人预计本月将加息。
+重要信号跃然纸上——大中小企业协同发展，将成为平台经济未来发展的重要主线。
 
-一、利率政策：如期加息，分歧之下一人反对 日本央行决策委员会以7票赞成、1票反对的票数通过加息决议。
+中国信息通信研究院院长余晓晖向三里河表示，《行动方案》的出台，标志着我国平台经济正迈向多元化、协同化发展的新阶段。
 
-审议委员浅田统一郎对利率决定持反对意见，他在会上指出，中东局势对生产和就业的下行风险大于物价的上行风险，央行宜维持当前的政策指引。
+对普通人而言，平台经济再熟悉不过了。
 
-受加息落地影响，日经225指数期货在决议公布后几乎未有变化。
+它通过共享单车、网约车、即时外卖、直播、电商、短视频等各种形式，深入日常生活的方方面面。
 
-外汇市场上，美元兑日元短线上扬逾10点，报160.22。
+数据很能说明问题。
 
-这一汇率水平早已成为日本当局高度关注的心理关口，160附近被市场普遍视为潜在干预线。
+目前，国内主要平台企业的用户已超10亿人。
 
 ## 相关推荐
 
-- 2026-06-29 21:46 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 21:38 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 21:37 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 21:35 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 21:54 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 21:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 21:31 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 21:42 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 21:39 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 21:37 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 21:52 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 21:35 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 22:04 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 21:54 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 21:39 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 22:02 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 21:42 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 21:36 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 21:53 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 21:36 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 22:02 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 21:55 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 21:57 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:48 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/672743772282.shtml)
-- 2026-06-29 21:58 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/38868821.shtml)
-- 2026-06-29 21:35 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/0155332626.shtml)
-- 2026-06-29 21:49 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/9957675.shtml)
-- 2026-06-29 21:32 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/539597064.shtml)
-- 2026-06-29 21:36 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/7408681894.shtml)
-- 2026-06-29 21:35 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/2799008.shtml)
-- 2026-06-29 21:44 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/148383.shtml)
-- 2026-06-29 21:56 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/89139.shtml)
-- 2026-06-29 21:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/901901670501.shtml)
-- 2026-06-29 21:31 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/60518518.shtml)
-- 2026-06-29 21:39 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/51325696.shtml)
-- 2026-06-29 21:40 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/753425944.shtml)
-- 2026-06-29 21:35 - [上世纪90年代玩具成新宠](https://www.share.minike.top/Article/details/2160306639.shtml)
-- 2026-06-29 21:57 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/6394707.shtml)
+- 2026-06-29 21:42 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.minike.top/Article/details/225920376493.shtml)
+- 2026-06-29 21:40 - [华工科技龙虎榜数据](http://www.share.minike.top/Article/details/5063490803.shtml)
+- 2026-06-29 21:44 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.minike.top/Article/details/292479.shtml)
+- 2026-06-29 21:47 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/525280583100.shtml)
+- 2026-06-29 21:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/84558591.shtml)
+- 2026-06-29 21:52 - [任泽平：AI浪潮刚刚开始](https://www.share.minike.top/Article/details/2758558.shtml)
+- 2026-06-29 21:58 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/89741613262.shtml)
+- 2026-06-29 22:03 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/10784.shtml)
+- 2026-06-29 21:49 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/3324269.shtml)
+- 2026-06-29 21:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/806683.shtml)
+- 2026-06-29 21:41 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/45411550592.shtml)
+- 2026-06-29 21:57 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/48540403.shtml)
+- 2026-06-29 22:03 - [华工科技龙虎榜数据](http://www.blog.minike.top/Article/details/08238.shtml)
+- 2026-06-29 21:39 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/3518263325.shtml)
+- 2026-06-29 22:03 - [极限挑战第一季](https://www.blog.minike.top/Article/details/16146025522.shtml)

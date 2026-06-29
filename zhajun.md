@@ -1,60 +1,58 @@
-# 中国海军83舰编队起航执行远海综合实习访问任务
+# 武昌古城观光巴士开通 线路串联武汉千年文脉
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-中新社北京6月15日电 由远洋航海训练舰戚继光舰和综合登陆舰昆仑山舰组成的中国海军83舰编队，15日上午从山东青岛某军港解缆起航，开始执行远海综合实习访问任务。 中国海军戚继光舰，舷号83，是目前中国自主研制的吨位最大、现代化水平最高的专业训练舰。该舰主要供海军院校学员、官兵进行海上实习训练，被誉为人民海军的“海上流动大学”。自2017年2月服役以来，戚继光舰航迹遍布四大洲、三
+中新网武汉6月18日电 (况昕昀 余哲)“武昌古城观光巴士”18日正式启动试运营，首批10台19座新能源车辆以“武昌红”与“炫彩波普”国潮手绘风格亮相。观光巴士从户部巷出发，经红巷、粮道街、黄鹤楼至起义门后返回，串联武汉八大精华景点，贯通古城千年文脉，打造“全景视角”下的城市文化微旅行。 武昌古城的历史，可追溯至1800年前。三国时期，东吴孙权在蛇山修筑夏口古城(今武昌区)，并
 
 ## 正文
 
-中新社北京6月15日电 由远洋航海训练舰戚继光舰和综合登陆舰昆仑山舰组成的中国海军83舰编队，15日上午从山东青岛某军港解缆起航，开始执行远海综合实习访问任务。
+中新网武汉6月18日电 (况昕昀 余哲)“武昌古城观光巴士”18日正式启动试运营，首批10台19座新能源车辆以“武昌红”与“炫彩波普”国潮手绘风格亮相。
 
-中国海军戚继光舰，舷号83，是目前中国自主研制的吨位最大、现代化水平最高的专业训练舰。
+观光巴士从户部巷出发，经红巷、粮道街、黄鹤楼至起义门后返回，串联武汉八大精华景点，贯通古城千年文脉，打造“全景视角”下的城市文化微旅行。
 
-该舰主要供海军院校学员、官兵进行海上实习训练，被誉为人民海军的“海上流动大学”。
+武昌古城的历史，可追溯至1800年前。
 
-自2017年2月服役以来，戚继光舰航迹遍布四大洲、三大洋，先后到访葡萄牙、意大利、新西兰、越南等近30个国家和地区，总航程18余万海里。
+三国时期，东吴孙权在蛇山修筑夏口古城(今武昌区)，并在城西黄鹄矶上修建了一座军事瞭望楼，即黄鹤楼的前身。
 
-此次任务，83舰编队搭载400余名师生奔赴远海，开展实习访问。
+此后千年，武昌从三国军事堡垒演变为唐宋“东南巨镇”、明清“湖广会城”。
 
-随舰跟训的还有来自缅甸、巴西等10个国家的20名外军院校学员。
+1911年，辛亥革命武昌起义在此打响推翻封建帝制“第一枪”。
 
-上午10时许，83舰编队解缆起航，缓缓驶离码头。
+当日首发的观光巴士融入“黄鹤归来”“首义之门”“昙华林深”等武昌元素，并点缀“武畅儿”“小昙昙”“金斗娃”等古城IP形象。
 
-航渡期间，编队将组织开展地文航海、天文航海、共同科目、专业基础、岗位见习等五个模块的教学训练，结合航经海域开展现地教学、专业拓展等专题讲座。
+车内配备智能感应语音讲解系统，将这段绵延千年的历史“装”进车厢。
 
 ## 相关推荐
 
-- 2026-06-29 21:58 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 21:44 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 21:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 21:54 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 21:48 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 21:53 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 21:39 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 21:52 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 21:57 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 21:34 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 21:38 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 21:35 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 21:39 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 21:44 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 22:04 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 21:57 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 21:38 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 22:02 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 21:36 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 22:04 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 21:36 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 21:43 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 22:02 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 21:44 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 21:42 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 21:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/58098644385.shtml)
-- 2026-06-29 21:41 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/4556205.shtml)
-- 2026-06-29 21:59 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/51573349706.shtml)
-- 2026-06-29 21:54 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/5656463.shtml)
-- 2026-06-29 21:57 - [华工科技龙虎榜数据](http://www.blog.kurohicncr.top/Article/details/9464757.shtml)
-- 2026-06-29 21:59 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/7572146.shtml)
-- 2026-06-29 21:53 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/51799734194.shtml)
-- 2026-06-29 21:36 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/28047343158.shtml)
-- 2026-06-29 21:48 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/59873244.shtml)
-- 2026-06-29 21:33 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/8571763216.shtml)
-- 2026-06-29 21:46 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/782617.shtml)
-- 2026-06-29 21:31 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/460280948733.shtml)
-- 2026-06-29 21:34 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/772502.shtml)
-- 2026-06-29 21:38 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/8258994890.shtml)
-- 2026-06-29 21:41 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/371299403.shtml)
+- 2026-06-29 21:55 - [世界杯高票价为何没劝退球迷](http://www.blog.minike.top/Article/details/540676.shtml)
+- 2026-06-29 21:56 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/42838940.shtml)
+- 2026-06-29 21:39 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/94379658944.shtml)
+- 2026-06-29 22:03 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/8860443.shtml)
+- 2026-06-29 21:41 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/8394142042.shtml)
+- 2026-06-29 21:51 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/270846733.shtml)
+- 2026-06-29 21:43 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/6420964.shtml)
+- 2026-06-29 21:48 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/1594654.shtml)
+- 2026-06-29 21:40 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/485978694.shtml)
+- 2026-06-29 21:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/832277.shtml)
+- 2026-06-29 21:44 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/3480828598.shtml)
+- 2026-06-29 22:00 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/82017859060.shtml)
+- 2026-06-29 21:53 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/4816694.shtml)
+- 2026-06-29 21:36 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/60831.shtml)
+- 2026-06-29 21:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/354212.shtml)

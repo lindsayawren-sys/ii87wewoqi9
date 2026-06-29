@@ -1,51 +1,57 @@
-# 日本“航空自卫队”拟更名“航空宇宙自卫队”
+# 第四届“萧红文化周”在哈尔滨市启幕 兼具文学深度与烟火气息
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-中新网6月15日电 据《日本经济新闻》14日报道，日本政府正计划在2026年度内，将“航空自卫队”更名为“航空宇宙自卫队”。 据报道，目前，日本国会正在审议相关自卫队法修正案，若该法案获得通过，这将是自1954年日本成立陆上、海上和航空自卫队以来，自卫队名称首次发生变更。 报道称，这也会使得“航空自卫队”的主要任务领域延伸至“宇宙”，并指出这不仅仅是名称的更改，更可以说是日本安
+中新网哈尔滨6月19日电 (记者 刘锡菊)19日，纪念萧红诞辰115周年主题仪式暨第四届萧红文化周开幕活动在哈尔滨市呼兰区萧红故居纪念馆举行。来自全国各地的萧红研究专家学者、文学爱好者、萧红亲属及生前友人后人齐聚呼兰河畔，共同缅怀这位中国现代文学史上的杰出作家。 “萧红是呼兰最珍贵的文化基因，是中国现代文学史上一颗璀璨的明珠。”哈市呼兰区委副书记、区长张磊说，四年来，“萧红文化
 
 ## 正文
 
-中新网6月15日电 据《日本经济新闻》14日报道，日本政府正计划在2026年度内，将“航空自卫队”更名为“航空宇宙自卫队”。
+中新网哈尔滨6月19日电 (记者 刘锡菊)19日，纪念萧红诞辰115周年主题仪式暨第四届萧红文化周开幕活动在哈尔滨市呼兰区萧红故居纪念馆举行。
 
-据报道，目前，日本国会正在审议相关自卫队法修正案，若该法案获得通过，这将是自1954年日本成立陆上、海上和航空自卫队以来，自卫队名称首次发生变更。
+来自全国各地的萧红研究专家学者、文学爱好者、萧红亲属及生前友人后人齐聚呼兰河畔，共同缅怀这位中国现代文学史上的杰出作家。
 
-报道称，这也会使得“航空自卫队”的主要任务领域延伸至“宇宙”，并指出这不仅仅是名称的更改，更可以说是日本安全保障概念扩展的一个重要节点。
+“萧红是呼兰最珍贵的文化基因，是中国现代文学史上一颗璀璨的明珠。
+
+”哈市呼兰区委副书记、区长张磊说，四年来，“萧红文化周”已从单一的文学活动发展为集文化传承、文旅体验、产业融合于一体的城市盛会，累计超5万人次参与文化互动，单届接待游客突破10万人次，总签约额达60.62亿元，生动践行了“以文塑旅、以旅彰文”的发展理念。
+
+本届文化周正式纳入“迷人的哈尔滨之夏”，呼兰区将以萧红诞辰115周年为契机，持续深耕萧红文学IP，让呼兰成为全国文学爱好者心中的“精神原乡”。
+
+仪式现场举行了两场捐赠仪式。
+
+萧红侄子张抗向萧红故居纪念馆捐赠了萧红弟弟张秀珂的新四军肩章，于同尚捐赠了1.5米巨笔《萧乡之笔文脉流长》。
+
+备受关注的萧红研究馆刊《呼兰河》在仪式上举行首刊发行剪彩仪式。
 
 ## 相关推荐
 
-- 2026-06-29 21:47 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 21:56 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 21:54 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 21:32 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 21:34 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 21:34 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 21:41 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 21:44 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 21:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 21:34 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 21:40 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 21:32 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 21:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 21:43 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 21:54 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 21:37 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 21:46 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 21:54 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 21:44 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 21:46 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 22:01 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 21:45 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 22:01 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 21:51 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 21:54 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 21:49 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:34 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/78920430.shtml)
-- 2026-06-29 21:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/892879546078.shtml)
-- 2026-06-29 21:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/95794379.shtml)
-- 2026-06-29 21:55 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/024310.shtml)
-- 2026-06-29 21:41 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/61920813.shtml)
-- 2026-06-29 21:48 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/0894423.shtml)
-- 2026-06-29 21:40 - [小娘惹](http://www.share.minike.top/Article/details/069441698.shtml)
-- 2026-06-29 21:58 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/48173479788.shtml)
-- 2026-06-29 21:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/967312.shtml)
-- 2026-06-29 21:39 - [王楚钦开门红](https://www.blog.minike.top/Article/details/3733654646.shtml)
-- 2026-06-29 21:46 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/305756257664.shtml)
-- 2026-06-29 21:54 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/83260904.shtml)
-- 2026-06-29 21:34 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/56410344383.shtml)
-- 2026-06-29 21:45 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/325720673856.shtml)
-- 2026-06-29 21:42 - [佛得角队长门德斯被控强奸](http://www.blog.minike.top/Article/details/39788.shtml)
+- 2026-06-29 21:40 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/580106833.shtml)
+- 2026-06-29 21:57 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/448687926554.shtml)
+- 2026-06-29 21:41 - [乌克兰发广告全球征兵](http://www.share.minike.top/Article/details/1259741.shtml)
+- 2026-06-29 21:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/18943733851.shtml)
+- 2026-06-29 21:45 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/12104142745.shtml)
+- 2026-06-29 21:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/5190679016.shtml)
+- 2026-06-29 21:58 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/21783151566.shtml)
+- 2026-06-29 21:53 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/337659.shtml)
+- 2026-06-29 22:05 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/3915786149.shtml)
+- 2026-06-29 21:59 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/3768335.shtml)
+- 2026-06-29 21:43 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/19951622023.shtml)
+- 2026-06-29 21:49 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/49373.shtml)
+- 2026-06-29 21:50 - [佛得角队长门德斯被控强奸](http://www.share.kurohicncr.top/Article/details/79049817.shtml)
+- 2026-06-29 21:58 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/01816005.shtml)
+- 2026-06-29 21:46 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/903471305.shtml)

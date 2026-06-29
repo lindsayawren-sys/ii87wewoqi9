@@ -1,59 +1,60 @@
-# 加州州长纽森：特朗普指示司法部调查本人及妻子
+# 各方就伊美谈判推迟表态 伊朗发布霍尔木兹海峡通行要求
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-加利福尼亚州州长加文·纽森指控美国总统特朗普下令司法部调查他和他的妻子。 纽森在一段视频声明中表示，特朗普政府针对他是因为他“正在考虑竞选总统”，但没有提供调查的具体细节。 “他们滥用大陪审团程序，翻阅多年来的各种零散文件，”纽森说。 美国司法部发言人尚未对此事作出回应。白宫发言人将问题转交给司法部。 纽森表示，联邦特工曾敲过他的家人、朋友和前雇员的门。他还补充说，他欢迎对他个
+中新社北京6月20日电 综合消息：伊朗和美国推迟原定于19日在瑞士举行的谈判，相关方就推迟原因和未来安排密集表态。根据伊美谅解备忘录的要求，伊朗“波斯湾海峡管理局”19日发布霍尔木兹海峡通行要求。 美国白宫发言人证实，美副总统万斯已取消原定19日前往瑞士与伊朗谈判的行程。同时称，美方希望与伊方的技术性谈判能够尽快开始。 伊朗外交部发言人巴加埃19日表示，由于伊美谅解备忘录已以电
 
 ## 正文
 
-加利福尼亚州州长加文·纽森指控美国总统特朗普下令司法部调查他和他的妻子。
+中新社北京6月20日电 综合消息：伊朗和美国推迟原定于19日在瑞士举行的谈判，相关方就推迟原因和未来安排密集表态。
 
-纽森在一段视频声明中表示，特朗普政府针对他是因为他“正在考虑竞选总统”，但没有提供调查的具体细节。
+根据伊美谅解备忘录的要求，伊朗“波斯湾海峡管理局”19日发布霍尔木兹海峡通行要求。
 
-“他们滥用大陪审团程序，翻阅多年来的各种零散文件，”纽森说。
+美国白宫发言人证实，美副总统万斯已取消原定19日前往瑞士与伊朗谈判的行程。
 
-美国司法部发言人尚未对此事作出回应。
+同时称，美方希望与伊方的技术性谈判能够尽快开始。
 
-白宫发言人将问题转交给司法部。
+伊朗外交部发言人巴加埃19日表示，由于伊美谅解备忘录已以电子方式完成签署，在瑞士的谈判不具有紧迫性。
 
-纽森表示，联邦特工曾敲过他的家人、朋友和前雇员的门。
+伊方正通过斡旋方商议改日与美方谈判并制定议程，一旦条件合适将立即公布。
 
-他还补充说，他欢迎对他个人进行任何审查，但针对他妻子的做法已经越界。
+伊朗外长阿拉格齐当天与巴基斯坦副总理兼外长达尔通电话时则指出，美国有责任和义务结束包括黎巴嫩在内所有战线的战事，美方应对任何违反谅解备忘录条款的行为负责。
 
-纽森谈到特朗普表示，“尽管把我的名字列入你所有的敌人名单吧，但不要把我的妻子和家人牵扯进你的个人恩怨中。
+美媒19日援引美官员的消息报道称，美总统特使威特科夫正在前往瑞士途中，总统女婿库什纳已在瑞士。
 
 ## 相关推荐
 
-- 2026-06-29 21:55 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 21:41 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 21:53 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 21:44 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 21:46 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 21:32 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 21:43 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 21:37 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 21:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 21:58 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 21:35 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 21:44 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 21:49 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 21:39 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 22:02 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 21:53 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 21:40 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 21:38 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 21:58 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 21:40 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 21:45 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 22:03 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 21:53 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 21:37 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 21:39 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 21:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 22:01 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:37 - [小娘惹](https://www.share.kurohicncr.top/Article/details/5340559.shtml)
-- 2026-06-29 21:47 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/75703314.shtml)
-- 2026-06-29 21:44 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/81911.shtml)
-- 2026-06-29 21:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/98177.shtml)
-- 2026-06-29 21:48 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/1282077.shtml)
-- 2026-06-29 21:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/92089.shtml)
-- 2026-06-29 21:52 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/699312437.shtml)
-- 2026-06-29 21:41 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/6080318944.shtml)
-- 2026-06-29 21:34 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/38981819221.shtml)
-- 2026-06-29 21:44 - [天气热脾气都变差了](http://www.share.kurohicncr.top/Article/details/329937526655.shtml)
-- 2026-06-29 21:40 - [2026全国田径冠军赛江苏队4金收官](http://www.share.kurohicncr.top/Article/details/66515.shtml)
-- 2026-06-29 21:39 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/6945567.shtml)
-- 2026-06-29 21:49 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/269774.shtml)
-- 2026-06-29 21:54 - [周杰伦千禧年就有小卡了](http://www.share.kurohicncr.top/Article/details/569577747.shtml)
-- 2026-06-29 21:41 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/25548.shtml)
+- 2026-06-29 21:48 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/744070118.shtml)
+- 2026-06-29 21:53 - [请回答王牌2019](https://www.share.minike.top/Article/details/36815.shtml)
+- 2026-06-29 21:39 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/56887322712.shtml)
+- 2026-06-29 21:57 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/004186297.shtml)
+- 2026-06-29 21:59 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/2452907.shtml)
+- 2026-06-29 22:04 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/6917951077.shtml)
+- 2026-06-29 21:48 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/308483.shtml)
+- 2026-06-29 21:59 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/1141117306.shtml)
+- 2026-06-29 21:45 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/01755632998.shtml)
+- 2026-06-29 21:49 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/6696411014.shtml)
+- 2026-06-29 22:02 - [欧洲缘何成为变暖最快的大洲](http://www.blog.minike.top/Article/details/69975883.shtml)
+- 2026-06-29 21:39 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/22294607259.shtml)
+- 2026-06-29 21:53 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/874929.shtml)
+- 2026-06-29 21:37 - [这一刀 会很帅](https://www.share.minike.top/Article/details/9735396514.shtml)
+- 2026-06-29 21:41 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/64537016.shtml)

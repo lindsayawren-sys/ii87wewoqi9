@@ -1,58 +1,50 @@
-# 特朗普称美伊初步协议将于周日签署 伊朗表示质疑
+# 交通运输部：7省份地区连续降雨，公路交通存在高风险
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-美国总统特朗普和调解方巴基斯坦周六表示，旨在结束中东战争的初步协议将于周日签署，不过伊朗方面否认会如此迅速地签署协议。 巴基斯坦总理夏巴兹（Shehbaz Sharif）表示，双方已就和平协议框架达成一致，伊斯兰堡正为周日将进行的电子签署做准备，随后将于下周举行技术层面的会谈。 特朗普在社交媒体上发文称，与伊朗的协议定于周日签署，一旦签署，全球石油供应重要通道、目前被伊朗封锁的
+中新网6月19日电 据交通运输部官方微信消息，根据交通运输部与中国气象局会商研判，结合气象部门降雨数据，截至6月19日，安徽、江西、广东、广西、重庆、贵州、云南等7个省份的10个县区出现了降水天数15天以上、累计降雨量300毫米且超过常年同期水平2倍以上的情况，公路交通存在高风险。 交通运输部要求相关省份交通运输部门在地方人民政府领导下，做好连续降雨高风险区域的公路安全风险管控
 
 ## 正文
 
-美国总统特朗普和调解方巴基斯坦周六表示，旨在结束中东战争的初步协议将于周日签署，不过伊朗方面否认会如此迅速地签署协议。
+中新网6月19日电 据交通运输部官方微信消息，根据交通运输部与中国气象局会商研判，结合气象部门降雨数据，截至6月19日，安徽、江西、广东、广西、重庆、贵州、云南等7个省份的10个县区出现了降水天数15天以上、累计降雨量300毫米且超过常年同期水平2倍以上的情况，公路交通存在高风险。
 
-巴基斯坦总理夏巴兹（Shehbaz Sharif）表示，双方已就和平协议框架达成一致，伊斯兰堡正为周日将进行的电子签署做准备，随后将于下周举行技术层面的会谈。
+交通运输部要求相关省份交通运输部门在地方人民政府领导下，做好连续降雨高风险区域的公路安全风险管控工作，严格落实灾害风险隐患排查和公路巡查要求，提高力量预置的精准性和针对性，细化主动防御管控措施，切实保障连续降雨期间人民群众公路出行安全。
 
-特朗普在社交媒体上发文称，与伊朗的协议定于周日签署，一旦签署，全球石油供应重要通道、目前被伊朗封锁的霍尔木兹海峡将立即“向所有人开放”。
+交通运输部提醒，近期，上述地区出现连续降雨，公路沿线灾害风险较高，如您有上述地区出行计划，请提前关注天气及路况信息，合理规划路线，尽量避让灾害易发路段。
 
-周六早些时候，伊朗外交部发言人巴加埃（Esmaeil Baghaei）提醒，对签署日期发表任何评论都需谨慎。
+驾车出行时，请谨慎驾驶、观察路况，注意公路沿线情报板、告警阻拦设施等提示信息。
 
-“关于谅解备忘录的具体签署日期，我们还需拭目以待，不过肯定不会是明天，”官方媒体援引巴加埃的话称。
-
-“不能排除未来几天签署的可能性。
-
-但由于对方态度犹豫，我们对这一进程的任何评论都必须谨慎。
-
-” 随后接受记者采访的一名美国官员拒绝透露具体时间，但表示：“这是一项重大的协议，也是一项非常有力的协议。
+如遇灾害突发事件，第一时间及时停靠安全区域并拨打救援电话，等待专业处置。
 
 ## 相关推荐
 
-- 2026-06-29 21:57 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 21:55 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 21:45 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 21:45 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 21:46 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 21:51 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 21:36 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 21:37 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 21:56 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 21:53 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 21:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 21:33 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 21:49 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 21:44 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 21:57 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 21:39 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 21:45 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 21:52 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 21:49 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 21:54 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 21:54 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 22:05 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:51 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/648040.shtml)
-- 2026-06-29 21:43 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/404117873688.shtml)
-- 2026-06-29 21:44 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/3139666.shtml)
-- 2026-06-29 21:32 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/23403.shtml)
-- 2026-06-29 21:31 - [我和我的家乡](https://www.share.minike.top/Article/details/4922148790.shtml)
-- 2026-06-29 21:42 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/917510.shtml)
-- 2026-06-29 21:47 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/3040937896.shtml)
-- 2026-06-29 21:58 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/27338.shtml)
-- 2026-06-29 21:32 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/57356819.shtml)
-- 2026-06-29 21:58 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/8372806868.shtml)
-- 2026-06-29 21:49 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/61484017.shtml)
-- 2026-06-29 21:47 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/7709188.shtml)
-- 2026-06-29 21:30 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/7466167.shtml)
-- 2026-06-29 21:52 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/51762852543.shtml)
-- 2026-06-29 21:35 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/467958.shtml)
+- 2026-06-29 21:49 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/2350529390.shtml)
+- 2026-06-29 21:57 - [明星大侦探第一季](http://www.share.minike.top/Article/details/142703985.shtml)
+- 2026-06-29 22:04 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/120550488.shtml)
+- 2026-06-29 21:42 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.kurohicncr.top/Article/details/81677.shtml)
+- 2026-06-29 21:52 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/401981.shtml)
+- 2026-06-29 22:01 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.kurohicncr.top/Article/details/285136385773.shtml)
+- 2026-06-29 21:58 - [美人鱼](http://www.share.kurohicncr.top/Article/details/41166.shtml)
+- 2026-06-29 22:01 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/9480793939.shtml)
+- 2026-06-29 22:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/78750724060.shtml)
+- 2026-06-29 21:42 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/4369781.shtml)
+- 2026-06-29 21:59 - [周生如故](https://www.share.kurohicncr.top/Article/details/51525.shtml)
+- 2026-06-29 21:40 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/80619109786.shtml)
+- 2026-06-29 21:42 - [李思潼：不会介意大家夸我运气好](http://www.blog.minike.top/Article/details/404933.shtml)
+- 2026-06-29 21:42 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/80118739.shtml)
+- 2026-06-29 21:39 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/39800996599.shtml)

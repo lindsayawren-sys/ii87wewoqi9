@@ -1,52 +1,57 @@
-# 伊朗总统：战争和谈判的决定权在伊领导层
+# 纪录片｜永远的“四大队”
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-当地时间14日，伊朗总统佩泽希齐扬表示，战争和谈判的决定权在于伊朗领导层和伊朗最高国家安全委员会。 佩泽希齐扬在当日的一个会议上说，所有人都必须服从由伊朗最高领袖作出的决定。伊朗政府同时追求民生、国家主权和区域关系发展。凭借内部团结、积极的外交和经济改革，伊朗将战胜挑战。
+在中国共产党成立105周年之际，中共中央总书记、国家主席、中央军委主席习近平给新华社102岁老党员张连生回信，向他和全国的老党员、老同志致以诚挚问候。 习近平在回信中说，您当年作为中央纵队“四大队”报务员，在烽火硝烟中跟随党中央转战陕北，扎根通信技术岗位辛勤付出一辈子，期颐之年仍关心党和国家事业发展，向您表示敬意。 习近平表示，您在信中说，要永远跟党走，做永远的“四大队”队员，
 
 ## 正文
 
-当地时间14日，伊朗总统佩泽希齐扬表示，战争和谈判的决定权在于伊朗领导层和伊朗最高国家安全委员会。
+在中国共产党成立105周年之际，中共中央总书记、国家主席、中央军委主席习近平给新华社102岁老党员张连生回信，向他和全国的老党员、老同志致以诚挚问候。
 
-佩泽希齐扬在当日的一个会议上说，所有人都必须服从由伊朗最高领袖作出的决定。
+习近平在回信中说，您当年作为中央纵队“四大队”报务员，在烽火硝烟中跟随党中央转战陕北，扎根通信技术岗位辛勤付出一辈子，期颐之年仍关心党和国家事业发展，向您表示敬意。
 
-伊朗政府同时追求民生、国家主权和区域关系发展。
+习近平表示，您在信中说，要永远跟党走，做永远的“四大队”队员，这饱含着真挚深厚的信党爱党之情。
 
-凭借内部团结、积极的外交和经济改革，伊朗将战胜挑战。
+新时代共产党人要传承红色基因，不忘初心、牢记使命，履职尽责、实干担当，在新征程上书写优异答卷。
+
+1947年，张连生等新华社40余名同志跟随党中央转战陕北。
+
+他们所在的新华社工作队由时任新华社副总编辑范长江率领，被称作中央纵队“四大队”。
+
+以“四大队”为番号，这支队伍通过笔墨和电波，让中国共产党的声音穿破时空迷雾，在中华大地上回响，传向世界。
+
+编导：李亚光、蔡志坚、彭卓 记者：李亚光、李恒毅、刘春晖、杨志刚、吴鸿波 包装：夏勇 配音：王帅龙 新华社音视频部制作
 
 ## 相关推荐
 
-- 2026-06-29 21:36 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 21:38 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 21:32 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 21:59 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 21:31 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 21:48 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 21:49 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 21:33 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 21:51 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 21:38 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 21:32 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 21:57 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 21:32 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 21:45 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 21:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 21:43 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 22:01 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 21:51 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 21:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 21:43 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 22:05 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 21:56 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 21:50 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 21:49 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 21:56 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:44 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/2211358805.shtml)
-- 2026-06-29 21:40 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/929292.shtml)
-- 2026-06-29 21:33 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/94693.shtml)
-- 2026-06-29 21:58 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/30995.shtml)
-- 2026-06-29 21:31 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/459153.shtml)
-- 2026-06-29 21:30 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/8827334.shtml)
-- 2026-06-29 21:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/658335137.shtml)
-- 2026-06-29 21:45 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/33590.shtml)
-- 2026-06-29 21:43 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/124936636476.shtml)
-- 2026-06-29 21:46 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/8248074910.shtml)
-- 2026-06-29 21:50 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/33058641.shtml)
-- 2026-06-29 21:57 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/93744593138.shtml)
-- 2026-06-29 21:53 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/46765482.shtml)
-- 2026-06-29 21:32 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/86350.shtml)
-- 2026-06-29 21:36 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/8541298513.shtml)
+- 2026-06-29 21:41 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.minike.top/Article/details/506446210347.shtml)
+- 2026-06-29 21:58 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/5715342.shtml)
+- 2026-06-29 21:52 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/481309790.shtml)
+- 2026-06-29 21:54 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/107561.shtml)
+- 2026-06-29 22:05 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/314552.shtml)
+- 2026-06-29 21:51 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/5797496.shtml)
+- 2026-06-29 22:01 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/178662324366.shtml)
+- 2026-06-29 22:05 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/0553326927.shtml)
+- 2026-06-29 21:58 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/35521.shtml)
+- 2026-06-29 21:36 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/5509717.shtml)
+- 2026-06-29 22:04 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/2863345052.shtml)
+- 2026-06-29 21:59 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/37703.shtml)
+- 2026-06-29 21:56 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.kurohicncr.top/Article/details/0312115.shtml)
+- 2026-06-29 21:52 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/6938261724.shtml)
+- 2026-06-29 21:59 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/6582620.shtml)

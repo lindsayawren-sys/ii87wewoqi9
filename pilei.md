@@ -1,60 +1,59 @@
-# 瑞典5:1狂胜突尼斯，12款大模型全部压中赛果，但仅阶跃星辰嗅到进球盛宴
+# 第四届链博会明日开幕 亮点几何？
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间6月15日，2026年世界杯F组首轮迎来一场焦点战，瑞典队在蒙特雷体育场以一场酣畅淋漓的5：1大胜，彻底击碎了突尼斯队的防线。在这场进球盛宴的背后，赛前由联想集团与咪咕视频联合推出的“人机大战”AI预测环节上演了极具戏剧性的一幕——在参与挑战的12款主流国产大模型中，所有模型全部精准命中了“瑞典胜”
+央广网北京6月21日消息(记者 樊瑞)6月22日至26日，第四届中国国际供应链促进博览会(以下简称“链博会”)将在中国国际展览中心(顺义馆)举办。作为全球首个以供应链合作为主题的国家级展会，本届链博会有什么亮点？央广财经从贸促会了解到，本届链博会以全产业链视角为核心，设置数智科技链、先进制造链、绿色农业链、健康生活链、智能汽车链、清洁能源链等六大链条和一个供应链服务展区。联合国
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+央广网北京6月21日消息(记者 樊瑞)6月22日至26日，第四届中国国际供应链促进博览会(以下简称“链博会”)将在中国国际展览中心(顺义馆)举办。
 
-北京时间6月15日，2026年世界杯F组首轮迎来一场焦点战，瑞典队在蒙特雷体育场以一场酣畅淋漓的5：1大胜，彻底击碎了突尼斯队的防线。
+作为全球首个以供应链合作为主题的国家级展会，本届链博会有什么亮点？
 
-在这场进球盛宴的背后，赛前由联想集团与咪咕视频联合推出的“人机大战”AI预测环节上演了极具戏剧性的一幕——在参与挑战的12款主流国产大模型中，所有模型全部精准命中了“瑞典胜”的胜负关系。
+央广财经从贸促会了解到，本届链博会以全产业链视角为核心，设置数智科技链、先进制造链、绿色农业链、健康生活链、智能汽车链、清洁能源链等六大链条和一个供应链服务展区。
 
-然而，在具体的比分推演上，除了阶跃星辰以外，其余11款模型集体陷入了保守的“小比分陷阱”，完美诠释了AI在宏观实力判断上的精准与微观进球预测上的局限。
+联合国贸易和发展会议、联合国国际贸易法委员会、世界知识产权组织、国际贸易中心、国际商会等5家国际组织继续担任支持单位。
 
-8场比赛过后，人机大战的数据开始呈现出可追踪的结构性特征。
+本届链博会首次设置人工智能专区，是按照从数据与感知，到算力与算法，再到应用与解决方案的产业演进路径进行的系统化设计，展陈目标是全链条展现人工智能从数据采集、智能计算到场景落地的完整生态。
 
-第一，实力差距越大，AI越稳定。
+还将聚焦新能源、新材料、航空航天、低空经济等战略性新兴产业集群发展，组织国内外链主和链属企业在先进制造链等展区进行集中展示，全面呈现我国以技术创新为驱动、以高质量为导向的新质生产力发展情况。
 
-墨西哥胜南非、美国胜巴拉圭、德国胜库拉索，AIl命中率接近满分。
+澳大利亚将担任第四届链博会主宾国，这是其首次以官方国家级身份正式参与链博会。
 
-大数据在确定性区间的表现，依然具有优势。
+本届链博会首次设立外国主宾省，由法国奥弗涅—罗讷—阿尔卑斯大区、意大利利古里亚大区担任。
 
 ## 相关推荐
 
-- 2026-06-29 21:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 21:35 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 21:38 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 21:52 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 21:59 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 21:36 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 21:41 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 21:30 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 21:53 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 21:57 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 21:32 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 21:31 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 21:40 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 21:40 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 21:57 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 21:57 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 21:46 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 21:52 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 21:51 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 21:46 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 21:47 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 22:06 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 22:02 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 21:56 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 21:42 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 21:59 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 21:43 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:43 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/28028.shtml)
-- 2026-06-29 21:39 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/6140628.shtml)
-- 2026-06-29 21:51 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/9535640013.shtml)
-- 2026-06-29 21:47 - [国际清算银行警告AI投资热潮](https://www.blog.kurohicncr.top/Article/details/1618729.shtml)
-- 2026-06-29 21:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/813297858.shtml)
-- 2026-06-29 21:42 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/979924.shtml)
-- 2026-06-29 21:36 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/938497217.shtml)
-- 2026-06-29 21:49 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/4016497.shtml)
-- 2026-06-29 21:35 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.kurohicncr.top/Article/details/16509793229.shtml)
-- 2026-06-29 21:32 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/7131609.shtml)
-- 2026-06-29 21:46 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/310044489630.shtml)
-- 2026-06-29 21:55 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/477707607448.shtml)
-- 2026-06-29 21:35 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/811323.shtml)
-- 2026-06-29 21:30 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/1360943980.shtml)
-- 2026-06-29 21:33 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/275914940.shtml)
+- 2026-06-29 21:58 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/43773.shtml)
+- 2026-06-29 21:49 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/31907886.shtml)
+- 2026-06-29 21:50 - [回顾世界杯争议事件](https://www.blog.minike.top/Article/details/20597826.shtml)
+- 2026-06-29 21:52 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/88250346597.shtml)
+- 2026-06-29 21:36 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/08956.shtml)
+- 2026-06-29 21:52 - [LPL第三赛段赛制公布](http://www.share.kurohicncr.top/Article/details/8580625.shtml)
+- 2026-06-29 21:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/20572.shtml)
+- 2026-06-29 21:45 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/323211009633.shtml)
+- 2026-06-29 22:00 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/42614.shtml)
+- 2026-06-29 21:43 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/73848687.shtml)
+- 2026-06-29 21:51 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/30022569700.shtml)
+- 2026-06-29 22:03 - [周杰伦千禧年就有小卡了](http://www.share.kurohicncr.top/Article/details/938884423183.shtml)
+- 2026-06-29 21:51 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/285759873441.shtml)
+- 2026-06-29 21:57 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/9885040.shtml)
+- 2026-06-29 22:00 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/74833106.shtml)

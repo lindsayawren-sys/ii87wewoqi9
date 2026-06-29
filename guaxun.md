@@ -1,61 +1,60 @@
-# 食品安全问题多发，山姆总部被约谈！最新回应：完全认可、深刻反思
+# AI赋能农业合作成东盟与中国合作新热点
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-来源：华夏时报 针对一段时期以来监管发现和媒体曝光的山姆线下门店及线上网店多发的食品安全问题，近日，市场监管总局依法对沃尔玛（中国）投资有限公司（即山姆总部）负责人进行了责任约谈，要求其严格按照《中华人民共和国食品安全法》，以及《食品销售连锁企业落实食品安全主体责任监督管理规定》《网络食品销售经营者落实食品安全主体责任监督管理规定》等法律法规规定开展食品经营活动，始终树牢食品安
+中新网郑州6月18日电 (王宇)为期5天的中国(郑州)—东盟风情美食节18日持续在河南郑州举行，东盟及中国50余家企业参会。其间，人工智能(AI)赋能现代农业成为东盟与中国合作的热议话题。 在活动现场，众多东盟参展商纷纷期待将AI“智慧基因”融入舌尖美味，让传统风味更有“数”可依。 在马来西亚展位，搭载货运航班抵达郑州的猫山王榴莲受到市民追捧。该展位参展商叶秋德称，希望引入中国
 
 ## 正文
 
-来源：华夏时报 针对一段时期以来监管发现和媒体曝光的山姆线下门店及线上网店多发的食品安全问题，近日，市场监管总局依法对沃尔玛（中国）投资有限公司（即山姆总部）负责人进行了责任约谈，要求其严格按照《中华人民共和国食品安全法》，以及《食品销售连锁企业落实食品安全主体责任监督管理规定》《网络食品销售经营者落实食品安全主体责任监督管理规定》等法律法规规定开展食品经营活动，始终树牢食品安全意识，严格落实食品安全主体责任，自觉践行企业社会责任，严防全链条食品安全风险，切实保障公众饮食安全。
+中新网郑州6月18日电 (王宇)为期5天的中国(郑州)—东盟风情美食节18日持续在河南郑州举行，东盟及中国50余家企业参会。
 
-山姆中国方面回应称，“近日，我们接受了市场监管部门的约谈指导。
+其间，人工智能(AI)赋能现代农业成为东盟与中国合作的热议话题。
 
-针对约谈中监管部门所指出的问题与整改要求，我们完全认可、深刻反思并诚恳接受。
+在活动现场，众多东盟参展商纷纷期待将AI“智慧基因”融入舌尖美味，让传统风味更有“数”可依。
 
-对于相关问题给会员带来的困扰与不便，我们深表歉意。
+在马来西亚展位，搭载货运航班抵达郑州的猫山王榴莲受到市民追捧。
 
-”山姆中国方面指出，“目前，公司已由管理层牵头成立专项整改工作组，第一时间启动全渠道、全链路专项自查整改。
+该展位参展商叶秋德称，希望引入中国先进的人工智能技术，借助AI智能判别榴莲成熟度、精准监测病虫害、定位果实掉落位置，全方位升级果园标准化管理体系。
 
-我们将严格遵照相关法规及监管要求，全面优化食安管控和商品品控，严守食品安全底线、提升会员体验。
+同时，针对中国进口农产品溯源监管的市场需求，他希望依托AI溯源技术，进一步完善榴莲产品溯源体系。
 
-我们将定期向监管部门报送整改进展，主动接受社会各界监督。
+泰国馆集团有限公司董事长李文莉接受采访时表示，AI技术可精准优化种植决策，显著提升农业生产效率与产品品质。
 
-” 相关报道： 此前，杭州山姆会员商店有限公司因销售的一款“天丝床笠”被市场监管部门抽查发现“甲醛含量”项目不符合A类纺织品要求，检验结论为不合格，因此受到了行政处罚。
+她期待未来将AI技术进一步延伸至销售端，通过大数据分析筛选目标客户群体，实现精准营销。
 
 ## 相关推荐
 
-- 2026-06-29 21:48 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 21:32 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 21:51 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 21:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 21:45 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 21:34 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 21:58 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 21:48 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 21:46 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 21:54 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 21:42 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 21:34 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 21:32 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 21:32 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 21:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 21:57 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 21:47 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 21:46 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 21:36 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 21:49 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 21:46 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 22:02 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 21:53 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 21:52 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 21:46 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 21:49 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 21:54 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 21:54 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 21:48 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:44 - [《贺子珍》](http://www.blog.minike.top/Article/details/1177202.shtml)
-- 2026-06-29 21:46 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/238502097746.shtml)
-- 2026-06-29 21:41 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/49873.shtml)
-- 2026-06-29 21:49 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/4239779082.shtml)
-- 2026-06-29 21:35 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/68656.shtml)
-- 2026-06-29 21:44 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/735230.shtml)
-- 2026-06-29 21:35 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/06684856.shtml)
-- 2026-06-29 21:56 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/953704.shtml)
-- 2026-06-29 21:44 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/2811535173.shtml)
-- 2026-06-29 21:47 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/8791707898.shtml)
-- 2026-06-29 21:33 - [世界杯高票价为何没劝退球迷](https://www.share.kurohicncr.top/Article/details/46136276.shtml)
-- 2026-06-29 21:55 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/42094359159.shtml)
-- 2026-06-29 21:57 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/4375860.shtml)
-- 2026-06-29 21:59 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.kurohicncr.top/Article/details/61553921622.shtml)
-- 2026-06-29 21:49 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/72397.shtml)
+- 2026-06-29 21:58 - [时光音乐会](https://www.share.minike.top/Article/details/28884061.shtml)
+- 2026-06-29 21:48 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/903056479979.shtml)
+- 2026-06-29 21:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/552244340.shtml)
+- 2026-06-29 21:48 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/91269074561.shtml)
+- 2026-06-29 21:36 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/799541594.shtml)
+- 2026-06-29 21:45 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/820021639.shtml)
+- 2026-06-29 21:40 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/35464574434.shtml)
+- 2026-06-29 21:49 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/26388.shtml)
+- 2026-06-29 21:56 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/8703727.shtml)
+- 2026-06-29 21:48 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/096987.shtml)
+- 2026-06-29 21:57 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/692001.shtml)
+- 2026-06-29 22:00 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/0075410111.shtml)
+- 2026-06-29 22:04 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/8478053.shtml)
+- 2026-06-29 21:59 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/9669870894.shtml)
+- 2026-06-29 21:41 - [绘画区你赢了](https://www.share.minike.top/Article/details/41230.shtml)

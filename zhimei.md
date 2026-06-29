@@ -1,48 +1,59 @@
-# 上海：截至一季度末科技创新和技术改造贷款签约金额1490亿元
+# 二十四节令鼓擂响深圳大沙河 海内外龙舟队竞渡
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-6月15日金融一线消息，近日，人民银行上海总部、市发展改革委、市财政局、市经济信息化委、市科委、市住房城乡建设管理委、市交通委、市农业农村委、市水务局、市应急管理局、市国资委等十一部门联合召开上海市科技创新和技术改造贷款工作推进会。 会议指出，自科技创新和技术改造再贷款政策实施以来，人民银行上海总部与上海市相关部门紧密合作，引导在沪金融机构加强名单内企业和项目的融资对接，推动信
+中新网深圳6月19日电 (记者 索有为)作为2026年深圳龙舟文化嘉年华的序章，6月19日上午的深圳市南山区大沙河上，一场二十四节令鼓为“华为坤灵·2026年大沙河国际龙舟邀请赛”拉开帷幕，在鹏城激荡出传统与现代交融的璀璨浪花。 清晨的大沙河畔，晨光洒落，沿河观赛区早已聚满市民。一声浑厚的鼓槌落下，十二面大鼓依次排开，鼓手们身姿挺拔，齐声击鼓，第一记重击，震落晨露；第二记合鸣，
 
 ## 正文
 
-6月15日金融一线消息，近日，人民银行上海总部、市发展改革委、市财政局、市经济信息化委、市科委、市住房城乡建设管理委、市交通委、市农业农村委、市水务局、市应急管理局、市国资委等十一部门联合召开上海市科技创新和技术改造贷款工作推进会。
+中新网深圳6月19日电 (记者 索有为)作为2026年深圳龙舟文化嘉年华的序章，6月19日上午的深圳市南山区大沙河上，一场二十四节令鼓为“华为坤灵·2026年大沙河国际龙舟邀请赛”拉开帷幕，在鹏城激荡出传统与现代交融的璀璨浪花。
 
-会议指出，自科技创新和技术改造再贷款政策实施以来，人民银行上海总部与上海市相关部门紧密合作，引导在沪金融机构加强名单内企业和项目的融资对接，推动信贷落地投放，政策实施取得阶段性成效。
+清晨的大沙河畔，晨光洒落，沿河观赛区早已聚满市民。
 
-截至2026年一季度末，上海市科技创新和技术改造贷款签约金额1490亿元，贷款余额676亿元，较上年同期翻了一番。
+一声浑厚的鼓槌落下，十二面大鼓依次排开，鼓手们身姿挺拔，齐声击鼓，第一记重击，震落晨露；第二记合鸣，惊起水鸟；第三记群鼓齐发，整座大沙河仿佛被唤醒。
 
-责任编辑：王馨茹
+激昂错落的鼓点，如惊蛰春雷滚过原野，如夏至骤雨倾泻江河，如秋分金风横扫稻浪，如冬至寒霜凝铸冰河，将自然时序的流转演绎得淋漓尽致，尽显中华传统文化的磅礴气势与南粤鼓乐艺术的魅力。
+
+雄浑铿锵的鼓声沿着大沙河传开，惊起浅滩边觅食的白鹭，也点燃了沿岸市民观众的热情。
+
+孩子们跟着鼓点拍手跳跃，老人们屏息凝神频频点头，年轻人们纷纷举起手机记录这震撼人心的表演。
+
+待最后一声鼓点落下，人群中爆发出雷鸣般的掌声与喝彩声。
+
+鼓声渐收，余韵未绝。
 
 ## 相关推荐
 
-- 2026-06-29 21:40 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 21:33 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 21:52 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 21:47 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 21:56 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 21:51 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 21:52 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 21:39 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 21:30 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 21:34 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 21:57 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 22:04 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 22:02 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 21:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 21:40 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 22:03 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 21:44 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 21:40 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 22:05 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 21:44 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 21:40 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 21:53 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 22:05 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:47 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/75153829.shtml)
-- 2026-06-29 21:38 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/40349524.shtml)
-- 2026-06-29 21:31 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/949195.shtml)
-- 2026-06-29 21:45 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/3361444696.shtml)
-- 2026-06-29 21:37 - [李思潼：不会介意大家夸我运气好](http://www.share.minike.top/Article/details/54742.shtml)
-- 2026-06-29 21:51 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/419309369.shtml)
-- 2026-06-29 21:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/29486.shtml)
-- 2026-06-29 21:51 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/889823386485.shtml)
-- 2026-06-29 21:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/45103422934.shtml)
-- 2026-06-29 21:40 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/325619.shtml)
-- 2026-06-29 21:59 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/042521736398.shtml)
-- 2026-06-29 21:54 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/26969209735.shtml)
-- 2026-06-29 21:49 - [绿营污蔑大陆“海上袭扰”被批](https://www.share.minike.top/Article/details/3678497.shtml)
-- 2026-06-29 21:51 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/15564437946.shtml)
-- 2026-06-29 21:33 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/17454.shtml)
+- 2026-06-29 21:40 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.kurohicncr.top/Article/details/2199325013.shtml)
+- 2026-06-29 21:58 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/87980.shtml)
+- 2026-06-29 21:40 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/985743192.shtml)
+- 2026-06-29 21:54 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/458839040703.shtml)
+- 2026-06-29 21:49 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/688416536933.shtml)
+- 2026-06-29 21:45 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/302419697327.shtml)
+- 2026-06-29 21:47 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/05369.shtml)
+- 2026-06-29 21:37 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/339288720.shtml)
+- 2026-06-29 21:38 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.minike.top/Article/details/90604.shtml)
+- 2026-06-29 21:56 - [新官上任三把火](https://www.share.minike.top/Article/details/8615798730.shtml)
+- 2026-06-29 22:04 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/561029836136.shtml)
+- 2026-06-29 22:03 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.kurohicncr.top/Article/details/7425790.shtml)
+- 2026-06-29 21:46 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/81226831284.shtml)
+- 2026-06-29 21:53 - [一生一世](https://www.blog.minike.top/Article/details/0361052.shtml)
+- 2026-06-29 21:58 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/0351395721.shtml)

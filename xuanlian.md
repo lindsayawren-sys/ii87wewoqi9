@@ -1,48 +1,48 @@
-# 固生堂获睿远基金增持20万股 每股作价约27.75港元
+# 【看见中国】飘洋过海学中医的“洋弟子”：希望用中医帮助更多人
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，6月10日，睿远基金增持固生堂（02273）20万股，每股作价27.7475港元，总金额为554.95万港元。增持后最新持股数目为2350.71万股，最新持股比例为10.03%。责任编辑：卢昱君
+发布时间：2026年06月19日 18:36 来源：中国新闻网 来自法国的“00后”山东中医药大学留学生林决明，曾经在法国学习过五年中医，并在法国从事相关工作。工作一段时间后，他对中文、中医和中医蕴含的中国文化产生了浓厚兴趣，决定亲身前往中国学习更多中医知识。 在北京学习两年中文后，他来到山东中医药大学就读，在他看来，法国和中国的中医课程有相似也有不同，中国的中医知识更加源远流
 
 ## 正文
 
-香港联交所最新资料显示，6月10日，睿远基金增持固生堂（02273）20万股，每股作价27.7475港元，总金额为554.95万港元。
+发布时间：2026年06月19日 18:36 来源：中国新闻网 来自法国的“00后”山东中医药大学留学生林决明，曾经在法国学习过五年中医，并在法国从事相关工作。
 
-增持后最新持股数目为2350.71万股，最新持股比例为10.03%。
+工作一段时间后，他对中文、中医和中医蕴含的中国文化产生了浓厚兴趣，决定亲身前往中国学习更多中医知识。
 
-责任编辑：卢昱君
+在北京学习两年中文后，他来到山东中医药大学就读，在他看来，法国和中国的中医课程有相似也有不同，中国的中医知识更加源远流长，而且有更多实习机会，他希望学到更多中医知识，用中医帮助更多人。
+
+记者 祁建月 赵晓 山东济南报道 责任编辑：【孙静波】
 
 ## 相关推荐
 
-- 2026-06-29 21:42 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 21:58 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 21:33 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 21:43 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 21:37 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 21:57 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 21:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 21:44 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 21:55 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 21:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 21:36 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 21:57 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 21:36 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 21:53 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 21:55 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 21:58 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 21:40 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 21:41 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 21:47 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 21:47 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 22:02 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 21:49 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:31 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/93444638.shtml)
-- 2026-06-29 21:33 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.minike.top/Article/details/32377096244.shtml)
-- 2026-06-29 21:42 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/2091886923.shtml)
-- 2026-06-29 21:52 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/46671406066.shtml)
-- 2026-06-29 21:51 - [乌克兰发广告全球征兵](http://www.blog.minike.top/Article/details/011497.shtml)
-- 2026-06-29 21:42 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/512259870567.shtml)
-- 2026-06-29 21:56 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/1447956.shtml)
-- 2026-06-29 21:51 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/65068.shtml)
-- 2026-06-29 21:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/91907.shtml)
-- 2026-06-29 21:42 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/109056.shtml)
-- 2026-06-29 21:37 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/958359.shtml)
-- 2026-06-29 21:44 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/055089.shtml)
-- 2026-06-29 21:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/75607.shtml)
-- 2026-06-29 21:53 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/307294633.shtml)
-- 2026-06-29 21:40 - [小娘惹](http://www.share.minike.top/Article/details/3290122039.shtml)
+- 2026-06-29 21:43 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/8327158.shtml)
+- 2026-06-29 21:48 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/3850699104.shtml)
+- 2026-06-29 22:01 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/492266274.shtml)
+- 2026-06-29 21:46 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/091104935.shtml)
+- 2026-06-29 21:54 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/402226967.shtml)
+- 2026-06-29 21:48 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/9336886383.shtml)
+- 2026-06-29 21:51 - [毒液2](https://www.blog.minike.top/Article/details/72583716.shtml)
+- 2026-06-29 22:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/838783637.shtml)
+- 2026-06-29 22:03 - [斛珠夫人](http://www.blog.minike.top/Article/details/08355465.shtml)
+- 2026-06-29 22:05 - [金刚川](http://www.blog.kurohicncr.top/Article/details/5197498835.shtml)
+- 2026-06-29 21:54 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/08186932.shtml)
+- 2026-06-29 22:02 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/7934159673.shtml)
+- 2026-06-29 22:00 - [王安宇聪明到导演组炸了](https://www.blog.kurohicncr.top/Article/details/85807.shtml)
+- 2026-06-29 21:49 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/208517593.shtml)
+- 2026-06-29 21:49 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/6773770173.shtml)

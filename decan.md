@@ -1,59 +1,57 @@
-# （活力中国调研行）从实验室到生产线，天津科研转化出妙招
+# “避暑”成关键词、龙舟赛火爆 大数据看端午假期热点
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-中新网天津6月16日电 (记者 王恩博 王梦瑶)让实验室里的科研成果能走到工厂生产线，是从0到1的跨越，也是最关键的一步。 近日，2026年“活力中国调研行”天津主题采访活动走进天开高教科创园，园区目前累计注册企业超5000家，培育天开科创专板入板企业204家，培育高新技术企业122家。 园区内，南开大学应用化学与工程研究所副研究员、天津常兴新能源科技有限公司负责人严振华告诉记
+端午假期，人们出游热情高涨。数据分析显示，今年端午假期整体出游人群规模预计较去年同期增长4%，毕业旅游、避暑出行、龙舟赛将成为今年端午假期的三大热点。 中短途家庭游将成主流 毕业旅游热度提升 2至3天的中短途家庭游预计将成为主流趋势，新能源汽车出行量预计较去年同期增长32%。今年端午假期恰逢高考结束叠加毕业季，毕业旅游将成为热点。自6月12日以来，学生出游群体规模较去年同期提升
 
 ## 正文
 
-中新网天津6月16日电 (记者 王恩博 王梦瑶)让实验室里的科研成果能走到工厂生产线，是从0到1的跨越，也是最关键的一步。
+端午假期，人们出游热情高涨。
 
-近日，2026年“活力中国调研行”天津主题采访活动走进天开高教科创园，园区目前累计注册企业超5000家，培育天开科创专板入板企业204家，培育高新技术企业122家。
+数据分析显示，今年端午假期整体出游人群规模预计较去年同期增长4%，毕业旅游、避暑出行、龙舟赛将成为今年端午假期的三大热点。
 
-园区内，南开大学应用化学与工程研究所副研究员、天津常兴新能源科技有限公司负责人严振华告诉记者：“南开大学新能源相关专利成果转化率已经达到15%以上，远超国内3%的平均水平。
+中短途家庭游将成主流 毕业旅游热度提升 2至3天的中短途家庭游预计将成为主流趋势，新能源汽车出行量预计较去年同期增长32%。
 
-” 交谈中，严振华频繁提及中试平台的作用。
+今年端午假期恰逢高考结束叠加毕业季，毕业旅游将成为热点。
 
-中试是重大科技成果从实验室走向生产线的关键环节，常兴新能源依托南开大学陈军院士团队的核心专利技术，由天津市西青区政府投资支持，打造了新能源电池及关键材料中试转化平台。
+自6月12日以来，学生出游群体规模较去年同期提升19%。
 
-天津这样的平台还有很多。
+部分景区针对学生推出购票优惠政策，长白山景区、宝泉旅游区、恩施大峡谷景区学生游客量预计较去年同期提升54%。
 
-据市工信局介绍，为打通这一环节天津在今年5月出台了《天津市制造业中试平台创新发展实施方案》，提出制造业中试平台培育目标，致力于明晰培育路径，加速创新成果产业化。
+“避暑”成假期关键词 “避暑”是这个假期的另一个关键词，新疆伊犁、甘肃武威、四川阿坝等一些凉爽松弛的小城客流量预计较去年同期增幅超15%。
 
-在科研端，北洋海棠基金依托天津大学学科与校友资源优势，打造出专业化、市场化的硬科技创投机构。
+端午假期广东龙舟赛“出圈” 广东凭借龙舟赛成为这个端午火爆的文化目的地之一。
 
 ## 相关推荐
 
-- 2026-06-29 21:34 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 21:58 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 21:48 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 21:49 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 21:37 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 21:43 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 21:36 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 21:46 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 21:53 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 21:52 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 21:44 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 21:43 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 21:51 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 21:46 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 22:02 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 21:50 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 21:36 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 22:02 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 21:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 21:45 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 22:05 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 21:58 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 21:42 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 22:03 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:50 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/20032.shtml)
-- 2026-06-29 21:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/221037645374.shtml)
-- 2026-06-29 21:59 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/6309753.shtml)
-- 2026-06-29 21:46 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/6382906.shtml)
-- 2026-06-29 21:37 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/70610046.shtml)
-- 2026-06-29 21:32 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/709486.shtml)
-- 2026-06-29 21:30 - [恋与深空7天掉粉超50万](https://www.blog.minike.top/Article/details/342034546353.shtml)
-- 2026-06-29 21:30 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/425350448492.shtml)
-- 2026-06-29 21:49 - [恋与深空回应争议](http://www.share.minike.top/Article/details/821486359.shtml)
-- 2026-06-29 21:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/3041211819.shtml)
-- 2026-06-29 21:36 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/91937245.shtml)
-- 2026-06-29 21:54 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/787037621849.shtml)
-- 2026-06-29 21:33 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/14062587.shtml)
-- 2026-06-29 21:43 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/8894416575.shtml)
-- 2026-06-29 21:37 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/759740934.shtml)
+- 2026-06-29 21:42 - [王楚钦开门红](https://www.blog.minike.top/Article/details/7620673611.shtml)
+- 2026-06-29 21:43 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/9770131.shtml)
+- 2026-06-29 21:44 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/701557972085.shtml)
+- 2026-06-29 21:53 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/19271573.shtml)
+- 2026-06-29 22:01 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/93104669631.shtml)
+- 2026-06-29 21:53 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/8492246150.shtml)
+- 2026-06-29 21:48 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/67868295.shtml)
+- 2026-06-29 21:56 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/8207396422.shtml)
+- 2026-06-29 21:41 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/755868.shtml)
+- 2026-06-29 22:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/9548533.shtml)
+- 2026-06-29 21:42 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/7875445.shtml)
+- 2026-06-29 22:04 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/603713.shtml)
+- 2026-06-29 21:45 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.kurohicncr.top/Article/details/881282422.shtml)
+- 2026-06-29 21:55 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/732653.shtml)
+- 2026-06-29 22:03 - [网约车出事故平台拒赔称只是中介](https://www.blog.kurohicncr.top/Article/details/558908471510.shtml)

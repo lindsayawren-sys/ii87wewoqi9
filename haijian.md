@@ -1,52 +1,46 @@
-# Vatee万腾:观望情绪暂未消退
+# 印度谋求在美印贸易协定中获取竞争优势
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-6月15日，黄金经历周度大幅震荡后，Vatee万腾表示市场情绪仍偏向观望，机构与个人投资者都在等待新的宏观信号来确认下一段节奏。 从调查反馈看，Vatee万腾认为贵金属投资者目前更关注政策会议、技术支撑区和收益率变化，在缺少新增催化前，趋势性押注意愿很难快速回升。 这种谨慎状态既限制了追涨动力，也让低位承接更依赖数据面的配合，因此黄金短线大概率仍会维持反复波动。 综合当前环境，
+媒体援引印度一名联邦部长的消息称，在取得相较于其他国家的竞争优势前，印度不太可能落实拟议中的美印贸易协定。 报道称，印度工商部长于周六新闻发布会上表示：“目前悬而未决的核心问题是，我方关税水平必须低于其他竞争国家。”责任编辑：何云
 
 ## 正文
 
-6月15日，黄金经历周度大幅震荡后，Vatee万腾表示市场情绪仍偏向观望，机构与个人投资者都在等待新的宏观信号来确认下一段节奏。
+媒体援引印度一名联邦部长的消息称，在取得相较于其他国家的竞争优势前，印度不太可能落实拟议中的美印贸易协定。
 
-从调查反馈看，Vatee万腾认为贵金属投资者目前更关注政策会议、技术支撑区和收益率变化，在缺少新增催化前，趋势性押注意愿很难快速回升。
+报道称，印度工商部长于周六新闻发布会上表示：“目前悬而未决的核心问题是，我方关税水平必须低于其他竞争国家。
 
-这种谨慎状态既限制了追涨动力，也让低位承接更依赖数据面的配合，因此黄金短线大概率仍会维持反复波动。
-
-综合当前环境，Vatee万腾分析称若情绪指标与价格结构同步改善，贵金属才更有机会从防守姿态转向温和修复。
-
-责任编辑：陈平
+”责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 21:51 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 21:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 21:58 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 21:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 21:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 21:43 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 21:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 21:49 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 21:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 21:39 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 21:31 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 21:44 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 21:50 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 22:02 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 22:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 22:01 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 21:44 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 21:40 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 22:05 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 21:48 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 21:59 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 21:47 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:59 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/878710924084.shtml)
-- 2026-06-29 21:41 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/6716965654.shtml)
-- 2026-06-29 21:44 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/885651058.shtml)
-- 2026-06-29 21:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/4345077.shtml)
-- 2026-06-29 21:48 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/190382846.shtml)
-- 2026-06-29 21:45 - [多人将马路护栏当球网打羽毛球](https://www.share.minike.top/Article/details/9816166697.shtml)
-- 2026-06-29 21:44 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/160758016585.shtml)
-- 2026-06-29 21:39 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/11186.shtml)
-- 2026-06-29 21:32 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/5297499838.shtml)
-- 2026-06-29 21:36 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/6739730.shtml)
-- 2026-06-29 21:37 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/66658302.shtml)
-- 2026-06-29 21:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/5778548675.shtml)
-- 2026-06-29 21:56 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.minike.top/Article/details/548142.shtml)
-- 2026-06-29 21:56 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/37998.shtml)
-- 2026-06-29 21:52 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/78507130.shtml)
+- 2026-06-29 21:58 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/6968937572.shtml)
+- 2026-06-29 22:00 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/713839074.shtml)
+- 2026-06-29 21:39 - [蔚来车主罚站](http://www.share.minike.top/Article/details/806901556.shtml)
+- 2026-06-29 21:47 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/047599059506.shtml)
+- 2026-06-29 22:03 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/2332800.shtml)
+- 2026-06-29 21:41 - [天道](https://www.blog.kurohicncr.top/Article/details/99537.shtml)
+- 2026-06-29 21:37 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/768781561.shtml)
+- 2026-06-29 21:37 - [流金岁月](https://www.share.kurohicncr.top/Article/details/930603639.shtml)
+- 2026-06-29 21:42 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/0836062387.shtml)
+- 2026-06-29 21:57 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/0945792348.shtml)
+- 2026-06-29 21:58 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/249106087.shtml)
+- 2026-06-29 21:50 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/88437694.shtml)
+- 2026-06-29 21:42 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/674589.shtml)
+- 2026-06-29 22:05 - [斛珠夫人](https://www.blog.minike.top/Article/details/306629060627.shtml)
+- 2026-06-29 21:54 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/67486743.shtml)

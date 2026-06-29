@@ -1,61 +1,59 @@
-# 沪金价格延续震荡偏强 双胶纸基本面驱动不强
+# 辽宁大连-乌兰巴托航线复航
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-（来源：新世纪期货） 研报正文 【沪金】 黄金的定价机制由实际利率框架和去美元化框架共同作用。其中，去美元化框架以央行购金为核心，背后是“去中心化”、避险需求的集中体现，凸显其商品属性、货币属性和避险属性；商品属性方面，中国实物金需求明显上升，央行从 2024 年 11 月重启增持黄金，已连续增持19 个月； 货币属性方面，美国债务问题导致美元的货币信用出现裂痕，在去美元化进程
+中新网大连6月20日电 (记者 杨毅)辽宁大连往返乌兰巴托国际客运航线20日正式复航。 当日0时35分，蒙古匈奴航空MR891次航班，搭载着143名出入境旅客和机组人员，成功降落在大连周水子国际机场；1时35分，大连-乌兰巴托航班启航，116名旅客乘坐航班飞往蒙古国。 据介绍，该航线每周执飞一班，由蒙古匈奴航空执飞。为确保航班复航顺畅、快速、安全，大连周水子出入境边防检查站提前
 
 ## 正文
 
-（来源：新世纪期货） 研报正文 【沪金】 黄金的定价机制由实际利率框架和去美元化框架共同作用。
+中新网大连6月20日电 (记者 杨毅)辽宁大连往返乌兰巴托国际客运航线20日正式复航。
 
-其中，去美元化框架以央行购金为核心，背后是“去中心化”、避险需求的集中体现，凸显其商品属性、货币属性和避险属性；商品属性方面，中国实物金需求明显上升，央行从 2024 年 11 月重启增持黄金，已连续增持19 个月； 货币属性方面，美国债务问题导致美元的货币信用出现裂痕，在去美元化进程中黄金的去法币化属性凸显；避险属性方面，地缘政治风险持续，市场避险需求仍在，成为支撑黄金价格的重要因素。
+当日0时35分，蒙古匈奴航空MR891次航班，搭载着143名出入境旅客和机组人员，成功降落在大连周水子国际机场；1时35分，大连-乌兰巴托航班启航，116名旅客乘坐航班飞往蒙古国。
 
-实际利率框架体现黄金的金融属性，利率越高，持有黄金的机会成本越高，资金就会从零息黄金流向生息资产。
+据介绍，该航线每周执飞一班，由蒙古匈奴航空执飞。
 
-这两套逻辑并不矛盾，去美元化是背景、是慢变量，实际利率是即时的、是快变量。
+为确保航班复航顺畅、快速、安全，大连周水子出入境边防检查站提前谋划，从勤务组织、设备维护、服务保障等方面进行全面部署，提前开足查验通道，缩短旅客候检时间。
 
-美伊冲突以来，油价高企，市场对利率预期有所转向，利率预期的快变量使得黄金重回实际利率框架内，但去美元化框架在中长期的作用仍在。
+复航当日恰逢中国传统端午节假期，在入境通关现场，移民管理警察为入境旅客送上粽子挂件，让远道而来的旅客在踏进国门的第一时间便感受到中华传统文化的温度与中国人民的热情。
 
-2025 年9 月美联储启动本轮降息以来已连续降息三次，美联储4 月FOMC会议决定维持利率不变，这是连续第三次会议按兵不动，符合市场预期。
+据了解，端午节期间，大连周水子国际机场口岸预计出入境旅客1.1万余人次，日均客流同比上涨14.3%。
 
-根据美国最新数据，5 月非农数据表现强劲，5月非农就业人口新增 17.2 万人，大幅超过市场预期，且大幅上修 4 月数据至 17.9 万人，失业率维持在4.3%；美国4月核心 PCE 同比上涨 3，3%，符合市场预期，较上月有所上涨，美国 4 月 PCE 同比上涨3.8%，符合市场预期，较上月大幅上涨，主要受到能源价格高位影响；5 月CPI 同比涨 4.2%，创出三年新高，符合市场预期，较上月上涨。
-
-短期来看，美伊达成谅解备忘录，中东局势急剧降温，油价大幅下跌，通胀担忧减弱，市场对美联储年底降息预期回落，美元指数大幅下跌，金价现反弹，关注本周FOMC会议沃什发言。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:34 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 21:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 21:31 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 21:58 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 21:40 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 21:35 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 21:59 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 21:31 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 21:30 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 21:38 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 21:36 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 21:40 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 21:50 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 21:51 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 21:45 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 21:38 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 21:38 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 21:58 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 21:39 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 21:46 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 21:39 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 21:40 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 21:53 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 21:48 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 21:42 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 21:59 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 21:43 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 21:39 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 21:57 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 21:57 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:38 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/483007272.shtml)
-- 2026-06-29 21:56 - [速度与激情9](https://www.share.minike.top/Article/details/40549022.shtml)
-- 2026-06-29 21:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/57611296.shtml)
-- 2026-06-29 21:31 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/8725194.shtml)
-- 2026-06-29 21:58 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/678786.shtml)
-- 2026-06-29 21:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/02331022530.shtml)
-- 2026-06-29 21:35 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/8521555102.shtml)
-- 2026-06-29 21:38 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/5826242691.shtml)
-- 2026-06-29 21:33 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/238022529205.shtml)
-- 2026-06-29 21:43 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/47637978.shtml)
-- 2026-06-29 21:34 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/36565697193.shtml)
-- 2026-06-29 21:42 - [巴西10号球衣是天才传承史](https://www.share.kurohicncr.top/Article/details/3040266205.shtml)
-- 2026-06-29 21:42 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/2322782.shtml)
-- 2026-06-29 21:50 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/967382.shtml)
-- 2026-06-29 21:57 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/34756.shtml)
+- 2026-06-29 21:42 - [恋与深空7天掉粉超50万](http://www.blog.minike.top/Article/details/12048832205.shtml)
+- 2026-06-29 21:44 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/36830057.shtml)
+- 2026-06-29 21:56 - [欧洲缘何成为变暖最快的大洲](https://www.blog.minike.top/Article/details/67591409472.shtml)
+- 2026-06-29 22:00 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/601126149.shtml)
+- 2026-06-29 22:01 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/162212.shtml)
+- 2026-06-29 22:04 - [王楚钦开门红](http://www.share.minike.top/Article/details/75206852.shtml)
+- 2026-06-29 21:39 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/30832401.shtml)
+- 2026-06-29 22:05 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/52154023.shtml)
+- 2026-06-29 21:36 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/886702097.shtml)
+- 2026-06-29 21:45 - [巴西10号球衣是天才传承史](https://www.blog.kurohicncr.top/Article/details/720182585081.shtml)
+- 2026-06-29 22:02 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/90636.shtml)
+- 2026-06-29 21:50 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/38913102390.shtml)
+- 2026-06-29 21:38 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/324641627168.shtml)
+- 2026-06-29 21:51 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/16630580745.shtml)
+- 2026-06-29 22:01 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/0955333475.shtml)

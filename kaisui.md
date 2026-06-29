@@ -1,43 +1,60 @@
-# 海峡两岸体育嘉年华在福建举办 搭建两岸体育交流和青年互动广阔舞台
+# 从钢花飞溅到机甲巡游 重庆大渡口以场景创新托举机器人全产业链发展
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 09:26 来源：央视新闻 责任编辑：【王祎】
+中新网重庆6月19日电 题：从钢花飞溅到机甲巡游 重庆大渡口以场景创新托举机器人全产业链发展 作者 杨梦逸 6月19日，在位于重庆市大渡口区的重庆工业文化博览园内，20余台人形机器人随音乐抬臂、转身、腾挪，与专业舞者同台共舞。台下座无虚席，观众举起手机争相拍摄。这是2026重庆DDK机器人潮玩嘉年华的现场一幕。 这场科技文旅活动，选址于重庆钢铁(集团)有限责任公司老厂房原址。百
 
 ## 正文
 
-发布时间：2026年06月16日 09:26 来源：央视新闻 责任编辑：【王祎】
+中新网重庆6月19日电 题：从钢花飞溅到机甲巡游 重庆大渡口以场景创新托举机器人全产业链发展 作者 杨梦逸 6月19日，在位于重庆市大渡口区的重庆工业文化博览园内，20余台人形机器人随音乐抬臂、转身、腾挪，与专业舞者同台共舞。
+
+台下座无虚席，观众举起手机争相拍摄。
+
+这是2026重庆DDK机器人潮玩嘉年华的现场一幕。
+
+这场科技文旅活动，选址于重庆钢铁(集团)有限责任公司老厂房原址。
+
+百年前铁水奔流的工业基地，如今变身科幻乐园，人机共舞、机甲巡游、擂台对战、机器狗闯关等场景轮番上演，成为重庆端午假期人气打卡地之一。
+
+不止于文旅活动，这场嘉年华同时也是当地机器人产业面向大众的“场景试验场”和“成果展示窗”。
+
+现场集中展出的人形机器人、消防四足机器狗、央视春晚同款跳舞机器人等多款产品，既展示了其在工业制造、电力巡检、应急救援等领域的专业能力，也验证了在文旅演艺、亲子互动、潮玩竞技等消费场景中的商业化落地可行性。
+
+嘉年华落地的背后，是重庆市大渡口区在具身智能这一未来产业赛道上的系统布局。
 
 ## 相关推荐
 
-- 2026-06-29 21:43 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 21:54 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 21:41 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 21:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 21:34 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 21:34 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 21:58 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 21:57 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 21:55 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 21:30 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 21:43 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 22:04 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 21:56 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 21:38 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 21:45 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 22:02 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 21:54 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 21:45 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 21:39 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 21:36 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 22:00 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 22:02 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 21:52 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 21:57 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 21:52 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:48 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/1515353.shtml)
-- 2026-06-29 21:35 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/634095550015.shtml)
-- 2026-06-29 21:41 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/3225022606.shtml)
-- 2026-06-29 21:57 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/7959655.shtml)
-- 2026-06-29 21:48 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/02016542281.shtml)
-- 2026-06-29 21:50 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/425559200691.shtml)
-- 2026-06-29 21:39 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/381002.shtml)
-- 2026-06-29 21:41 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/8000892444.shtml)
-- 2026-06-29 21:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/27664939153.shtml)
-- 2026-06-29 21:33 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/8631225867.shtml)
-- 2026-06-29 21:50 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/81436206.shtml)
-- 2026-06-29 21:55 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/897902985.shtml)
-- 2026-06-29 21:33 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/64131.shtml)
-- 2026-06-29 21:57 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/920868615537.shtml)
-- 2026-06-29 21:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/848474036.shtml)
+- 2026-06-29 21:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/07231889.shtml)
+- 2026-06-29 21:47 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/053543.shtml)
+- 2026-06-29 21:57 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/3815781.shtml)
+- 2026-06-29 22:04 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/91810742.shtml)
+- 2026-06-29 22:02 - [国际清算银行警告AI投资热潮](http://www.share.minike.top/Article/details/91000626865.shtml)
+- 2026-06-29 22:02 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/19068112567.shtml)
+- 2026-06-29 22:00 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/22207609002.shtml)
+- 2026-06-29 21:49 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/39300220.shtml)
+- 2026-06-29 21:36 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/91690664948.shtml)
+- 2026-06-29 21:40 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/2334696.shtml)
+- 2026-06-29 21:49 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/253506857.shtml)
+- 2026-06-29 21:48 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/9612149990.shtml)
+- 2026-06-29 21:45 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/028364963377.shtml)
+- 2026-06-29 21:38 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/826033969.shtml)
+- 2026-06-29 21:44 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/562923018.shtml)

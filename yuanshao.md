@@ -1,60 +1,59 @@
-# 端午节假期全国口岸日均出入境人员将达220万人次
+# 推出隔夜逆回购操作工具，构建现代中央银行制度
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-中新网6月16日电 据国家移民管理局微信公众号消息，端午佳节将至，预计全国口岸将迎来出入境客流高峰。据国家移民管理局预测，端午节假期全国口岸日均出入境人员将达220万人次，较去年端午节假期增长11.7%，单日最高通关量将突破235万人次。大型空港口岸出入境客流小幅增长，上海浦东、北京首都、广州白云、深圳宝安、北京大兴、成都天府等国际机场日均出入境人员预计分别为10.4万、5.2
+来源：华夏时报 作者：冉学东 6月17日，央行行长潘功胜在陆家嘴金融论坛上表态，央行下一步将在2024年7月设立临时隔夜正/逆回购工具的基础上，完善工具使用机制，并将操作利率调整为7天期逆回购操作利率加、减25个基点，区间由70个基点收窄为50个基点。另一方面，进一步丰富公开市场操作工具箱，适时增加隔夜逆回购操作品种，更好地匹配银行体系短期的流动性需求。 按照潘功胜的表述，这是
 
 ## 正文
 
-中新网6月16日电 据国家移民管理局微信公众号消息，端午佳节将至，预计全国口岸将迎来出入境客流高峰。
+来源：华夏时报 作者：冉学东 6月17日，央行行长潘功胜在陆家嘴金融论坛上表态，央行下一步将在2024年7月设立临时隔夜正/逆回购工具的基础上，完善工具使用机制，并将操作利率调整为7天期逆回购操作利率加、减25个基点，区间由70个基点收窄为50个基点。
 
-据国家移民管理局预测，端午节假期全国口岸日均出入境人员将达220万人次，较去年端午节假期增长11.7%，单日最高通关量将突破235万人次。
+另一方面，进一步丰富公开市场操作工具箱，适时增加隔夜逆回购操作品种，更好地匹配银行体系短期的流动性需求。
 
-大型空港口岸出入境客流小幅增长，上海浦东、北京首都、广州白云、深圳宝安、北京大兴、成都天府等国际机场日均出入境人员预计分别为10.4万、5.2万、5.2万、2.1万、1.9万、1.7万人次。
+按照潘功胜的表述，这是为进一步推动货币政策框架向价格型转型，增强短端利率调控的精准性和有效性，人民银行将对利率调控机制进行进一步探索和优化。
 
-端午节期间粤港澳三地将举办多场龙舟赛事和大型活动，跨境旅游和返乡探亲客流叠加，毗邻港澳陆路口岸通关流量将明显增多。
+以上两个举措看似是分离的，但其实是相辅相成的一套组合拳。
 
-其中，深圳罗湖、福田、深圳湾、广深港高铁西九龙站、莲塘口岸日均出入境人员预计将分别达到26万、24万、20万、13万、11万人次，珠海拱北、港珠澳大桥、青茂、横琴口岸日均出入境人员预计将分别达到37万、12.2万、11.5万、10.5万人次。
+为什么这么说呢，因为我国央行已经明确在“十五五”期间落实“建设现代中央银行制度作出”的具体部署，即优化基础货币投放与中间变量‌，逐步构建短中长期搭配的基础货币投放机制，淡化对数量目标的关注，将金融总量作为观测性、参考性指标，更多发挥‌利率调控‌的作用。
 
-日前，国家移民管理局就做好端午节假期口岸边防检查工作作出专门部署，要求全国边检机关加强出入境流量监测，深入分析、精准研判口岸通关客流态势，及时发布本口岸客流高峰预警提示，为广大群众出行提供参考；科学组织勤务，开足查验通道，加强现场引导，全力保障中外旅客快速通关；密切协作配合，强化应急处置，会同口岸联检单位做好高峰期配套综合保障，防范可能出现的强降雨等极端天气不利影响，共同确保口岸通关安全高效顺畅。
+‌健全市场化利率机制‌，增强央行政策利率作用，收窄短期利率走廊宽度，畅通由政策利率向市场基准利率及各类金融市场利率的传导，完善贷款市场报价利率（LPR）形成机制。
 
-国家移民管理局提示广大中外出入境旅客，出行前及时关注口岸客流变化和通关情况，仔细检查出入境证件签证是否有效；中国公民出境时需提前了解前往地安全形势、入境政策等，避免前往存在埃博拉病毒病疫情流行风险的国家和地区。
+目前我们的核心政策利率‌是‌7天期逆回购操作利率‌，当前水平为‌1.4%‌。
 
-通关过程中如遇困难，可随时拨打国家移民管理机构12367服务热线或向现场执勤的移民管理警察寻求帮助。
+‌‌利率走廊围绕核心政策利率构建，上下各25个基点，即运行区间为‌1.15%-1.65%‌。
 
 ## 相关推荐
 
-- 2026-06-29 21:56 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 21:56 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 21:42 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 21:39 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 21:56 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 21:31 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 21:40 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 21:43 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 21:42 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 21:37 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 21:42 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 21:51 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 21:56 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 21:53 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 22:04 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 21:55 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 21:43 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 21:47 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 21:36 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 21:51 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 22:02 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 21:45 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 21:58 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 21:36 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 21:42 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 21:46 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 21:44 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:55 - [日本在最东端离岛部署导弹发射装置](http://www.share.minike.top/Article/details/466394.shtml)
-- 2026-06-29 21:41 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/36745722246.shtml)
-- 2026-06-29 21:44 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/629447986887.shtml)
-- 2026-06-29 21:54 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/2873862.shtml)
-- 2026-06-29 21:52 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/372742929.shtml)
-- 2026-06-29 21:30 - [MG总经理直播被冲](https://www.blog.minike.top/Article/details/7046423.shtml)
-- 2026-06-29 21:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/31519882.shtml)
-- 2026-06-29 21:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/72687751753.shtml)
-- 2026-06-29 21:38 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/631849712.shtml)
-- 2026-06-29 21:55 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/94324768090.shtml)
-- 2026-06-29 21:36 - [《贺子珍》](http://www.blog.minike.top/Article/details/423594700114.shtml)
-- 2026-06-29 21:44 - [王安宇聪明到导演组炸了](http://www.share.minike.top/Article/details/242186346.shtml)
-- 2026-06-29 21:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/77381.shtml)
-- 2026-06-29 21:36 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/257686807.shtml)
-- 2026-06-29 21:53 - [无畏为自己的猫正名了](https://www.blog.kurohicncr.top/Article/details/1268275.shtml)
+- 2026-06-29 21:54 - [流金岁月](https://www.blog.minike.top/Article/details/0857684912.shtml)
+- 2026-06-29 21:38 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/4588032.shtml)
+- 2026-06-29 21:48 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/70831.shtml)
+- 2026-06-29 22:05 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.minike.top/Article/details/131506652.shtml)
+- 2026-06-29 21:57 - [小娘惹](http://www.share.kurohicncr.top/Article/details/712542792305.shtml)
+- 2026-06-29 21:40 - [杨紫有3部作品入围金鹰奖](http://www.blog.kurohicncr.top/Article/details/255598582.shtml)
+- 2026-06-29 21:54 - [国际清算银行警告AI投资热潮](https://www.share.minike.top/Article/details/902775817.shtml)
+- 2026-06-29 21:41 - [马光远谈马斯克最大的价值](https://www.blog.minike.top/Article/details/4194812.shtml)
+- 2026-06-29 22:05 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/0184662939.shtml)
+- 2026-06-29 22:04 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/685478.shtml)
+- 2026-06-29 21:44 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/75977318.shtml)
+- 2026-06-29 21:41 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/3503122733.shtml)
+- 2026-06-29 22:05 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/227583.shtml)
+- 2026-06-29 21:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/45179351.shtml)
+- 2026-06-29 21:38 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/26241.shtml)

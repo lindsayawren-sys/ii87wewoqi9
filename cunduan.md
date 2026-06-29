@@ -1,55 +1,58 @@
-# 大家乐集团公布年度业绩 股东应占溢利1.64亿港元同比减少29.5%
+# 【“十四五”西藏发展成就网络巡礼】大好河山，寸土不让——高原“守望者”用青春脚步丈量祖国边疆
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-大家乐集团（00341）公布截至2026年3月31日止年度业绩，收入约81.83亿港元，同比减少4.5%；股东应占溢利1.64亿港元，同比减少29.5%；每股溢利0.29港元，末期股息每股30港仙。 回顾年度上半年内，受艰难的经营环境影响，集团表现显著下滑。然而，集团下半年度业绩明显回升，股东应占溢利较上半年上升151.1%，并较2024/25年度同期增长32.2%。集团业绩复
+中新网山南6月18日电 (张嘉豪) “我们要用自己的脚步宣示‘大好河山，寸土不让'的决心，绝不能把祖国的领土守小了、守丢了。” 这句话，是普玛江塘乡党员干部共同的心声。 海拔5373米的西藏山南市浪卡子县普玛江塘乡，是中国海拔最高的行政乡。每年，在这片土地，边境派出所民警、党员干部与群众合力巡边，年均巡边达300余次、里程超1000公里。安比康雄雪山海拔6800米，终年冰雪覆盖
 
 ## 正文
 
-大家乐集团（00341）公布截至2026年3月31日止年度业绩，收入约81.83亿港元，同比减少4.5%；股东应占溢利1.64亿港元，同比减少29.5%；每股溢利0.29港元，末期股息每股30港仙。
+中新网山南6月18日电 (张嘉豪) “我们要用自己的脚步宣示‘大好河山，寸土不让'的决心，绝不能把祖国的领土守小了、守丢了。
 
-回顾年度上半年内，受艰难的经营环境影响，集团表现显著下滑。
+” 这句话，是普玛江塘乡党员干部共同的心声。
 
-然而，集团下半年度业绩明显回升，股东应占溢利较上半年上升151.1%，并较2024/25年度同期增长32.2%。
+海拔5373米的西藏山南市浪卡子县普玛江塘乡，是中国海拔最高的行政乡。
 
-集团业绩复苏得益于两个管理层专责工作小组迅速采取行动优化业务模式丶整合网络丶提升成本效益及精简企业架构。
+每年，在这片土地，边境派出所民警、党员干部与群众合力巡边，年均巡边达300余次、里程超1000公里。
 
-责任编辑：卢昱君
+安比康雄雪山海拔6800米，终年冰雪覆盖，巡边路上险象环生，甚至有人为此献出了生命，但没有一个人退缩。
+
+“有大家才有小家，守不住大家，哪来小家？
+
+”从部队转业后，主动选择在当地扎根的乡政府干部杨松，对中新网记者说。
+
+2016年，杨松前往西藏当兵，在边境一线服役五年，2021年退伍后考入西藏农牧学院，毕业后主动申请分配回普玛江塘，2026年3月刚刚正式上岗。
 
 ## 相关推荐
 
-- 2026-06-29 21:49 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 21:36 - [恋与深空致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 21:36 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 21:52 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 21:57 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 21:48 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 21:55 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 21:45 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 21:51 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 21:46 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 21:48 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 21:49 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 21:57 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 21:52 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 21:49 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 21:57 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 22:04 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 22:02 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 21:38 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 22:01 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 21:48 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 21:41 - [任泽平：AI浪潮刚刚开始](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 21:36 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 21:36 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 21:47 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 21:52 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 21:38 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:39 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/34775546441.shtml)
-- 2026-06-29 21:52 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/240642.shtml)
-- 2026-06-29 21:37 - [千与千寻](http://www.share.minike.top/Article/details/503300853.shtml)
-- 2026-06-29 21:33 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/713007.shtml)
-- 2026-06-29 21:35 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/138478.shtml)
-- 2026-06-29 21:44 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/08370939948.shtml)
-- 2026-06-29 21:30 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/55962437063.shtml)
-- 2026-06-29 21:51 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/7708390.shtml)
-- 2026-06-29 21:57 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/4474446.shtml)
-- 2026-06-29 21:31 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/94814.shtml)
-- 2026-06-29 21:47 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/5584262799.shtml)
-- 2026-06-29 21:55 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/480822562750.shtml)
-- 2026-06-29 21:49 - [速度与激情9](https://www.blog.minike.top/Article/details/8785740930.shtml)
-- 2026-06-29 21:53 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/9236707520.shtml)
-- 2026-06-29 21:32 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/0421741.shtml)
+- 2026-06-29 21:59 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/552374946112.shtml)
+- 2026-06-29 21:38 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/633283996826.shtml)
+- 2026-06-29 21:54 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/14213.shtml)
+- 2026-06-29 21:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/112410817.shtml)
+- 2026-06-29 21:47 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.kurohicncr.top/Article/details/061961978.shtml)
+- 2026-06-29 22:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/294545490126.shtml)
+- 2026-06-29 21:41 - [起风了](https://www.share.minike.top/Article/details/42122602875.shtml)
+- 2026-06-29 21:54 - [一诺变着花样秀新驾照](http://www.share.kurohicncr.top/Article/details/6011484156.shtml)
+- 2026-06-29 22:03 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/835582430897.shtml)
+- 2026-06-29 21:51 - [爱很美味](http://www.blog.minike.top/Article/details/6323199.shtml)
+- 2026-06-29 21:56 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/995874.shtml)
+- 2026-06-29 21:55 - [世界杯高票价为何没劝退球迷](http://www.share.kurohicncr.top/Article/details/71212502598.shtml)
+- 2026-06-29 21:40 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/377862436734.shtml)
+- 2026-06-29 21:51 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/920059.shtml)
+- 2026-06-29 21:56 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/2247737801.shtml)

@@ -1,50 +1,50 @@
-# 缅甸总统敏昂莱访华 天安门广场挂起中缅两国国旗
+# 美债走低 现货市场在假日结束后恢复交易
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 18:40 来源：中国新闻网 应中国国家主席习近平邀请，缅甸总统敏昂莱于6月15日至19日对中国进行国事访问。6月15日，天安门广场挂起中缅两国国旗。(记者 谢龙飞 赵雅敏 编辑 方敏） 责任编辑：【李季】
+美债全线走低，油价上涨加剧通胀担忧；现货市场上周五因假日无交易。 2年期国债收益率上升4个基点至4.22%。 10年期国债收益率上升5个基点至4.50%。 布伦特原油期货上涨超过1%。责任编辑：王永生
 
 ## 正文
 
-发布时间：2026年06月15日 18:40 来源：中国新闻网 应中国国家主席习近平邀请，缅甸总统敏昂莱于6月15日至19日对中国进行国事访问。
+美债全线走低，油价上涨加剧通胀担忧；现货市场上周五因假日无交易。
 
-6月15日，天安门广场挂起中缅两国国旗。
+2年期国债收益率上升4个基点至4.22%。
 
-(记者 谢龙飞 赵雅敏 编辑 方敏） 责任编辑：【李季】
+10年期国债收益率上升5个基点至4.50%。
+
+布伦特原油期货上涨超过1%。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 21:41 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 21:42 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 21:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 21:42 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 21:41 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 21:45 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 21:32 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 21:43 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 21:46 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 21:43 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 21:48 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 21:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 21:30 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 21:38 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 21:45 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 21:57 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 21:59 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 21:50 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 22:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 21:49 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 21:44 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 21:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 22:04 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 21:58 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/498301266943.shtml)
-- 2026-06-29 21:52 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/187224445476.shtml)
-- 2026-06-29 21:44 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/62333405752.shtml)
-- 2026-06-29 21:31 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/89305866814.shtml)
-- 2026-06-29 21:51 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/986857.shtml)
-- 2026-06-29 21:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/40486052.shtml)
-- 2026-06-29 21:36 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/901435372.shtml)
-- 2026-06-29 21:47 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/59766512165.shtml)
-- 2026-06-29 21:46 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/034051762.shtml)
-- 2026-06-29 21:35 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/749043.shtml)
-- 2026-06-29 21:49 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/1726555.shtml)
-- 2026-06-29 21:50 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/221905315602.shtml)
-- 2026-06-29 21:36 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/87960166105.shtml)
-- 2026-06-29 21:37 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/193799.shtml)
-- 2026-06-29 21:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/925936.shtml)
+- 2026-06-29 21:39 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/12896.shtml)
+- 2026-06-29 21:54 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/971281802.shtml)
+- 2026-06-29 21:58 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/491530689.shtml)
+- 2026-06-29 21:51 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/05423.shtml)
+- 2026-06-29 22:00 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/999825201.shtml)
+- 2026-06-29 21:53 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/2735446719.shtml)
+- 2026-06-29 21:39 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/412423959.shtml)
+- 2026-06-29 22:03 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/45824560.shtml)
+- 2026-06-29 21:55 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/43948.shtml)
+- 2026-06-29 21:48 - [英法德葡存在什么隐患](http://www.share.minike.top/Article/details/3879181472.shtml)
+- 2026-06-29 21:42 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/3061255491.shtml)
+- 2026-06-29 22:05 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/53306204.shtml)
+- 2026-06-29 22:03 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/68645.shtml)
+- 2026-06-29 21:57 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/306128228.shtml)
+- 2026-06-29 21:45 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/977515.shtml)

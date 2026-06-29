@@ -1,56 +1,57 @@
-# 官方通报“东莞地铁2号线东城站有乘客翻越闸机”
+# 中行张辉谈AI投入产出：构建价值度量体系，避免“一哄而上”
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-中新网6月14日电 据“东莞轨道交通”微信公众号消息，广东东莞轨道公交集团有限公司发布情况通报称，近日，网络流传“东莞地铁2号线东城站有乘客翻越闸机”相关视频，公司对此高度重视，第一时间开展核查处置。具体情况通报如下：一、事件核实情况 经调取车站监控确认，该事件发生于2026年6月11日22时44分，事发站点为东莞地铁2号线东城站，涉事乘客共计6人，在发现出闸机处有工作人员驻守
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 张辉详解AI赋能银行业的“经济账” 6月18日，中国银行行长张辉出席陆家嘴论坛。 在分享中，张辉围绕人工智能大模型的投入产出平衡问题，结合中国银行的实践进行了阐释。 “从中行的实践来看，我们在制定人工智能发展战略时，一方面研究布局如何让人工智能赋能高质量发展；另一方面，积极构建AI赋能业务的价值度量体系”。张辉进一步
 
 ## 正文
 
-中新网6月14日电 据“东莞轨道交通”微信公众号消息，广东东莞轨道公交集团有限公司发布情况通报称，近日，网络流传“东莞地铁2号线东城站有乘客翻越闸机”相关视频，公司对此高度重视，第一时间开展核查处置。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 张辉详解AI赋能银行业的“经济账” 6月18日，中国银行行长张辉出席陆家嘴论坛。
 
-具体情况通报如下：一、事件核实情况 经调取车站监控确认，该事件发生于2026年6月11日22时44分，事发站点为东莞地铁2号线东城站，涉事乘客共计6人，在发现出闸机处有工作人员驻守后，转移到进闸机处并利用工作人员巡视空窗间隙跳闸后迅速离站。
+在分享中，张辉围绕人工智能大模型的投入产出平衡问题，结合中国银行的实践进行了阐释。
 
-事发后经调查，东莞轨道公交集团有限公司依据《东莞市城市轨道交通运营管理办法》，按东城站出站线网单程最高票价，向涉事人员足额追缴乘车票款；通报相关部门，相关部门已根据《中华人民共和国治安管理处罚法》，依法对涉事人员均予以治安处罚。
+“从中行的实践来看，我们在制定人工智能发展战略时，一方面研究布局如何让人工智能赋能高质量发展；另一方面，积极构建AI赋能业务的价值度量体系”。
 
-二、文明乘车呼吁 翻越闸机逃票行为，不仅违反轨道交通运营管理法规，扰乱车站正常运营秩序，也破坏公共文明出行氛围。
+张辉进一步解释，中行将业务指标与技术指标相结合，将短期效益与长期价值相结合，进行精准化、精细化的管理，避免因为人工智能是热点就一哄而上。
 
-根据《东莞市城市轨道交通运营管理办法》第三十四条，乘客应当持有效车票乘车；乘客无票或者持无效车票乘车的，应当按照城市轨道交通出闸站线网单程最高票价补交票款。
+张辉还从研发成本、推广成本、运营成本、安全成本四个维度进行了详细、务实的分享。
 
-对于触犯《中华人民共和国治安管理处罚法》相关规定的，将依法处予以治安处罚。
+他表示，“人工智能的研发投入非常高，从银行的角度，我们的策略是优先运用开源模型，或者将市场上成熟的模型进行本地化部署”。
 
-在此，东莞轨道公交集团有限公司郑重呼吁广大市民乘客自觉遵守轨道交通乘车规则，主动抵制翻越闸机、恶意逃票等各类不文明乘车行为。
+此外，在研发过程中，中国银行坚持价值导向和应用导向，紧密结合人工智能在经营管理中的实际使用场景，“先明确业务需求再开展研发，这也是控制研发成本的有效方法”。
 
-乘车途中若发现逃票、闯闸、损毁设备等违规行为，可第一时间告知车站现场工作人员，或拨打地铁服务热线0769-88176666反馈线索，携手维护有序乘车环境。
+关于推广成本，张辉表示，要深入研究各类机构以及全行干部员工的实际需求，了解他们希望人工智能做些什么，以此来调动各层级的积极性，而不是单纯地自上而下要求他们去使用。
 
 ## 相关推荐
 
-- 2026-06-29 21:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 21:58 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 21:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 21:41 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 21:31 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 21:59 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 21:38 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 21:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 21:47 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 21:52 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 21:51 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 21:50 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 21:41 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 21:47 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 21:56 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 21:47 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 21:56 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 21:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 21:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 21:56 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 22:00 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:43 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/9261282.shtml)
-- 2026-06-29 21:55 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/9529255.shtml)
-- 2026-06-29 21:33 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/34531802462.shtml)
-- 2026-06-29 21:42 - [天气热脾气都变差了](http://www.blog.minike.top/Article/details/376807920.shtml)
-- 2026-06-29 21:57 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/73072384097.shtml)
-- 2026-06-29 21:44 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/6411673081.shtml)
-- 2026-06-29 21:44 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/11366.shtml)
-- 2026-06-29 21:53 - [扬名立万](https://www.blog.minike.top/Article/details/857485587.shtml)
-- 2026-06-29 21:33 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/1041498511.shtml)
-- 2026-06-29 21:31 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/5236692.shtml)
-- 2026-06-29 21:55 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/648913265825.shtml)
-- 2026-06-29 21:30 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/83398676584.shtml)
-- 2026-06-29 21:44 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/3295803.shtml)
-- 2026-06-29 21:54 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/9683681.shtml)
-- 2026-06-29 21:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/474487.shtml)
+- 2026-06-29 21:44 - [英法德葡存在什么隐患](https://www.blog.kurohicncr.top/Article/details/71576.shtml)
+- 2026-06-29 21:42 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/26671.shtml)
+- 2026-06-29 22:04 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/63465159.shtml)
+- 2026-06-29 21:54 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/61402370.shtml)
+- 2026-06-29 21:45 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/70080166383.shtml)
+- 2026-06-29 22:01 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/451180635.shtml)
+- 2026-06-29 21:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/6188814.shtml)
+- 2026-06-29 21:58 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/000784784393.shtml)
+- 2026-06-29 21:56 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/865436763.shtml)
+- 2026-06-29 21:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/43734038.shtml)
+- 2026-06-29 21:52 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/363743363.shtml)
+- 2026-06-29 21:49 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/511700361427.shtml)
+- 2026-06-29 21:42 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/61432.shtml)
+- 2026-06-29 22:04 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/2315733952.shtml)
+- 2026-06-29 22:02 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/003478651676.shtml)

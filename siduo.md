@@ -1,61 +1,59 @@
-# 【好评中国】考出“三夏”好成绩，绘就全年好“丰”景
+# “端午”假期铁路运输启动 国铁广州局预计发送客1160万人次
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-沃野千里麦浪香，机声隆隆收粮忙。眼下全国“三夏”大规模小麦跨区机收全面推进，从江淮平原到华北大地，金黄麦田里一派抢收抢种的繁忙景象。“三夏”生产连着夏粮丰收、关乎全年收成，唯有抢农时、抓田管、稳供给，才能在这一场大考中，考出全年粮食丰产丰收的好成绩。“三夏”是一年农业生产的关键节点。夏收，要把半年来的辛苦耕耘变成沉甸甸的颗粒归仓；夏种，要为秋粮播种打下扎实基础；夏管，要管好已经
+中新网广州6月18日电 (郭军 张晓敏 彭国曦)据国铁广州局18日通报，今年铁路端午假期运输自6月18日起至6月22日，为期5天，国铁广州局预计发送旅客1160万人次(日均232万人次)，同比增长4.1%，客流最高日为6月19日，预计发送285万人次，同比增长6%。 6月18日，端午假期铁路运输第一天，国铁广州局预计发送旅客226.1万人次，同比增长86.9万人次。 端午假期期
 
 ## 正文
 
-沃野千里麦浪香，机声隆隆收粮忙。
+中新网广州6月18日电 (郭军 张晓敏 彭国曦)据国铁广州局18日通报，今年铁路端午假期运输自6月18日起至6月22日，为期5天，国铁广州局预计发送旅客1160万人次(日均232万人次)，同比增长4.1%，客流最高日为6月19日，预计发送285万人次，同比增长6%。
 
-眼下全国“三夏”大规模小麦跨区机收全面推进，从江淮平原到华北大地，金黄麦田里一派抢收抢种的繁忙景象。
+6月18日，端午假期铁路运输第一天，国铁广州局预计发送旅客226.1万人次，同比增长86.9万人次。
 
-“三夏”生产连着夏粮丰收、关乎全年收成，唯有抢农时、抓田管、稳供给，才能在这一场大考中，考出全年粮食丰产丰收的好成绩。
+端午假期期间，广东省龙舟赛事密集举办、粤超联赛火热进行、广东荔枝进入盛采期、电影《给阿嬷的情书》热播，大湾区文旅热度持续攀升，旅客数量显著增加。
 
-“三夏”是一年农业生产的关键节点。
+为进一步满足旅客运输需求，精准匹配客流走势，国铁广州局依托12306售票大数据动态研判，严格执行“一日一图”运输方案。
 
-夏收，要把半年来的辛苦耕耘变成沉甸甸的颗粒归仓；夏种，要为秋粮播种打下扎实基础；夏管，要管好已经种下的作物促生长。
+假期期间计划日均开行旅客列车3405列，同比增加90列，增长5.6%。
 
-这环环相扣的三步，哪一步都耽误不得，直接决定着全年粮食的丰产丰收。
+6月17至18日，铁路部门增开广州、惠州、佛山、珠海至上海区间动卧列车，6月18日，增开湛江、珠海、潮汕、香港西九龙至北京区间动卧列车。
 
-我国夏粮占全年粮食总产量的四分之一，其中小麦占夏粮产量的九成以上，是绝对的“主力”。
+同时通过加开短途高峰列车、夜间高铁、动车组重联运行等方式扩充运力，重点覆盖广州、深圳、长沙、潮汕、湛江、东莞、茂名等方向，夜间返程客流需求。
 
-在经历去年罕见秋雨汛情、今年小麦返青拔节期低温等多重考验后，今年夏粮丰收势头向好，我们要铆足劲打赢“三夏”这场硬仗，拿下全年粮食生产的主动权，为稳物价、稳预期、稳大盘筑牢坚实的基础。
+“我们把运力精准投放到客流增长最集中的区段，既保障传统热门线路通行效率，也及时响应荔枝采摘、潮汕文旅等新兴出行需求，确保旅客走得了、走得顺。
 
 ## 相关推荐
 
-- 2026-06-29 21:30 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 21:54 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 21:57 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 21:44 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 21:42 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 21:41 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 21:37 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 21:59 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 21:42 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 21:49 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 21:39 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 21:42 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 21:30 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 21:39 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 21:34 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 21:45 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 21:44 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 21:38 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 21:54 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 21:48 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 21:46 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 21:41 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 22:02 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 21:46 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 21:58 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 21:54 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 21:41 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 21:48 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:52 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/08586581.shtml)
-- 2026-06-29 21:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/083275693.shtml)
-- 2026-06-29 21:32 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/094953025.shtml)
-- 2026-06-29 21:50 - [王鸿薇要求删陆委会百余万特别费](https://www.share.minike.top/Article/details/1691756303.shtml)
-- 2026-06-29 21:46 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/0924516267.shtml)
-- 2026-06-29 21:35 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/1747479202.shtml)
-- 2026-06-29 21:33 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/392217.shtml)
-- 2026-06-29 21:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/43500634228.shtml)
-- 2026-06-29 21:38 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/792054.shtml)
-- 2026-06-29 21:59 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/143535297067.shtml)
-- 2026-06-29 21:44 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/290492381.shtml)
-- 2026-06-29 21:42 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/7193961.shtml)
-- 2026-06-29 21:37 - [东方风云榜直播](https://www.share.minike.top/Article/details/0862853.shtml)
-- 2026-06-29 21:34 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/3598403361.shtml)
-- 2026-06-29 21:57 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/5221201.shtml)
+- 2026-06-29 21:43 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/757993256.shtml)
+- 2026-06-29 21:38 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/1573820.shtml)
+- 2026-06-29 21:59 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/203404.shtml)
+- 2026-06-29 21:52 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/29167829243.shtml)
+- 2026-06-29 21:37 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/978989275956.shtml)
+- 2026-06-29 22:00 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/54590113.shtml)
+- 2026-06-29 21:53 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/09653550.shtml)
+- 2026-06-29 22:02 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/09702568820.shtml)
+- 2026-06-29 21:42 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/1120616451.shtml)
+- 2026-06-29 21:36 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/380137.shtml)
+- 2026-06-29 21:57 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/733864035.shtml)
+- 2026-06-29 22:00 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/91477375410.shtml)
+- 2026-06-29 22:05 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/287663826031.shtml)
+- 2026-06-29 21:42 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/230031.shtml)
+- 2026-06-29 21:45 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/8219841426.shtml)

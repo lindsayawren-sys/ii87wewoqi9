@@ -1,57 +1,49 @@
-# 三元食品正式发起首届“三元北京牛奶节”
+# 卡塔尔又一艘空载液化天然气油轮驶入波斯湾
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-6月15日，近日，三元食品正式发起首届“三元北京牛奶节”。据悉，该活动联合小红书共同打造，并发布《北京饮奶健康指南》，落地北京潮流商圈THE BOX。 三元特邀北京本土知名民谣音乐人马頔、德云社相声演员烧饼及杨九郎担任三元食品品牌推荐官。马頔不仅为三元制作原创主题曲《车铃响》，将过往北京上门送奶、日常喝奶的市井烟火融进词曲，并在活动上进行现场演绎。 此外，烧饼、杨九郎出任牛奶节
+船舶追踪数据显示，卡塔尔旗下液化天然气运输船“Al Areesh”已驶入波斯湾，正驶向该国拉斯拉凡港液化天然气出口码头。 该船穿越霍尔木兹海峡期间未开启船舶定位信号。 自2月末伊朗战事爆发以来，这是第二艘驶入波斯湾、前往卡塔尔出口码头的空载液化天然气运输船。责任编辑：刘明亮
 
 ## 正文
 
-6月15日，近日，三元食品正式发起首届“三元北京牛奶节”。
+船舶追踪数据显示，卡塔尔旗下液化天然气运输船“Al Areesh”已驶入波斯湾，正驶向该国拉斯拉凡港液化天然气出口码头。
 
-据悉，该活动联合小红书共同打造，并发布《北京饮奶健康指南》，落地北京潮流商圈THE BOX。
+该船穿越霍尔木兹海峡期间未开启船舶定位信号。
 
-三元特邀北京本土知名民谣音乐人马頔、德云社相声演员烧饼及杨九郎担任三元食品品牌推荐官。
+自2月末伊朗战事爆发以来，这是第二艘驶入波斯湾、前往卡塔尔出口码头的空载液化天然气运输船。
 
-马頔不仅为三元制作原创主题曲《车铃响》，将过往北京上门送奶、日常喝奶的市井烟火融进词曲，并在活动上进行现场演绎。
-
-此外，烧饼、杨九郎出任牛奶节“一日店长”。
-
-大众互动体验层面，鲜奶品鉴、主题打卡、趣味互动游戏等特色环节轮番登场。
-
-本次牛奶节，三元还发起“百万瓶牛奶0.01元抢”活动。
-
-线上品牌联动京东、天猫上线专属优惠活动，同时携手淘宝闪购、美团两大O2O平台同步发放百万瓶福利。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 21:50 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 21:58 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 21:30 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 21:44 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 21:32 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 21:46 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 21:55 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 21:37 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 21:41 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 21:58 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 21:30 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 21:55 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 21:42 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 22:03 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 21:48 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 21:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 21:59 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 21:47 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 21:41 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 21:50 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 21:57 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 21:41 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:57 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/35190170.shtml)
-- 2026-06-29 21:48 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/856328.shtml)
-- 2026-06-29 21:49 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/5052830.shtml)
-- 2026-06-29 21:59 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/925004.shtml)
-- 2026-06-29 21:33 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/614110667108.shtml)
-- 2026-06-29 21:50 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/36613.shtml)
-- 2026-06-29 21:51 - [请回答王牌2019](https://www.share.minike.top/Article/details/452904910566.shtml)
-- 2026-06-29 21:31 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/96316626.shtml)
-- 2026-06-29 21:48 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/5300184413.shtml)
-- 2026-06-29 21:52 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/2866507765.shtml)
-- 2026-06-29 21:58 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/81057.shtml)
-- 2026-06-29 21:48 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/0729882.shtml)
-- 2026-06-29 21:47 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/016764783440.shtml)
-- 2026-06-29 21:37 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/173343562.shtml)
-- 2026-06-29 21:50 - [巴西队主帅称日本队是世界最佳之一](https://www.share.minike.top/Article/details/9953506711.shtml)
+- 2026-06-29 21:56 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/63885.shtml)
+- 2026-06-29 21:50 - [温网](http://www.blog.minike.top/Article/details/621336734.shtml)
+- 2026-06-29 21:59 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/5300042219.shtml)
+- 2026-06-29 21:58 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/9433568907.shtml)
+- 2026-06-29 21:50 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/9260699.shtml)
+- 2026-06-29 21:42 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/40293.shtml)
+- 2026-06-29 21:46 - [《贺子珍》](http://www.blog.minike.top/Article/details/83016.shtml)
+- 2026-06-29 21:38 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/0396232.shtml)
+- 2026-06-29 22:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/736353186350.shtml)
+- 2026-06-29 21:46 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/86437196957.shtml)
+- 2026-06-29 21:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/927446714690.shtml)
+- 2026-06-29 21:48 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/05827.shtml)
+- 2026-06-29 21:49 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/3751663633.shtml)
+- 2026-06-29 21:55 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/16754.shtml)
+- 2026-06-29 21:56 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/40521.shtml)

@@ -1,61 +1,60 @@
-# 中央纪委办公厅公开通报五起政绩观偏差典型案件
+# 深夜，突然跳水！美伊谈判，传来重磅消息！特朗普发出最新威胁
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-据中央纪委国家监委网站6月15日消息，全党树立和践行正确政绩观学习教育开展以来，中央纪委国家监委坚决落实党中央决策部署，印发了《关于对违反正确政绩观行为强化责任追究的通知》，各级纪检监察机关严格监督执纪问责，严肃查处了一批政绩观偏差案件。日前，中央纪委办公厅对5起典型案件进行公开通报。 河北省邯郸市政府原党组成员、副市长任华山任性用权、盲目启动城中村征迁工作，违规打造网红景点等
+美伊谈判，有新消息！ 北京时间21日晚间，原油暗盘一度直线跳水，纽约原油暗盘、布伦特原油暗盘跌幅均一度超过1%，而此前均涨超1%。截至发稿，纽约原油暗盘下跌0.53%，布伦特原油暗盘下跌0.56%。 据最新消息，美国和伊朗代表团21日在瑞士比尔根山开始谈判。美国副总统万斯在谈判开始时表示，美国愿意与伊朗“从根本上改变双边关系”，美伊谈判“过去几个小时取得巨大进展”，预计将在相关
 
 ## 正文
 
-据中央纪委国家监委网站6月15日消息，全党树立和践行正确政绩观学习教育开展以来，中央纪委国家监委坚决落实党中央决策部署，印发了《关于对违反正确政绩观行为强化责任追究的通知》，各级纪检监察机关严格监督执纪问责，严肃查处了一批政绩观偏差案件。
+美伊谈判，有新消息！
 
-日前，中央纪委办公厅对5起典型案件进行公开通报。
+北京时间21日晚间，原油暗盘一度直线跳水，纽约原油暗盘、布伦特原油暗盘跌幅均一度超过1%，而此前均涨超1%。
 
-河北省邯郸市政府原党组成员、副市长任华山任性用权、盲目启动城中村征迁工作，违规打造网红景点等问题。
+截至发稿，纽约原油暗盘下跌0.53%，布伦特原油暗盘下跌0.56%。
 
-2021年至2024年，任华山任廊坊市文安县委书记期间，为追求个人政绩，未经深入调研，在明知项目资金不足、“三保”等支出难以足额保障的情况下，盲目同时启动多个城中村征迁项目。
+据最新消息，美国和伊朗代表团21日在瑞士比尔根山开始谈判。
 
-因资金不足且融资困难，部分村安置房项目未能如期完工交付，村民无法及时回迁安置，工人工资被拖欠。
+美国副总统万斯在谈判开始时表示，美国愿意与伊朗“从根本上改变双边关系”，美伊谈判“过去几个小时取得巨大进展”，预计将在相关领域取得更多进展。
 
-2022年2月，任华山为打造城南花海人文网红景点，明知该项目存在违法占地、不符合规划等问题，仍然大力推动、要求施工。
+不过，美国总统特朗普就黎巴嫩问题再度威胁伊朗。
 
-2023年9月，项目违法建设部分被拆除，造成严重经济损失。
+特朗普21日在社交媒体上发文称，伊朗必须立即停止在黎巴嫩的“代理人”行动，否则美国将会再次对伊朗发起猛烈打击，“就像上周那样，而且会更猛烈”。
 
-任华山还存在其他严重违纪违法问题，被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
+据新华社，特朗普21日接受美国福克斯新闻频道采访时说，如果美国和伊朗未能达成协议，美国将会成为霍尔木兹海峡的“守护者”，并收取中东地区20%的石油收益。
 
 ## 相关推荐
 
-- 2026-06-29 21:40 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 21:42 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 21:31 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 21:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 21:42 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 21:40 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 21:46 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 21:51 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 21:57 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 21:30 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 21:34 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 21:54 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 21:47 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 21:48 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 21:59 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 21:55 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 22:02 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 21:51 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 21:59 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 21:37 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 21:49 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 21:52 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 21:47 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 21:57 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 21:44 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 21:59 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 21:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 21:56 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 22:01 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:41 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/071916457246.shtml)
-- 2026-06-29 21:45 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/21937334367.shtml)
-- 2026-06-29 21:47 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/3907328.shtml)
-- 2026-06-29 21:39 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/604477599.shtml)
-- 2026-06-29 21:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/4838566696.shtml)
-- 2026-06-29 21:40 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/6407645.shtml)
-- 2026-06-29 21:53 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/790071996.shtml)
-- 2026-06-29 21:54 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.kurohicncr.top/Article/details/27795358914.shtml)
-- 2026-06-29 21:30 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/89882336.shtml)
-- 2026-06-29 21:35 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/95937645.shtml)
-- 2026-06-29 21:35 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/1737107336.shtml)
-- 2026-06-29 21:37 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/37582024809.shtml)
-- 2026-06-29 21:50 - [记者：预计热火将追求小哈达威和康利](http://www.blog.minike.top/Article/details/162918767.shtml)
-- 2026-06-29 21:45 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/61995612473.shtml)
-- 2026-06-29 21:44 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/11704.shtml)
+- 2026-06-29 21:52 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/828466556954.shtml)
+- 2026-06-29 21:36 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/22917640987.shtml)
+- 2026-06-29 21:43 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/5543129338.shtml)
+- 2026-06-29 21:49 - [千与千寻](https://www.share.kurohicncr.top/Article/details/85300002998.shtml)
+- 2026-06-29 21:46 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/22297.shtml)
+- 2026-06-29 21:40 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/36994.shtml)
+- 2026-06-29 21:49 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/0969291306.shtml)
+- 2026-06-29 21:36 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/385927365.shtml)
+- 2026-06-29 21:50 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/393121.shtml)
+- 2026-06-29 21:43 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/078051942.shtml)
+- 2026-06-29 22:05 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/8329983.shtml)
+- 2026-06-29 22:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/26427515724.shtml)
+- 2026-06-29 21:36 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/8596277427.shtml)
+- 2026-06-29 21:38 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/68704832832.shtml)
+- 2026-06-29 21:55 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/42206.shtml)

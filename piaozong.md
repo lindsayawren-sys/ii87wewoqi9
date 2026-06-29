@@ -1,58 +1,56 @@
-# 英国将禁止16岁以下未成年人使用社交媒体
+# 印尼官方辟谣镍矿配额放宽！7月开放申报窗口，全年矿产管控保持高压
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-核心要点 全球各国政府当下都面临加强未成年人网络安全保护的巨大舆论压力，英国首相基尔・斯塔默周一正式宣布新规：全面禁止社交媒体平台为 16 岁以下人群提供服务。 禁令覆盖色拉布、抖音海外版、油管、照片墙、脸书、X（原推特）等主流平台。首批配套监管条例最快将于 2027 年春季正式落地实施。 英国计划参考澳大利亚去年年底出台的里程碑式未成年人网络立法，但管控标准更为严苛，针对各类
+（来源：长江镍业网） 6 月 18 日讯 印尼能源与矿产资源部（ESDM）对外明确表态，当前并未正式出台、批准任何放宽镍矿增产配额的相关新政，此前市场流传的 “镍矿配额上调” 消息缺乏官方依据，全球镍供给宽松预期快速降温。 矿产煤炭总司相关负责人表示，所有矿企若想调整开采规模、修订《工作计划与预算方案》（RKAB），需等待固定申报周期开启，2026 年配额修订申报窗口期统一划定
 
 ## 正文
 
-核心要点 全球各国政府当下都面临加强未成年人网络安全保护的巨大舆论压力，英国首相基尔・斯塔默周一正式宣布新规：全面禁止社交媒体平台为 16 岁以下人群提供服务。
+（来源：长江镍业网） 6 月 18 日讯 印尼能源与矿产资源部（ESDM）对外明确表态，当前并未正式出台、批准任何放宽镍矿增产配额的相关新政，此前市场流传的 “镍矿配额上调” 消息缺乏官方依据，全球镍供给宽松预期快速降温。
 
-禁令覆盖色拉布、抖音海外版、油管、照片墙、脸书、X（原推特）等主流平台。
+矿产煤炭总司相关负责人表示，所有矿企若想调整开采规模、修订《工作计划与预算方案》（RKAB），需等待固定申报周期开启，2026 年配额修订申报窗口期统一划定为 7 月 1 日至 7 月 31 日。
 
-首批配套监管条例最快将于 2027 年春季正式落地实施。
+矿产经营发展司司长切赛普・穆罕默德・亚辛在 6 月 17 日关键矿产行业座谈会后接受采访，进一步明确市场核心关切：现阶段部门未收到上调全国镍矿开采配额的上级正式指示，不存在提前放开增产通道的情况。
 
-英国计划参考澳大利亚去年年底出台的里程碑式未成年人网络立法，但管控标准更为严苛，针对各类极易伤害青少年的平台功能增设多重限制。
+一、申报规则清晰：7 月统一提交修订申请，并非仅针对镍矿单一品种 本次 RKAB 方案修订属于全矿种统一调整机制，煤炭、镍、铝土、钴等全部矿产企业均需遵守同一申报周期，并非市场传言中单独放宽镍矿开采限制。
 
-具体限制规则包括：禁止 16 岁以下用户开启直播、禁止与陌生网友私信交流；针对 16 至 17 岁青少年，系统将默认开启同等防护机制。
+按照印尼现行矿产管理条例，每年仅 7 月开放一次配额修改申报通道，全年其余时间无补充申报渠道。
 
-英国政府还在研究夜间限时使用制度，以及限制青少年无限制下滑刷视频的相关管控手段。
+企业想要增加开采量，必须在 7 月整月窗口期内提交完整修订材料，由矿产煤炭总司统一审核评估，审核结果不会即时落地，增量配额能否获批、获批规模均存在极大不确定性。
 
-斯塔默发布官方声明称：“我们出台 16 岁以下人群社交媒体禁令，并配套全方位防护措施，管控力度超越全球所有国家，只为还给孩子们完整的童年。
+同时政策明确，配额审批将优先匹配本土下游冶炼产能，单纯外销型矿山企业增产申请审核门槛更高，从制度层面限制镍矿无序放量。
 
-” 斯塔默在新闻发布会上表示，社交媒体容易让青少年产生负面情绪，且产品设计本身带有成瘾性，出台这项政策他经过了慎重考量。
+二、2026 年整体管控基调不变，镍、煤炭为重点收紧品类 今年印尼核心矿产调控思路以收缩供给、稳住资源价格为主，其中镍矿与煤炭是管控力度最强的两大品类。
 
 ## 相关推荐
 
-- 2026-06-29 21:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 21:57 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 21:45 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 21:47 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 21:34 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 21:43 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 21:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 21:44 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 21:34 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 21:54 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 21:44 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 21:39 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 21:59 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 21:44 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 22:04 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 21:44 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 21:51 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 21:55 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 21:58 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 21:49 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 22:03 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 22:04 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:52 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/3505870201.shtml)
-- 2026-06-29 21:49 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/389451421.shtml)
-- 2026-06-29 21:41 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/607394466230.shtml)
-- 2026-06-29 21:59 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/6385800.shtml)
-- 2026-06-29 21:43 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/904049.shtml)
-- 2026-06-29 21:48 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/904808.shtml)
-- 2026-06-29 21:38 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/31993057.shtml)
-- 2026-06-29 21:43 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/4812774423.shtml)
-- 2026-06-29 21:56 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/19522.shtml)
-- 2026-06-29 21:47 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/0991174675.shtml)
-- 2026-06-29 21:32 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/39445.shtml)
-- 2026-06-29 21:30 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/0557766934.shtml)
-- 2026-06-29 21:58 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/61592.shtml)
-- 2026-06-29 21:37 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/7681957224.shtml)
-- 2026-06-29 21:34 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/512842.shtml)
+- 2026-06-29 21:56 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/528645339875.shtml)
+- 2026-06-29 21:40 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/291575.shtml)
+- 2026-06-29 21:54 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/475827066255.shtml)
+- 2026-06-29 22:05 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/65647.shtml)
+- 2026-06-29 21:56 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/20359087.shtml)
+- 2026-06-29 21:59 - [恋与深空 巧合](http://www.share.minike.top/Article/details/3014667124.shtml)
+- 2026-06-29 21:39 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/626928756353.shtml)
+- 2026-06-29 21:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/34809661.shtml)
+- 2026-06-29 21:41 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/75528.shtml)
+- 2026-06-29 21:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/5349296.shtml)
+- 2026-06-29 22:05 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/549754927966.shtml)
+- 2026-06-29 21:48 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/4145821494.shtml)
+- 2026-06-29 22:00 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/734397376377.shtml)
+- 2026-06-29 21:52 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/9126744.shtml)
+- 2026-06-29 21:55 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/1967304472.shtml)

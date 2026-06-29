@@ -1,59 +1,60 @@
-# 公安部网安局公布10起打击整治网络谣言违法犯罪典型案例
+# 龙舟“游”历中国的瑞士“白娘子”
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-中新网6月15日电 据公安部网安局微信公众号消息，全国公安网安部门聚焦人民群众反映强烈的网络谣言突出违法犯罪，持续加大打击整治力度。今日，公安部网安局公布10起典型案例。 典型案例1 近日，有网民在网络平台发布帖文，谎称山东烟台某高中校门口斑马线处发生惨烈车祸，人员受伤情况极其严重。该校作为本地重点高中，相关消息快速触动了家长情绪，引发大量网民关注，造成本地舆论热议。 经查，网
+中新社苏州6月20日电 (记者 钟升)中国2026苏州金鸡湖端午龙舟赛20日在江苏苏州举行。看着一艘艘龙舟在湖上你追我赶，风云雁(Sonya Loher)和她的中外友人们欢呼起舞，一道感受端午的节庆氛围。 2009年，来自瑞士的风云雁跟随工作调动的丈夫来到苏州。“中国朋友觉得我性格自由奔放，又是像大雁一样跨越山海而来，于是给我起了‘风云雁’这个名字。”苏州兼具现代城市的活力与历
 
 ## 正文
 
-中新网6月15日电 据公安部网安局微信公众号消息，全国公安网安部门聚焦人民群众反映强烈的网络谣言突出违法犯罪，持续加大打击整治力度。
+中新社苏州6月20日电 (记者 钟升)中国2026苏州金鸡湖端午龙舟赛20日在江苏苏州举行。
 
-今日，公安部网安局公布10起典型案例。
+看着一艘艘龙舟在湖上你追我赶，风云雁(Sonya Loher)和她的中外友人们欢呼起舞，一道感受端午的节庆氛围。
 
-典型案例1 近日，有网民在网络平台发布帖文，谎称山东烟台某高中校门口斑马线处发生惨烈车祸，人员受伤情况极其严重。
+2009年，来自瑞士的风云雁跟随工作调动的丈夫来到苏州。
 
-该校作为本地重点高中，相关消息快速触动了家长情绪，引发大量网民关注，造成本地舆论热议。
+“中国朋友觉得我性格自由奔放，又是像大雁一样跨越山海而来，于是给我起了‘风云雁’这个名字。
 
-经查，网传信息均为虚构，网民张某为一名网络博主，其为博取关注，吸粉引流，肆意散播谣言信息，还凭空杜撰伤者腹中胎儿不幸离世的虚假情节，引发大量网民议论，扰乱网络空间秩序。
+”苏州兼具现代城市的活力与历史古城的宁静，在此生活令风云雁十分惬意。
 
-目前，属地公安机关已对张某作出行政处罚。
+河湖密布的江南水乡也催生了她的新爱好——划龙舟。
 
-典型案例2 近日，“科目二增加窄路掉头，科目三新增模拟隧道……”等一批所谓“安徽宿州2026年驾考新增考核项目”的消息在互联网传播，引发大量当地网民关注，特别是当地正在备考的驾校学员纷纷留言求证，甚至有人因为担心难度加大而急于向驾校退费或抢报。
+受金鸡湖端午龙舟赛组委会之邀，2012年，风云雁组织在苏州的“洋太太”们组建了一支龙舟队参赛。
 
-经查，网民付某、邓某某、黄某某等6人为安徽宿州当地驾校培行业从业人员，为了博取流量关注、诱导学员报名，散布所谓“驾考解读”视频，引发谣言信息传播扩散，误导广大驾校考生和备考人员，造成不必要的恐慌、投诉甚至退费等，干扰了驾校的正常经营和考试安排，损害了交管部门的公信力，浪费了社会公共资源。
+队伍初名Black Water Dragons，后来改为“白娘子龙舟队”。
 
 ## 相关推荐
 
-- 2026-06-29 21:50 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 21:54 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 21:50 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 21:50 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 21:35 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 21:31 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 21:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 21:40 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 21:46 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 21:30 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 21:41 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 21:46 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 21:36 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 21:36 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 21:52 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 21:50 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 21:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 21:57 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 21:53 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 21:53 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 21:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 21:46 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 22:03 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 21:58 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 22:00 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 21:41 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 21:56 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:41 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/501630541051.shtml)
-- 2026-06-29 21:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/60335.shtml)
-- 2026-06-29 21:50 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.kurohicncr.top/Article/details/62359.shtml)
-- 2026-06-29 21:35 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/403154.shtml)
-- 2026-06-29 21:46 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.minike.top/Article/details/1567958.shtml)
-- 2026-06-29 21:37 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/056493832.shtml)
-- 2026-06-29 21:32 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/91653757017.shtml)
-- 2026-06-29 21:50 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.minike.top/Article/details/00668.shtml)
-- 2026-06-29 21:58 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/0345911010.shtml)
-- 2026-06-29 21:47 - [田曦薇没招了](http://www.blog.minike.top/Article/details/585181498289.shtml)
-- 2026-06-29 21:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/1299911.shtml)
-- 2026-06-29 21:41 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/64845463375.shtml)
-- 2026-06-29 21:59 - [锐评白玉兰提名片段](https://www.blog.kurohicncr.top/Article/details/9155039212.shtml)
-- 2026-06-29 21:47 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/257012.shtml)
-- 2026-06-29 21:58 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/086750643.shtml)
+- 2026-06-29 22:00 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/892550.shtml)
+- 2026-06-29 21:46 - [李思潼：不会介意大家夸我运气好](http://www.share.kurohicncr.top/Article/details/7665836374.shtml)
+- 2026-06-29 21:43 - [锐评白玉兰提名片段](http://www.share.minike.top/Article/details/53738401891.shtml)
+- 2026-06-29 21:59 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/013998907.shtml)
+- 2026-06-29 21:49 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/22257895180.shtml)
+- 2026-06-29 21:36 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/366128.shtml)
+- 2026-06-29 21:56 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/431518413804.shtml)
+- 2026-06-29 22:04 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/428084158.shtml)
+- 2026-06-29 21:44 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/83318044083.shtml)
+- 2026-06-29 22:01 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/9551703359.shtml)
+- 2026-06-29 21:38 - [C罗10球7球对垫底队](https://www.blog.kurohicncr.top/Article/details/7292119.shtml)
+- 2026-06-29 21:40 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.kurohicncr.top/Article/details/6748837247.shtml)
+- 2026-06-29 21:51 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/501084430074.shtml)
+- 2026-06-29 21:56 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/457002.shtml)
+- 2026-06-29 21:50 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/897868047534.shtml)

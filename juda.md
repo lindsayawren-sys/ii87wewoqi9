@@ -1,56 +1,56 @@
-# 爆款频出+闭门拒客！科技基金火热行情下，公募基金如何布局？
+# 就在明天！又一只“高中签率”新股展开申购，融资额超200亿元！如果中签，能带来多少回报？
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-科技行情爆火背后，基金“上新”与“限购”并存。 近期，A股市场科技主线持续演绎，公募基金则出现了矛盾现象：一方面，强烈的赚钱效应带火了基金发行端，年内权益爆款频出，科技主题产品“一日售罄”已成家常便饭；另一侧却上演着绩优基金频频降额限购、“紧关车门”的画面，将汹涌而来的资金拒之门外。 这种“上新”与“限购”并存的现象，再度折射出公募基金在行情短期高位之际，需要再度面对规模与业绩
+记者|王砚丹 编辑|程鹏 肖芮冬 杜恒峰 校对|张锦河 6月22日（周一），深交所主板新股华润新能源即将开展申购。申购代码是001248，发行价为10.11元/股，发行市盈率为21.99倍，高于申万风力发电行业平均市盈率20.86倍。 华润新能源此次发行股份总数为21.07亿股，初始网上发行3.16亿股，回拨后最大网上发行量6.32亿股。投资者参与网上申购华润新能源，申购股份数
 
 ## 正文
 
-科技行情爆火背后，基金“上新”与“限购”并存。
+记者|王砚丹 编辑|程鹏 肖芮冬 杜恒峰 校对|张锦河 6月22日（周一），深交所主板新股华润新能源即将开展申购。
 
-近期，A股市场科技主线持续演绎，公募基金则出现了矛盾现象：一方面，强烈的赚钱效应带火了基金发行端，年内权益爆款频出，科技主题产品“一日售罄”已成家常便饭；另一侧却上演着绩优基金频频降额限购、“紧关车门”的画面，将汹涌而来的资金拒之门外。
+申购代码是001248，发行价为10.11元/股，发行市盈率为21.99倍，高于申万风力发电行业平均市盈率20.86倍。
 
-这种“上新”与“限购”并存的现象，再度折射出公募基金在行情短期高位之际，需要再度面对规模与业绩“再平衡”的难题。
+华润新能源此次发行股份总数为21.07亿股，初始网上发行3.16亿股，回拨后最大网上发行量6.32亿股。
 
-有公募分析人士指出，这需要公募基金、代销渠道等机构面对短期利润“诱惑”时，保持一定的克制力—公募基金要有限购的勇气，把规模控制在基金经理的能力圈里，代销渠道也得告别舒适区，在行情火爆之际做好冷静的买方投顾。
+投资者参与网上申购华润新能源，申购股份数量上限为63.20万股，顶格申购需配深市市值632万元。
 
-新发爆款与限购现象并存 一年多以来，科技板块展现出了极强的弹性，资金对于相关赛道的共识再度达到了历史峰值。
+据了解，上一只发行总数超过20亿股的新股是上交所上市的华电新能，其发行股份总数达49.69亿股，最终中签率约为0.56%。
 
-基金方面，多只重仓科技股的权益类基金净值持续上攻，“翻倍基”亦是稀松平常。
+相比小盘新股往往只有万分之二左右的中签率，华润新能源最终中签率应大幅高于小盘股。
 
-赚钱效应还带动了基金在发行端的火爆，年内权益基金爆款频出，一日售罄已是家常便饭，带有“科技”“智选”等字样的基金更是尤为火爆。
+若超额配售权行使 最终募资总额将接近245亿元 根据华润新能源6月18日披露的正式发行公告，本次发行核心数据全部敲定。
 
-如平安新鑫智选发行规模高达48.6亿元，诺安科技智选发行规模高达31.88亿元，还有泉果科技领航在10天时间内募集了17.40亿元。
+具体而言，华润新能源发行价格为10.11元/股，对应发行市盈率21.99倍，高于申万风力发电行业平均市盈率20.86倍。
 
 ## 相关推荐
 
-- 2026-06-29 21:48 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 21:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 21:39 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 21:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 21:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 21:37 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 21:41 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 21:50 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 21:33 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 21:50 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 21:44 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 21:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 22:00 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 21:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 21:41 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 21:44 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 21:44 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 21:40 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 21:50 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 21:47 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:58 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/1235977683.shtml)
-- 2026-06-29 21:45 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/22867492.shtml)
-- 2026-06-29 21:59 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/42369.shtml)
-- 2026-06-29 21:59 - [LPL第三赛段赛制公布](http://www.blog.minike.top/Article/details/963078535.shtml)
-- 2026-06-29 21:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/0919277.shtml)
-- 2026-06-29 21:36 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/3090125.shtml)
-- 2026-06-29 21:37 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/403566559.shtml)
-- 2026-06-29 21:57 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/689018159.shtml)
-- 2026-06-29 21:30 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/688056.shtml)
-- 2026-06-29 21:38 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/01204186065.shtml)
-- 2026-06-29 21:45 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/897195653396.shtml)
-- 2026-06-29 21:48 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/3469317550.shtml)
-- 2026-06-29 21:56 - [小娘惹](https://www.share.minike.top/Article/details/488125224.shtml)
-- 2026-06-29 21:52 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/382000780973.shtml)
-- 2026-06-29 21:52 - [佛得角队长门德斯被控强奸](https://www.share.kurohicncr.top/Article/details/75290.shtml)
+- 2026-06-29 22:00 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/38520428.shtml)
+- 2026-06-29 21:36 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/1853846.shtml)
+- 2026-06-29 21:39 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/811025810.shtml)
+- 2026-06-29 21:49 - [爱很美味](https://www.share.minike.top/Article/details/6973887542.shtml)
+- 2026-06-29 21:55 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/1850601252.shtml)
+- 2026-06-29 21:49 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/059417.shtml)
+- 2026-06-29 21:55 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/562603180.shtml)
+- 2026-06-29 22:05 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/7903496.shtml)
+- 2026-06-29 22:03 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/43840849941.shtml)
+- 2026-06-29 21:53 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/29479194.shtml)
+- 2026-06-29 21:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/531660563.shtml)
+- 2026-06-29 21:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/955960003.shtml)
+- 2026-06-29 21:42 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/76339031208.shtml)
+- 2026-06-29 21:56 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/329845220904.shtml)
+- 2026-06-29 21:51 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/675976079264.shtml)

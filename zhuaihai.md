@@ -1,59 +1,61 @@
-# “光”速爆发！3股20CM涨停，“易中天”飙涨！创业板人工智能ETF华宝（159363）暴力反弹6%再迎长阳
+# 广东潮州：龙舟竞渡凝聚乡情
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-6月15日午后，CPO概念股继续爆发，光模块CPO含量超50%的创业板人工智能大涨超5.5%。其中，太辰光、光库科技、长芯博创等3股20CM涨停，致尚科技、锐捷网络、星宸科技等多股大涨超11%，天孚通信、新易盛、中际旭创涨超6%。 热门ETF方面，同类规模、流动性第一的创业板人工智能ETF华宝（159363）场内大涨6%，一举收复全部均线，实时成交额超9亿元。 高盛报告称，超大
+端午食粽习俗为何成为具有广泛影响力的文化现象？“桑巴军团”卷土重来，内马尔去哪了？比尔根山会谈临时取消，美伊僵局是否难破？一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！专访
 
 ## 正文
 
-6月15日午后，CPO概念股继续爆发，光模块CPO含量超50%的创业板人工智能大涨超5.5%。
+端午食粽习俗为何成为具有广泛影响力的文化现象？
 
-其中，太辰光、光库科技、长芯博创等3股20CM涨停，致尚科技、锐捷网络、星宸科技等多股大涨超11%，天孚通信、新易盛、中际旭创涨超6%。
+“桑巴军团”卷土重来，内马尔去哪了？
 
-热门ETF方面，同类规模、流动性第一的创业板人工智能ETF华宝（159363）场内大涨6%，一举收复全部均线，实时成交额超9亿元。
+比尔根山会谈临时取消，美伊僵局是否难破？
 
-高盛报告称，超大规模数据中心运营商在AI领域的支出可能远超市场预期。
+一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？
 
-高盛分析师估计，到2027年，超大规模数据中心运营商的资本支出可能达到约1.1万亿美元，在乐观情况下，支出可能会攀升至1.4万亿美元，而华尔街的预期约为9200亿美元。
+浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？
 
-AI资本支出的上行空间意味着，AI基础设施受益者的盈利和股价亦存在上行空间。
+外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！
 
-配置上，兴业证券建议，以长打短，继续坚守AI内部景气最具确定性的方向，以北美算力链为代表，包括光通信（光模块、光纤光缆）等。
+专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
 
-多次历史经验表明，外部扰动带来的市场波动中，景气确定性品种反而将成为市场聚焦的、更具韧性的方向。
+中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
 
 ## 相关推荐
 
-- 2026-06-29 21:54 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 21:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 21:36 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 21:53 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 21:31 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 21:58 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 21:36 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 21:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 21:55 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 21:44 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 21:53 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 21:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 21:53 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 21:41 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 21:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 21:41 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 21:44 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 21:52 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 21:56 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 21:47 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 21:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 21:56 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 21:38 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 21:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 21:46 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 21:54 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 21:56 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 21:42 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:47 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/910936.shtml)
-- 2026-06-29 21:55 - [世界杯高票价为何没劝退球迷](https://www.blog.minike.top/Article/details/94824772.shtml)
-- 2026-06-29 21:44 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/6872601.shtml)
-- 2026-06-29 21:57 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/8388300.shtml)
-- 2026-06-29 21:59 - [金刚川](http://www.blog.minike.top/Article/details/38596732.shtml)
-- 2026-06-29 21:50 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/91865620.shtml)
-- 2026-06-29 21:53 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/33638298375.shtml)
-- 2026-06-29 21:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/51013982798.shtml)
-- 2026-06-29 21:56 - [极限挑战第一季](http://www.blog.minike.top/Article/details/3934923718.shtml)
-- 2026-06-29 21:33 - [女生学医适合选什么专业](https://www.blog.minike.top/Article/details/2795702500.shtml)
-- 2026-06-29 21:42 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/30139444126.shtml)
-- 2026-06-29 21:40 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/211296007.shtml)
-- 2026-06-29 21:36 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/69253.shtml)
-- 2026-06-29 21:57 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/11453.shtml)
-- 2026-06-29 21:30 - [炽夏](https://www.blog.kurohicncr.top/Article/details/78996168.shtml)
+- 2026-06-29 21:49 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/49039.shtml)
+- 2026-06-29 21:53 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/738155384639.shtml)
+- 2026-06-29 21:39 - [东方风云榜](http://www.share.minike.top/Article/details/95784067.shtml)
+- 2026-06-29 22:01 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/02074.shtml)
+- 2026-06-29 22:03 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/2327366.shtml)
+- 2026-06-29 21:55 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/80822718.shtml)
+- 2026-06-29 21:45 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/50338.shtml)
+- 2026-06-29 21:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/97905036.shtml)
+- 2026-06-29 21:48 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/0682046365.shtml)
+- 2026-06-29 21:49 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/312686012733.shtml)
+- 2026-06-29 21:57 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/6316017.shtml)
+- 2026-06-29 21:46 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/17344.shtml)
+- 2026-06-29 21:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/4557958335.shtml)
+- 2026-06-29 21:59 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/571898315203.shtml)
+- 2026-06-29 21:59 - [不烧钱的低成本爱好](http://www.share.minike.top/Article/details/75233998411.shtml)

@@ -1,58 +1,59 @@
-# ST易联众、倍轻松收到行政处罚事先告知书 投资者可参与索赔
+# 人民论坛网评 | 以人才“活水”润山海“沃土”
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-2026年6月12日晚间，ST易联众（维权）、倍轻松（维权）均发布关于收到《行政处罚事先告知书》的公告。此前，两家上市公司分别于于2024年5月8日、2025年12月25日收到收到中国证券监督管理委员会下发的《立案告知书》。 根据证监会下达的行政处罚事先告知书显示，ST易联众涉及的主要违规为：一、易联众未及时披露为关联方提供担保且相关定期报告存在重大遗漏。张曦时为易联众控股股东
+习近平总书记强调，“要总结运用闽宁协作等有益经验，进一步完善协作机制，优化协作方式，拓展协作领域，推动东西部产业互补、人员互动、技术互学、观念互通、作风互鉴，实现互利共赢、共同发展。”人才是第一资源。无论是“山海协作”中干部双向挂职的常态推进，还是对口支援中技术人才的接力奔赴，一支政治过硬、本领高强的干部人才队伍，始终是协作事业行稳致远的“压舱石”。在人员互动中架起“连心桥”，
 
 ## 正文
 
-2026年6月12日晚间，ST易联众（维权）、倍轻松（维权）均发布关于收到《行政处罚事先告知书》的公告。
+习近平总书记强调，“要总结运用闽宁协作等有益经验，进一步完善协作机制，优化协作方式，拓展协作领域，推动东西部产业互补、人员互动、技术互学、观念互通、作风互鉴，实现互利共赢、共同发展。
 
-此前，两家上市公司分别于于2024年5月8日、2025年12月25日收到收到中国证券监督管理委员会下发的《立案告知书》。
+”人才是第一资源。
 
-根据证监会下达的行政处罚事先告知书显示，ST易联众涉及的主要违规为：一、易联众未及时披露为关联方提供担保且相关定期报告存在重大遗漏。
+无论是“山海协作”中干部双向挂职的常态推进，还是对口支援中技术人才的接力奔赴，一支政治过硬、本领高强的干部人才队伍，始终是协作事业行稳致远的“压舱石”。
 
-张曦时为易联众控股股东、实际控制人。
+在人员互动中架起“连心桥”，让干部在一线经风雨、长才干。
 
-2018年10月，张曦私自以易联众名义为张曦及其关联方北京京发置业有限公司向张利云的5.5亿元借款提供担保，担保金额占易联众2017年经审计净资产比例为71.61%，构成为关联方提供担保。
+东西部协作三十载，一批批挂职干部跨越山海，将汗水挥洒在协作一线的热土上。
 
-2020年5月和6月，张曦再次私自以易联众名义重新确认为前述债务余额5.42亿元、5.55亿元（已扣除债务抵销部分）提供担保，担保金额分别占易联众2019年经审计净资产比例为62.02%和63.52%。
+例如，从浙江选派至四川等地的挂职干部，带去的远不止资金与项目，更是“干在实处、走在前列”的工作理念和“勇立潮头”的创业精神。
 
-2024年8月，北京仲裁委员会作出裁决，认定易联众无需承担担保责任；二、易联众未及时披露为关联方借款且相关定期报告存在重大遗漏。
+新起点上，干部交流的力度要更大、方式要更活。
 
-2018年2月，张曦因个人资金缺口，私自以易联众名义向苏州诺金投资有限公司借款6，000万元，相关借款全部由苏州诺金直接转入京发置业名下银行账户，借款金额占易联众2016年经审计净资产比例为8.06%，构成关联方非经营性资金占用。
+既要“派出去”，选派优秀年轻干部到西部地区挂职锻炼，在艰苦环境中磨砺意志、增长本领；也要“引进来”，邀请西部干部到东部学习，在“最多跑一次”的窗口体悟改革力度，在“枫桥经验”的发源地深研基层治理之道。
 
 ## 相关推荐
 
-- 2026-06-29 21:30 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 21:36 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 21:38 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 21:40 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 21:45 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 21:31 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 21:50 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 21:42 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 21:31 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 21:32 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 21:45 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 21:46 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 21:45 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 21:53 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 21:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 21:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 21:51 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 21:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 21:47 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 22:03 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 21:38 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 21:45 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 21:49 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 21:56 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 21:45 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:32 - [恋与深空回应争议](https://www.share.minike.top/Article/details/147882237.shtml)
-- 2026-06-29 21:58 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/15678.shtml)
-- 2026-06-29 21:31 - [王安宇聪明到导演组炸了](http://www.blog.minike.top/Article/details/5774970535.shtml)
-- 2026-06-29 21:30 - [世界杯高票价为何没劝退球迷](https://www.blog.kurohicncr.top/Article/details/022577.shtml)
-- 2026-06-29 21:36 - [啊啊啊](http://www.share.minike.top/Article/details/63632563.shtml)
-- 2026-06-29 21:59 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/417727550.shtml)
-- 2026-06-29 21:52 - [炽夏](https://www.blog.minike.top/Article/details/88264536.shtml)
-- 2026-06-29 21:41 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/664760060.shtml)
-- 2026-06-29 21:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/426618305.shtml)
-- 2026-06-29 21:45 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/000311939.shtml)
-- 2026-06-29 21:37 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/26715803149.shtml)
-- 2026-06-29 21:46 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/17027.shtml)
-- 2026-06-29 21:30 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.minike.top/Article/details/61092900.shtml)
-- 2026-06-29 21:40 - [乌克兰发广告全球征兵](http://www.share.minike.top/Article/details/63230397.shtml)
-- 2026-06-29 21:58 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/23364029893.shtml)
+- 2026-06-29 21:49 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.kurohicncr.top/Article/details/517484921.shtml)
+- 2026-06-29 21:43 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/902051480.shtml)
+- 2026-06-29 22:02 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/85907149.shtml)
+- 2026-06-29 21:36 - [急先锋](http://www.share.minike.top/Article/details/0914171158.shtml)
+- 2026-06-29 21:54 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.kurohicncr.top/Article/details/682269005037.shtml)
+- 2026-06-29 22:00 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/33327.shtml)
+- 2026-06-29 21:50 - [温网](https://www.blog.kurohicncr.top/Article/details/3319264352.shtml)
+- 2026-06-29 21:44 - [MG总经理直播被冲](https://www.blog.minike.top/Article/details/915729.shtml)
+- 2026-06-29 21:56 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/544389.shtml)
+- 2026-06-29 21:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/442318273.shtml)
+- 2026-06-29 21:37 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/995740585.shtml)
+- 2026-06-29 21:49 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/008792959.shtml)
+- 2026-06-29 21:40 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/852490.shtml)
+- 2026-06-29 21:42 - [金牌调解](http://www.share.minike.top/Article/details/28570049.shtml)
+- 2026-06-29 21:49 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/61230075.shtml)

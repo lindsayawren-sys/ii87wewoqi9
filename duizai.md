@@ -1,61 +1,53 @@
-# 第二条战线：青春的呐喊，人民的选择
+# 苏宁易购618：智能家电增长40%，县域增长59%
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-原标题：伟大征程｜第二条战线：青春的呐喊，人民的选择 新华社北京6月14日电 题：第二条战线：青春的呐喊，人民的选择 新华社记者孙鹏程、黄培锋 江苏南京长江路，现代化的商场、高楼鳞次栉比。人流如织的街边，五二〇学生运动纪念广场吸引着人们的目光和脚步。绿荫环抱之中，36名青年学生的青铜雕像，定格着他们举旗、挥拳的瞬间，仿佛一道时光的切口，回响着近80年前的青春呐喊。 彼时，解放区
+新浪科技讯 6月19日上午消息，苏宁易购618消费数据显示，5月15日至6月18日，AI智能家电销售同比增长40%，核心城市门店客流环比提升约5成。在下沉市场，苏宁易购零售云门店销售环比提升59%，县域家电消费升级趋势明显。同时，世界杯观赛需求和高考后换机需求也带动大屏电视、手机数码装备迎来销售小高峰。 “618期间，苏宁易购联合行业主流家电3C品牌，升级推出‘AI普惠升舱计划
 
 ## 正文
 
-原标题：伟大征程｜第二条战线：青春的呐喊，人民的选择 新华社北京6月14日电 题：第二条战线：青春的呐喊，人民的选择 新华社记者孙鹏程、黄培锋 江苏南京长江路，现代化的商场、高楼鳞次栉比。
+新浪科技讯 6月19日上午消息，苏宁易购618消费数据显示，5月15日至6月18日，AI智能家电销售同比增长40%，核心城市门店客流环比提升约5成。
 
-人流如织的街边，五二〇学生运动纪念广场吸引着人们的目光和脚步。
+在下沉市场，苏宁易购零售云门店销售环比提升59%，县域家电消费升级趋势明显。
 
-绿荫环抱之中，36名青年学生的青铜雕像，定格着他们举旗、挥拳的瞬间，仿佛一道时光的切口，回响着近80年前的青春呐喊。
+同时，世界杯观赛需求和高考后换机需求也带动大屏电视、手机数码装备迎来销售小高峰。
 
-彼时，解放区军民在自卫战争中取得重大胜利的同时，在中国共产党领导和推动下，国民党统治区内的学生群众掀起了声势浩大的爱国民主运动，逐步形成配合人民解放战争的第二条战线。
+“618期间，苏宁易购联合行业主流家电3C品牌，升级推出‘AI普惠升舱计划’，以行业标杆价格和全链路服务，为消费者打造全年最佳入手窗口期”。
 
-“书生亦有报国志，少年敢担天下忧。
+苏宁易购门店负责人表示，从基础功能满足到生活方式升级，消费者对于家电的主动智能、场景体验需求等提出更高期待，同时高考经济、世界杯经济等也为618消费注入新动能。
 
-看到这里的学生雕像，让我心潮澎湃。
-
-他们的选择告诉我们，青年的理想从来都与国家命运紧紧相连。
-
-”在广场参观的南京市民薛钧元感慨。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 21:30 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 21:57 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 21:54 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 21:51 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 21:41 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 21:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 21:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 21:59 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 21:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 21:53 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 21:45 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 21:50 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 21:56 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 21:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 21:58 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 21:58 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 21:54 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 21:37 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 21:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 21:40 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 22:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 22:02 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 21:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 21:41 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 21:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 21:48 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:35 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/4617136177.shtml)
-- 2026-06-29 21:46 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/2638876.shtml)
-- 2026-06-29 21:50 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/938422564645.shtml)
-- 2026-06-29 21:50 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/99874995845.shtml)
-- 2026-06-29 21:46 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/906248812.shtml)
-- 2026-06-29 21:45 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/92291099735.shtml)
-- 2026-06-29 21:35 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/6910917.shtml)
-- 2026-06-29 21:30 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/359249819249.shtml)
-- 2026-06-29 21:47 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/8574798660.shtml)
-- 2026-06-29 21:32 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/463283.shtml)
-- 2026-06-29 21:41 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/47374636.shtml)
-- 2026-06-29 21:30 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/727221235.shtml)
-- 2026-06-29 21:41 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/8063012981.shtml)
-- 2026-06-29 21:33 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/41411.shtml)
-- 2026-06-29 21:31 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/58459.shtml)
+- 2026-06-29 21:39 - [金刚川](http://www.share.minike.top/Article/details/289576.shtml)
+- 2026-06-29 21:49 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/41125162213.shtml)
+- 2026-06-29 21:59 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/42420.shtml)
+- 2026-06-29 21:38 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/930023.shtml)
+- 2026-06-29 21:38 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/40369232.shtml)
+- 2026-06-29 21:52 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/3889191629.shtml)
+- 2026-06-29 21:59 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/5692031.shtml)
+- 2026-06-29 21:42 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/30637996205.shtml)
+- 2026-06-29 22:05 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/27280332982.shtml)
+- 2026-06-29 21:37 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/956986762235.shtml)
+- 2026-06-29 21:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/909522406.shtml)
+- 2026-06-29 21:59 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/0620898.shtml)
+- 2026-06-29 21:43 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/5059947312.shtml)
+- 2026-06-29 22:04 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/082288663526.shtml)
+- 2026-06-29 21:49 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/00535129.shtml)

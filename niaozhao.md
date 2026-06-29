@@ -1,57 +1,48 @@
-# AI版支付宝来了？阿里巴巴涨超2%，腾讯控股获南向资金连续6日净买入，港股互联网ETF华宝早盘涨近2%
+# 新华保险：获准发行不超过人民币100亿元无固定期限资本债券
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-6月15日，美伊达成和平协议，港股早盘高开，恒生科技指数涨1.78%。互联网龙头集体走强，阿里巴巴-W、腾讯控股、美团-W涨超2%，小米集团-W涨逾1%；此外，AI算力产品、文件存储产品大幅涨价，金山云领涨5%。港股AI核心工具——港股互联网ETF华宝（513770）场内价格现涨1.92%。 有消息称，蚂蚁集团正秘密测试AI版支付宝，新版本颠覆原有用户交互，可一键切入原生AI界
+6月18日金融一线消息，新华保险公告称，公司近日收到《国家金融监督管理总局关于新华人寿保险股份有限公司发行无固定期限资本债券的批复》，同意公司在全国银行间债券市场公开发行不超过100亿元（含100亿元）无固定期限资本债券。 责任编辑：李琳琳
 
 ## 正文
 
-6月15日，美伊达成和平协议，港股早盘高开，恒生科技指数涨1.78%。
+6月18日金融一线消息，新华保险公告称，公司近日收到《国家金融监督管理总局关于新华人寿保险股份有限公司发行无固定期限资本债券的批复》，同意公司在全国银行间债券市场公开发行不超过100亿元（含100亿元）无固定期限资本债券。
 
-互联网龙头集体走强，阿里巴巴-W、腾讯控股、美团-W涨超2%，小米集团-W涨逾1%；此外，AI算力产品、文件存储产品大幅涨价，金山云领涨5%。
-
-港股AI核心工具——港股互联网ETF华宝（513770）场内价格现涨1.92%。
-
-有消息称，蚂蚁集团正秘密测试AI版支付宝，新版本颠覆原有用户交互，可一键切入原生AI界面，实现从服务到资金管理的智能化。
-
-该版本目前仍处于内部测试阶段，正式发布时间尚未确定。
-
-该AI助手中文名称暂定叫作“阿宝”。
-
-此外，微信AI加速推进，腾讯控股获南向资金连续6天净买入，累计净买入金额为65.83亿港元。
-
-据微信公开课6月8日消息，微信正式面向开发者提供接入微信AI生态的能力，京东已作为首批内测团队率先接入，将围绕电商、外卖、物流等业务接入微信AI Agent（智能体），此外，滴滴、美团等也宣布接入微信AI。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 21:45 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 21:56 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 21:33 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 21:50 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 21:55 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 21:32 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 21:37 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 21:48 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 21:51 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 21:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 21:37 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 21:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 21:42 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 22:04 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 21:40 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 21:48 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 21:39 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 21:45 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 22:00 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 21:56 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 21:54 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 22:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 21:41 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 21:46 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 21:51 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:46 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/434409.shtml)
-- 2026-06-29 21:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/539493868710.shtml)
-- 2026-06-29 21:30 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/90376.shtml)
-- 2026-06-29 21:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/076634.shtml)
-- 2026-06-29 21:54 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/058782669213.shtml)
-- 2026-06-29 21:52 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/267289.shtml)
-- 2026-06-29 21:37 - [网友晒14年前支教影像等来学生评论](https://www.share.minike.top/Article/details/089031115.shtml)
-- 2026-06-29 21:52 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/377496.shtml)
-- 2026-06-29 21:36 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/6848038.shtml)
-- 2026-06-29 21:34 - [媒体评恋与深空用“引狼入室”台词](http://www.share.kurohicncr.top/Article/details/82717.shtml)
-- 2026-06-29 21:57 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/3698349504.shtml)
-- 2026-06-29 21:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/980938347590.shtml)
-- 2026-06-29 21:51 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/925324094.shtml)
-- 2026-06-29 21:39 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/9555438.shtml)
-- 2026-06-29 21:38 - [Ella回应SHE何时合体](http://www.share.minike.top/Article/details/4339624.shtml)
+- 2026-06-29 21:43 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/882236.shtml)
+- 2026-06-29 22:05 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/1380410.shtml)
+- 2026-06-29 21:43 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.minike.top/Article/details/387840157.shtml)
+- 2026-06-29 21:40 - [女生学医适合选什么专业](https://www.blog.kurohicncr.top/Article/details/3755019.shtml)
+- 2026-06-29 21:45 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/42816.shtml)
+- 2026-06-29 21:56 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/981778.shtml)
+- 2026-06-29 21:44 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/04154961.shtml)
+- 2026-06-29 21:37 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/9601858853.shtml)
+- 2026-06-29 22:01 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/4103650.shtml)
+- 2026-06-29 21:59 - [流金岁月](https://www.blog.minike.top/Article/details/725691767.shtml)
+- 2026-06-29 21:41 - [把邻居裸体发群算维权还是侵权](http://www.share.minike.top/Article/details/43615475.shtml)
+- 2026-06-29 22:05 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/53558820.shtml)
+- 2026-06-29 21:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/85354043263.shtml)
+- 2026-06-29 22:00 - [爱很美味](http://www.share.kurohicncr.top/Article/details/502504326.shtml)
+- 2026-06-29 21:39 - [马光远谈马斯克最大的价值](https://www.blog.minike.top/Article/details/96442130.shtml)

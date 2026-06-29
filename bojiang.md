@@ -1,60 +1,56 @@
-# 安索帕将与特朗普政府会晤，协商迈索斯模型相关争端
+# 税务部门曝光3起涉税中介违法违规案件
 
-> 更新时间：2026-06-29 22:00:02 UTC+8
+> 更新时间：2026-06-29 22:06:01 UTC+8
 
 ## 摘要
 
-核心要点 安索帕公司高层工作人员将与特朗普政府会面，试图化解企业近期与美国政府产生的争端。 美国政府勒令安索帕，禁止所有外籍人士访问其最新两款人工智能模型 —— 寓言 5（Fable 5）与迈索斯 5（Mythos 5）。 有消息人士透露，政府以存在未具体说明的国家安全隐患为由，要求安索帕关停上述两款模型。 据一名熟悉安索帕内部情况的消息人士透露，该人工智能企业多名高管将于周一
+中新网6月18日电 据国家税务总局官方微信消息，6月18日，河南、广东、江西等地税务部门依法查处并曝光3起涉税中介违法违规案件。 一、河南省焦作市税务局稽查局依法查处涉税中介沁阳市立达会计服务有限公司违规帮助企业注销造成少缴税款案件。经查，2024年，沁阳市立达会计服务有限公司在帮助河南佳轩贸易有限公司办理税务注销时，违规确认企业货币资产损失，虚假填报财务报表及清算附表，进行虚
 
 ## 正文
 
-核心要点 安索帕公司高层工作人员将与特朗普政府会面，试图化解企业近期与美国政府产生的争端。
+中新网6月18日电 据国家税务总局官方微信消息，6月18日，河南、广东、江西等地税务部门依法查处并曝光3起涉税中介违法违规案件。
 
-美国政府勒令安索帕，禁止所有外籍人士访问其最新两款人工智能模型 —— 寓言 5（Fable 5）与迈索斯 5（Mythos 5）。
+一、河南省焦作市税务局稽查局依法查处涉税中介沁阳市立达会计服务有限公司违规帮助企业注销造成少缴税款案件。
 
-有消息人士透露，政府以存在未具体说明的国家安全隐患为由，要求安索帕关停上述两款模型。
+经查，2024年，沁阳市立达会计服务有限公司在帮助河南佳轩贸易有限公司办理税务注销时，违规确认企业货币资产损失，虚假填报财务报表及清算附表，进行虚假纳税申报，造成河南佳轩贸易有限公司法人代表、投资人王子轩少缴个人所得税133.32万元。
 
-据一名熟悉安索帕内部情况的消息人士透露，该人工智能企业多名高管将于周一在华盛顿特区与特朗普政府官员会面，争取解决公司近期引发高度关注的美政府争端。
+2025年11月，税务部门根据《中华人民共和国税收征收管理法实施细则》第九十三条，对沁阳市立达会计服务有限公司作出没收违法所得2万元，并处以企业投资人少缴税款0.5倍罚款66.66万元的处理处罚决定；根据涉税专业服务管理相关规定，对沁阳市立达会计服务有限公司及其实际控制人张秋霞采取列为涉税服务失信主体等措施。
 
-安索帕发布声明称，公司上周五收到一份出口管制指令，文件援引国家安全部门要求，勒令企业禁止所有外籍人士（无论身处美国境内还是海外） 访问最新 AI 模型寓言 5、迈索斯 5。
+同时，对王子轩依法追征少缴的个人所得税133.32万元。
 
-为遵守该指令，这家人工智能初创企业已关停全部客户对两款模型的访问权限。
+目前，涉案违法所得、税款及罚款均已追缴入库。
 
-此次突发管控，进一步加剧了安索帕与美国政府之间本就紧张的关系。
+二、广东省惠州市税务局第一稽查局依法查处涉税中介惠州市展信会计咨询服务有限公司偷税案件。
 
-今年早些时候，公司与美国国防部的矛盾持续升级。
+经查，2021年至2023年，惠州市展信会计咨询服务有限公司通过不计少计收入、利用私人账户收款、虚列成本费用进行虚假申报等方式，少缴增值税、企业所得税等税费款共计103.80万元。
 
 ## 相关推荐
 
-- 2026-06-29 21:50 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 21:38 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 21:32 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 21:35 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 21:30 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 21:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 21:49 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 21:39 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 21:51 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 21:32 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 21:32 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 21:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 21:33 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 21:49 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 22:03 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 21:46 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 21:42 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 21:58 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 22:01 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 21:42 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 21:44 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 22:04 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 21:37 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 21:38 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:55 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/1256404248.shtml)
-- 2026-06-29 21:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/6791875.shtml)
-- 2026-06-29 21:38 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/77054972.shtml)
-- 2026-06-29 21:39 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/25792440.shtml)
-- 2026-06-29 21:55 - [欧洲缘何成为变暖最快的大洲](http://www.share.kurohicncr.top/Article/details/041143688454.shtml)
-- 2026-06-29 21:39 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/0462155.shtml)
-- 2026-06-29 21:55 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/09047091042.shtml)
-- 2026-06-29 21:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/83267386986.shtml)
-- 2026-06-29 21:32 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/58252.shtml)
-- 2026-06-29 21:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/47356139758.shtml)
-- 2026-06-29 21:41 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/523432.shtml)
-- 2026-06-29 21:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/73839.shtml)
-- 2026-06-29 21:58 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/598221235057.shtml)
-- 2026-06-29 21:39 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/22178513935.shtml)
-- 2026-06-29 21:43 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/2589846.shtml)
+- 2026-06-29 21:42 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/2870696178.shtml)
+- 2026-06-29 22:05 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/98625.shtml)
+- 2026-06-29 21:55 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/88482.shtml)
+- 2026-06-29 21:54 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/25302609.shtml)
+- 2026-06-29 21:38 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/4306385.shtml)
+- 2026-06-29 21:46 - [巴西队主帅称日本队是世界最佳之一](http://www.share.kurohicncr.top/Article/details/8304105.shtml)
+- 2026-06-29 22:02 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/83883.shtml)
+- 2026-06-29 21:42 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/85094.shtml)
+- 2026-06-29 21:40 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/538105821.shtml)
+- 2026-06-29 22:01 - [2026全国田径冠军赛江苏队4金收官](http://www.share.minike.top/Article/details/61506551.shtml)
+- 2026-06-29 21:57 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/06695271.shtml)
+- 2026-06-29 22:03 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/098865310.shtml)
+- 2026-06-29 21:47 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.kurohicncr.top/Article/details/387162835528.shtml)
+- 2026-06-29 22:02 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/973693590737.shtml)
+- 2026-06-29 22:00 - [济南航空航天全面起势](http://www.share.minike.top/Article/details/83433801072.shtml)
