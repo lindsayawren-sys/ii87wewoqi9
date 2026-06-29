@@ -1,59 +1,56 @@
-# 沪指周五盘中重返4000点 电池板块走强
+# 百岁“中华巧女”袁秀莹的剪纸情
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新社北京4月10日电 (记者 陈康亮)中国A股10日(周五)放量上涨，主要股指悉数走高。其中，上证指数早盘高开，盘中一度突破4000点整数关口，尾盘有所回落，但仍飘红收官。 截至收盘，上证指数报3986点，涨幅为0.51%；深证成指报14309点，涨幅为2.24%；创业板指报3448点，涨3.78%。沪深两市成交总额约23229亿元人民币，较上一个交易日放量约1888亿元人民
+中新网宁德5月25日电 (叶茂 马启晨)24日受访时，在福建省宁德市柘荣县柳城东路的一座寻常民居里，柘荣剪纸国家级非遗代表性传承人袁秀莹静静靠坐在椅子里，目光落在墙上挂着的作品《百蝶图》上。画面上，百只蝴蝶姿态各异。 1995年，袁秀莹凭借《百蝶图》在“首届中华巧女手工艺品大奖赛”上获得“中华巧女”称号。 “激动得整夜睡不着。”1927年出生的袁秀莹24日回忆道，当时没想着拿奖
 
 ## 正文
 
-中新社北京4月10日电 (记者 陈康亮)中国A股10日(周五)放量上涨，主要股指悉数走高。
+中新网宁德5月25日电 (叶茂 马启晨)24日受访时，在福建省宁德市柘荣县柳城东路的一座寻常民居里，柘荣剪纸国家级非遗代表性传承人袁秀莹静静靠坐在椅子里，目光落在墙上挂着的作品《百蝶图》上。
 
-其中，上证指数早盘高开，盘中一度突破4000点整数关口，尾盘有所回落，但仍飘红收官。
+画面上，百只蝴蝶姿态各异。
 
-截至收盘，上证指数报3986点，涨幅为0.51%；深证成指报14309点，涨幅为2.24%；创业板指报3448点，涨3.78%。
+1995年，袁秀莹凭借《百蝶图》在“首届中华巧女手工艺品大奖赛”上获得“中华巧女”称号。
 
-沪深两市成交总额约23229亿元人民币，较上一个交易日放量约1888亿元人民币。
+“激动得整夜睡不着。
 
-巨丰投顾投资顾问总监郭一鸣表示，A股当天上涨的重要原因之一是中国经济基本面向好，尤其是3月中国工业生产者出厂价格指数(PPI)表现亮眼，不仅反映出中国部分行业供需关系持续改善，更强化了市场关于企业盈利回升的预期。
+”1927年出生的袁秀莹24日回忆道，当时没想着拿奖，就想展现民间剪纸手艺、让世界看到柘荣剪纸。
 
-中国国家统计局10日公布，3月中国工业生产者出厂价格指数同比由上月下降0.9%转为上涨0.5%，为连续下降41个月后首次上涨。
+这份荣誉，让柘荣剪纸从民间闲趣小物蜕变为海内外认可的艺术精品，也成为袁秀莹剪纸人生的重要转折点。
 
-板块方面，当天A股多数行业板块上涨。
+柘荣剪纸可追溯至唐代、兴盛于明清，是当地百姓藏在纸间的无声祈愿。
 
-根据金融数据服务商东方财富的统计，电池、玻璃玻纤、能源金属板块涨幅居前。
+“小时候祖母剪花样哄弟弟，我看着喜欢，八岁时就跟着学。
 
 ## 相关推荐
 
-- 2026-06-30 07:09 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 07:20 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 07:17 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 07:07 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 07:07 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 07:07 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 07:19 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 07:11 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 07:29 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 07:26 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 07:19 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 07:23 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 07:18 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 07:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-30 07:30 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 07:06 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 07:06 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 07:13 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 07:26 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 07:24 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 07:06 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 07:16 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-30 07:33 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:05 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/623583.shtml)
-- 2026-06-30 07:04 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/64731.shtml)
-- 2026-06-30 07:04 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/618904.shtml)
-- 2026-06-30 07:14 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/554409.shtml)
-- 2026-06-30 07:14 - [恋与深空道歉声明](http://www.share.kurohicncr.top/Article/details/42811849.shtml)
-- 2026-06-30 07:13 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/192380.shtml)
-- 2026-06-30 07:20 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/43599.shtml)
-- 2026-06-30 07:08 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/499501625479.shtml)
-- 2026-06-30 07:02 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/197238.shtml)
-- 2026-06-30 07:22 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/063593166629.shtml)
-- 2026-06-30 07:10 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/916234597972.shtml)
-- 2026-06-30 07:22 - [美股](https://www.share.kurohicncr.top/Article/details/20251672.shtml)
-- 2026-06-30 07:29 - [巴西vs日本](http://www.blog.minike.top/Article/details/64947628.shtml)
-- 2026-06-30 07:23 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/52304.shtml)
-- 2026-06-30 07:17 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/3132683.shtml)
+- 2026-06-30 07:20 - [美股](https://www.blog.kurohicncr.top/Article/details/92108488.shtml)
+- 2026-06-30 07:25 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/18149673.shtml)
+- 2026-06-30 07:19 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/82498.shtml)
+- 2026-06-30 07:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/680518260182.shtml)
+- 2026-06-30 07:11 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/704395198.shtml)
+- 2026-06-30 07:19 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/2674984.shtml)
+- 2026-06-30 07:12 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/37495.shtml)
+- 2026-06-30 07:23 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/756564409323.shtml)
+- 2026-06-30 07:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/20349086413.shtml)
+- 2026-06-30 07:32 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/212509243.shtml)
+- 2026-06-30 07:29 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/43275.shtml)
+- 2026-06-30 07:11 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/2520591817.shtml)
+- 2026-06-30 07:33 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/430059694437.shtml)
+- 2026-06-30 07:10 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/192797043915.shtml)
+- 2026-06-30 07:17 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/506296315.shtml)

@@ -1,59 +1,56 @@
-# 岚图汽车卢放：上市后我每天都会看股价，会思考是不是哪做的不好
+# Legacy战队获CAC2026总冠军：在上海感受到不同氛围
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日中午消息，在智能电动汽车发展高层论坛（2026）期间，岚图汽车董事长卢放与新浪科技等媒体对话。 对于“岚图汽车上市后股价持续走低”，卢放表示，这可能跟大盘往下走有一定关系，但是在走了一小段时间后，我们就稳住了，现在又一直在往上走，“有文章讲岚图汽车是4月港交所涨幅最高的，我认为背后是大家对于我们经营业绩的认可。”
+中新网5月25日电 为期五天的2026“反恐精英(CS)”亚洲邀请赛(CAC2026)24日在上海源深体育中心收官。Legacy战队在总决赛中3比1逆转击败Falcons战队，成功卫冕。 自2018年创办以来，由完美世界电竞主办的CAC已逐渐成为亚洲CS的标杆赛事IP之一。2025年起，赛事全面升级，参赛队伍由8支队伍扩充至16支，总奖金由50万美元提升至100万美元，赛事影响
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日中午消息，在智能电动汽车发展高层论坛（2026）期间，岚图汽车董事长卢放与新浪科技等媒体对话。
+中新网5月25日电 为期五天的2026“反恐精英(CS)”亚洲邀请赛(CAC2026)24日在上海源深体育中心收官。
 
-对于“岚图汽车上市后股价持续走低”，卢放表示，这可能跟大盘往下走有一定关系，但是在走了一小段时间后，我们就稳住了，现在又一直在往上走，“有文章讲岚图汽车是4月港交所涨幅最高的，我认为背后是大家对于我们经营业绩的认可。
+Legacy战队在总决赛中3比1逆转击败Falcons战队，成功卫冕。
 
-” 他表示：“坦率讲我不太会炒股票，所以之前我不太关心股价。
+自2018年创办以来，由完美世界电竞主办的CAC已逐渐成为亚洲CS的标杆赛事IP之一。
 
-但是现在（上市后），我关心我们的市值，每天也要看一看股票价格的变化。
+2025年起，赛事全面升级，参赛队伍由8支队伍扩充至16支，总奖金由50万美元提升至100万美元，赛事影响力与国际关注度进一步攀升。
 
-通过价格变化，我也在思考是不是哪做的不好，所以会造成（这样的）波动。
+CAC2026全程同步核算Valve官方职业积分VRS，这吸引来更多顶尖战队参赛，其中包括Falcons、MOUZ、PVISION等世界排名靠前的劲旅。
 
-” “我在内部强调，无论如何还是要把对股价的关心转移到对销量和利润的提升上来。
+与此同时，凭借在亚洲预选赛中的优异表现，中国战队TYLOO与LVG也晋级正赛。
 
-我觉得这可能是所有的投资人更为关心的问题。
+经过激烈角逐，最终Falcons、Legacy、MOUZ、MIBR等四支战队晋级四强。
 
-另外要回归到自身的经营结构上来，股价那是别人看我的，但是销量和利润是通过自身的努力，我们能够去实现的。
+拥有多位明星选手的Falcons被视为夺冠热门，他们在半决赛中2比1淘汰了夺冠呼声同样很高的MOUZ战队，闯入决赛。
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 07:22 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 07:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 07:09 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 07:21 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 07:24 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 07:19 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 07:25 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 07:17 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 07:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 07:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 07:23 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 07:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 07:23 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 07:15 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 07:29 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 07:19 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 07:27 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 07:06 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 07:14 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 07:09 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 07:35 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 07:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:26 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/20820557073.shtml)
-- 2026-06-30 07:02 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/07866470.shtml)
-- 2026-06-30 07:27 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/5876749322.shtml)
-- 2026-06-30 07:07 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/729049624502.shtml)
-- 2026-06-30 07:04 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/867230352594.shtml)
-- 2026-06-30 07:11 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/494583756.shtml)
-- 2026-06-30 07:01 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/17296409.shtml)
-- 2026-06-30 07:04 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/3249449.shtml)
-- 2026-06-30 07:22 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/44182104006.shtml)
-- 2026-06-30 07:06 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/49587620417.shtml)
-- 2026-06-30 07:05 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/714438776125.shtml)
-- 2026-06-30 07:24 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/91023073855.shtml)
-- 2026-06-30 07:01 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/42459044840.shtml)
-- 2026-06-30 07:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/79111637.shtml)
-- 2026-06-30 07:28 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/217266890548.shtml)
+- 2026-06-30 07:26 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.kurohicncr.top/Article/details/568346723803.shtml)
+- 2026-06-30 07:15 - [哈弗茨头球破门](http://www.share.kurohicncr.top/Article/details/710204520689.shtml)
+- 2026-06-30 07:30 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/07365.shtml)
+- 2026-06-30 07:32 - [爱很美味](https://www.blog.minike.top/Article/details/844214811.shtml)
+- 2026-06-30 07:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/55039584.shtml)
+- 2026-06-30 07:17 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/0069884432.shtml)
+- 2026-06-30 07:11 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/6155293693.shtml)
+- 2026-06-30 07:26 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/354539571.shtml)
+- 2026-06-30 07:08 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/28603137.shtml)
+- 2026-06-30 07:30 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/2810187.shtml)
+- 2026-06-30 07:33 - [85花告别古偶](https://www.share.minike.top/Article/details/694074479.shtml)
+- 2026-06-30 07:16 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/09747.shtml)
+- 2026-06-30 07:19 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/4210260.shtml)
+- 2026-06-30 07:13 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/97030769255.shtml)
+- 2026-06-30 07:33 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/16305.shtml)

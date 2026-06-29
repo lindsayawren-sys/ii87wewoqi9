@@ -1,42 +1,51 @@
-# 4月11日隔夜要闻：美股三大股指本周均涨超3% 美油创六年来最大单周跌幅 铜价三周连涨 市场聚焦美伊周末会谈
+# 广西柳州震后安置点设特色课 助受灾孩童健康安全生活
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-欲览更多环球财经资讯，请移步7×24小时实时财经新闻直播 市场 4月11日收盘：美股三大股指本周涨幅均超3% 市场密切关注美伊停火协议 4月11日美股成交额前20：英伟达八连涨创两年来最长连涨纪录 4月11日热门中概股涨跌不一 蔚来涨7.08%，唯品会跌3.12% 原油：WTI录得2020年以来最大单周跌幅 伊朗与美国会谈在即 欧洲市场延续涨势 受乌克兰谈判相关消息提振 宏观
+发布时间：2026年05月24日 18:14 来源：中国新闻网 5月24日，广西柳州职业技术大学受灾群众安置点内，学校为受灾儿童开设植物染、木工等特色课程。此前柳州市柳南区发生多次地震，5月20日至21日，该校累计安置受灾群众1300余名，含115名中小学生、7名学龄前儿童。依托职业教育资源，学校打造“6+N”特色课程体系，涵盖心理团辅、安全技能、科普美育、体育研学等内容，让安
 
 ## 正文
 
-欲览更多环球财经资讯，请移步7×24小时实时财经新闻直播 市场 4月11日收盘：美股三大股指本周涨幅均超3% 市场密切关注美伊停火协议 4月11日美股成交额前20：英伟达八连涨创两年来最长连涨纪录 4月11日热门中概股涨跌不一 蔚来涨7.08%，唯品会跌3.12% 原油：WTI录得2020年以来最大单周跌幅 伊朗与美国会谈在即 欧洲市场延续涨势 受乌克兰谈判相关消息提振 宏观 特朗普称若未达成协议 将加大对伊朗军事打击 特朗普称美国“很快”将开放霍尔木兹海峡 特朗普称伊朗手中唯一的牌是“短期勒索” 万斯预计美国与伊朗的和谈将取得“积极进展” 白宫官员称针对开通霍尔木兹海峡已制定“备用方案” 美国海关：关税退税工具将于4月20日上线 进口商可提交申请 白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航 哈塞特：Anthropic的AI模型在白宫引发
+发布时间：2026年05月24日 18:14 来源：中国新闻网 5月24日，广西柳州职业技术大学受灾群众安置点内，学校为受灾儿童开设植物染、木工等特色课程。
+
+此前柳州市柳南区发生多次地震，5月20日至21日，该校累计安置受灾群众1300余名，含115名中小学生、7名学龄前儿童。
+
+依托职业教育资源，学校打造“6+N”特色课程体系，涵盖心理团辅、安全技能、科普美育、体育研学等内容，让安置点儿童有人看护，健康安全生活。
+
+(陈梅 制作 王佳琪) 责任编辑：【王凯】
 
 ## 相关推荐
 
-- 2026-06-30 07:19 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 07:05 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 07:02 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 07:21 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 07:11 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 07:27 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-30 07:18 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 07:01 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 07:28 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 07:28 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 07:13 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 07:27 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 07:29 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 07:12 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 07:20 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 07:35 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 07:12 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 07:16 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-30 07:29 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 07:08 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 07:18 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 07:18 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 07:32 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:09 - [全球芯片巨头史诗级扩产](http://www.blog.minike.top/Article/details/60251.shtml)
-- 2026-06-30 07:04 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/18197049.shtml)
-- 2026-06-30 07:20 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/93204103878.shtml)
-- 2026-06-30 07:02 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/227401.shtml)
-- 2026-06-30 07:02 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/267225971132.shtml)
-- 2026-06-30 07:00 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/09505.shtml)
-- 2026-06-30 07:09 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/754274363.shtml)
-- 2026-06-30 07:12 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/578093335923.shtml)
-- 2026-06-30 07:02 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/740787464578.shtml)
-- 2026-06-30 07:15 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/82316350.shtml)
-- 2026-06-30 07:29 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/14957.shtml)
-- 2026-06-30 07:05 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/71203507583.shtml)
-- 2026-06-30 07:09 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/588886453.shtml)
-- 2026-06-30 07:02 - [苗族银饰](http://www.blog.minike.top/Article/details/6762841.shtml)
-- 2026-06-30 07:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/0517040474.shtml)
+- 2026-06-30 07:34 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/7815177.shtml)
+- 2026-06-30 07:24 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/439276.shtml)
+- 2026-06-30 07:28 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/915360104.shtml)
+- 2026-06-30 07:32 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/198581931926.shtml)
+- 2026-06-30 07:12 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/62289.shtml)
+- 2026-06-30 07:06 - [德国淘汰](http://www.blog.kurohicncr.top/Article/details/59278152.shtml)
+- 2026-06-30 07:34 - [《共患难》](https://www.share.kurohicncr.top/Article/details/32695.shtml)
+- 2026-06-30 07:27 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/484018.shtml)
+- 2026-06-30 07:28 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/7299201.shtml)
+- 2026-06-30 07:27 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/10550508356.shtml)
+- 2026-06-30 07:16 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/0618928357.shtml)
+- 2026-06-30 07:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/258659.shtml)
+- 2026-06-30 07:34 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/4514992.shtml)
+- 2026-06-30 07:23 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/10888044454.shtml)
+- 2026-06-30 07:30 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/62989.shtml)

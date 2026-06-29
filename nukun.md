@@ -1,56 +1,58 @@
-# 北极光项目新增第三艘二氧化碳运输船 扩大CCS网络
+# 巴基斯坦总理四天访华行，三大亮点引关注
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-北极光合资公司为其船队新增了一艘液化二氧化碳运输船，以扩大欧洲碳捕集与封存网络的运输能力。 这艘名为“北极凤凰号”的船只已在卑尔根正式接收，将用于支持北极光项目下跨境二氧化碳运输的规模化发展。 该船专为运输液化二氧化碳而设计，将把Yara公司捕集的排放物运至厄于加仑的北极光接收终端，在那里二氧化碳将通过管道输送并封存在海床之下。 北极光合资公司董事总经理Tim Heijn表示：
+中新社北京5月26日电 题：巴基斯坦总理四天访华行，三大亮点引关注 中新社记者 谢雁冰 巴基斯坦总理夏巴兹5月23日至26日对中国进行为期四天的正式访问，中国国家主席习近平、国务院总理李强分别同其会见、会谈。此访正值中巴建交75周年，三大亮点引人关注。 中巴命运共同体会见中，习近平表示，无论国际形势如何变化，中方始终将发展中巴关系置于周边外交的优先方向。 “优先方向”一词，足见
 
 ## 正文
 
-北极光合资公司为其船队新增了一艘液化二氧化碳运输船，以扩大欧洲碳捕集与封存网络的运输能力。
+中新社北京5月26日电 题：巴基斯坦总理四天访华行，三大亮点引关注 中新社记者 谢雁冰 巴基斯坦总理夏巴兹5月23日至26日对中国进行为期四天的正式访问，中国国家主席习近平、国务院总理李强分别同其会见、会谈。
 
-这艘名为“北极凤凰号”的船只已在卑尔根正式接收，将用于支持北极光项目下跨境二氧化碳运输的规模化发展。
+此访正值中巴建交75周年，三大亮点引人关注。
 
-该船专为运输液化二氧化碳而设计，将把Yara公司捕集的排放物运至厄于加仑的北极光接收终端，在那里二氧化碳将通过管道输送并封存在海床之下。
+中巴命运共同体会见中，习近平表示，无论国际形势如何变化，中方始终将发展中巴关系置于周边外交的优先方向。
 
-北极光合资公司董事总经理Tim Heijn表示：“随着我们的前两艘船已投入运营，‘北极凤凰号’标志着我们在扩大二氧化碳运输能力方面迈出了下一步。
+“优先方向”一词，足见中国对发展两国关系的重视。
 
-我们期待继续壮大我们的船队，实现安全可靠的欧洲跨境二氧化碳运输。
+“中巴命运共同体”也多次被提到。
 
-” 北极光项目于2025年开始注入二氧化碳进行永久封存，是挪威“Longship”全面CCS项目的一部分。
+习近平表示，“双方要加快构建新时代更加紧密的中巴命运共同体”“为构建周边命运共同体作示范”。
 
-该合资公司由Equinor、道达尔能源和壳牌共同拥有，正在开发基础设施，以运输和封存来自欧洲各地的工业排放物。
+他还指出，双方要扎实推进构建中巴命运共同体行动计划。
 
-该项目已与包括Ørsted、Stockholm Exergi和Inherit在内的多家公司以及Yara签订了协议。
+去年9月夏巴兹来华期间，中巴发表关于构建新时代更加紧密的中巴命运共同体行动计划(2025-2029年)，围绕双方政治领域交流合作、共建“一带一路”务实合作、经贸财金合作等作出具体部署。
 
 ## 相关推荐
 
-- 2026-06-30 07:16 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 07:11 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 07:24 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 07:26 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 07:02 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 07:13 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 07:04 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 07:12 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 07:23 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 07:10 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 07:29 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 07:18 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 07:26 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 07:22 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 07:28 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-30 07:20 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 07:13 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-30 07:17 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 07:32 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 07:11 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 07:09 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 07:19 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:18 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/45416945.shtml)
-- 2026-06-30 07:12 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/50415.shtml)
-- 2026-06-30 07:12 - [F1奥地利站赛后复盘](http://www.share.minike.top/Article/details/34577.shtml)
-- 2026-06-30 07:23 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/33472.shtml)
-- 2026-06-30 07:09 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/48635.shtml)
-- 2026-06-30 07:22 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/98488344.shtml)
-- 2026-06-30 07:28 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/2383668.shtml)
-- 2026-06-30 07:12 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/84772.shtml)
-- 2026-06-30 07:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/4124471761.shtml)
-- 2026-06-30 07:22 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/5922343.shtml)
-- 2026-06-30 07:29 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/19627.shtml)
-- 2026-06-30 07:23 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/90795382.shtml)
-- 2026-06-30 07:02 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/42345109.shtml)
-- 2026-06-30 07:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/901261.shtml)
-- 2026-06-30 07:06 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/505263113083.shtml)
+- 2026-06-30 07:29 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/221804066445.shtml)
+- 2026-06-30 07:14 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/87640.shtml)
+- 2026-06-30 07:15 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/158053.shtml)
+- 2026-06-30 07:10 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/797228417.shtml)
+- 2026-06-30 07:32 - [感动全网的699分女生想报考清华](https://www.blog.kurohicncr.top/Article/details/6896594.shtml)
+- 2026-06-30 07:22 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/903880.shtml)
+- 2026-06-30 07:18 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/81288783.shtml)
+- 2026-06-30 07:07 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/98972.shtml)
+- 2026-06-30 07:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/9088978.shtml)
+- 2026-06-30 07:35 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/158610649985.shtml)
+- 2026-06-30 07:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/175148.shtml)
+- 2026-06-30 07:26 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/370006.shtml)
+- 2026-06-30 07:32 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/41598.shtml)
+- 2026-06-30 07:15 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/493560.shtml)
+- 2026-06-30 07:20 - [周生如故](http://www.blog.kurohicncr.top/Article/details/0649994970.shtml)

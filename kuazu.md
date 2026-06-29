@@ -1,57 +1,58 @@
-# 美国军方获准在美墨边境使用反无人机激光系统
+# 主食吃多了会变“碳水脸”？没这回事
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-4月10日，美国联邦航空管理局与五角大楼宣布，根据双方达成的协议，美国军方可在南部美墨边境地区使用一套高能激光反无人机系统。 据介绍，美国联邦航空管理局已在新墨西哥州对五角大楼与美国国土安全部所使用的这套激光系统开展测试，并确认相关安全管控措施已落实到位，不会对民航客机造成风险。 今年2月25日，美军曾使用该激光系统误击一架政府无人机，致使联邦航空管理局扩大了得克萨斯州汉考克堡
+最近，“碳水脸”在短视频平台引发热议。有博主说，一张大圆脸——这就是每天吃馒头面条吃出来的；也有人说，发现自己戒碳水后下颌线都明显了；还有网友说“吃得好不好，全都在脸上”。天天在吃的米饭馒头，一夜之间怎么就成了“胖脸元凶”？脸型到底是什么因素决定的？ 无任何医学依据 “碳水脸”说法贩卖焦虑 主食吃多了会变“碳水脸”吗？压根没有这回事。答案很直接：没有任何医学依据，“碳水脸”也纯
 
 ## 正文
 
-4月10日，美国联邦航空管理局与五角大楼宣布，根据双方达成的协议，美国军方可在南部美墨边境地区使用一套高能激光反无人机系统。
+最近，“碳水脸”在短视频平台引发热议。
 
-据介绍，美国联邦航空管理局已在新墨西哥州对五角大楼与美国国土安全部所使用的这套激光系统开展测试，并确认相关安全管控措施已落实到位，不会对民航客机造成风险。
+有博主说，一张大圆脸——这就是每天吃馒头面条吃出来的；也有人说，发现自己戒碳水后下颌线都明显了；还有网友说“吃得好不好，全都在脸上”。
 
-今年2月25日，美军曾使用该激光系统误击一架政府无人机，致使联邦航空管理局扩大了得克萨斯州汉考克堡周边的禁飞区域。
+天天在吃的米饭馒头，一夜之间怎么就成了“胖脸元凶”？
 
-该事件曾引发美国国内对这套激光系统的严重担忧。
+脸型到底是什么因素决定的？
 
-4月10日晚间，美国联邦航空管理局向飞行员发布通知，提醒其在美墨边境五海里范围内飞行时，需开启广播式自动相关监视系统，以发送飞机位置信息，避免受到美国反无人机系统的打击。
+无任何医学依据 “碳水脸”说法贩卖焦虑 主食吃多了会变“碳水脸”吗？
 
-五角大楼称，美墨边境每月发生超1000起无人机入侵事件。
+压根没有这回事。
 
-据美国多家媒体上月报道，华盛顿特区麦克奈尔堡军事基地上空曾出现无人机踪迹，美国国务卿鲁比奥与国防部长赫格塞思均居住于此。
+答案很直接：没有任何医学依据，“碳水脸”也纯粹是网上造出来的词。
 
-但目前暂无迹象表明五角大楼计划在该基地部署这套反无人机激光系统。
+专家解释，这种状态可能是指吃胖了、水肿导致面部状态不佳，短期面部饱满可能因为高升糖饮食引发的水分滞留或轻微炎症，而非永久性变“圆”。
 
 ## 相关推荐
 
-- 2026-06-30 07:22 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 07:03 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 07:14 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 07:01 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 07:06 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 07:15 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 07:16 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 07:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 07:25 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 07:25 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 07:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 07:11 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 07:23 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 07:10 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 07:10 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-30 07:24 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 07:22 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 07:13 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 07:12 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 07:10 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 07:35 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 07:21 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 07:14 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:13 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/83556582517.shtml)
-- 2026-06-30 07:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/77865368.shtml)
-- 2026-06-30 07:22 - [速度与激情9](https://www.share.minike.top/Article/details/839729024289.shtml)
-- 2026-06-30 07:28 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/27834.shtml)
-- 2026-06-30 07:18 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/4458781940.shtml)
-- 2026-06-30 07:07 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/388864.shtml)
-- 2026-06-30 07:25 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/23470311071.shtml)
-- 2026-06-30 07:17 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/20968.shtml)
-- 2026-06-30 07:27 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/83940.shtml)
-- 2026-06-30 07:07 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/778382719.shtml)
-- 2026-06-30 07:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/03963.shtml)
-- 2026-06-30 07:09 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/430764007880.shtml)
-- 2026-06-30 07:03 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/941320079583.shtml)
-- 2026-06-30 07:01 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/968594432.shtml)
-- 2026-06-30 07:12 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/410207.shtml)
+- 2026-06-30 07:06 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/713625.shtml)
+- 2026-06-30 07:25 - [日本进球](http://www.share.kurohicncr.top/Article/details/690011727471.shtml)
+- 2026-06-30 07:35 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/70072262.shtml)
+- 2026-06-30 07:30 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/9119194069.shtml)
+- 2026-06-30 07:21 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/936428.shtml)
+- 2026-06-30 07:07 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/69292825.shtml)
+- 2026-06-30 07:19 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/9191311499.shtml)
+- 2026-06-30 07:22 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/8236956166.shtml)
+- 2026-06-30 07:25 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/800000767304.shtml)
+- 2026-06-30 07:17 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/94705005424.shtml)
+- 2026-06-30 07:17 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/80057286141.shtml)
+- 2026-06-30 07:35 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/71923.shtml)
+- 2026-06-30 07:19 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/827153.shtml)
+- 2026-06-30 07:17 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/475893277294.shtml)
+- 2026-06-30 07:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/616701791737.shtml)

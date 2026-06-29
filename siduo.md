@@ -1,56 +1,56 @@
-# 早盘：油价恢复上涨 美股小幅下滑
+# 正值和谈之际 美军称“在伊朗南部实施了自卫打击”
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-北京时间4月9日晚，美股周四早盘小幅下滑。在美伊同意停火两周后，交易员继续关注中东局势。WTI原油价格重返每桶100美元上方。 道指跌41.49点，跌幅为0.09%，报47868.43点；纳指跌61.11点，跌幅为0.27%，报22573.89点；标普500指数跌8.55点，跌幅为0.13%，报6774.26点。 在周三的交易时段，标普500指数上涨2.5%，纳斯达克综合指数上
+美国中央司令部称，周一“在伊朗南部实施了自卫打击”，时值美伊和平谈判陷入拉锯之际。 美国中央司令部发言人蒂姆・霍金斯上尉在一份声明中表示，此次打击旨在“保护我方部队免受伊朗势力的威胁”。 “打击目标包括导弹发射场及试图布设水雷的伊朗船只，”霍金斯说，“在当前停火期间，美国中央司令部将继续在克制的前提下保卫我方部队。” 此次打击消息发布前，包括唐纳德・特朗普总统在内的美国官员已于
 
 ## 正文
 
-北京时间4月9日晚，美股周四早盘小幅下滑。
+美国中央司令部称，周一“在伊朗南部实施了自卫打击”，时值美伊和平谈判陷入拉锯之际。
 
-在美伊同意停火两周后，交易员继续关注中东局势。
+美国中央司令部发言人蒂姆・霍金斯上尉在一份声明中表示，此次打击旨在“保护我方部队免受伊朗势力的威胁”。
 
-WTI原油价格重返每桶100美元上方。
+“打击目标包括导弹发射场及试图布设水雷的伊朗船只，”霍金斯说，“在当前停火期间，美国中央司令部将继续在克制的前提下保卫我方部队。
 
-道指跌41.49点，跌幅为0.09%，报47868.43点；纳指跌61.11点，跌幅为0.27%，报22573.89点；标普500指数跌8.55点，跌幅为0.13%，报6774.26点。
+” 此次打击消息发布前，包括唐纳德・特朗普总统在内的美国官员已于周末早些时候表示，谈判进展顺利。
 
-在周三的交易时段，标普500指数上涨2.5%，纳斯达克综合指数上涨2.8%。
+特朗普当地时间周一早些时候在社交媒体发文称，伊朗的浓缩铀“要么立即移交美国运回本土销毁”，要么在伊朗境内或其他可接受地点“就地销毁”，点明了美伊谈判中一个悬而未决的关键分歧。
 
-道琼斯指数飙升逾1300点，涨幅2.9%，创下自2025年4月特朗普软化对部分最初高额进口税的立场以来的最佳单日表现。
+特朗普还补充道，原子能委员会“或其对等机构”应参与监督该过程。
 
-周二晚，特朗普同意暂停对伊朗的攻击。
+一个多月前，特朗普宣布美国与伊朗达成临时停火，避免了一场他曾威胁要摧毁“整个文明”的最坏情况袭击；而就在此次打击数小时前，以色列总理本雅明・内塔尼亚胡誓言要加大对黎巴嫩真主党的打击力度——这场冲突与伊朗战争相邻，近几周来持续拖累和平谈判进程。
 
-这场中东冲突已持续五周，导致关键的霍尔木兹海峡关闭。
+周六，特朗普暗示美伊协议即将达成，在Truth Social发文称：“协议的最终内容与细节目前正在磋商，不久后将公布。
 
 ## 相关推荐
 
-- 2026-06-30 07:24 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-30 07:22 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-30 07:11 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 07:19 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 07:23 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 07:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 07:24 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 07:18 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 07:26 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 07:22 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 07:21 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 07:29 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 07:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 07:18 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 07:17 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 07:34 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 07:24 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 07:34 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-30 07:09 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 07:27 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:27 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/838589355988.shtml)
-- 2026-06-30 07:13 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/042528.shtml)
-- 2026-06-30 07:12 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/708537.shtml)
-- 2026-06-30 07:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/4376304347.shtml)
-- 2026-06-30 07:27 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/3964247.shtml)
-- 2026-06-30 07:12 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/15672.shtml)
-- 2026-06-30 07:12 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/20885.shtml)
-- 2026-06-30 07:03 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/39377974.shtml)
-- 2026-06-30 07:16 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/086533.shtml)
-- 2026-06-30 07:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/678412909.shtml)
-- 2026-06-30 07:14 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/619931043491.shtml)
-- 2026-06-30 07:10 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/74011308497.shtml)
-- 2026-06-30 07:28 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/909277092020.shtml)
-- 2026-06-30 07:04 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/89056746088.shtml)
-- 2026-06-30 07:07 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/343284375.shtml)
+- 2026-06-30 07:10 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/463721.shtml)
+- 2026-06-30 07:13 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/6896256.shtml)
+- 2026-06-30 07:31 - [德国vs巴拉圭](http://www.blog.minike.top/Article/details/85251.shtml)
+- 2026-06-30 07:21 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/17759.shtml)
+- 2026-06-30 07:18 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/420514.shtml)
+- 2026-06-30 07:11 - [千与千寻](http://www.share.minike.top/Article/details/034401.shtml)
+- 2026-06-30 07:21 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/570975068747.shtml)
+- 2026-06-30 07:10 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/33339171.shtml)
+- 2026-06-30 07:31 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/127574827.shtml)
+- 2026-06-30 07:16 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/16489509.shtml)
+- 2026-06-30 07:22 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/67559364.shtml)
+- 2026-06-30 07:27 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/63796623.shtml)
+- 2026-06-30 07:24 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/29774.shtml)
+- 2026-06-30 07:11 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/87385.shtml)
+- 2026-06-30 07:26 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/66685.shtml)

@@ -1,50 +1,59 @@
-# 因存在安全隐患，953辆索纳塔被北京现代召回
+# 时政微纪录丨一枚“友谊勋章” 见证中塞深情
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电(吴家驹)国家市场监督管理总局网站显示，日前，北京现代汽车有限公司根据《缺陷汽车产品召回管理条例》和《缺陷汽车产品召回管理条例实施办法》的要求，向国家市场监督管理总局备案了召回计划。 召回编号S2026M0042V：自2026年4月21日起，召回2025年9月1日至2025年10月13日期间生产的部分第十一代索纳塔汽车，共计953辆。 本次召回范围内的车辆，因
+5月25日晚，国家主席习近平在北京人民大会堂为塞尔维亚总统武契奇举行“友谊勋章”颁授仪式。 仪式开始，雄浑的礼乐声响起，金色大门徐徐打开，习近平主席和武契奇总统一同步入大厅。习近平主席夫人彭丽媛、武契奇总统夫人塔玛拉随行。全场嘉宾起立，热烈鼓掌，行注目礼。 礼兵护送“友谊勋章”入场。 在庄严的乐曲声中，习近平郑重为武契奇佩挂勋章。 总监制丨申勇 监制丨龚雪辉 记者丨史伟 邢彬
 
 ## 正文
 
-中新网4月10日电(吴家驹)国家市场监督管理总局网站显示，日前，北京现代汽车有限公司根据《缺陷汽车产品召回管理条例》和《缺陷汽车产品召回管理条例实施办法》的要求，向国家市场监督管理总局备案了召回计划。
+5月25日晚，国家主席习近平在北京人民大会堂为塞尔维亚总统武契奇举行“友谊勋章”颁授仪式。
 
-召回编号S2026M0042V：自2026年4月21日起，召回2025年9月1日至2025年10月13日期间生产的部分第十一代索纳塔汽车，共计953辆。
+仪式开始，雄浑的礼乐声响起，金色大门徐徐打开，习近平主席和武契奇总统一同步入大厅。
 
-本次召回范围内的车辆，因仪表控制器内的电源管理集成电路发生异常信号，可能导致仪表显示卡顿，方向指示灯开启时，仪表显示屏后侧方界面可能出现绿屏等故障，存在安全隐患。
+习近平主席夫人彭丽媛、武契奇总统夫人塔玛拉随行。
 
-北京现代汽车有限公司将通过远程升级(OTA)技术为召回范围内的车辆免费升级软件，对于未能通过OTA技术升级的车辆，将通过授权经销商邀约相关用户实施召回，以消除安全隐患。
+全场嘉宾起立，热烈鼓掌，行注目礼。
 
-(完)
+礼兵护送“友谊勋章”入场。
+
+在庄严的乐曲声中，习近平郑重为武契奇佩挂勋章。
+
+总监制丨申勇 监制丨龚雪辉 记者丨史伟 邢彬 杨紫童 赵化 黄茜 吉生亮 摄像丨李铮 段德文 李辉 钟锐 程铖 李增仁 杨波 王策 范一鸣 录音丨程爱华 (央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-30 07:18 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 07:06 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 07:08 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 07:29 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 07:15 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 07:28 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-30 07:23 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 07:28 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 07:28 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 07:15 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 07:16 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 07:09 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 07:30 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 07:21 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 07:25 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 07:24 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 07:06 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 07:26 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 07:29 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 07:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 07:11 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 07:24 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 07:16 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 07:07 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 07:31 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:01 - [巴拉圭进球](http://www.blog.kurohicncr.top/Article/details/95595.shtml)
-- 2026-06-30 07:18 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/0381871301.shtml)
-- 2026-06-30 07:12 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/514128.shtml)
-- 2026-06-30 07:25 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/076417820495.shtml)
-- 2026-06-30 07:08 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/6866361606.shtml)
-- 2026-06-30 07:26 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/36256242880.shtml)
-- 2026-06-30 07:25 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/06882171165.shtml)
-- 2026-06-30 07:04 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/171717.shtml)
-- 2026-06-30 07:26 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/97267650990.shtml)
-- 2026-06-30 07:06 - [第一炉香](https://www.share.kurohicncr.top/Article/details/204999.shtml)
-- 2026-06-30 07:15 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/51154.shtml)
-- 2026-06-30 07:28 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/97829444139.shtml)
-- 2026-06-30 07:27 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/0860876825.shtml)
-- 2026-06-30 07:21 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/08930464.shtml)
-- 2026-06-30 07:13 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/946169.shtml)
+- 2026-06-30 07:10 - [巴拉圭进球](http://www.blog.minike.top/Article/details/21760165.shtml)
+- 2026-06-30 07:13 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/56751.shtml)
+- 2026-06-30 07:16 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/445882929.shtml)
+- 2026-06-30 07:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/46893.shtml)
+- 2026-06-30 07:08 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/8874050.shtml)
+- 2026-06-30 07:25 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/84418.shtml)
+- 2026-06-30 07:22 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/8670625.shtml)
+- 2026-06-30 07:14 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/90260991.shtml)
+- 2026-06-30 07:15 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/4913363.shtml)
+- 2026-06-30 07:08 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/5637465397.shtml)
+- 2026-06-30 07:31 - [爱很美味](http://www.share.kurohicncr.top/Article/details/525248.shtml)
+- 2026-06-30 07:11 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.kurohicncr.top/Article/details/674146.shtml)
+- 2026-06-30 07:21 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/79276.shtml)
+- 2026-06-30 07:16 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/41419.shtml)
+- 2026-06-30 07:14 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/978390795401.shtml)

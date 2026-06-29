@@ -1,51 +1,50 @@
-# 4月10日“农产品批发价格200指数”比昨天下降0.06个点
+# 图达通建议委任毕马威为核数师
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电 据农业农村部网站消息，据农业农村部监测，4月10日“农产品批发价格200指数”为117.49，比昨天下降0.06个点，“菜篮子”产品批发价格指数为118.32，比昨天下降0.08个点。 截至今日14:00时，全国农产品批发市场猪肉平均价格为14.62元/公斤，比昨天下降1.3%；牛肉66.79元/公斤，比昨天上升0.2%；羊肉64.44元/公斤，比昨天下降0
+图达通（02665）发布公告，德勤•关黄陈方会计师行（德勤）担任公司截至2025年12月31日止年度的独立核数师。董事会已决议：（i）待现任核数师德勤的任期在即将举行的公司股东周年大会结束时届满，届时将不再续聘德勤；及（ii）将推荐委任毕马威会计师事务所（毕马威）于德勤退任后担任公司核数师，任期自股东周年大会结束时起直至股东周年大会后的公司下届股东周年大会结束时止，惟须待公司股
 
 ## 正文
 
-中新网4月10日电 据农业农村部网站消息，据农业农村部监测，4月10日“农产品批发价格200指数”为117.49，比昨天下降0.06个点，“菜篮子”产品批发价格指数为118.32，比昨天下降0.08个点。
+图达通（02665）发布公告，德勤•关黄陈方会计师行（德勤）担任公司截至2025年12月31日止年度的独立核数师。
 
-截至今日14:00时，全国农产品批发市场猪肉平均价格为14.62元/公斤，比昨天下降1.3%；牛肉66.79元/公斤，比昨天上升0.2%；羊肉64.44元/公斤，比昨天下降0.1%；鸡蛋7.76元/公斤，比昨天下降0.4%；白条鸡17.42元/公斤，比昨天上升2.2%。
+董事会已决议：（i）待现任核数师德勤的任期在即将举行的公司股东周年大会结束时届满，届时将不再续聘德勤；及（ii）将推荐委任毕马威会计师事务所（毕马威）于德勤退任后担任公司核数师，任期自股东周年大会结束时起直至股东周年大会后的公司下届股东周年大会结束时止，惟须待公司股东于股东周年大会上批准后，方可作实。
 
-重点监测的28种蔬菜平均价格为4.52元/公斤，比昨天上升0.7%；重点监测的6种水果平均价格为7.68元/公斤，比昨天下降0.1%。
-
-鲫鱼19.92元/公斤，比昨天上升0.7%；鲤鱼14.64元/公斤，比昨天上升0.5%；白鲢鱼10.40元/公斤，比昨天上升4.9%；大带鱼40.46元/公斤，比昨天下降1.7%。
-
-今日，国内鲜活农产品批发市场重点监测的46个品种中，与昨天相比价格升幅前五名的是白鲢鱼、菠菜、平菇、生菜和花鲢鱼，幅度分别为4.9%、3.3%、2.6%、2.4%和2.3%；价格降幅前五名的是菠萝、大黄花鱼、莴笋、大带鱼和南瓜，幅度分别为2.9%、2.9%、2.7%、1.7%和1.4%。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 07:29 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 07:24 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 07:18 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 07:08 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 07:25 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 07:15 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 07:26 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 07:27 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 07:29 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 07:16 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-30 07:28 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 07:19 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 07:12 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 07:28 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 07:29 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 07:06 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 07:33 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 07:10 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 07:28 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 07:11 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 07:09 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-30 07:28 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 07:21 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 07:12 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 07:31 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:06 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/94181.shtml)
-- 2026-06-30 07:27 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/23175946227.shtml)
-- 2026-06-30 07:25 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/52353985.shtml)
-- 2026-06-30 07:20 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/61342246.shtml)
-- 2026-06-30 07:24 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/50794868.shtml)
-- 2026-06-30 07:11 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/032351.shtml)
-- 2026-06-30 07:29 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/261354613739.shtml)
-- 2026-06-30 07:01 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/284817.shtml)
-- 2026-06-30 07:11 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/151289.shtml)
-- 2026-06-30 07:16 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/097741.shtml)
-- 2026-06-30 07:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/83604883168.shtml)
-- 2026-06-30 07:24 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/650213.shtml)
-- 2026-06-30 07:09 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/590862.shtml)
-- 2026-06-30 07:08 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/325573168.shtml)
-- 2026-06-30 07:28 - [明星大侦探第四季](https://www.share.minike.top/Article/details/05279205827.shtml)
+- 2026-06-30 07:11 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/717015614449.shtml)
+- 2026-06-30 07:26 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/3505078836.shtml)
+- 2026-06-30 07:06 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/72589359.shtml)
+- 2026-06-30 07:24 - [日本16强魔咒](https://www.share.minike.top/Article/details/219878750.shtml)
+- 2026-06-30 07:16 - [千与千寻](http://www.share.minike.top/Article/details/961403666.shtml)
+- 2026-06-30 07:26 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/7037626.shtml)
+- 2026-06-30 07:29 - [沙丘](https://www.share.minike.top/Article/details/037076.shtml)
+- 2026-06-30 07:12 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/9640107401.shtml)
+- 2026-06-30 07:27 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/8317500.shtml)
+- 2026-06-30 07:25 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/03576.shtml)
+- 2026-06-30 07:18 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/304261417.shtml)
+- 2026-06-30 07:14 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/92560.shtml)
+- 2026-06-30 07:14 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/7416410.shtml)
+- 2026-06-30 07:09 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/059890137.shtml)
+- 2026-06-30 07:10 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/45274453211.shtml)

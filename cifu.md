@@ -1,50 +1,57 @@
-# CoreWeave与Meta扩大AI云合作，股价应声上涨
+# 美团、腾讯参投！机器人公司天机智能完成10亿元融资
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-人工智能云计算公司CoreWeave宣布与Meta Platforms扩大基础设施合作后，其股价在周四盘前交易中上涨逾3%。根据这项合作，CoreWeave将在2032年前为Meta提供210亿美元的云服务能力。 CoreWeave在一份新闻稿中表示：“这批专用算力将部署在多个地点，并将包含英伟达Vera Rubin平台的部分首批部署。这种分布式方案旨在为Meta的人工智能运营
+5月25日，天机机器人公众号发布消息称，广东天机智能系统有限公司（下称天机智能）于近日正式完成10亿元B轮及B+轮融资，投后估值近百亿。 据介绍，本轮融资由高瓴创投、美团战投联合领投，腾讯、高榕创投、光合创投、纪源资本等联合跟投，高鹄资本担任独家财务顾问。本轮融资将主要用于技术研发、大规模量产，及全球销售网络建设。 天机智能成立于2015年5月19日，注册资本约为1.8亿元，法
 
 ## 正文
 
-人工智能云计算公司CoreWeave宣布与Meta Platforms扩大基础设施合作后，其股价在周四盘前交易中上涨逾3%。
+5月25日，天机机器人公众号发布消息称，广东天机智能系统有限公司（下称天机智能）于近日正式完成10亿元B轮及B+轮融资，投后估值近百亿。
 
-根据这项合作，CoreWeave将在2032年前为Meta提供210亿美元的云服务能力。
+据介绍，本轮融资由高瓴创投、美团战投联合领投，腾讯、高榕创投、光合创投、纪源资本等联合跟投，高鹄资本担任独家财务顾问。
 
-CoreWeave在一份新闻稿中表示：“这批专用算力将部署在多个地点，并将包含英伟达Vera Rubin平台的部分首批部署。
+本轮融资将主要用于技术研发、大规模量产，及全球销售网络建设。
 
-这种分布式方案旨在为Meta的人工智能运营优化性能、韧性和可扩展性。
+天机智能成立于2015年5月19日，注册资本约为1.8亿元，法定代表人为陈曦。
 
-”责任编辑：张俊 SF065
+该公司由深圳市长盈精密技术股份有限公司持股27%，CLH 142（HK）Limited持股19.7212%，陈曦持股15.225%等。
+
+该公司以机器人及控制系统为核心，聚焦机器人产品及应用，具有中小负载全类型机器人产品矩阵，自研天机Fusion控制系统。
+
+该公司自称，是全球首家自研MEMS关节扭矩传感器并应用于机器人关节的具身智能公司。
+
+据官网数据，截止2022年底，使用天机产品的客户超800余家，在线稳定运行机器人超10000台套。
 
 ## 相关推荐
 
-- 2026-06-30 07:26 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-30 07:27 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 07:20 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 07:28 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 07:17 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 07:05 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 07:14 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 07:00 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 07:15 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 07:15 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 07:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 07:28 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 07:34 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 07:16 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 07:17 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 07:06 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 07:32 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 07:26 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 07:21 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 07:28 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 07:31 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:06 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/09927626905.shtml)
-- 2026-06-30 07:22 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.minike.top/Article/details/122563047.shtml)
-- 2026-06-30 07:06 - [哈弗茨头球破门](https://www.blog.kurohicncr.top/Article/details/81236.shtml)
-- 2026-06-30 07:05 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/45452.shtml)
-- 2026-06-30 07:09 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/27054213744.shtml)
-- 2026-06-30 07:24 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.minike.top/Article/details/569579879.shtml)
-- 2026-06-30 07:09 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/5727386052.shtml)
-- 2026-06-30 07:08 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/580395184.shtml)
-- 2026-06-30 07:21 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/58617956.shtml)
-- 2026-06-30 07:02 - [美人鱼](http://www.blog.minike.top/Article/details/47285155219.shtml)
-- 2026-06-30 07:29 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/89161403.shtml)
-- 2026-06-30 07:19 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/214190474.shtml)
-- 2026-06-30 07:01 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/089593584556.shtml)
-- 2026-06-30 07:06 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/5117758995.shtml)
-- 2026-06-30 07:15 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/972431252273.shtml)
+- 2026-06-30 07:13 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/870700.shtml)
+- 2026-06-30 07:31 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/75055.shtml)
+- 2026-06-30 07:15 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/728480410.shtml)
+- 2026-06-30 07:23 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/9228776.shtml)
+- 2026-06-30 07:31 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/578322842822.shtml)
+- 2026-06-30 07:17 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/64669375938.shtml)
+- 2026-06-30 07:34 - [齐思钧回复张月](http://www.share.minike.top/Article/details/24296711931.shtml)
+- 2026-06-30 07:31 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/7770071.shtml)
+- 2026-06-30 07:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/561711799552.shtml)
+- 2026-06-30 07:12 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/119324.shtml)
+- 2026-06-30 07:26 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/486508.shtml)
+- 2026-06-30 07:20 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/7391215749.shtml)
+- 2026-06-30 07:29 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/223753496667.shtml)
+- 2026-06-30 07:35 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/332989.shtml)
+- 2026-06-30 07:09 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/27787849642.shtml)

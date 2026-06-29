@@ -1,56 +1,45 @@
-# 全民国家安全教育日核安全主场活动首次在大湾区举办
+# 学习·故事丨总书记牵挂的边陲小镇蝶变
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新网深圳4月10日电 (索有为 朱丹)2026年全民国家安全教育日核安全主场活动10日在深圳举办，这是该活动首次在粤港澳大湾区举办。 该活动由生态环境部(国家核安全局)、国家能源局、国家原子能机构指导，中国广核集团主办。 生态环境部副部长、国家核安全局局长董保同表示，当前中国核能发展正处于规模化关键阶段，统筹发展和安全是“十五五”时期必须扛牢的政治责任，要坚决守牢核安全底线，
+发布时间：2026年05月24日 15:11 来源：人民网-中国共产党新闻网 责任编辑：【姜媛媛】
 
 ## 正文
 
-中新网深圳4月10日电 (索有为 朱丹)2026年全民国家安全教育日核安全主场活动10日在深圳举办，这是该活动首次在粤港澳大湾区举办。
-
-该活动由生态环境部(国家核安全局)、国家能源局、国家原子能机构指导，中国广核集团主办。
-
-生态环境部副部长、国家核安全局局长董保同表示，当前中国核能发展正处于规模化关键阶段，统筹发展和安全是“十五五”时期必须扛牢的政治责任，要坚决守牢核安全底线，深化公众沟通，持续提升全社会对核能与核安全的科学认知。
-
-据统计，国家核安全局已颁发62台核电机组的运行许可证、39台机组的建造许可证，中国在建核电规模占全球的一半以上，在运机组总数有望于2026年底达到70台。
-
-中共广东省委常委、常务副省长张虎表示，广东不仅是核电大省，核技术利用持证单位数量也居全国首位，构建了全链条、全要素、全周期的核安全管理体系。
-
-坐落在粤港澳大湾区的中国大陆首座大型商用核电站——大亚湾核电站已安全稳定运行32年，累计向香港输送电量超3300亿千瓦时，占香港总用电量四分之一。
-
-中广核党委书记、董事长杨长利透露，中广核始终把核安全摆在压倒性位置，2025年28台在运核电机组全部实现“零非计划停堆”。
-
-面向公众，中广核坚持公开透明、责任沟通，连续13年举办“8·7公众开放体验日”，让核安全成为可知、可感、可参与的共同事业。
+发布时间：2026年05月24日 15:11 来源：人民网-中国共产党新闻网 责任编辑：【姜媛媛】
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 07:01 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 07:25 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 07:20 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 07:20 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 07:20 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 07:05 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-30 07:11 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 07:06 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 07:28 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 07:33 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 07:08 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 07:13 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 07:21 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 07:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 07:09 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 07:09 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 07:33 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 07:33 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 07:06 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 07:34 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-30 07:07 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 07:23 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:12 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/76116589445.shtml)
-- 2026-06-30 07:09 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/6916557.shtml)
-- 2026-06-30 07:24 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/27781223622.shtml)
-- 2026-06-30 07:24 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/30708.shtml)
-- 2026-06-30 07:19 - [董卿父亲在报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/02508563.shtml)
-- 2026-06-30 07:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/2198532220.shtml)
-- 2026-06-30 07:05 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/87472817.shtml)
-- 2026-06-30 07:28 - [扫黑风暴](http://www.share.minike.top/Article/details/04775650.shtml)
-- 2026-06-30 07:19 - [韩国球迷凌晨4点接机怒骂主教练](https://www.share.kurohicncr.top/Article/details/3392680.shtml)
-- 2026-06-30 07:06 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/12462.shtml)
-- 2026-06-30 07:17 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/20855816.shtml)
-- 2026-06-30 07:04 - [千与千寻](http://www.share.kurohicncr.top/Article/details/6633476850.shtml)
-- 2026-06-30 07:12 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/6181102.shtml)
-- 2026-06-30 07:06 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/77845490.shtml)
-- 2026-06-30 07:15 - [恋与深空制作组回应近期争议](https://www.blog.kurohicncr.top/Article/details/7467709405.shtml)
+- 2026-06-30 07:32 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/80035.shtml)
+- 2026-06-30 07:07 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/88477.shtml)
+- 2026-06-30 07:28 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/7205734144.shtml)
+- 2026-06-30 07:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/16828200245.shtml)
+- 2026-06-30 07:25 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/52082392473.shtml)
+- 2026-06-30 07:34 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/60024118506.shtml)
+- 2026-06-30 07:09 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/0238423793.shtml)
+- 2026-06-30 07:32 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/39680.shtml)
+- 2026-06-30 07:34 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/948112765557.shtml)
+- 2026-06-30 07:29 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/0338253219.shtml)
+- 2026-06-30 07:11 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/45304908954.shtml)
+- 2026-06-30 07:16 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/9000182238.shtml)
+- 2026-06-30 07:22 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/192757828.shtml)
+- 2026-06-30 07:12 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/015851428704.shtml)
+- 2026-06-30 07:21 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/643650.shtml)

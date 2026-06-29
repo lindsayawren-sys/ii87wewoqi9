@@ -1,56 +1,52 @@
-# 台青在大陆“跨界”中寻合作机遇
+# 曦智科技-P：稳定价格行动及稳定价格期结束
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新社贵阳4月10日电 (记者 周燕玲)“这次考察结束后，我准备在贵阳多留一天，去打卡藏在街头巷尾的咖啡店。”在浙江嘉兴经营复合式咖啡馆的台湾青年邱弘宇10日接受中新社采访时说，贵阳的咖啡文化很有辨识度。连日来，邱弘宇与20多位台企代表到访贵州，参观贵阳的咖啡工厂和精酿酒厂，考察铜仁江口的抹茶工厂，了解抹茶制作工艺。 邱弘宇此行关注到铜仁抹茶等优质原料，计划与咖啡、烘焙结合，开
+曦智科技-P（01879）发布公告，有关全球发售的稳定价格期已于2026年5月23日（即递交香港公开发售申请截止日期后第30日）结束。 中国国际金融香港证券有限公司（作为稳定价格经办人）或代其行事的任何人士于稳定价格期内采取的稳定价格行动如下：国际发售中超额分配合共206.9万股H股，相当于全球发售项下初次可供认购的发售股份总数的约15.0%（于超额配股权获行使前）；及整体协调
 
 ## 正文
 
-中新社贵阳4月10日电 (记者 周燕玲)“这次考察结束后，我准备在贵阳多留一天，去打卡藏在街头巷尾的咖啡店。
+曦智科技-P（01879）发布公告，有关全球发售的稳定价格期已于2026年5月23日（即递交香港公开发售申请截止日期后第30日）结束。
 
-”在浙江嘉兴经营复合式咖啡馆的台湾青年邱弘宇10日接受中新社采访时说，贵阳的咖啡文化很有辨识度。
+中国国际金融香港证券有限公司（作为稳定价格经办人）或代其行事的任何人士于稳定价格期内采取的稳定价格行动如下：国际发售中超额分配合共206.9万股H股，相当于全球发售项下初次可供认购的发售股份总数的约15.0%（于超额配股权获行使前）；及整体协调人（代表国际承销商）于2026年5月11日就合共206.9万股H股（相当于全球发售项下初始可供认购的发售股份总数的约15.0%（于超额配股权获行使前）按每股H股183.20港元的价格悉数行使超额配股权，以促进向已同意延迟交付彼等根据全球发售认购的相关H股的承配人交付部分H股。
 
-连日来，邱弘宇与20多位台企代表到访贵州，参观贵阳的咖啡工厂和精酿酒厂，考察铜仁江口的抹茶工厂，了解抹茶制作工艺。
+于稳定价格期间，稳定价格经办人并无为稳定价格而在市场上买卖任何H股。
 
-邱弘宇此行关注到铜仁抹茶等优质原料，计划与咖啡、烘焙结合，开发新品、拓展供应链合作。
-
-邱弘宇的父母在大陆创业多年，如今在嘉兴开设传统烘焙工厂。
-
-邱弘宇十多年前从台湾来大陆发展，并提出往咖啡业态转型。
-
-“面包与咖啡天然适配，咖啡馆有格调，溢价空间也更高。
-
-”邱弘宇说，第一家烘焙店如今已变成300平方米的复合式咖啡馆，以精品咖啡加烘焙产品为主，兼售咖啡豆和文创产品。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 07:06 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 07:10 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-30 07:12 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 07:09 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 07:10 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 07:01 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 07:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 07:30 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 07:03 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 07:11 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 07:16 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 07:16 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 07:25 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 07:29 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-30 07:21 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 07:19 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 07:18 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 07:28 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 07:20 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-30 07:27 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 07:19 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 07:18 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 07:29 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 07:20 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:26 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/339872.shtml)
-- 2026-06-30 07:24 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/570977814.shtml)
-- 2026-06-30 07:06 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/06504645157.shtml)
-- 2026-06-30 07:12 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/00724.shtml)
-- 2026-06-30 07:16 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/318303.shtml)
-- 2026-06-30 07:17 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/6733114.shtml)
-- 2026-06-30 07:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/13943298631.shtml)
-- 2026-06-30 07:20 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/012725597.shtml)
-- 2026-06-30 07:18 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/409754276533.shtml)
-- 2026-06-30 07:18 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/027834772.shtml)
-- 2026-06-30 07:00 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/741405353.shtml)
-- 2026-06-30 07:11 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/4720749.shtml)
-- 2026-06-30 07:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/21557942210.shtml)
-- 2026-06-30 07:22 - [金牌调解](https://www.blog.minike.top/Article/details/14161532.shtml)
-- 2026-06-30 07:21 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/4056051.shtml)
+- 2026-06-30 07:26 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/643230137.shtml)
+- 2026-06-30 07:11 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/4331885324.shtml)
+- 2026-06-30 07:21 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/29844302.shtml)
+- 2026-06-30 07:11 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/424910226886.shtml)
+- 2026-06-30 07:19 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/74653383704.shtml)
+- 2026-06-30 07:23 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/17352332.shtml)
+- 2026-06-30 07:21 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/996695577353.shtml)
+- 2026-06-30 07:35 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/1381155215.shtml)
+- 2026-06-30 07:15 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/167768144.shtml)
+- 2026-06-30 07:18 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/5486428.shtml)
+- 2026-06-30 07:09 - [周生如故](http://www.share.kurohicncr.top/Article/details/9477783713.shtml)
+- 2026-06-30 07:09 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/81730361367.shtml)
+- 2026-06-30 07:21 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/724593367544.shtml)
+- 2026-06-30 07:33 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/371431.shtml)
+- 2026-06-30 07:35 - [极限挑战第一季](https://www.share.minike.top/Article/details/59180277.shtml)

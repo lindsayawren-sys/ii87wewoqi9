@@ -1,60 +1,59 @@
-# 千亿市值跌去八成，爱美客“躺赢”时代终结
+# 评论：“一国两制”的星光，在人类的天空闪耀
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-曾被誉为“医美茅”的爱美客，正经历上市以来最严峻的信任危机。2025年年报数据揭示，这家曾靠“嗨体”一针撑起千亿市值的医美龙头，核心盈利指标全面下滑，海外扩张遭遇仲裁重创，产品结构单一、增长乏力、合规风险等多重问题集中爆发。市场对其“高毛利、高增长”的叙事逻辑，正在被重新审视。 一、业绩“三连降”，高分红难掩增长失速 2025年，爱美客实现营业收入24.53亿元，同比下降18.
+新华社香港5月25日电 题：“一国两制”的星光，在人类的天空闪耀 新华社记者郭鑫 星河浩瀚，逐梦不息。随着神舟二十三号载人飞船发射取得圆满成功，航天员乘组25日顺利进驻中国空间站，“天宫”迎来首位来自中国香港的航天员黎家盈。这份成就，不仅是黎家盈个人奋斗铸就的荣光，也是700多万香港同胞的骄傲，更是“一国两制”实践结出的硕果，充分印证了“一国两制”的强大生命力和显著优越性，让植
 
 ## 正文
 
-曾被誉为“医美茅”的爱美客，正经历上市以来最严峻的信任危机。
+新华社香港5月25日电 题：“一国两制”的星光，在人类的天空闪耀 新华社记者郭鑫 星河浩瀚，逐梦不息。
 
-2025年年报数据揭示，这家曾靠“嗨体”一针撑起千亿市值的医美龙头，核心盈利指标全面下滑，海外扩张遭遇仲裁重创，产品结构单一、增长乏力、合规风险等多重问题集中爆发。
+随着神舟二十三号载人飞船发射取得圆满成功，航天员乘组25日顺利进驻中国空间站，“天宫”迎来首位来自中国香港的航天员黎家盈。
 
-市场对其“高毛利、高增长”的叙事逻辑，正在被重新审视。
+这份成就，不仅是黎家盈个人奋斗铸就的荣光，也是700多万香港同胞的骄傲，更是“一国两制”实践结出的硕果，充分印证了“一国两制”的强大生命力和显著优越性，让植根华夏大地的制度星光闪耀在人类探索宇宙的广阔天空。
 
-一、业绩“三连降”，高分红难掩增长失速 2025年，爱美客实现营业收入24.53亿元，同比下降18.94%；归母净利润12.91亿元，同比下滑34.05%；扣非归母净利润10.99亿元，同比大跌41.30%。
+“一国”根基稳固，“两制”活力迸发，是港澳融入国家航天事业的根本依托。
 
-三大核心盈利指标同步下滑，且为上市以来首次出现如此集中的负增长，反映出公司核心盈利能力正在加速弱化。
+在“一国两制”优势下，港澳打破地域局限、畅通人才交流，本地科研人才广泛深入参与国家重大科研项目，共享航天事业发展红利。
 
-尽管公司全年现金分红总额达6.03亿元，分红比例约46.70%，但市场并未买账。
+黎家盈的航天圆梦之路，扎根于“一国两制”实践沃土，依托于国家航天事业的蓬勃发展，生动证明祖国繁荣发展为港澳同胞开辟了广阔发展空间，助力他们投身国家重大科技事业、实现自身价值。
 
-自2026年1月底以来，爱美客股价持续走低，近一年累计下跌约30%，总市值缩水至360亿元左右，较2021年巅峰时期的近1800亿元跌去近八成，甚至低于上市首日市值规模。
+“一国两制”赋予港澳独特的发展优势，既能保留其自身特色，又能更好融入和服务国家发展大局。
 
-机构纷纷下调盈利预测与目标价，市场对其2026年增长预期明显降温。
+从早前的经贸往来、投资建设、民生融合，到当下的科研攻关、深空探索，港澳参与国家建设的赛道不断拓宽，发展空间持续扩展。
 
 ## 相关推荐
 
-- 2026-06-30 07:07 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 07:16 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 07:13 - [F1奥地利站赛后复盘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 07:15 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 07:21 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-30 07:00 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 07:07 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 07:06 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 07:10 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 07:24 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 07:18 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 07:08 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 07:26 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-30 07:19 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 07:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 07:31 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-30 07:17 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 07:12 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 07:30 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 07:09 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 07:19 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 07:22 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 07:31 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 07:09 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 07:28 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 07:19 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 07:24 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:02 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.kurohicncr.top/Article/details/64103623.shtml)
-- 2026-06-30 07:22 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/15840.shtml)
-- 2026-06-30 07:09 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/24771.shtml)
-- 2026-06-30 07:29 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/069240.shtml)
-- 2026-06-30 07:07 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/28784344.shtml)
-- 2026-06-30 07:04 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/901914.shtml)
-- 2026-06-30 07:11 - [千香](https://www.share.minike.top/Article/details/330190310.shtml)
-- 2026-06-30 07:13 - [一生一世](http://www.share.kurohicncr.top/Article/details/47536633812.shtml)
-- 2026-06-30 07:06 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/182973349.shtml)
-- 2026-06-30 07:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/3920108663.shtml)
-- 2026-06-30 07:03 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/8080220.shtml)
-- 2026-06-30 07:01 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/480653252327.shtml)
-- 2026-06-30 07:26 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/969053.shtml)
-- 2026-06-30 07:02 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/113128823.shtml)
-- 2026-06-30 07:02 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/627009644219.shtml)
+- 2026-06-30 07:30 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/7936927802.shtml)
+- 2026-06-30 07:34 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/08485733.shtml)
+- 2026-06-30 07:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/5251290074.shtml)
+- 2026-06-30 07:27 - [女心理师](http://www.share.kurohicncr.top/Article/details/97908231.shtml)
+- 2026-06-30 07:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/589016.shtml)
+- 2026-06-30 07:34 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/473652944872.shtml)
+- 2026-06-30 07:11 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/877063262.shtml)
+- 2026-06-30 07:34 - [感动全网的699分女生想报考清华](https://www.share.kurohicncr.top/Article/details/868583.shtml)
+- 2026-06-30 07:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/20099.shtml)
+- 2026-06-30 07:32 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/3668864.shtml)
+- 2026-06-30 07:34 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/998509130.shtml)
+- 2026-06-30 07:32 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/707371779804.shtml)
+- 2026-06-30 07:17 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/02682727.shtml)
+- 2026-06-30 07:09 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/32674.shtml)
+- 2026-06-30 07:34 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/7206091922.shtml)

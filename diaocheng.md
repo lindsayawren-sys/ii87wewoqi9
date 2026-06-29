@@ -1,56 +1,51 @@
-# “复仇行动不会停止”，国际原油价格直线飙升！
+# 日本关东地区发生地震 多地有震感
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社客户端消息，据伊朗媒体9日报道，在伊朗前最高领袖阿里·哈梅内伊遇害40天后，伊斯兰革命卫队发表声明说，“复仇行动不会停止”。 声明说，阿里·哈梅内伊离世，这样的悲痛让伊朗人难以承受，革命卫队“将以坚韧和力量继承遗志”，为哈梅内伊及其他牺牲者的复仇行动不会停止，革命卫队将继续支持现任最高领袖穆杰塔巴·哈
+中新网5月24日电 据日本广播协会(NHK)报道，当地时间24日15时8分许，日本茨城县近海发生4级地震，震源深度50千米。 据报道，茨城县水户市观测到震度3级的明显震感，此外，福岛县、栃木县和千叶县等多地也有不同程度震感。 此次地震没有引发海啸。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网5月24日电 据日本广播协会(NHK)报道，当地时间24日15时8分许，日本茨城县近海发生4级地震，震源深度50千米。
 
-新华社客户端消息，据伊朗媒体9日报道，在伊朗前最高领袖阿里·哈梅内伊遇害40天后，伊斯兰革命卫队发表声明说，“复仇行动不会停止”。
+据报道，茨城县水户市观测到震度3级的明显震感，此外，福岛县、栃木县和千叶县等多地也有不同程度震感。
 
-声明说，阿里·哈梅内伊离世，这样的悲痛让伊朗人难以承受，革命卫队“将以坚韧和力量继承遗志”，为哈梅内伊及其他牺牲者的复仇行动不会停止，革命卫队将继续支持现任最高领袖穆杰塔巴·哈梅内伊。
-
-革命卫队还表示，伊朗全国团结一致，武装部队已向美国和以色列发动百次袭击。
-
-受中东停火依然存在不确定性，霍尔木兹海峡持续存在运输限制的影响，国际油价今日再度拉升。
-
-4月9日18：41，NYMEX WTI原油期货涨4.85%，盘中最高涨超5%；ICE布油期货涨3.65%。
-
-图片来源：Wind 高盛表示，鉴于曲线前端的风险溢价回落，以及通过苏伊士运河的原油流量已开始增加，将布伦特原油和WTI原油第二季度价格预测分别下调至90美元/桶和87美元/桶。
-
-新华社客户端消息，美国石油业巨头埃克森美孚公司8日说，受伊朗战事影响，该公司今年第一季度收益可能减少65亿美元，其中大部分因为套期保值合同的会计处理。
+此次地震没有引发海啸。
 
 ## 相关推荐
 
-- 2026-06-30 07:00 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 07:18 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 07:09 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 07:22 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 07:23 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 07:16 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 07:06 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 07:22 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 07:29 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 07:20 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 07:11 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 07:09 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 07:19 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 07:13 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 07:30 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 07:31 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 07:10 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-30 07:28 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 07:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-30 07:17 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 07:13 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 07:08 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 07:29 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 07:32 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 07:15 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/78159.shtml)
-- 2026-06-30 07:02 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/327607363037.shtml)
-- 2026-06-30 07:27 - [森保一致歉：世界第一目标没能实现](https://www.blog.kurohicncr.top/Article/details/604382278.shtml)
-- 2026-06-30 07:23 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/4153604094.shtml)
-- 2026-06-30 07:29 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/138234185.shtml)
-- 2026-06-30 07:12 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/058311787.shtml)
-- 2026-06-30 07:09 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/89713.shtml)
-- 2026-06-30 07:13 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/402073063.shtml)
-- 2026-06-30 07:01 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/92358983.shtml)
-- 2026-06-30 07:16 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/495574.shtml)
-- 2026-06-30 07:13 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/4081275368.shtml)
-- 2026-06-30 07:24 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/54379818494.shtml)
-- 2026-06-30 07:11 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/1050918102.shtml)
-- 2026-06-30 07:13 - [刘宇宁高情商化解谁站C位](https://www.share.minike.top/Article/details/01416169733.shtml)
-- 2026-06-30 07:10 - [日本五次世界杯淘汰赛全败](https://www.share.kurohicncr.top/Article/details/939700.shtml)
+- 2026-06-30 07:21 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/99400876.shtml)
+- 2026-06-30 07:27 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/071547243948.shtml)
+- 2026-06-30 07:08 - [流金岁月](http://www.share.minike.top/Article/details/4002084776.shtml)
+- 2026-06-30 07:31 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/77610498.shtml)
+- 2026-06-30 07:11 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/847965.shtml)
+- 2026-06-30 07:12 - [森保一 保守](https://www.share.kurohicncr.top/Article/details/92394590.shtml)
+- 2026-06-30 07:27 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/77073243594.shtml)
+- 2026-06-30 07:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/53586.shtml)
+- 2026-06-30 07:07 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/7956314.shtml)
+- 2026-06-30 07:07 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/510882719.shtml)
+- 2026-06-30 07:16 - [起风了](http://www.blog.kurohicncr.top/Article/details/50710.shtml)
+- 2026-06-30 07:33 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/59559099.shtml)
+- 2026-06-30 07:31 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/855407.shtml)
+- 2026-06-30 07:33 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/663447199180.shtml)
+- 2026-06-30 07:32 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/3343558023.shtml)

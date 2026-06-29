@@ -1,50 +1,52 @@
-# 李斌：智能电车迭代快 供应链“压力山大”
+# 李思潼回应南枝嗑糖：木生和淑柔太好嗑了
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月11日 21:59 来源：中国新闻网 4月11日至12日，智能电动汽车发展高层论坛(2026)在北京举办。论坛期间，蔚来创始人、董事长、CEO李斌在接受媒体采访时表示，当前全行业普遍面临盈利压力，很大原因在于智能电动汽车迭代速度远超燃油车时代——智能化、电动化、汽车技术进步三线并进，迫使车企保持高频换代节奏，导致供应链波动剧烈。 李斌指出，电池与芯片占
+发布时间：2026年05月26日 15:59 来源：中国新闻网 南枝对木生到底有没有感情？近日，在电影《给阿嬷的情书》中饰演谢南枝的演员李思潼接受中国新闻网专访时表示，南枝听木生讲述他和淑柔的故事时，两个眼睛会放光，她慢慢被木生口中的淑柔打动。后来她又感动于木生对家庭的付出，所以想要替他把这份情义延续下去。(记者 王诗尧） 责任编辑：【张曦】
 
 ## 正文
 
-发布时间：2026年04月11日 21:59 来源：中国新闻网 4月11日至12日，智能电动汽车发展高层论坛(2026)在北京举办。
+发布时间：2026年05月26日 15:59 来源：中国新闻网 南枝对木生到底有没有感情？
 
-论坛期间，蔚来创始人、董事长、CEO李斌在接受媒体采访时表示，当前全行业普遍面临盈利压力，很大原因在于智能电动汽车迭代速度远超燃油车时代——智能化、电动化、汽车技术进步三线并进，迫使车企保持高频换代节奏，导致供应链波动剧烈。
+近日，在电影《给阿嬷的情书》中饰演谢南枝的演员李思潼接受中国新闻网专访时表示，南枝听木生讲述他和淑柔的故事时，两个眼睛会放光，她慢慢被木生口中的淑柔打动。
 
-李斌指出，电池与芯片占整车价值已超50%，但两类核心部件供应组织复杂度极高，成为行业降本的核心堵点。
+后来她又感动于木生对家庭的付出，所以想要替他把这份情义延续下去。
 
-他倡议推动电芯规格标准化，同时加大单颗芯片的用量，这对于平顺新车迭代速度快、供应链波动大，都有非常重要的意义。
-
-(记者 刘超) 责任编辑：【张令旗】
+(记者 王诗尧） 责任编辑：【张曦】
 
 ## 相关推荐
 
-- 2026-06-30 07:12 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-30 07:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-30 07:13 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 07:02 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 07:13 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 07:11 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 07:05 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-30 07:04 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 07:20 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 07:26 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 07:08 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 07:19 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 07:31 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 07:27 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 07:20 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 07:23 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 07:26 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 07:21 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 07:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 07:09 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-30 07:23 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 07:21 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 07:14 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 07:09 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:24 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/76336942.shtml)
-- 2026-06-30 07:02 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/817960942.shtml)
-- 2026-06-30 07:29 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/12678072993.shtml)
-- 2026-06-30 07:23 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/6931484.shtml)
-- 2026-06-30 07:10 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/24096.shtml)
-- 2026-06-30 07:22 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/5852446561.shtml)
-- 2026-06-30 07:16 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/43232766.shtml)
-- 2026-06-30 07:21 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/539257.shtml)
-- 2026-06-30 07:12 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/191492.shtml)
-- 2026-06-30 07:17 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/311466.shtml)
-- 2026-06-30 07:24 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/852483036764.shtml)
-- 2026-06-30 07:06 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/62754200589.shtml)
-- 2026-06-30 07:16 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/884780197.shtml)
-- 2026-06-30 07:21 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/404041.shtml)
-- 2026-06-30 07:24 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/421305618281.shtml)
+- 2026-06-30 07:12 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/77503.shtml)
+- 2026-06-30 07:29 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/005067.shtml)
+- 2026-06-30 07:21 - [恋与深空道歉声明](https://www.blog.kurohicncr.top/Article/details/272025385.shtml)
+- 2026-06-30 07:12 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/6537527.shtml)
+- 2026-06-30 07:25 - [日本 高位逼抢](http://www.share.minike.top/Article/details/761786550565.shtml)
+- 2026-06-30 07:18 - [董卿父亲报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/008279570.shtml)
+- 2026-06-30 07:19 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/6956875098.shtml)
+- 2026-06-30 07:23 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/6545096345.shtml)
+- 2026-06-30 07:26 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/967225.shtml)
+- 2026-06-30 07:14 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/9969020835.shtml)
+- 2026-06-30 07:30 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/1295546519.shtml)
+- 2026-06-30 07:29 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/0907169404.shtml)
+- 2026-06-30 07:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/52878.shtml)
+- 2026-06-30 07:13 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/67309898830.shtml)
+- 2026-06-30 07:07 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/696303980000.shtml)

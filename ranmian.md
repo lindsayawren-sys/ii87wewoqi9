@@ -1,60 +1,61 @@
-# 205家上榜！北京金融监管局公布未经批准使用含“金控”等字样经营主体
+# 四川成都：第三届川渝美术作品展吸引参观者
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-来源：北京商报 4月10日，北京金融监管局发布《关于北京市未经批准使用“金融控股”“金融集团”等字样及名称中含有“金控”字样经营主体名单的公示》指出，金融是特许经营行业，必须持牌经营。根据《国务院关于实施金融控股公司准入管理的决定》（国发〔2020〕12号）和《金融控股公司监督管理试行办法》（中国人民银行令〔2020〕第4号）等规定，未经批准，不得登记为金融控股公司，不得在公司
+中新网评：安全责任，不能总用生命来“检验”想吃烧烤哪家强？西北藏着一个适合“撸串”的小城复古经济兴起：年轻人愿为“回忆”买单民生应用场景“多点开花” 低空经济正走向普惠阶段“东北超”开踢，为东北全面振兴注入鲜活动能中国“离境退税2.0”为打造国际化消费环境添动力港人飞天，星辰可及美联储新主席宣誓就任 “沃什时代”政策迷雾待解抓科创、强产业，长三角一体化发展再提速你身上穿的T恤，
 
 ## 正文
 
-来源：北京商报 4月10日，北京金融监管局发布《关于北京市未经批准使用“金融控股”“金融集团”等字样及名称中含有“金控”字样经营主体名单的公示》指出，金融是特许经营行业，必须持牌经营。
+中新网评：安全责任，不能总用生命来“检验”想吃烧烤哪家强？
 
-根据《国务院关于实施金融控股公司准入管理的决定》（国发〔2020〕12号）和《金融控股公司监督管理试行办法》（中国人民银行令〔2020〕第4号）等规定，未经批准，不得登记为金融控股公司，不得在公司名称中使用“金融控股”“金融集团”等字样。
+西北藏着一个适合“撸串”的小城复古经济兴起：年轻人愿为“回忆”买单民生应用场景“多点开花” 低空经济正走向普惠阶段“东北超”开踢，为东北全面振兴注入鲜活动能中国“离境退税2.0”为打造国际化消费环境添动力港人飞天，星辰可及美联储新主席宣誓就任 “沃什时代”政策迷雾待解抓科创、强产业，长三角一体化发展再提速你身上穿的T恤，大概率来自这个北方小城美军导弹告急，韩国日本更急？
 
-为贯彻落实党的二十大和中央金融工作会议精神，严把金融准入关口，规范市场秩序，强化对非法金融活动的源头管控，按照全国统一部署要求，北京金融监管局会同相关部门对北京市经营主体进行全面摸排，经综合研判，认定辖内一批未经批准使用“金融控股”“金融集团”等字样及名称中含有“金控”字样的经营主体名单，现向社会进行公示。
+国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？
 
-北京金融监管局指出，根据有关规定，请名单中各经营主体自公示之日起3个月内主动向属地市场监管部门申请注销或变更名称、业务范围，同时对涉及相关字样的分公司、办事处、代表处等分支或附属机构进行规范，确保变更后的名称和经营范围中不得包含“金融控股”“金融集团”“金控”和其他未经许可的涉金融属性字样。
+618大战，为何先从手机降价开始？
 
-对公示名单中未按期主动注销或变更名称、业务范围的经营主体，该局将联合相关部门采取进一步监管措施。
+埃及胡夫金字塔如何抗震？
 
-北京商报记者注意到，此次北京金融监管局公布的经营主体名单共有205家，涉及安润金控资产管理（北京）有限公司、百润金控（北京）投资有限责任公司、北方金控（北京）资产管理有限公司、北京百汇金控投资管理有限公司、北京百望金控科技有限公司、北京北投金控投资管理有限公司、北京博海金控投资有限公司、北京春晓金控科技发展有限公司、北京大唐金控投资基金（有限合伙）、北京东方金控基金管理有限公司等。
+国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！
 
-北京金融监管局指出，对公示名单有异议的经营主体，可在公示之日起1个月内主动与该局取得联系，说明情况并提供相关证明材料，逾期视同无异议。
+你的股票和黄金，后市怎么走？
 
-责任编辑：曹睿潼
+警惕狂奔的日本“灰犀牛”“洋医生”沈义扬扎根海南十三载：义之所至，扬之千里安徽池州：晨韵齐山 景美如画成都汽配展启幕 新兴市场客商觅合作商机消防指战员席地而眠守护湖南石门李显龙在上海与导盲机器人 机械手互动 笑容满面合不拢嘴非洲青年带家乡水稻丰收照片缅怀袁隆平《给阿嬷的情书》总制片人感谢全网“自来水”北京天坛的奠基土来自山西后土祠？
 
 ## 相关推荐
 
-- 2026-06-30 07:10 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 07:06 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 07:29 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 07:11 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 07:22 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 07:13 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 07:26 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 07:15 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 07:25 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 07:27 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 07:24 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 07:05 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 07:15 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 07:01 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 07:28 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 07:26 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 07:31 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 07:20 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 07:09 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 07:17 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 07:08 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 07:09 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 07:19 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 07:26 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 07:23 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 07:32 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 07:32 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 07:07 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 07:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:06 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/08233073474.shtml)
-- 2026-06-30 07:00 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/72802634.shtml)
-- 2026-06-30 07:17 - [扬名立万](https://www.blog.minike.top/Article/details/86346620504.shtml)
-- 2026-06-30 07:07 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/1725054350.shtml)
-- 2026-06-30 07:14 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/22764.shtml)
-- 2026-06-30 07:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/17747.shtml)
-- 2026-06-30 07:19 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/15241713788.shtml)
-- 2026-06-30 07:24 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/827898.shtml)
-- 2026-06-30 07:30 - [一生一世](http://www.share.minike.top/Article/details/822885.shtml)
-- 2026-06-30 07:22 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/015341.shtml)
-- 2026-06-30 07:15 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/200236533351.shtml)
-- 2026-06-30 07:17 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/33764.shtml)
-- 2026-06-30 07:00 - [巴拉圭先进球了](https://www.blog.minike.top/Article/details/906768.shtml)
-- 2026-06-30 07:04 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/94083196.shtml)
-- 2026-06-30 07:08 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/6672762.shtml)
+- 2026-06-30 07:06 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.share.minike.top/Article/details/8621028.shtml)
+- 2026-06-30 07:28 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/915645833167.shtml)
+- 2026-06-30 07:15 - [感动全网的699分女生想报考清华](http://www.share.kurohicncr.top/Article/details/1481327.shtml)
+- 2026-06-30 07:26 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/659181572.shtml)
+- 2026-06-30 07:26 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/79295715.shtml)
+- 2026-06-30 07:21 - [极限挑战第一季](https://www.share.minike.top/Article/details/46906712822.shtml)
+- 2026-06-30 07:20 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/036840374.shtml)
+- 2026-06-30 07:14 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/445389632.shtml)
+- 2026-06-30 07:12 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/9415198756.shtml)
+- 2026-06-30 07:13 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/26330.shtml)
+- 2026-06-30 07:14 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/4608315202.shtml)
+- 2026-06-30 07:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/667047639089.shtml)
+- 2026-06-30 07:31 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/033774654.shtml)
+- 2026-06-30 07:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/6180521.shtml)
+- 2026-06-30 07:18 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/43951694197.shtml)

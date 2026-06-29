@@ -1,56 +1,56 @@
-# 跟“潮汐”抢时间 浙江舟山提升效率释放港口产能
+# 马斯克称未来星链将承载大部分网络流量，星链就是互联网
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新网舟山4月11日电 (刘子琳 骆泽明)“我们是在跟‘潮汐’抢时间。”11日，在浙江舟山鼠浪湖码头，舟山出入境边防检查站执勤二队副队长张培说。 10日晚，随着潮水上涨，一艘货轮缓缓靠近码头，靠泊作业后，舟山边检站执勤民警随即登船进行检查。 “大型船舶受潮汐影响明显，往往需要在夜间高水位时段靠泊。”张培说，为此，执勤点前移至码头一线，实行7×24小时驻点保障，实现“潮来即靠、靠
+马斯克周日表示，如果SpaceX的星链卫星网络继续发展，最终可能会承载大部分互联网流量，并描绘了该系统成为在线连接主要骨干网的未来图景。 马斯克在X上回应了一篇引用SpaceX文件细节的帖子，该文件显示星链 V3卫星的下行链路容量将大幅提升，从V2的每颗卫星96Gbps提升至1024Gbps。 马斯克写道：“最终，将有超过10万颗V3/V4/V5卫星，提供宽带网络与手机直连服务
 
 ## 正文
 
-中新网舟山4月11日电 (刘子琳 骆泽明)“我们是在跟‘潮汐’抢时间。
+马斯克周日表示，如果SpaceX的星链卫星网络继续发展，最终可能会承载大部分互联网流量，并描绘了该系统成为在线连接主要骨干网的未来图景。
 
-”11日，在浙江舟山鼠浪湖码头，舟山出入境边防检查站执勤二队副队长张培说。
+马斯克在X上回应了一篇引用SpaceX文件细节的帖子，该文件显示星链 V3卫星的下行链路容量将大幅提升，从V2的每颗卫星96Gbps提升至1024Gbps。
 
-10日晚，随着潮水上涨，一艘货轮缓缓靠近码头，靠泊作业后，舟山边检站执勤民警随即登船进行检查。
+马斯克写道：“最终，将有超过10万颗V3/V4/V5卫星，提供宽带网络与手机直连服务。
 
-“大型船舶受潮汐影响明显，往往需要在夜间高水位时段靠泊。
+如果增长势头持续下去。
 
-”张培说，为此，执勤点前移至码头一线，实行7×24小时驻点保障，实现“潮来即靠、靠即检查”。
+星链终有一天将承载大部分网络流量。
 
-今年以来，已保障73批次夜间潮水高峰勤务，确保船舶到港即可投入作业。
+届时，星链就是互联网，其他一切都将连接到星链。
 
-为了助力这个40万吨级的大码头释放“硬核”产能，边检机关围绕通关效率持续优化流程。
+” 这番评论描述了星链从卫星宽带提供商扩展到全球通信网络的场景。
 
-“我们通过数字化手段让通关‘跑’起来，这不仅节省时间，也提升了泊位周转效率。
+届时，更多数字流量将不再主要依赖本地电缆、传统互联网服务提供商和国家网络，而是通过卫星网络传输，覆盖家庭、飞机、船舶、移动设备和偏远地区。
 
 ## 相关推荐
 
-- 2026-06-30 07:01 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 07:22 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 07:22 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 07:04 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 07:17 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 07:12 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 07:23 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 07:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 07:14 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 07:13 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 07:31 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-30 07:27 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 07:28 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 07:08 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 07:35 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 07:24 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 07:24 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 07:33 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 07:24 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 07:31 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/35953594.shtml)
-- 2026-06-30 07:29 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/9504768.shtml)
-- 2026-06-30 07:19 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/7860313.shtml)
-- 2026-06-30 07:02 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/0769185542.shtml)
-- 2026-06-30 07:00 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/895063668558.shtml)
-- 2026-06-30 07:18 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/976087.shtml)
-- 2026-06-30 07:14 - [日本进球](https://www.blog.minike.top/Article/details/056199.shtml)
-- 2026-06-30 07:06 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/34806.shtml)
-- 2026-06-30 07:17 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/04425113610.shtml)
-- 2026-06-30 07:00 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/362033747341.shtml)
-- 2026-06-30 07:08 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/93853073214.shtml)
-- 2026-06-30 07:17 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/37948551.shtml)
-- 2026-06-30 07:03 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/352797.shtml)
-- 2026-06-30 07:10 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/63495602.shtml)
-- 2026-06-30 07:12 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/57029.shtml)
+- 2026-06-30 07:29 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/136055073913.shtml)
+- 2026-06-30 07:29 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/899224525800.shtml)
+- 2026-06-30 07:19 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/0132129.shtml)
+- 2026-06-30 07:34 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/39809.shtml)
+- 2026-06-30 07:24 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/95017802.shtml)
+- 2026-06-30 07:11 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/72574835.shtml)
+- 2026-06-30 07:11 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/921592.shtml)
+- 2026-06-30 07:09 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/26196.shtml)
+- 2026-06-30 07:27 - [德国巴拉圭进入点球大战](http://www.share.minike.top/Article/details/497207011.shtml)
+- 2026-06-30 07:18 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/15446929164.shtml)
+- 2026-06-30 07:18 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/619470837055.shtml)
+- 2026-06-30 07:29 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/92099.shtml)
+- 2026-06-30 07:08 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/854150.shtml)
+- 2026-06-30 07:33 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/62724417.shtml)
+- 2026-06-30 07:25 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/44946761644.shtml)

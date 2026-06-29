@@ -1,59 +1,60 @@
-# 开局起步“十五五”：强化“双轮驱动” 海南促消费扩投资
+# 2026“中国味道”暨“你好！中国”活动在悉尼举行
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新网海口4月10日电 (记者 王子谦)“十五五”期间，海南自贸港如何增强高质量发展的内生动力？海南省发展和改革委员会主任綦树利10日在海口表示，该省将强化促消费、扩投资的“双轮驱动”。 《海南省国民经济和社会发展第十五个五年规划纲要》提出，要“全方位扩大有效需求”并强调“促进消费和投资、供给和需求良性互动”。 綦树利当日在“开局起步‘十五五’——高标准建设海南自由贸易港”专场
+中新网悉尼5月26日电 由中外文化和旅游交流中心与悉尼中国文化中心、中国驻悉尼旅游办事处共同举办的2026“中国味道”主题交流活动暨“你好！中国”入境旅游路演日前在澳大利亚悉尼举行。 悉尼中国文化中心副主任袁伟在致辞中表示，中澳旅游合作前景广阔。在中国对澳大利亚实施30天免签政策便利支持下，期待更多澳大利亚游客赴华旅行、品尝美食，进一步增进两国民众间的了解与交流。 中国驻悉尼总
 
 ## 正文
 
-中新网海口4月10日电 (记者 王子谦)“十五五”期间，海南自贸港如何增强高质量发展的内生动力？
+中新网悉尼5月26日电 由中外文化和旅游交流中心与悉尼中国文化中心、中国驻悉尼旅游办事处共同举办的2026“中国味道”主题交流活动暨“你好！
 
-海南省发展和改革委员会主任綦树利10日在海口表示，该省将强化促消费、扩投资的“双轮驱动”。
+中国”入境旅游路演日前在澳大利亚悉尼举行。
 
-《海南省国民经济和社会发展第十五个五年规划纲要》提出，要“全方位扩大有效需求”并强调“促进消费和投资、供给和需求良性互动”。
+悉尼中国文化中心副主任袁伟在致辞中表示，中澳旅游合作前景广阔。
 
-綦树利当日在“开局起步‘十五五’——高标准建设海南自由贸易港”专场新闻发布会上表示，“十五五”时期，海南将从三方面发力促消费： 一是提升国际旅游消费中心能级。
+在中国对澳大利亚实施30天免签政策便利支持下，期待更多澳大利亚游客赴华旅行、品尝美食，进一步增进两国民众间的了解与交流。
 
-擦亮海口演艺、三亚游艇、文昌航天、琼海医疗、万宁冲浪、雨林温泉等“旅游名片”；以“全球首发、亚太首展、中国首秀”为重点，将消博会打造成全球潮流生活的“始发站”和“打卡地”，推动“到海南消费”成为国际新时尚。
+中国驻悉尼总领事馆文化参赞乐利文表示，旅游合作是中澳关系的重要组成部分，也是增进人民相互了解、深化友谊最自然的方式。
 
-今年，海南将举办超800场旅文体活动，引进高品质演艺项目超40场、赛事超50场。
+希望以此次活动为契机，让更多澳大利亚民众走进中国、读懂中国、爱上中国。
 
-二是做优“三篇消费文章”。
+澳大利亚旅游局全球市场执行总经理简·菲利普斯(Jane Phillips)表示，美食与旅行是连接澳中两国文化的重要纽带。
 
-打造离岛免税“金字招牌”，推动品牌、品种、价格与国际同步，让消费者不出国门就能买到高性价比的免税好物；打造博鳌乐城“医疗特区”，进一步引进国际创新药械和国际知名医疗机构，扩大与国际接轨的商业保险支付和结算范围，让更多患者能在海南用上全球好药、看好病；打造“留学海南”品牌，陵水黎安国际教育创新试验区持续引进国内外优质教育资源，今年师生规模将超过1.5万人。
+澳旅游局将继续推动双向旅游合作，鼓励更多澳大利亚民众赴华旅游、体验中国文化，期待未来两国人文交流持续深化。
 
 ## 相关推荐
 
-- 2026-06-30 07:16 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 07:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 07:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 07:25 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-30 07:04 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 07:11 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 07:22 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 07:26 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 07:14 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-30 07:05 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 07:07 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 07:07 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 07:14 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 07:35 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 07:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-30 07:09 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 07:29 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 07:15 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 07:15 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 07:32 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 07:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 07:11 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 07:08 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 07:35 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 07:16 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 07:29 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 07:27 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:24 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/24712.shtml)
-- 2026-06-30 07:13 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/0501941665.shtml)
-- 2026-06-30 07:13 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/320679.shtml)
-- 2026-06-30 07:22 - [沙丘](https://www.share.kurohicncr.top/Article/details/378852872.shtml)
-- 2026-06-30 07:22 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/53842088454.shtml)
-- 2026-06-30 07:21 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/7058162.shtml)
-- 2026-06-30 07:00 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/23895644.shtml)
-- 2026-06-30 07:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/6949575.shtml)
-- 2026-06-30 07:11 - [F1奥地利站赛后复盘](https://www.share.minike.top/Article/details/6373437578.shtml)
-- 2026-06-30 07:06 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/96139733369.shtml)
-- 2026-06-30 07:15 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/15078064.shtml)
-- 2026-06-30 07:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/48524.shtml)
-- 2026-06-30 07:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/514012415387.shtml)
-- 2026-06-30 07:25 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/239235584403.shtml)
-- 2026-06-30 07:13 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/834677709.shtml)
+- 2026-06-30 07:23 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/79714764451.shtml)
+- 2026-06-30 07:27 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/6802128.shtml)
+- 2026-06-30 07:32 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/1304884827.shtml)
+- 2026-06-30 07:07 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/88233131.shtml)
+- 2026-06-30 07:21 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/59871025.shtml)
+- 2026-06-30 07:25 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/4959218.shtml)
+- 2026-06-30 07:26 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/20952323889.shtml)
+- 2026-06-30 07:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/629855334038.shtml)
+- 2026-06-30 07:08 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/69631021.shtml)
+- 2026-06-30 07:35 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/9343468710.shtml)
+- 2026-06-30 07:20 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/8236471.shtml)
+- 2026-06-30 07:22 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/56917952938.shtml)
+- 2026-06-30 07:07 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/883600.shtml)
+- 2026-06-30 07:29 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/57723713210.shtml)
+- 2026-06-30 07:06 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/005605660.shtml)

@@ -1,46 +1,57 @@
-# 香港3月底外汇储备资产为4308亿美元
+# 国有大行第二轮“集体补血”即将开启！
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新社香港4月9日电 香港金融管理局(简称“金管局”)9日公布，香港2026年3月底官方外汇储备资产为4308亿美元，较2月底减少85亿美元、跌幅约1.9%。 金管局表示，为数4308亿美元的外汇储备资产总额相当于香港流通货币的5倍多，或港元货币供应M3的约38%。(完)
+来源：金融时报 5月22日，3000亿元特别国债正式启动发行，支持国有大行补充资本。 今年的《政府工作报告》明确，拟发行特别国债3000亿元，支持国有大型商业银行补充资本。日前，财政部披露了2026年一般国债、特别国债发行的有关安排。根据发行计划，本次3000亿元中央金融机构注资特别国债分两期发行，其中，5年期品种已于5月22日启动发行，7年期将于6月12日发行，付息方式为按年
 
 ## 正文
 
-中新社香港4月9日电 香港金融管理局(简称“金管局”)9日公布，香港2026年3月底官方外汇储备资产为4308亿美元，较2月底减少85亿美元、跌幅约1.9%。
+来源：金融时报 5月22日，3000亿元特别国债正式启动发行，支持国有大行补充资本。
 
-金管局表示，为数4308亿美元的外汇储备资产总额相当于香港流通货币的5倍多，或港元货币供应M3的约38%。
+今年的《政府工作报告》明确，拟发行特别国债3000亿元，支持国有大型商业银行补充资本。
 
-(完)
+日前，财政部披露了2026年一般国债、特别国债发行的有关安排。
+
+根据发行计划，本次3000亿元中央金融机构注资特别国债分两期发行，其中，5年期品种已于5月22日启动发行，7年期将于6月12日发行，付息方式为按年付息。
+
+事实上，这已是国有大行迎来的第二轮“集体补血”。
+
+2025年，财政部已发行5000亿元特别国债，定向注资中国银行、建设银行、交通银行、邮储银行四家国有大行。
+
+截至去年6月底，四大行通过向特定对象发行A股股票的形式合计募集资金5200亿元。
+
+根据去年的注资情况，5000亿元资金分散投放于上述四家国有大行。
 
 ## 相关推荐
 
-- 2026-06-30 07:00 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 07:19 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 07:08 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 07:03 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-30 07:29 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 07:10 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 07:12 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 07:23 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 07:07 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 07:22 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 07:21 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 07:08 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 07:15 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 07:06 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 07:31 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 07:08 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-30 07:34 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 07:16 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 07:24 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 07:11 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 07:31 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/1726009.shtml)
-- 2026-06-30 07:28 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/158774541261.shtml)
-- 2026-06-30 07:03 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/53889.shtml)
-- 2026-06-30 07:09 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/57298574937.shtml)
-- 2026-06-30 07:29 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/3533185.shtml)
-- 2026-06-30 07:17 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/8562218808.shtml)
-- 2026-06-30 07:02 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/03271004066.shtml)
-- 2026-06-30 07:26 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/81116.shtml)
-- 2026-06-30 07:29 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/9747921.shtml)
-- 2026-06-30 07:17 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/45356245.shtml)
-- 2026-06-30 07:12 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/9395007.shtml)
-- 2026-06-30 07:14 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/24216.shtml)
-- 2026-06-30 07:27 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/0084484549.shtml)
-- 2026-06-30 07:18 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/6254095.shtml)
-- 2026-06-30 07:00 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/082025074.shtml)
+- 2026-06-30 07:15 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/4177165963.shtml)
+- 2026-06-30 07:13 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/78137509.shtml)
+- 2026-06-30 07:35 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/2633664.shtml)
+- 2026-06-30 07:17 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/1666277070.shtml)
+- 2026-06-30 07:35 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/185810584.shtml)
+- 2026-06-30 07:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/6086638525.shtml)
+- 2026-06-30 07:14 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/90973.shtml)
+- 2026-06-30 07:23 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/113725229.shtml)
+- 2026-06-30 07:06 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/94888207.shtml)
+- 2026-06-30 07:17 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/223147.shtml)
+- 2026-06-30 07:14 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/04453.shtml)
+- 2026-06-30 07:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/50102.shtml)
+- 2026-06-30 07:09 - [森保一 保守](http://www.share.minike.top/Article/details/770205.shtml)
+- 2026-06-30 07:12 - [爱很美味](http://www.share.kurohicncr.top/Article/details/199375739.shtml)
+- 2026-06-30 07:33 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/19916825322.shtml)

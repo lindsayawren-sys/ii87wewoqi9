@@ -1,61 +1,61 @@
-# 兴发集团2025年净利下滑，13.81亿元布局新能源材料
+# 北京“超现场”走进深圳文博会 让好戏“走”出剧场
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-来源：@华夏时报微博华夏时报记者 何一华 李未来 北京报道国内磷化工龙头企业兴发集团（600141.SH），正处在一个关键的十字路口。日前，兴发集团发布了2025年财报。报告期内，公司实现营业收入293.00亿元，同比增长3.18%；净利润14.92亿元，同比下降6.83%。传统主业受行业周期拖累表现承压，而新能源材料等新兴业务仍处于投入期，多重因素叠加下，公司整体呈现增收不增
+中新网深圳5月25日电 (记者 蔡敏婕)第二十二届中国(深圳)国际文化产业博览交易会正在深圳举办。在北京市委宣传部、北京市广电局、北京市经济和信息化局指导下，中联超清携ULive“超现场”系列创新成果亮相北京展区，现场展示适配“超现场”应用的广电级BT.2020广色域高色准超高清LED显示系统，以前沿视听科技赋能文化传播。 “足不出城就能沉浸式欣赏顶级舞台演出，观感具有冲击力。
 
 ## 正文
 
-来源：@华夏时报微博华夏时报记者 何一华 李未来 北京报道国内磷化工龙头企业兴发集团（600141.SH），正处在一个关键的十字路口。
+中新网深圳5月25日电 (记者 蔡敏婕)第二十二届中国(深圳)国际文化产业博览交易会正在深圳举办。
 
-日前，兴发集团发布了2025年财报。
+在北京市委宣传部、北京市广电局、北京市经济和信息化局指导下，中联超清携ULive“超现场”系列创新成果亮相北京展区，现场展示适配“超现场”应用的广电级BT.2020广色域高色准超高清LED显示系统，以前沿视听科技赋能文化传播。
 
-报告期内，公司实现营业收入293.00亿元，同比增长3.18%；净利润14.92亿元，同比下降6.83%。
+“足不出城就能沉浸式欣赏顶级舞台演出，观感具有冲击力。
 
-传统主业受行业周期拖累表现承压，而新能源材料等新兴业务仍处于投入期，多重因素叠加下，公司整体呈现增收不增利的格局。
+”现场观众给出好评。
 
-《华夏时报》记者就公司业绩、发展规划等相关问题发函联系兴发集团，截至发稿未得到回复。
+据介绍，“超现场”新模式化解优质演艺资源地域分布不均、线下演出落地成本高昂等难题，为各地基层剧场引进顶尖文艺内容开辟新路径。
 
-一位券商投顾告诉记者，国内化工企业早年多集中于低端赛道，伴随资金与实力积累，近年来纷纷谋求转型升级、布局第二增长曲线，由此形成传统业务提供稳定现金流、反哺新兴业务的发展闭环。
+自2024年起，北京市委宣传部、市广电局、市经信局等多部门联合指导并在企业实践下，北京搭建起完备的“超现场”数字视听技术体系。
 
-但由于部分企业传统主业具备较强周期属性，在新旧动能转换过程中，业绩容易出现阶段性波动。
+该模式依托超高清拍摄、编码、传输、放映全链条技术，可将线下演出、大型活动实时制作成高标准数字内容，同步推送至全国多地场馆，让异地观众沉浸式共享现场盛况。
 
-传统业务承压对于兴发集团而言，以草甘膦、磷肥和有机硅为代表的传统业务，是其赖以生存的根基。
+北京也先后出台《北京市超高清视听先锋行动计划(2024-2026)》《北京市关于加快培育“超现场”产业生态的若干措施》以完善顶层设计，促使北京“超现场”业务版图已覆盖全国31个省区市，辐射70余家专业剧院、200多家影院，累计完成超400场同步直播活动，惠及民众超12万人次，业务边界也不断拓宽，从经典舞台艺术逐步延伸至影视盛典、体育赛事等多元场景。
 
 ## 相关推荐
 
-- 2026-06-30 07:29 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 07:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 07:01 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 07:20 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 07:10 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 07:08 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 07:13 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 07:22 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 07:28 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-30 07:17 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 07:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 07:01 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 07:01 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 07:20 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 07:11 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 07:08 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 07:06 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 07:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 07:21 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 07:16 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 07:22 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 07:11 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 07:13 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 07:20 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 07:35 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 07:22 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 07:19 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 07:19 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 07:14 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 07:26 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:12 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/09360.shtml)
-- 2026-06-30 07:23 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/964627698.shtml)
-- 2026-06-30 07:11 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/03905976796.shtml)
-- 2026-06-30 07:29 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/34402385117.shtml)
-- 2026-06-30 07:09 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/68059590.shtml)
-- 2026-06-30 07:17 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/42751.shtml)
-- 2026-06-30 07:00 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/2986565245.shtml)
-- 2026-06-30 07:01 - [美人鱼](http://www.share.minike.top/Article/details/582092735832.shtml)
-- 2026-06-30 07:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/83558.shtml)
-- 2026-06-30 07:11 - [索马里女大使：想和中国一起搞事业](https://www.share.minike.top/Article/details/19187.shtml)
-- 2026-06-30 07:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/085647091929.shtml)
-- 2026-06-30 07:15 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/077249.shtml)
-- 2026-06-30 07:13 - [世界杯](https://www.share.kurohicncr.top/Article/details/494842085.shtml)
-- 2026-06-30 07:27 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/64384000.shtml)
-- 2026-06-30 07:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/2634542812.shtml)
+- 2026-06-30 07:18 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/11018590.shtml)
+- 2026-06-30 07:31 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/00389477.shtml)
+- 2026-06-30 07:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/969114624.shtml)
+- 2026-06-30 07:26 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/0851359028.shtml)
+- 2026-06-30 07:10 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/2879335562.shtml)
+- 2026-06-30 07:07 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/7665073043.shtml)
+- 2026-06-30 07:10 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/354593.shtml)
+- 2026-06-30 07:14 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/22763360.shtml)
+- 2026-06-30 07:10 - [F1奥地利站赛后复盘](http://www.share.kurohicncr.top/Article/details/51419365378.shtml)
+- 2026-06-30 07:30 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/1388211186.shtml)
+- 2026-06-30 07:31 - [沙丘](http://www.blog.kurohicncr.top/Article/details/917441953.shtml)
+- 2026-06-30 07:34 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/08733318.shtml)
+- 2026-06-30 07:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/2975409.shtml)
+- 2026-06-30 07:28 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/4014386.shtml)
+- 2026-06-30 07:28 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/981122524.shtml)

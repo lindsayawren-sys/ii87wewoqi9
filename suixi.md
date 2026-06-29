@@ -1,56 +1,56 @@
-# 湖南江华“巴掌田”变“连片田” 高标准农田助农降本增收
+# 原平安银行长沙分行行长邓红拟加盟天风证券
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新网永州4月10日电 (余涛)4月10日，在湖南江华瑶族自治县涔天河镇水东村连片平整的高标准农田上，插秧机往来穿梭，机耕道直通田块深处，灌溉渠沿田垄延伸。 零散分割、高低错落的“巴掌田”“补丁田”，经改造后成为“田成方、路相通、沟相连、旱能灌、涝能排”的稳产良田。 “高标准农田建设就是让农民好种地、降成本、增产量。”该县农业农村局工作人员赵世飘介绍，该项目由国家和政府统筹推进
+来源：金融人事mini 天风证券高管层又有新变动，券商人事获悉，原平安银行长沙分行行长邓红拟加盟天风证券，或将出任副总裁。 邓红，女，1974年出生。 1993年至2004年，历任湖北省直属房改办副主任科员、湖北省教育考试院主任科员；2004年至2009年，任中国人民银行武汉分行科长；2009年起，历任平安银行（原深圳发展银行）武汉分行营业部公司银行室市场部负责人、市场九部负责
 
 ## 正文
 
-中新网永州4月10日电 (余涛)4月10日，在湖南江华瑶族自治县涔天河镇水东村连片平整的高标准农田上，插秧机往来穿梭，机耕道直通田块深处，灌溉渠沿田垄延伸。
+来源：金融人事mini 天风证券高管层又有新变动，券商人事获悉，原平安银行长沙分行行长邓红拟加盟天风证券，或将出任副总裁。
 
-零散分割、高低错落的“巴掌田”“补丁田”，经改造后成为“田成方、路相通、沟相连、旱能灌、涝能排”的稳产良田。
+邓红，女，1974年出生。
 
-“高标准农田建设就是让农民好种地、降成本、增产量。
+1993年至2004年，历任湖北省直属房改办副主任科员、湖北省教育考试院主任科员；2004年至2009年，任中国人民银行武汉分行科长；2009年起，历任平安银行（原深圳发展银行）武汉分行营业部公司银行室市场部负责人、市场九部负责人、光谷支行行长、武汉分行销售总监、平安证券湖北分公司总经理、平安银行武汉分行副行长（主持工作）、行长，2024年7月任平安银行长沙分行行长；期间，2022年11月至2026年1月还担任平安银行职工监事。
 
-”该县农业农村局工作人员赵世飘介绍，该项目由国家和政府统筹推进，村集体与农户无需承担建设费用。
+天风证券的前半段故事，是典型的民营券商“野蛮生长”剧本。
 
-水东村原耕地地块零散、农机难进场，灌排设施薄弱。
+2018年上市后，它在研究和债券承销领域快速冲量，一度被称为“券商黑马”。
 
-通过四个标段改造，完成土地平整与区块整合，配套建成机耕道和灌排系统，降低耕种门槛，提升耕地抗风险能力与生产效率。
+但这种高杠杆、高风险的模式，在原大股东当代集团的债务危机面前不堪一击。
 
-田块连片直接降低耕种成本。
+2022年天风巨亏15.03亿元，不仅是上市以来最差业绩，更差点因为关联交易和违规融资问题被监管重罚退市。
 
-烤烟种植大户王仁文在水东村流转800余亩水田，其中500亩种烤烟、300余亩种双季稻。
+2022年底至2024年，宏泰集团入主，本质上是地方国资出手“救场”，公司所有业务都给风险处置让路，核心任务就是剥离和当代集团相关的所有资产和业务。
 
 ## 相关推荐
 
-- 2026-06-30 07:24 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 07:06 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 07:29 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-30 07:27 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-30 07:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 07:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 07:16 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 07:18 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-30 07:19 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 07:09 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 07:13 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 07:16 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-30 07:12 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 07:30 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 07:11 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 07:11 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 07:29 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 07:20 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 07:31 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 07:08 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:13 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/09293583.shtml)
-- 2026-06-30 07:07 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/021190469.shtml)
-- 2026-06-30 07:20 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/68063.shtml)
-- 2026-06-30 07:22 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/542135.shtml)
-- 2026-06-30 07:03 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/9274507027.shtml)
-- 2026-06-30 07:07 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/572646473.shtml)
-- 2026-06-30 07:06 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/52287540482.shtml)
-- 2026-06-30 07:28 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/7616051.shtml)
-- 2026-06-30 07:02 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/3358762304.shtml)
-- 2026-06-30 07:24 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/13680709.shtml)
-- 2026-06-30 07:07 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/3455983.shtml)
-- 2026-06-30 07:07 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/105811433241.shtml)
-- 2026-06-30 07:09 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/37905525741.shtml)
-- 2026-06-30 07:06 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/73424954163.shtml)
-- 2026-06-30 07:14 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/00269.shtml)
+- 2026-06-30 07:31 - [德国巴拉圭加时](http://www.blog.minike.top/Article/details/20700911.shtml)
+- 2026-06-30 07:33 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/1695830097.shtml)
+- 2026-06-30 07:26 - [斛珠夫人](https://www.share.minike.top/Article/details/4281146496.shtml)
+- 2026-06-30 07:09 - [沙丘](http://www.share.kurohicncr.top/Article/details/457072765.shtml)
+- 2026-06-30 07:08 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/8194760360.shtml)
+- 2026-06-30 07:13 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/7490885.shtml)
+- 2026-06-30 07:13 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/1733816864.shtml)
+- 2026-06-30 07:15 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/605585295141.shtml)
+- 2026-06-30 07:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/60533.shtml)
+- 2026-06-30 07:06 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/2647057538.shtml)
+- 2026-06-30 07:32 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/127123691391.shtml)
+- 2026-06-30 07:32 - [日本进球](http://www.share.minike.top/Article/details/93013499554.shtml)
+- 2026-06-30 07:21 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/4857616430.shtml)
+- 2026-06-30 07:07 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/74050224605.shtml)
+- 2026-06-30 07:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/280579878423.shtml)

@@ -1,49 +1,49 @@
-# 北京市自然昆虫博物馆上万昆虫标本吸引市民
+# 第二届中国新疆民间艺术季在乌鲁木齐市启动
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月10日 20:50 来源：中国新闻网 4月10日，市民在北京市自然昆虫博物馆标本展示区参观。北京市自然昆虫博物馆于4月9日正式面向公众开放，建筑面积约4000平方米，是北京南中轴地区落成的首家博物馆，馆内展出上万种昆虫标本、上百只活体昆虫和爬行动物。馆内既有支撑自然科普传播的基础展陈内容，为公众普及昆虫学知识、传播自然生态理念，也打造了视觉识别度高的蝴
+发布时间：2026年05月25日 15:40 来源：中国新闻网 5月24日，第二届“打起手鼓唱起歌”中国新疆民间艺术季在乌鲁木齐市启动，来自全国各地47个特色民间艺术节目，近1200名民间艺人同场展演，节目类型丰富，各具特色，既是中国民间艺术的“大聚会”，也是文化交流的“大舞台”。 本届艺术季结合“春雨工程”、对口援助等工作，推动文化交流互鉴，让民间艺术成为促进各民族交往交流交
 
 ## 正文
 
-发布时间：2026年04月10日 20:50 来源：中国新闻网 4月10日，市民在北京市自然昆虫博物馆标本展示区参观。
+发布时间：2026年05月25日 15:40 来源：中国新闻网 5月24日，第二届“打起手鼓唱起歌”中国新疆民间艺术季在乌鲁木齐市启动，来自全国各地47个特色民间艺术节目，近1200名民间艺人同场展演，节目类型丰富，各具特色，既是中国民间艺术的“大聚会”，也是文化交流的“大舞台”。
 
-北京市自然昆虫博物馆于4月9日正式面向公众开放，建筑面积约4000平方米，是北京南中轴地区落成的首家博物馆，馆内展出上万种昆虫标本、上百只活体昆虫和爬行动物。
+本届艺术季结合“春雨工程”、对口援助等工作，推动文化交流互鉴，让民间艺术成为促进各民族交往交流交融的情感纽带和生动载体。
 
-馆内既有支撑自然科普传播的基础展陈内容，为公众普及昆虫学知识、传播自然生态理念，也打造了视觉识别度高的蝴蝶墙、古董珠宝尾厅等特色展区。
-
-(易海菲 制作 王佳琪） 责任编辑：【于晓】
+(左丹丹 乌鲁木齐市报道） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 07:28 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 07:14 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 07:15 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 07:27 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 07:05 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 07:09 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-30 07:27 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 07:19 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 07:13 - [三星投资计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 07:03 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 07:02 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 07:21 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 07:28 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-30 07:25 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 07:31 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 07:30 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 07:34 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 07:19 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 07:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 07:20 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 07:11 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 07:10 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 07:14 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 07:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:16 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/006348087.shtml)
-- 2026-06-30 07:25 - [武磊：日本队有能力跟任何强队抗衡](http://www.blog.kurohicncr.top/Article/details/61700009106.shtml)
-- 2026-06-30 07:26 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/8562440.shtml)
-- 2026-06-30 07:02 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/500237204.shtml)
-- 2026-06-30 07:08 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/828644052.shtml)
-- 2026-06-30 07:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/799417.shtml)
-- 2026-06-30 07:24 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/9904964742.shtml)
-- 2026-06-30 07:17 - [起风了](http://www.share.minike.top/Article/details/273682592962.shtml)
-- 2026-06-30 07:28 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/5599282.shtml)
-- 2026-06-30 07:29 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/370532980623.shtml)
-- 2026-06-30 07:08 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/03136470996.shtml)
-- 2026-06-30 07:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/4346410.shtml)
-- 2026-06-30 07:02 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/83913.shtml)
-- 2026-06-30 07:10 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/81485125.shtml)
-- 2026-06-30 07:17 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/460447333.shtml)
+- 2026-06-30 07:11 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/779131029.shtml)
+- 2026-06-30 07:31 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/425797.shtml)
+- 2026-06-30 07:30 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/31643216308.shtml)
+- 2026-06-30 07:35 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/33558590517.shtml)
+- 2026-06-30 07:11 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/423160458552.shtml)
+- 2026-06-30 07:35 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/22651855223.shtml)
+- 2026-06-30 07:30 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/3440500676.shtml)
+- 2026-06-30 07:15 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/713324.shtml)
+- 2026-06-30 07:15 - [日本16强魔咒](http://www.share.minike.top/Article/details/63164562.shtml)
+- 2026-06-30 07:30 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/287664879.shtml)
+- 2026-06-30 07:17 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/9880998183.shtml)
+- 2026-06-30 07:23 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/7946346.shtml)
+- 2026-06-30 07:27 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/41950711.shtml)
+- 2026-06-30 07:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/88391.shtml)
+- 2026-06-30 07:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/313858.shtml)

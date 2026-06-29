@@ -1,57 +1,57 @@
-# 飞行汽车加速叩响空中通勤大门
+# 新华社评论员：让友谊之路越走越宽——三论推动中俄关系实现更高质量发展
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本报记者 李雯珊 2026年，低空经济作为国家战略性新兴产业，迎来规模化发展的关键节点。广义的飞行汽车，即电动垂直起降飞行器（eVTOL），正加速完成从试点示范到量产交付的跨越式发展，成为推动低空经济发展的重要力量之一。 近段时间以来，飞行汽车相关企业利好消息不断。4月3日，据证监会网站消息，国内电动垂直起
+新华社北京5月24日电 题：让友谊之路越走越宽——三论推动中俄关系实现更高质量发展 新华社评论员 国之交在于民相亲，人民的深厚友谊是国家关系发展的力量源泉。中俄元首会晤期间，着眼于推动中俄关系实现更高质量发展，习近平主席提出推进更高质量民心相通，厚植两国世代友好根基。中俄关系已经迈上新起点，要立足赓续世代友好，加强教育、文化、电影、旅游、体育等人文交流合作，不断增进人民相知相亲
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新华社北京5月24日电 题：让友谊之路越走越宽——三论推动中俄关系实现更高质量发展 新华社评论员 国之交在于民相亲，人民的深厚友谊是国家关系发展的力量源泉。
 
-本报记者 李雯珊 2026年，低空经济作为国家战略性新兴产业，迎来规模化发展的关键节点。
+中俄元首会晤期间，着眼于推动中俄关系实现更高质量发展，习近平主席提出推进更高质量民心相通，厚植两国世代友好根基。
 
-广义的飞行汽车，即电动垂直起降飞行器（eVTOL），正加速完成从试点示范到量产交付的跨越式发展，成为推动低空经济发展的重要力量之一。
+中俄关系已经迈上新起点，要立足赓续世代友好，加强教育、文化、电影、旅游、体育等人文交流合作，不断增进人民相知相亲，夯实两国友好的社会民意基础。
 
-近段时间以来，飞行汽车相关企业利好消息不断。
+70多年来，无论两国关系经历何种变化，人民的友谊始终坚如磐石。
 
-4月3日，据证监会网站消息，国内电动垂直起降飞行器eVTOL行业头部企业——四川沃飞长空科技股份有限公司于近日在四川省证监局办理辅导备案登记，拟首次公开发行股票并在科创板上市；3月31日，广州汽车集团股份有限公司旗下广东高域科技有限公司（简称“高域科技”）宣布在飞行汽车标准化领域取得多项进展。
+人文合作是中俄双边关系中重要的民意根基与精神纽带，通过教育互通、文化互融、青年互动，深化双方民众认同，为政治互信、经贸协作筑牢社会基础。
 
-据摩根士丹利最新预测，2030年全球飞行汽车市场规模将达3000亿美元，而中国凭借全产业链优势与场景落地速度，有望成为全球重要的城市低空交通市场。
+中俄连续举办国家级主题年活动，“中俄文化年”深化了文明交流互鉴，丰富了两国民众精神文化生活；中俄互免签证政策实施，助力两国人员往来更加活跃；中俄双向留学规模已逾8万人，中俄语言交流热度持续升温；青年人文交流富有活力、精彩纷呈……随着中俄关系高水平发展，两国人文交往不断密切，民心纽带越拉越紧。
 
-进入2026年，粤港澳大湾区、成都、重庆等多地正加速打通“技术—政策—场景”链路，叩响空中通勤的大门。
+习近平主席深刻指出，教育是国与国之间连接民心、传承友谊的重要桥梁，是功在当代、利在千秋的崇高事业。
 
-试点场景扩容： 从“单点突破”到“全域布局” 当前，飞行汽车空中通勤试点呈现“国家引导、地方联动、多场景覆盖”的鲜明特征，从核心城市试点逐步向多区域延伸，验证了空中通勤的可行性与商业化潜力，为后续量产落地奠定了坚实基础。
+会晤期间，习近平主席同普京总统共同出席“中俄教育年”开幕式。
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 07:25 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 07:16 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 07:20 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 07:15 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 07:06 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 07:16 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 07:22 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-30 07:01 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 07:08 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 07:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 07:25 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 07:24 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 07:22 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 07:26 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 07:35 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 07:24 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 07:10 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 07:35 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 07:23 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 07:30 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 07:27 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:15 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/8066725734.shtml)
-- 2026-06-30 07:14 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/7919698685.shtml)
-- 2026-06-30 07:04 - [森保一致歉：世界第一目标没能实现](http://www.share.minike.top/Article/details/20709744639.shtml)
-- 2026-06-30 07:23 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/04530191.shtml)
-- 2026-06-30 07:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/58625207146.shtml)
-- 2026-06-30 07:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/69833488463.shtml)
-- 2026-06-30 07:17 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/570503.shtml)
-- 2026-06-30 07:24 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/75478946972.shtml)
-- 2026-06-30 07:24 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/11803352.shtml)
-- 2026-06-30 07:17 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/3217701.shtml)
-- 2026-06-30 07:26 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/03378307.shtml)
-- 2026-06-30 07:29 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/75748826.shtml)
-- 2026-06-30 07:23 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/106421.shtml)
-- 2026-06-30 07:09 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/211856063043.shtml)
-- 2026-06-30 07:05 - [苗族银饰](http://www.share.minike.top/Article/details/2745562.shtml)
+- 2026-06-30 07:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/3687328.shtml)
+- 2026-06-30 07:31 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/9365561115.shtml)
+- 2026-06-30 07:15 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/8972357.shtml)
+- 2026-06-30 07:13 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/658475.shtml)
+- 2026-06-30 07:13 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/70159908.shtml)
+- 2026-06-30 07:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/2575901086.shtml)
+- 2026-06-30 07:11 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/2506224308.shtml)
+- 2026-06-30 07:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/25466599101.shtml)
+- 2026-06-30 07:31 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/719007.shtml)
+- 2026-06-30 07:34 - [我们的少年时代2](http://www.share.minike.top/Article/details/0634318479.shtml)
+- 2026-06-30 07:10 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/3861689250.shtml)
+- 2026-06-30 07:19 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/958666.shtml)
+- 2026-06-30 07:17 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/6102274.shtml)
+- 2026-06-30 07:06 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/698415093850.shtml)
+- 2026-06-30 07:24 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/96876522.shtml)

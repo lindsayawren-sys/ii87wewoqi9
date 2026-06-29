@@ -1,61 +1,57 @@
-# 证监会：推出更多创业板相关ETF和期权 适时推出创业板股指期货
+# 青海格尔木官方：严禁非法穿越无人区、擅自攀登玉珠峰
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中国证监会新闻发言人就《关于深化创业板改革 更好服务新质生产力发展的意见》答记者问。问：这次在进一步深化投资端改革方面有哪些政策举措，主要考虑是什么？ 答：加快推进投资端改革，是健全投资和融资相协调的资本市场功能、支持服务实体经济的重要一环。这次改革主要推出了以下举措。一是优化交易制度。引入做市商制度，促进创业板参与主体和交易策略多元化，减少价格波动，增强市场韧性。将协议大宗交
+中新网西宁5月24日电 (记者 孙睿)5月24日，青海省格尔木市文体旅游广电局、格尔木市公安局联合发布通告，严禁非法穿越无人区、违规探险旅游及擅自攀登玉珠峰，严守高原生态红线，保障游客生命财产安全，规范旅游旺季户外秩序。 通告依据相关法律法规制定，明确以下四类禁止行为：未经审批，严禁进入可可西里、昆仑山等自然保护区、生态红线区、无人区开展穿越、露营、科考等活动；严禁户外机构、自
 
 ## 正文
 
-中国证监会新闻发言人就《关于深化创业板改革 更好服务新质生产力发展的意见》答记者问。
+中新网西宁5月24日电 (记者 孙睿)5月24日，青海省格尔木市文体旅游广电局、格尔木市公安局联合发布通告，严禁非法穿越无人区、违规探险旅游及擅自攀登玉珠峰，严守高原生态红线，保障游客生命财产安全，规范旅游旺季户外秩序。
 
-问：这次在进一步深化投资端改革方面有哪些政策举措，主要考虑是什么？
+通告依据相关法律法规制定，明确以下四类禁止行为：未经审批，严禁进入可可西里、昆仑山等自然保护区、生态红线区、无人区开展穿越、露营、科考等活动；严禁户外机构、自媒体等以营利为目的，非法组织无人区探险旅游；未经青海省体育局审批、无资质无保障，严禁擅自攀登玉珠峰等高海拔雪山；严禁车辆与人员违规进入管控区破坏生态、扰乱管理秩序。
 
-答：加快推进投资端改革，是健全投资和融资相协调的资本市场功能、支持服务实体经济的重要一环。
+通告同时明确法律与安全责任：违规进入高风险区域，相关风险由当事人自行承担；违规者将依法予以警告、罚款、劝离、扣车等处置，情节严重者纳入信用记录；涉嫌犯罪的，追究刑事责任；因非法活动产生的公共救援、生态损毁费用，由当事人及组织者全额承担。
 
-这次改革主要推出了以下举措。
+格尔木市官方提示，可可西里、玉珠峰等区域高寒缺氧、地形复杂、通信不畅，救援条件有限。
 
-一是优化交易制度。
+旅游旺季来临，呼吁民众与游客敬畏自然、守法出行，共同守护高原生态安全与旅游秩序。
 
-引入做市商制度，促进创业板参与主体和交易策略多元化，减少价格波动，增强市场韧性。
-
-将协议大宗交易调整为实时成交确认，提高投资者证券和资金使用效率，增强成交确定性和中长期资金参与意愿。
-
-引入创业板相关ETF盘后固定价格交易机制，更好满足投资者多元化的交易需求，有利于降低大额交易对二级市场的冲击。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:25 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 07:16 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 07:05 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 07:18 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 07:24 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 07:04 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 07:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 07:14 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 07:29 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 07:17 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 07:13 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 07:14 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 07:07 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 07:24 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 07:01 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 07:17 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 07:32 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 07:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 07:12 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 07:21 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 07:20 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 07:19 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 07:07 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 07:28 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 07:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 07:20 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 07:35 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 07:33 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 07:21 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 07:10 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:18 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/2134223.shtml)
-- 2026-06-30 07:24 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/8063168.shtml)
-- 2026-06-30 07:20 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/9144977.shtml)
-- 2026-06-30 07:14 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/373053.shtml)
-- 2026-06-30 07:25 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/347758404694.shtml)
-- 2026-06-30 07:22 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/585127.shtml)
-- 2026-06-30 07:12 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/56752203822.shtml)
-- 2026-06-30 07:01 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/96031.shtml)
-- 2026-06-30 07:08 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/86788086499.shtml)
-- 2026-06-30 07:25 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/1602148.shtml)
-- 2026-06-30 07:03 - [田中碧失误](https://www.blog.kurohicncr.top/Article/details/76678.shtml)
-- 2026-06-30 07:28 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/062807.shtml)
-- 2026-06-30 07:08 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/55315.shtml)
-- 2026-06-30 07:18 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/41146309.shtml)
-- 2026-06-30 07:10 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/195930129.shtml)
+- 2026-06-30 07:15 - [曝灰熊将莫兰特交易至开拓者](https://www.share.minike.top/Article/details/533863027.shtml)
+- 2026-06-30 07:25 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/420655333346.shtml)
+- 2026-06-30 07:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/0546667578.shtml)
+- 2026-06-30 07:16 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/4270978.shtml)
+- 2026-06-30 07:13 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/95999320.shtml)
+- 2026-06-30 07:25 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/542221474.shtml)
+- 2026-06-30 07:30 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/34207187.shtml)
+- 2026-06-30 07:13 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/511780.shtml)
+- 2026-06-30 07:13 - [感动全网的699分女生想报考清华](https://www.share.kurohicncr.top/Article/details/3240457559.shtml)
+- 2026-06-30 07:19 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/770955.shtml)
+- 2026-06-30 07:30 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/736190.shtml)
+- 2026-06-30 07:24 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/851622107457.shtml)
+- 2026-06-30 07:22 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/4084497.shtml)
+- 2026-06-30 07:13 - [哈弗茨头球破门](https://www.share.kurohicncr.top/Article/details/830048500.shtml)
+- 2026-06-30 07:14 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/99178957164.shtml)

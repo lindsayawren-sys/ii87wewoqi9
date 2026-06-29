@@ -1,59 +1,47 @@
-# 奥地利油气企业OMV集团提名英国石油高管艾玛·德莱尼为下一任CEO
+# 习近平会见巴基斯坦总理夏巴兹
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-奥地利石油天然气集团OMV已提名艾玛·德莱尼为新任首席执行官，监事会将在下次会议上决定此项任命。 德莱尼被提议自2026年9月1日起接替阿尔弗雷德·斯特恩，担任执行董事会主席兼首席执行官，初始任期为三年，并可选择延长两年。 德莱尼目前担任英国石油的执行副总裁，在能源领域拥有超过三十年的经验，负责监管涵盖约50个国家的燃料、润滑油、航空燃料和电动出行等业务。 OMV表示，此次提名
+5月25日下午，国家主席习近平在北京人民大会堂会见来华进行正式访问的巴基斯坦伊斯兰共和国总理夏巴兹·谢里夫。
 
 ## 正文
 
-奥地利石油天然气集团OMV已提名艾玛·德莱尼为新任首席执行官，监事会将在下次会议上决定此项任命。
-
-德莱尼被提议自2026年9月1日起接替阿尔弗雷德·斯特恩，担任执行董事会主席兼首席执行官，初始任期为三年，并可选择延长两年。
-
-德莱尼目前担任英国石油的执行副总裁，在能源领域拥有超过三十年的经验，负责监管涵盖约50个国家的燃料、润滑油、航空燃料和电动出行等业务。
-
-OMV表示，此次提名经过了国际搜寻流程，并指出德莱尼在上下游、液化天然气业务方面拥有丰富经验。
-
-监事会主席兼总统与提名委员会主席卢茨·费尔德曼表示：“艾玛·德莱尼是一位杰出且 highly qualified 的首席执行官候选人。
-
-凭借其丰富的行业和管理经验，她具备成功领导OMV的所有先决条件。
-
-” 此外，预计监事会将在同一次会议上考虑将首席财务官莱因哈德·弗洛雷的任期延长两年。
-
-责任编辑：张俊 SF065
+5月25日下午，国家主席习近平在北京人民大会堂会见来华进行正式访问的巴基斯坦伊斯兰共和国总理夏巴兹·谢里夫。
 
 ## 相关推荐
 
-- 2026-06-30 07:26 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 07:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 07:10 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 07:23 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-30 07:27 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 07:17 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 07:09 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 07:07 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 07:18 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 07:16 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 07:12 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-30 07:17 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 07:07 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 07:14 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 07:12 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 07:25 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 07:35 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 07:16 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 07:21 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 07:28 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 07:31 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 07:24 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 07:32 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 07:31 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 07:22 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 07:28 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 07:23 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 07:24 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:04 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/1126620.shtml)
-- 2026-06-30 07:10 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/19381118901.shtml)
-- 2026-06-30 07:00 - [日本16强魔咒](https://www.share.minike.top/Article/details/14308294719.shtml)
-- 2026-06-30 07:23 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/05042782.shtml)
-- 2026-06-30 07:03 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/320807668.shtml)
-- 2026-06-30 07:12 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/4880442697.shtml)
-- 2026-06-30 07:07 - [德国巴拉圭加时](https://www.blog.minike.top/Article/details/71396563.shtml)
-- 2026-06-30 07:05 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.minike.top/Article/details/3756251606.shtml)
-- 2026-06-30 07:03 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/2171627.shtml)
-- 2026-06-30 07:23 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/51083501.shtml)
-- 2026-06-30 07:29 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/41266899829.shtml)
-- 2026-06-30 07:12 - [85花告别古偶](https://www.share.minike.top/Article/details/826652020.shtml)
-- 2026-06-30 07:07 - [董卿父亲在报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/88035.shtml)
-- 2026-06-30 07:15 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/46267911.shtml)
-- 2026-06-30 07:28 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/05614978800.shtml)
+- 2026-06-30 07:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/341299275.shtml)
+- 2026-06-30 07:20 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/3710689894.shtml)
+- 2026-06-30 07:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/71856.shtml)
+- 2026-06-30 07:26 - [毒液2](http://www.share.minike.top/Article/details/93654.shtml)
+- 2026-06-30 07:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/363606397605.shtml)
+- 2026-06-30 07:24 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/45161637381.shtml)
+- 2026-06-30 07:29 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/329615641.shtml)
+- 2026-06-30 07:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/1265445.shtml)
+- 2026-06-30 07:18 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/463219373.shtml)
+- 2026-06-30 07:25 - [沙丘](https://www.share.kurohicncr.top/Article/details/17115998.shtml)
+- 2026-06-30 07:13 - [毒液2](http://www.share.kurohicncr.top/Article/details/649256.shtml)
+- 2026-06-30 07:28 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/76314.shtml)
+- 2026-06-30 07:08 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/0348328694.shtml)
+- 2026-06-30 07:31 - [韩国球迷凌晨4点接机怒骂主教练](https://www.blog.kurohicncr.top/Article/details/367645548422.shtml)
+- 2026-06-30 07:33 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/58776763.shtml)

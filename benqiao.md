@@ -1,49 +1,56 @@
-# 伊朗消息人士：伊美或举行新一轮谈判
+# 硬科技火速回归，港股芯片领跑！华宝基金港股通信息技术ETF狂拉逾6%，创业板人工智能强势回血近4%
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-新华社德黑兰4月11日电(记者陈霄 沙达提)据伊朗伊斯兰共和国广播电视台记者11日从谈判团队知情人士处获悉，伊美双方今晚或明天可能在巴基斯坦首都伊斯兰堡举行新一轮谈判。目前，“面对面”谈判已经结束，专家工作组正在进行书面文本交换。
+5月22日，A股火速反弹，三大指数集体上行，午后涨幅进一步扩大，沪指收复4100点，创业板指、深证成指均涨超2%，两市成交额2.89万亿元，全市场超3800股上涨。 盘面重回AI主线驱动，港股硬科技领跑，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格一度摸高7%，收涨6.34%，位列全市场ETF涨幅榜TOP3。高景气趋势下，资金顺势申购1800万份
 
 ## 正文
 
-新华社德黑兰4月11日电(记者陈霄 沙达提)据伊朗伊斯兰共和国广播电视台记者11日从谈判团队知情人士处获悉，伊美双方今晚或明天可能在巴基斯坦首都伊斯兰堡举行新一轮谈判。
+5月22日，A股火速反弹，三大指数集体上行，午后涨幅进一步扩大，沪指收复4100点，创业板指、深证成指均涨超2%，两市成交额2.89万亿元，全市场超3800股上涨。
 
-目前，“面对面”谈判已经结束，专家工作组正在进行书面文本交换。
+盘面重回AI主线驱动，港股硬科技领跑，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格一度摸高7%，收涨6.34%，位列全市场ETF涨幅榜TOP3。
+
+高景气趋势下，资金顺势申购1800万份。
+
+光模块CPO收复失地，光模块CPO含量超50%且“易中天”含量高的创业板人工智能ETF华宝（159363）场内价格强势反弹3.92%，终结此前6连跌，资金近5日逢机增仓近4亿元。
+
+PCB概念股异军突起，荟聚电子板块核心龙头的电子ETF华宝（515260）、代表A股科技龙头行情的科技ETF华宝（515000）场内价格双双涨超4%，515260刷新历史收盘新高。
+
+摩根士丹利对英伟达下一代Rubin机架进行了全面的物料清单拆解，其中PCB价值量增幅最为显著，从GB300的约3.5万美元跃升至约11.7万美元，大涨233%。
+
+科创芯片多空激战，全“芯”布局芯片产业的科创芯片ETF华宝（589190）盘中反复震荡，午后企稳上攻，场内价格一度冲高2%，收涨1.77%。
+
+有色强势反弹，铜和小金属方向领涨，揽尽有色金属行业龙头的有色ETF华宝（159876）场内价格收涨3.25%。
 
 ## 相关推荐
 
-- 2026-06-30 07:19 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 07:19 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 07:19 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 07:29 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 07:10 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 07:02 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 07:06 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 07:28 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 07:25 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 07:26 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 07:13 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 07:11 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 07:24 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 07:07 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 07:02 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 07:27 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 07:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 07:13 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 07:10 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 07:24 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 07:15 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 07:22 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 07:33 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 07:24 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 07:14 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:09 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/46139006.shtml)
-- 2026-06-30 07:02 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/0035563634.shtml)
-- 2026-06-30 07:25 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/037297.shtml)
-- 2026-06-30 07:26 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/4561033.shtml)
-- 2026-06-30 07:07 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/2968279700.shtml)
-- 2026-06-30 07:08 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/849401.shtml)
-- 2026-06-30 07:27 - [恋与深空道歉声明](http://www.blog.minike.top/Article/details/38900.shtml)
-- 2026-06-30 07:28 - [哈弗茨头球破门](http://www.share.minike.top/Article/details/947350004133.shtml)
-- 2026-06-30 07:09 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/90757.shtml)
-- 2026-06-30 07:02 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/99020550583.shtml)
-- 2026-06-30 07:06 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/8122733726.shtml)
-- 2026-06-30 07:05 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/14849617833.shtml)
-- 2026-06-30 07:00 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.kurohicncr.top/Article/details/076373464781.shtml)
-- 2026-06-30 07:24 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/407714274.shtml)
-- 2026-06-30 07:12 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/0896514.shtml)
+- 2026-06-30 07:28 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/42658213.shtml)
+- 2026-06-30 07:21 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/76816277.shtml)
+- 2026-06-30 07:29 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/860748.shtml)
+- 2026-06-30 07:08 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/091321833.shtml)
+- 2026-06-30 07:23 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/849442847.shtml)
+- 2026-06-30 07:11 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/02101349.shtml)
+- 2026-06-30 07:09 - [森保一致歉：世界第一目标没能实现](https://www.share.kurohicncr.top/Article/details/26401.shtml)
+- 2026-06-30 07:10 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/5487449622.shtml)
+- 2026-06-30 07:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/09610814788.shtml)
+- 2026-06-30 07:07 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/54437312.shtml)
+- 2026-06-30 07:09 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/3996469299.shtml)
+- 2026-06-30 07:21 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/383191002886.shtml)
+- 2026-06-30 07:12 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/145739997.shtml)
+- 2026-06-30 07:17 - [三星投资计划](http://www.share.kurohicncr.top/Article/details/3104008.shtml)
+- 2026-06-30 07:27 - [F1奥地利站赛后复盘](https://www.blog.minike.top/Article/details/491033464.shtml)

@@ -1,56 +1,58 @@
-# 满足群众就近就便看病需求 加快建设分级诊疗体系若干措施发布
+# 哈尔滨之夏音乐季启幕
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-国务院办公厅今天发布《关于加快建设分级诊疗体系的若干措施》，提出了“完善分级诊疗协同机制、引导群众基层首诊、加强转诊服务管理、完善分级诊疗多元保障措施”4个方面13项举措，推进医疗卫生人员、服务下沉和基层能力提升，以满足群众就近就便看病的就医需求。在完善分级诊疗协同机制方面，《若干措施》要求以紧密型医联体为抓手。 对未设置社区卫生服务中心的街道，通过机构转型、服务延伸、规范新建
+中新社哈尔滨5月25日电 (记者 王琳)2026哈尔滨之夏音乐季启动仪式25日在哈尔滨大剧院举行，三大板块活动从即日起持续至9月份，以“夏遇冰城清凉有约”主题，构建全域、全季、全龄的音乐旅游业态。 哈尔滨获联合国授予“音乐之城”称号。当日，哈尔滨交响乐团、哈尔滨芭蕾舞团、哈尔滨市群众文化艺术馆等文艺院团、演出场馆分别发布了音乐季演出及群众文化活动安排。 今夏，哈尔滨打造三大板块
 
 ## 正文
 
-国务院办公厅今天发布《关于加快建设分级诊疗体系的若干措施》，提出了“完善分级诊疗协同机制、引导群众基层首诊、加强转诊服务管理、完善分级诊疗多元保障措施”4个方面13项举措，推进医疗卫生人员、服务下沉和基层能力提升，以满足群众就近就便看病的就医需求。
+中新社哈尔滨5月25日电 (记者 王琳)2026哈尔滨之夏音乐季启动仪式25日在哈尔滨大剧院举行，三大板块活动从即日起持续至9月份，以“夏遇冰城清凉有约”主题，构建全域、全季、全龄的音乐旅游业态。
 
-在完善分级诊疗协同机制方面，《若干措施》要求以紧密型医联体为抓手。
+哈尔滨获联合国授予“音乐之城”称号。
 
-对未设置社区卫生服务中心的街道，通过机构转型、服务延伸、规范新建等多元路径，动态消除基层医疗卫生服务空白，实现群众就近就医无盲区。
+当日，哈尔滨交响乐团、哈尔滨芭蕾舞团、哈尔滨市群众文化艺术馆等文艺院团、演出场馆分别发布了音乐季演出及群众文化活动安排。
 
-二级医院要稳定设置，优化功能，加强常见病专业建设，拓展康复、护理、安宁疗护、医养结合等服务，强化在三级医院和基层医疗卫生机构之间的桥梁纽带作用。
+今夏，哈尔滨打造三大板块的音乐活动。
 
-三级医院要聚焦急危重症、疑难复杂疾病，聚焦转诊会诊与住院服务，逐步酌减常见病复诊和诊断明确、病情稳定的慢性病等普通门诊，实现优质资源集约利用。
+“夏都雅韵”专业艺术板块涵盖中华经典音乐、欧亚交响·中俄文化艺术交流、2026哈尔滨音乐剧节等八大单元，将精选柴可夫斯基、拉赫玛尼诺夫、肖斯塔科维奇等音乐巨匠的经典名作推出专场音乐会。
 
-加快建设紧密型医联体(包括紧密型县域医共体、紧密型城市医疗集团)，推动医疗、运营、信息管理一体化。
+“万众艺彩”群众文化板块围绕哈尔滨市民音乐嘉年华、群众合唱展演、“好歌大家唱”声乐比赛、朝鲜族民俗文化展演、露天交响音乐会等十项活动，让音乐走进防洪纪念塔广场、中央大街、太阳石广场、老会堂音乐厅等城市地标，营造“全城欢歌”的艺术氛围。
 
-城市地区重点推广区社一体、以市带区的紧密型城市医疗集团协作模式，已完成网格化布局、运行良好的紧密型城市医疗集团要在现有工作基础上进一步提升质效。
+在“乐游一夏”艺旅融合板块，哈尔滨将同步推出国际青年潮流艺术周，花园街“黄房子”中俄文艺表演，第24届国际啤酒节音乐主题活动。
 
-县域内推进以城带乡、以乡带村和县乡一体、乡村一体的紧密型县域医共体建设。
+伍佰、张韶涵、周传雄等明星演唱会以及2026草莓音乐节将引爆夏日演艺市场，以高热度演出拉动观演客流与文旅消费。
 
 ## 相关推荐
 
-- 2026-06-30 07:18 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 07:13 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 07:13 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 07:11 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 07:04 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 07:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 07:09 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 07:09 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 07:04 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 07:22 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 07:15 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 07:26 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 07:08 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 07:23 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 07:25 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 07:18 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 07:13 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 07:20 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 07:17 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 07:28 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 07:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 07:12 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:03 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/396923.shtml)
-- 2026-06-30 07:12 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/6239404.shtml)
-- 2026-06-30 07:08 - [沙丘](http://www.blog.minike.top/Article/details/15989649404.shtml)
-- 2026-06-30 07:29 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/23138167.shtml)
-- 2026-06-30 07:00 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/4324041184.shtml)
-- 2026-06-30 07:05 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/56865859.shtml)
-- 2026-06-30 07:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/943533540810.shtml)
-- 2026-06-30 07:14 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/3869530508.shtml)
-- 2026-06-30 07:03 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/7236898.shtml)
-- 2026-06-30 07:20 - [刘宇宁高情商化解谁站C位](http://www.blog.kurohicncr.top/Article/details/95771610.shtml)
-- 2026-06-30 07:24 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/078359591.shtml)
-- 2026-06-30 07:19 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/22292.shtml)
-- 2026-06-30 07:23 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/11903.shtml)
-- 2026-06-30 07:01 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/36945.shtml)
-- 2026-06-30 07:19 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/1522597.shtml)
+- 2026-06-30 07:12 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/1756984.shtml)
+- 2026-06-30 07:20 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/36659765.shtml)
+- 2026-06-30 07:17 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/16576.shtml)
+- 2026-06-30 07:08 - [F1奥地利站赛后复盘](https://www.blog.minike.top/Article/details/75634640.shtml)
+- 2026-06-30 07:28 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/4595731162.shtml)
+- 2026-06-30 07:31 - [索马里女大使：想和中国一起搞事业](http://www.blog.minike.top/Article/details/38239158.shtml)
+- 2026-06-30 07:29 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/178327965.shtml)
+- 2026-06-30 07:12 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/9584489388.shtml)
+- 2026-06-30 07:19 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/83222808.shtml)
+- 2026-06-30 07:25 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/674143746.shtml)
+- 2026-06-30 07:10 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/299099771821.shtml)
+- 2026-06-30 07:15 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/20130.shtml)
+- 2026-06-30 07:24 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/276688734.shtml)
+- 2026-06-30 07:17 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/6061527.shtml)
+- 2026-06-30 07:25 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/680467.shtml)

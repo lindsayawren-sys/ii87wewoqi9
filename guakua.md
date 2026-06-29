@@ -1,60 +1,59 @@
-# 均普智能定增募资补流背后报表“虚”？机器人收入不足四百万拟募5.5亿扩产
+# 巴基斯坦总理夏巴兹抵达北京
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-出品：新浪上市公司研究院 文/夏虫工作室 核心观点：均普智能营收规模持续多年维持20亿元以上，为何定增募资又需要补流？值得注意的是，公司尽管业务规模大，但公司报表质量堪忧，其一，从公司自身造血能力看，公司业绩有规模无利润，出现毛利无法覆盖费用支出，部分合同业务毛利率水平与贸易业务相当；其二，公司存货高企，但出现存货跌价计提显著低于同行情形；其三，公司四季度收入确认极为波动，终验
+新华社北京5月24日电(记者曹嘉玥)5月24日晚，巴基斯坦总理夏巴兹·谢里夫抵达北京，继续访华行程。此前，夏巴兹已赴浙江省参访。 夏巴兹于5月23日至26日对中国进行正式访问。访问期间，习近平主席、李强总理将分别同夏巴兹会见、会谈。夏巴兹还将出席庆祝中巴建交75周年招待会。 外交部发言人日前表示，中巴两国是好朋友和全天候战略合作伙伴。中方期待双方以此访为契机，赓续传统友谊，深化
 
 ## 正文
 
-出品：新浪上市公司研究院 文/夏虫工作室 核心观点：均普智能营收规模持续多年维持20亿元以上，为何定增募资又需要补流？
+新华社北京5月24日电(记者曹嘉玥)5月24日晚，巴基斯坦总理夏巴兹·谢里夫抵达北京，继续访华行程。
 
-值得注意的是，公司尽管业务规模大，但公司报表质量堪忧，其一，从公司自身造血能力看，公司业绩有规模无利润，出现毛利无法覆盖费用支出，部分合同业务毛利率水平与贸易业务相当；其二，公司存货高企，但出现存货跌价计提显著低于同行情形；其三，公司四季度收入确认极为波动，终验法收入是否重新考验报表真实性？
+此前，夏巴兹已赴浙江省参访。
 
-需要补充的是，公司历年审计意见均为标准无保留。
+夏巴兹于5月23日至26日对中国进行正式访问。
 
-近期，均普智能就定增问询给出答复。
+访问期间，习近平主席、李强总理将分别同夏巴兹会见、会谈。
 
-此前，均普智能披露定增预案，公司拟向特定对象发行股票，募资不超过10.34亿元。
+夏巴兹还将出席庆祝中巴建交75周年招待会。
 
-此次募资，公司主要用于智能机器人研发及产业化项目、医疗健康智能设备应用及技术服务能力提升项目、信息化建设项目及补充流动性资金，其中，智能机器人研发及产业化项目拟募5.51亿元，占募资额近53%，其次公司补流资金占比第二大，占募资额近30%。
+外交部发言人日前表示，中巴两国是好朋友和全天候战略合作伙伴。
 
-均普智能此次10.34亿元定增募资计划随即引发上交所重点问询，监管审核主要围绕募资必要性及公司自身经营等问题展开灵魂拷问。
-
-募资补流背后报表“虚”？
+中方期待双方以此访为契机，赓续传统友谊，深化全方位合作，共同谱写构建新时代更加紧密的中巴命运共同体新篇章。
 
 ## 相关推荐
 
-- 2026-06-30 07:23 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 07:09 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 07:06 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 07:09 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 07:21 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 07:12 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-30 07:16 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 07:02 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-30 07:00 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 07:18 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 07:20 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 07:14 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 07:16 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 07:05 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 07:18 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 07:21 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 07:35 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 07:31 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 07:19 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 07:32 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 07:26 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 07:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 07:14 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 07:26 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 07:07 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 07:29 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 07:11 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 07:22 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 07:35 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:08 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/906812.shtml)
-- 2026-06-30 07:27 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/07760498694.shtml)
-- 2026-06-30 07:24 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/3305530.shtml)
-- 2026-06-30 07:20 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/154086514540.shtml)
-- 2026-06-30 07:05 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/0244906.shtml)
-- 2026-06-30 07:05 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/136162.shtml)
-- 2026-06-30 07:27 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/4374195.shtml)
-- 2026-06-30 07:30 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/3352029.shtml)
-- 2026-06-30 07:24 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/974780059.shtml)
-- 2026-06-30 07:15 - [急先锋](https://www.share.kurohicncr.top/Article/details/422080.shtml)
-- 2026-06-30 07:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/00441992.shtml)
-- 2026-06-30 07:06 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/1043819022.shtml)
-- 2026-06-30 07:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/030925856055.shtml)
-- 2026-06-30 07:07 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/512874.shtml)
-- 2026-06-30 07:21 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/173438397672.shtml)
+- 2026-06-30 07:11 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/974598439984.shtml)
+- 2026-06-30 07:19 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/06726.shtml)
+- 2026-06-30 07:14 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/9492357205.shtml)
+- 2026-06-30 07:12 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/14703596.shtml)
+- 2026-06-30 07:36 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/38914075054.shtml)
+- 2026-06-30 07:19 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/302759299.shtml)
+- 2026-06-30 07:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/729268.shtml)
+- 2026-06-30 07:23 - [中国新一轮出口管制直指日本命脉](http://www.blog.kurohicncr.top/Article/details/9006420174.shtml)
+- 2026-06-30 07:27 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/44182.shtml)
+- 2026-06-30 07:32 - [全球芯片巨头史诗级扩产](https://www.share.minike.top/Article/details/2294359632.shtml)
+- 2026-06-30 07:29 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/54309320886.shtml)
+- 2026-06-30 07:21 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/9724343134.shtml)
+- 2026-06-30 07:14 - [扬名立万](http://www.share.kurohicncr.top/Article/details/073614.shtml)
+- 2026-06-30 07:06 - [德国巴拉圭进入点球大战](https://www.share.kurohicncr.top/Article/details/300329.shtml)
+- 2026-06-30 07:14 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/0502526647.shtml)

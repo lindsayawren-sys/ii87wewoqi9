@@ -1,56 +1,54 @@
-# 人人租冲刺港股IPO 存助推“变种校园贷”隐忧
+# 四季藏诗意：贵州将推动旅游向生活方式转型
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-证券时报记者 段鹏 每天花10块钱就能租一部最新款手机，听起来轻松又划算。 今年1月，人人租——广州研趣信息科技股份有限公司正式向港交所递交招股书，以“中国最大在线租用消费服务平台”之名冲刺IPO（首次上市融资）。招股书描绘了一幅“绿色循环经济”与“信用免押”共生的美好图景：2024年平台GTV（总交易金额）75亿元，日均订单1.3万笔，注册用户数超6100万，毛利率长期维持在
+发布时间：2026年05月26日 07:50 来源：中国新闻网 5月25日，贵州省“开局起步‘十五五’”专题新闻发布会举行。会上，贵州官方详细解读《贵州省国民经济和社会发展第十五个五年规划纲要》，介绍经济社会发展目标和重点任务。当前，旅游正从“观光体验”向“生活方式”深刻转型。“十五五”期间，贵州建设高品质旅游目的地、打造“多彩贵州”文旅新品牌，将如何推进面向游客的供给侧改革？
 
 ## 正文
 
-证券时报记者 段鹏 每天花10块钱就能租一部最新款手机，听起来轻松又划算。
+发布时间：2026年05月26日 07:50 来源：中国新闻网 5月25日，贵州省“开局起步‘十五五’”专题新闻发布会举行。
 
-今年1月，人人租——广州研趣信息科技股份有限公司正式向港交所递交招股书，以“中国最大在线租用消费服务平台”之名冲刺IPO（首次上市融资）。
+会上，贵州官方详细解读《贵州省国民经济和社会发展第十五个五年规划纲要》，介绍经济社会发展目标和重点任务。
 
-招股书描绘了一幅“绿色循环经济”与“信用免押”共生的美好图景：2024年平台GTV（总交易金额）75亿元，日均订单1.3万笔，注册用户数超6100万，毛利率长期维持在80%以上，甚至超过奢侈品品牌爱马仕。
+当前，旅游正从“观光体验”向“生活方式”深刻转型。
 
-然而，证券时报记者调查发现：人人租平台上的“手机租赁生意”，表面是商家与用户的租赁关系，但却具有一定的类金融属性，人人租平台在其中更是起着推波助澜的关键作用。
+“十五五”期间，贵州建设高品质旅游目的地、打造“多彩贵州”文旅新品牌，将如何推进面向游客的供给侧改革？
 
-日租看似低廉，背后却是堪比高利贷的租金；最令人警醒的是，校园贷已被全面严打，而平台上的租机模式却借壳重生，暗藏“变种校园贷”隐忧。
+贵州省人民政府副省长蔡朝林表示：贵州的目标是，让游客一年四季在贵州都能找到自己的“诗和远方”，让“旅居到贵州、生活更多彩”这个旅居品牌深入人心。
 
-类金融本质：租赁背后的生意经 人人租在官网上宣称其是一站式循环租用服务平台。
-
-近日，证券时报记者以商家寻求入驻的名义联系上了人人租平台的招商人员刘林（化名）。
-
-他表示，他了解到的做手机租赁商家年综合利润率可达30%。
+(记者 袁超 张伟 瞿宏论) 责任编辑：【刘欢】
 
 ## 相关推荐
 
-- 2026-06-30 07:13 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 07:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 07:01 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 07:15 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 07:11 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 07:28 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 07:24 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 07:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 07:02 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-30 07:25 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 07:31 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 07:18 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 07:36 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 07:09 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 07:25 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 07:12 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 07:34 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 07:13 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 07:13 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 07:20 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 07:19 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 07:33 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:15 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/672825661016.shtml)
-- 2026-06-30 07:12 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/8303060637.shtml)
-- 2026-06-30 07:07 - [女心理师](http://www.blog.kurohicncr.top/Article/details/7070713687.shtml)
-- 2026-06-30 07:05 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/812315394.shtml)
-- 2026-06-30 07:29 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/035273156891.shtml)
-- 2026-06-30 07:04 - [极限挑战第一季](https://www.share.minike.top/Article/details/97496.shtml)
-- 2026-06-30 07:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/528368620.shtml)
-- 2026-06-30 07:01 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/25813032.shtml)
-- 2026-06-30 07:24 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/15904401.shtml)
-- 2026-06-30 07:21 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/103103011.shtml)
-- 2026-06-30 07:09 - [金牌调解](https://www.blog.minike.top/Article/details/414799138430.shtml)
-- 2026-06-30 07:18 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/66808.shtml)
-- 2026-06-30 07:24 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/09676216.shtml)
-- 2026-06-30 07:14 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/320771608.shtml)
-- 2026-06-30 07:25 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/6994127515.shtml)
+- 2026-06-30 07:24 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/68011960.shtml)
+- 2026-06-30 07:06 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/651792467829.shtml)
+- 2026-06-30 07:35 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/5387893736.shtml)
+- 2026-06-30 07:32 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/13330927074.shtml)
+- 2026-06-30 07:07 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/199789475.shtml)
+- 2026-06-30 07:24 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/46871.shtml)
+- 2026-06-30 07:09 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/34808118067.shtml)
+- 2026-06-30 07:27 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/120665983.shtml)
+- 2026-06-30 07:08 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/7179614299.shtml)
+- 2026-06-30 07:16 - [世界杯](https://www.share.minike.top/Article/details/092052.shtml)
+- 2026-06-30 07:17 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/486302992.shtml)
+- 2026-06-30 07:14 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/542954043265.shtml)
+- 2026-06-30 07:32 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/70106.shtml)
+- 2026-06-30 07:33 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/004475461.shtml)
+- 2026-06-30 07:24 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/8237230.shtml)

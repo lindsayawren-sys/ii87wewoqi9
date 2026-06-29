@@ -1,56 +1,48 @@
-# 《人工智能拟人化互动服务管理暂行办法》：不得向未成年人提供虚拟伴侣服务
+# 2026年1-4月我国企业在共建“一带一路”国家非金融类直接投资855.5亿元
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电(吴家驹)据“网信中国”公众号消息，4月10日，五部门联合公布《人工智能拟人化互动服务管理暂行办法》(以下简称《暂行办法》)，其中提出，提供拟人化互动服务不得从事的活动包括：向未成年人用户生成可能引发未成年人模仿不安全行为、产生极端情绪、诱导未成年人不良嗜好等可能影响未成年人身心健康的内容。同时，《暂行办法》明确，拟人化互动服务提供者不得向未成年人提供虚拟亲属
+中新网5月26日电 据商务部网站消息，2026年1-4月，我国企业在共建“一带一路”国家非金融类直接投资855.5亿元人民币，同比下降7%(以美元计为123.5亿美元，下降3.6%)。 对外承包工程方面，我国企业在共建“一带一路”国家新签承包工程合同额4973亿元人民币，同比增长6.8%(以美元计为717.9亿美元，增长10.7%)；完成营业额3187.2亿元人民币，增长16%
 
 ## 正文
 
-中新网4月10日电(吴家驹)据“网信中国”公众号消息，4月10日，五部门联合公布《人工智能拟人化互动服务管理暂行办法》(以下简称《暂行办法》)，其中提出，提供拟人化互动服务不得从事的活动包括：向未成年人用户生成可能引发未成年人模仿不安全行为、产生极端情绪、诱导未成年人不良嗜好等可能影响未成年人身心健康的内容。
+中新网5月26日电 据商务部网站消息，2026年1-4月，我国企业在共建“一带一路”国家非金融类直接投资855.5亿元人民币，同比下降7%(以美元计为123.5亿美元，下降3.6%)。
 
-同时，《暂行办法》明确，拟人化互动服务提供者不得向未成年人提供虚拟亲属、虚拟伴侣等虚拟亲密关系的服务；向不满十四周岁未成年人提供其他拟人化互动服务的，应当取得未成年人的父母或者其他监护人的同意。
-
-拟人化互动服务提供者应当建立未成年人模式，提供未成年人模式切换、定期现实提醒、使用时长限制等个性化安全设置选项；针对不同年龄段未成年人保护需要，支持监护人接收安全风险提醒、了解未成年人服务使用概况、屏蔽特定角色、限制充值消费等。
-
-拟人化互动服务提供者应当在保护用户隐私权和个人信息的前提下，采取有效措施识别未成年人用户身份；识别为未成年人用户的，应当将相关服务切换至未成年人模式或者按照国家有关规定采取其他措施，并提供相应申诉渠道。
-
-此外，《暂行办法》明确，拟人化互动服务提供者处理不满十四周岁未成年人个人信息的，应当取得未成年人的父母或者其他监护人的同意。
-
-拟人化互动服务提供者应当按照国家有关规定，自行或者委托专业机构对其处理未成年人个人信息遵守法律、行政法规的情况进行合规审计。
-
-《暂行办法》自2026年7月15日起施行。
-
-(完)
+对外承包工程方面，我国企业在共建“一带一路”国家新签承包工程合同额4973亿元人民币，同比增长6.8%(以美元计为717.9亿美元，增长10.7%)；完成营业额3187.2亿元人民币，增长16%(以美元计为460.1亿美元，增长20.3%)。
 
 ## 相关推荐
 
-- 2026-06-30 07:03 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 07:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 07:15 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 07:27 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 07:20 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 07:19 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 07:27 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 07:14 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 07:10 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 07:24 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 07:17 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 07:34 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 07:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 07:25 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-30 07:16 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 07:08 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 07:25 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 07:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 07:09 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 07:14 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 07:08 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-30 07:07 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 07:24 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 07:10 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:23 - [三星投资计划](http://www.share.minike.top/Article/details/22132255251.shtml)
-- 2026-06-30 07:11 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/06898.shtml)
-- 2026-06-30 07:12 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/824609757.shtml)
-- 2026-06-30 07:07 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/185692939294.shtml)
-- 2026-06-30 07:15 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/45564538652.shtml)
-- 2026-06-30 07:10 - [日本 高位逼抢](https://www.share.minike.top/Article/details/080624691.shtml)
-- 2026-06-30 07:11 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/291611.shtml)
-- 2026-06-30 07:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/6933993.shtml)
-- 2026-06-30 07:17 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/449416044531.shtml)
-- 2026-06-30 07:09 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/05478873709.shtml)
-- 2026-06-30 07:17 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/230335.shtml)
-- 2026-06-30 07:08 - [一生一世](http://www.blog.minike.top/Article/details/38867540.shtml)
-- 2026-06-30 07:05 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/062373312186.shtml)
-- 2026-06-30 07:02 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/5849714.shtml)
-- 2026-06-30 07:06 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/1906853.shtml)
+- 2026-06-30 07:34 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/73744.shtml)
+- 2026-06-30 07:06 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/939528545977.shtml)
+- 2026-06-30 07:21 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/0757369.shtml)
+- 2026-06-30 07:32 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/777141.shtml)
+- 2026-06-30 07:06 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/7327904.shtml)
+- 2026-06-30 07:26 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/50930557.shtml)
+- 2026-06-30 07:33 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/1556593.shtml)
+- 2026-06-30 07:32 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/446932661.shtml)
+- 2026-06-30 07:31 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/95846972463.shtml)
+- 2026-06-30 07:22 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/957146826.shtml)
+- 2026-06-30 07:18 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/5445830913.shtml)
+- 2026-06-30 07:29 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/8211082.shtml)
+- 2026-06-30 07:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/3214151.shtml)
+- 2026-06-30 07:06 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/8258419159.shtml)
+- 2026-06-30 07:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/03661.shtml)

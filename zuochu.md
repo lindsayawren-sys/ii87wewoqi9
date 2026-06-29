@@ -1,60 +1,59 @@
-# 熊猫金控（600599）被预处罚，股民索赔可期
+# 韩正同巴基斯坦总理夏巴兹共同出席庆祝中巴建交75周年招待会
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月9日，熊猫金控股份有限公司（简称：熊猫金控、*ST熊猫（维权），代码：600599）发布《关于收到中国证监会湖南监管局行政处罚事先告知书的公告》。 经查明，熊猫金控涉嫌违法的事实如下：2023年4月4日，*ST熊猫披露了《关于逐步缩减小贷业务规模并加强小贷业务风险控制的公告》，称全资子公司广州市熊猫互联网小额贷款有
+新华社北京5月25日电 5月25日，国家副主席韩正在北京同巴基斯坦总理夏巴兹共同出席庆祝中巴建交75周年招待会并发表致辞。 韩正表示，2015年4月，习近平主席对巴基斯坦进行历史性国事访问，将中巴关系提升为全天候战略合作伙伴关系，为两国关系发展擘画了蓝图。今天，习近平主席同夏巴兹总理举行了富有成果的会见，为两国关系发展作出新的战略指引。中国和巴基斯坦是山水相连、命运与共的好朋友
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月9日，熊猫金控股份有限公司（简称：熊猫金控、*ST熊猫（维权），代码：600599）发布《关于收到中国证监会湖南监管局行政处罚事先告知书的公告》。
+新华社北京5月25日电 5月25日，国家副主席韩正在北京同巴基斯坦总理夏巴兹共同出席庆祝中巴建交75周年招待会并发表致辞。
 
-经查明，熊猫金控涉嫌违法的事实如下：2023年4月4日，*ST熊猫披露了《关于逐步缩减小贷业务规模并加强小贷业务风险控制的公告》，称全资子公司广州市熊猫互联网小额贷款有限公司（以下简称广州小贷）和西藏熊猫小额贷款有限公司（以下简称西藏小贷）拟分别与昆朋资产管理股份有限公司（以下简称昆朋资产）签署《债权转让合同》，将广州小贷和西藏小贷的债权本金余额及交易基准日后相关权益分别以198，075，000 元、215，840，000元的价格转让给昆朋资产。
+韩正表示，2015年4月，习近平主席对巴基斯坦进行历史性国事访问，将中巴关系提升为全天候战略合作伙伴关系，为两国关系发展擘画了蓝图。
 
-上述交易金额占*ST熊猫最近一期经审计净资产的 58.97%。
+今天，习近平主席同夏巴兹总理举行了富有成果的会见，为两国关系发展作出新的战略指引。
 
-经查，*ST熊猫与昆朋资产的债权转让为虚假交易，*ST熊猫为债权转让提供资金，后续通过资金拆借掩盖虚假交易，上述债权由国峻实业控股有限公司代持。
+中国和巴基斯坦是山水相连、命运与共的好朋友，中巴传统友谊由两国老一辈领导人亲手缔造。
 
-中国证监会湖南监管局认为，*ST熊猫的上述行为涉嫌违反《中华人民共和国证券法》（以下简称《证券法》）第七十八条第二款的规定，构成《证券法》第一百九十七条第二款所述违法行为。
+建交75年来，中巴两国始终相互尊重、相互信任、相互支持、守望相助，成为不同制度、不同文化国家友好交往、互利共赢的典范。
 
-中国证监会湖南监管局拟决定：对熊猫金控及其相关责任人员责令改正，给予警告，并各处以罚款。
+韩正指出，当前，世界百年变局加速演进，国际形势变乱交织。
 
-之前，2025年4月28日，熊猫金控发布《2024年度业绩预告更正公告》。
+外部环境越是复杂，中巴越要坚定站在一起。
 
-更正公告显示，2025年1月23日，ST熊猫于发布《2024年度业绩预盈公告》，前次业绩预告情况如下：1、经公司财务部门初步测算，预计2024年度实现归属于上市公司股东的净利润为3，000万元至4，500万元，与上年同期相比，将实现盈利。
+中方愿同巴方认真落实两国领导人达成的重要共识，以庆祝建交75周年为契机，赓续传统友谊，加强战略沟通，深化务实合作，在各自现代化进程中携手前行，加快构建新时代更加紧密的中巴命运共同体，为两国人民带来更多福祉，为地区和平、稳定、繁荣贡献力量。
 
 ## 相关推荐
 
-- 2026-06-30 07:18 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 07:17 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 07:18 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 07:04 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 07:16 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 07:08 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 07:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 07:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 07:21 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 07:25 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 07:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 07:16 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 07:23 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 07:06 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 07:17 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 07:08 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 07:07 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 07:19 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-30 07:07 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 07:09 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 07:21 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 07:13 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 07:32 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 07:11 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 07:33 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 07:13 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 07:18 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:27 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/204444704.shtml)
-- 2026-06-30 07:09 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/05501852695.shtml)
-- 2026-06-30 07:24 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/8285499596.shtml)
-- 2026-06-30 07:06 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/910012694586.shtml)
-- 2026-06-30 07:14 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/516568.shtml)
-- 2026-06-30 07:28 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/32982.shtml)
-- 2026-06-30 07:28 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/3115263986.shtml)
-- 2026-06-30 07:15 - [沉睡花园](https://www.blog.minike.top/Article/details/0429854.shtml)
-- 2026-06-30 07:19 - [日本五次世界杯淘汰赛全败](https://www.share.minike.top/Article/details/435167528.shtml)
-- 2026-06-30 07:11 - [F1奥地利站赛后复盘](http://www.blog.kurohicncr.top/Article/details/384775695086.shtml)
-- 2026-06-30 07:29 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/445967.shtml)
-- 2026-06-30 07:25 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/659732.shtml)
-- 2026-06-30 07:29 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/392586753.shtml)
-- 2026-06-30 07:17 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/1579581384.shtml)
-- 2026-06-30 07:20 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/92490251.shtml)
+- 2026-06-30 07:21 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/0228899757.shtml)
+- 2026-06-30 07:16 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/583019.shtml)
+- 2026-06-30 07:22 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/999968.shtml)
+- 2026-06-30 07:17 - [请回答王牌2019](http://www.blog.minike.top/Article/details/20083.shtml)
+- 2026-06-30 07:24 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/5331867.shtml)
+- 2026-06-30 07:09 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/27830608430.shtml)
+- 2026-06-30 07:07 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/68558.shtml)
+- 2026-06-30 07:12 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/187651601.shtml)
+- 2026-06-30 07:30 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/41937362.shtml)
+- 2026-06-30 07:09 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/8838883.shtml)
+- 2026-06-30 07:19 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/854782580.shtml)
+- 2026-06-30 07:23 - [刘宇宁高情商化解谁站C位](http://www.blog.minike.top/Article/details/1327918.shtml)
+- 2026-06-30 07:35 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/23467635731.shtml)
+- 2026-06-30 07:06 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/1366642.shtml)
+- 2026-06-30 07:26 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/91322.shtml)

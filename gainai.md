@@ -1,58 +1,61 @@
-# 创业板指创2021年以来新高！创业板50ETF华安（159949）涨近3%成交超11亿领跑同类 科技板块再迎催化
+# 多个加工窝点被端！非国标“水果味”电子烟竟产自黑作坊
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-4月10日，创业板指盘中大涨超3%突破前期高点，创2021年12月以来新高。在此背景下，创业板50ETF华安（159949）早盘涨2.86%，报1.617元，换手率5.29%，成交额11.25亿元，居同类标的ETF首位。 消息面上，教育部等五部门印发《“人工智能+教育”行动计划》，其中提到，加快普及中小学生的人工智能教育。持续完善《中小学人工智能通识教育指南》，开齐开足开好人工
+没有生产资质、没有质量保障，一些非国标的“水果味”电子烟产品在市场上暗中流通，破坏正规售卖电子烟商家的营商环境。湖北宜昌警方从一条烟草局移交的线索入手，深挖扩线、跨省打击，成功摧毁了一个集生产、仓储、销售于一体的非法经营电子烟犯罪团伙。2025年3月，宜都市烟草专卖局接到群众举报，辖区内有人通过线上、门店等方式，长期销售非国标电子烟。 2022年10月1日，《电子烟》强制性国家
 
 ## 正文
 
-4月10日，创业板指盘中大涨超3%突破前期高点，创2021年12月以来新高。
+没有生产资质、没有质量保障，一些非国标的“水果味”电子烟产品在市场上暗中流通，破坏正规售卖电子烟商家的营商环境。
 
-在此背景下，创业板50ETF华安（159949）早盘涨2.86%，报1.617元，换手率5.29%，成交额11.25亿元，居同类标的ETF首位。
+湖北宜昌警方从一条烟草局移交的线索入手，深挖扩线、跨省打击，成功摧毁了一个集生产、仓储、销售于一体的非法经营电子烟犯罪团伙。
 
-消息面上，教育部等五部门印发《“人工智能+教育”行动计划》，其中提到，加快普及中小学生的人工智能教育。
+2025年3月，宜都市烟草专卖局接到群众举报，辖区内有人通过线上、门店等方式，长期销售非国标电子烟。
 
-持续完善《中小学人工智能通识教育指南》，开齐开足开好人工智能相关课程。
+2022年10月1日，《电子烟》强制性国家标准实施，所有电子烟产品不得呈现除烟草味外的其他风味，且必须符合防儿童开启、成分安全等相关要求。
 
-推动人工智能教育全面纳入地方课程体系，指导各地研制人工智能课程指南，明确各学段课程目标、内容与课时要求。
+据介绍，这一规定是为了严防诱导未成年人使用。
 
-鼓励开展人工智能跨学科教学，推动人工智能教育融入课后服务、研学实践等环节。
+经警方核查，张某成非法经营非国标电子烟的行为属实，涉案金额远超5万元，已经触及刑事犯罪，宜都市公安局经侦大队立刻对张某成立案侦查。
 
-另外，据国际能源研究机构Benchmark Mineral Intelligence预测，2026年新增装机有望突破450GWh，推动全球累计储能装机容量超过1.14TWh，行业正式迈入TWh时代。
+警方进一步对张某成的资金、物流、通信轨迹等展开调查，发现从2023年7月，张某成就开始从他的上家周某、曾某贤这两人手里批发“水果味”的非国标电子烟，每半个月便进货200件，进货频次非常规律。
 
-中信证券研报指出，当前A股估值处于历史低位，沪深300市盈率仅11.8倍，叠加政策宽松与流动性优化，市场具备持续上行动能。
+随后，张某成很快就通过线上、线下渠道，将这些非国标电子烟销售出去。
 
 ## 相关推荐
 
-- 2026-06-30 07:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-30 07:01 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 07:12 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 07:20 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 07:18 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-30 07:19 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-30 07:11 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 07:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 07:04 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 07:02 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 07:09 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-30 07:25 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 07:08 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 07:30 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 07:30 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 07:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-30 07:16 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 07:28 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 07:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 07:19 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 07:25 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 07:32 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 07:26 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 07:12 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 07:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 07:25 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 07:14 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/5434257608.shtml)
-- 2026-06-30 07:16 - [扬名立万](http://www.share.minike.top/Article/details/620598902.shtml)
-- 2026-06-30 07:00 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/325405191.shtml)
-- 2026-06-30 07:17 - [扬名立万](http://www.blog.minike.top/Article/details/23560824761.shtml)
-- 2026-06-30 07:04 - [周生如故](https://www.share.kurohicncr.top/Article/details/88826.shtml)
-- 2026-06-30 07:17 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/82692828869.shtml)
-- 2026-06-30 07:29 - [我们的少年时代2](http://www.share.minike.top/Article/details/204779.shtml)
-- 2026-06-30 07:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/47573.shtml)
-- 2026-06-30 07:06 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/15397.shtml)
-- 2026-06-30 07:06 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/2292370419.shtml)
-- 2026-06-30 07:16 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/91045285686.shtml)
-- 2026-06-30 07:02 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/05270188.shtml)
-- 2026-06-30 07:27 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/1271180.shtml)
-- 2026-06-30 07:09 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/0578808.shtml)
-- 2026-06-30 07:06 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/053165.shtml)
+- 2026-06-30 07:15 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/80880.shtml)
+- 2026-06-30 07:24 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/071119585610.shtml)
+- 2026-06-30 07:14 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/604677651727.shtml)
+- 2026-06-30 07:22 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/43382793364.shtml)
+- 2026-06-30 07:20 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/82887991.shtml)
+- 2026-06-30 07:15 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/0484433899.shtml)
+- 2026-06-30 07:13 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/43317184275.shtml)
+- 2026-06-30 07:34 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/36848796.shtml)
+- 2026-06-30 07:07 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/0501166598.shtml)
+- 2026-06-30 07:24 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/305409052.shtml)
+- 2026-06-30 07:14 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/408182124.shtml)
+- 2026-06-30 07:07 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/298903341969.shtml)
+- 2026-06-30 07:35 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/024073079659.shtml)
+- 2026-06-30 07:12 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/0662443314.shtml)
+- 2026-06-30 07:14 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/8151006388.shtml)

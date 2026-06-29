@@ -1,56 +1,58 @@
-# 酒价内参4月10日价格发布，古井贡古20保持不变
+# 美伊协议预期升温，油价跌破100美元，全球股市走高
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月10日延续下行走势。如果主要单品各取一瓶整体打包售卖，今日总售价为9916元，较昨日下跌8元，创下近两周以来新低。部分核心单品连续回落，价格中枢有所下移，后市预计短期仍以弱势整理为主。 今日白酒市场11大单品四涨五跌二平。上涨方面，国窖1573上涨4元/瓶，渠道补货带动价格修复；习酒君品上涨
+受华盛顿与伊朗日益接近达成协议的迹象提振，市场对霍尔木兹海峡重新开放的预期升温，油价周一暴跌至每桶100美元以下，全球股市随之大涨。 在周末传出中东战争和谈取得进展的消息后，国际基准布伦特原油和西得克萨斯中质原油期货合约跌幅均超过5%。 美国国务卿鲁比奥周一在访问新德里期间表示，一项协议可能于“今天”宣布。 此前，唐纳德·特朗普总统称，谈判正在“有序且建设性地”进行，但同时提醒
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月10日延续下行走势。
+受华盛顿与伊朗日益接近达成协议的迹象提振，市场对霍尔木兹海峡重新开放的预期升温，油价周一暴跌至每桶100美元以下，全球股市随之大涨。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9916元，较昨日下跌8元，创下近两周以来新低。
+在周末传出中东战争和谈取得进展的消息后，国际基准布伦特原油和西得克萨斯中质原油期货合约跌幅均超过5%。
 
-部分核心单品连续回落，价格中枢有所下移，后市预计短期仍以弱势整理为主。
+美国国务卿鲁比奥周一在访问新德里期间表示，一项协议可能于“今天”宣布。
 
-今日白酒市场11大单品四涨五跌二平。
+此前，唐纳德·特朗普总统称，谈判正在“有序且建设性地”进行，但同时提醒美方谈判代表已被告知“不要急于达成协议”。
 
-上涨方面，国窖1573上涨4元/瓶，渠道补货带动价格修复；习酒君品上涨2元/瓶；五粮液1618与洋河梦之蓝M6+均小幅上涨1元/瓶，其中洋河梦之蓝M6+实现三连阳。
+但许多投资者押注特朗普急于宣布一项协议，以便让海湾油轮运输恢复通过霍尔木兹海峡，并在北半球夏季旅游旺季到来前帮助平抑燃油价格。
 
-下跌方面，精品茅台跌幅居前，下调5元/瓶，受市场化定价及渠道再平衡影响；五粮液普五八代下跌4元/瓶；飞天茅台与青花郎均下跌3元/瓶；青花汾20小幅回调1元/瓶。
+有报道称，伊朗首席谈判代表穆罕默德·巴格尔·加利巴夫已于周一抵达卡塔尔，作为“外交进程”的一部分，这进一步提振了乐观情绪。
 
-古井贡古20及水晶剑南春价格环比保持不变。
+Pepperstone研究主管克里斯·韦斯顿表示：“根据唐纳德·特朗普的报道，一份谅解备忘录已‘大致谈妥’，具体细节将在不久后的某个阶段公布。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+” 这一前景推动亚洲股市全面上扬，东京股市大涨2.9%，首次突破65000点大关。
 
 ## 相关推荐
 
-- 2026-06-30 07:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 07:18 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 07:15 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 07:19 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 07:28 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 07:04 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-30 07:19 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 07:07 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-30 07:13 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-30 07:19 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 07:31 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 07:11 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-30 07:23 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 07:07 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-30 07:35 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 07:17 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 07:25 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 07:21 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 07:11 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 07:23 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 07:21 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 07:24 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:20 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/305987025792.shtml)
-- 2026-06-30 07:11 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/099588.shtml)
-- 2026-06-30 07:29 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/9031585.shtml)
-- 2026-06-30 07:06 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/7347908.shtml)
-- 2026-06-30 07:17 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/509140251195.shtml)
-- 2026-06-30 07:24 - [我和我的家乡](http://www.share.minike.top/Article/details/50673.shtml)
-- 2026-06-30 07:20 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/586783879.shtml)
-- 2026-06-30 07:27 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/56947.shtml)
-- 2026-06-30 07:14 - [巴拉圭进球](http://www.blog.minike.top/Article/details/08593.shtml)
-- 2026-06-30 07:03 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/494074030.shtml)
-- 2026-06-30 07:26 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/6190473.shtml)
-- 2026-06-30 07:23 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/153188716.shtml)
-- 2026-06-30 07:17 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/97378777201.shtml)
-- 2026-06-30 07:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/153389557.shtml)
-- 2026-06-30 07:18 - [巴西绝杀日本](https://www.share.minike.top/Article/details/222956.shtml)
+- 2026-06-30 07:21 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/592582.shtml)
+- 2026-06-30 07:13 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/173816549805.shtml)
+- 2026-06-30 07:16 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/73353.shtml)
+- 2026-06-30 07:24 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/122361505.shtml)
+- 2026-06-30 07:21 - [日本领先巴西](https://www.blog.minike.top/Article/details/16197.shtml)
+- 2026-06-30 07:14 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/4718013.shtml)
+- 2026-06-30 07:16 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/02427137.shtml)
+- 2026-06-30 07:10 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/6155975806.shtml)
+- 2026-06-30 07:06 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/025898175517.shtml)
+- 2026-06-30 07:17 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/3039984.shtml)
+- 2026-06-30 07:32 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/51815807892.shtml)
+- 2026-06-30 07:15 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/31820619.shtml)
+- 2026-06-30 07:21 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/060243113.shtml)
+- 2026-06-30 07:26 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/3822814263.shtml)
+- 2026-06-30 07:30 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/62195670.shtml)

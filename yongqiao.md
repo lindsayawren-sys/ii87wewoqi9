@@ -1,51 +1,60 @@
-# 乌称敖德萨遭无人机袭击 已致2死2伤
+# 孙颖莎现身深圳 助力推动深港澳三地青少年乒乓球交流
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-当地时间11日，乌克兰敖德萨市军事管理局局长谢尔盖·利萨克表示，当天凌晨，俄罗斯无人机再次袭击敖德萨，造成2人死亡、2人受伤，另有多栋建筑受损。 目前，所有受影响地区的市政服务部门已全面投入工作，专业人员正开展受损窗户封堵、屋顶修补及废墟残骸清理工作，相关作业仍在持续进行。 对此，俄罗斯方面暂无回应。(总台记者 董薇)
+中新网深圳5月24日电 (记者 郭军)奥运冠军孙颖莎23日现身深圳，助力推动深港澳三地青少年乒乓球交流。当日，乒超联赛深圳大学代表队2025赛季系列活动暨深圳市深大乒乓球俱乐部深港澳青少年交流项目在深圳南山区档案服务大厦启动。孙颖莎和年轻国手覃予萱来到现场，为这场以国球为纽带、厚植家国情怀的青春盛会助力。 据悉，在刚刚过去的2025赛季，由孙颖莎、蒯曼、覃予萱以及日本外援平野美
 
 ## 正文
 
-当地时间11日，乌克兰敖德萨市军事管理局局长谢尔盖·利萨克表示，当天凌晨，俄罗斯无人机再次袭击敖德萨，造成2人死亡、2人受伤，另有多栋建筑受损。
+中新网深圳5月24日电 (记者 郭军)奥运冠军孙颖莎23日现身深圳，助力推动深港澳三地青少年乒乓球交流。
 
-目前，所有受影响地区的市政服务部门已全面投入工作，专业人员正开展受损窗户封堵、屋顶修补及废墟残骸清理工作，相关作业仍在持续进行。
+当日，乒超联赛深圳大学代表队2025赛季系列活动暨深圳市深大乒乓球俱乐部深港澳青少年交流项目在深圳南山区档案服务大厦启动。
 
-对此，俄罗斯方面暂无回应。
+孙颖莎和年轻国手覃予萱来到现场，为这场以国球为纽带、厚植家国情怀的青春盛会助力。
 
-(总台记者 董薇)
+据悉，在刚刚过去的2025赛季，由孙颖莎、蒯曼、覃予萱以及日本外援平野美宇组成的深圳大学代表队，第三次夺得乒超联赛总冠军。
+
+活动现场，深大乒乓球俱乐部被授予“深圳市南山区港澳台青少年交流基地”牌匾，标志着一个以体育促认同、以国球聚人心的新平台正式落地。
+
+随后，孙颖莎和覃予萱为南山区校地统战工作联盟第二届“校地杯”乒乓球邀请赛的获奖选手颁奖。
+
+当日，参与活动的嘉宾共同为深大乒乓项目少年队队徽揭幕，标志着深大青少年乒乓人才培养体系迈出了新的一步。
+
+据了解，深大乒乓项目青少年体系自主打造了萌芽、青苗、培优、优选、精英五层十级体系，形成体教融合、层层衔接的人才梯队。
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 07:16 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 07:23 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 07:23 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 07:20 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 07:20 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 07:19 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 07:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 07:14 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 07:21 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 07:05 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 07:16 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 07:00 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-30 07:22 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 07:30 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 07:32 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 07:21 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 07:29 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 07:10 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 07:16 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 07:33 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 07:29 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 07:32 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-30 07:19 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 07:12 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 07:19 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 07:18 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/2030379.shtml)
-- 2026-06-30 07:03 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/231408164250.shtml)
-- 2026-06-30 07:07 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/6945527214.shtml)
-- 2026-06-30 07:11 - [恋与深空回应争议](https://www.share.minike.top/Article/details/988077234135.shtml)
-- 2026-06-30 07:05 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/0112877.shtml)
-- 2026-06-30 07:10 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/541653140.shtml)
-- 2026-06-30 07:20 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/099538.shtml)
-- 2026-06-30 07:11 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/4110965.shtml)
-- 2026-06-30 07:08 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/609163646.shtml)
-- 2026-06-30 07:17 - [张凌赫 客串](https://www.share.minike.top/Article/details/8599698657.shtml)
-- 2026-06-30 07:09 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/94253.shtml)
-- 2026-06-30 07:14 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/08730545372.shtml)
-- 2026-06-30 07:19 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/5691308897.shtml)
-- 2026-06-30 07:15 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/34692480.shtml)
-- 2026-06-30 07:23 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/986252.shtml)
+- 2026-06-30 07:16 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/441286.shtml)
+- 2026-06-30 07:14 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/544642220.shtml)
+- 2026-06-30 07:22 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/026867.shtml)
+- 2026-06-30 07:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/5044841.shtml)
+- 2026-06-30 07:23 - [董卿父亲报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/968974209616.shtml)
+- 2026-06-30 07:22 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/92894.shtml)
+- 2026-06-30 07:30 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/579658211671.shtml)
+- 2026-06-30 07:26 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/619622511.shtml)
+- 2026-06-30 07:22 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/36418.shtml)
+- 2026-06-30 07:10 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/72667182647.shtml)
+- 2026-06-30 07:16 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/616188.shtml)
+- 2026-06-30 07:27 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/05634.shtml)
+- 2026-06-30 07:26 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/2414803620.shtml)
+- 2026-06-30 07:29 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/58557.shtml)
+- 2026-06-30 07:18 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/9092117533.shtml)

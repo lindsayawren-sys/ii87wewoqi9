@@ -1,60 +1,51 @@
-# 第五届全民阅读大会将在江西举办 多彩活动共建书香社会
+# 人民法庭五年来审结各类案件3400万件
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新网南昌4月11日电 (记者 李韵涵)11日，第五届全民阅读大会新闻发布会在江西南昌召开。记者从会上获悉，大会将于4月20日至22日在江西南昌举办。 “阅读是人类获取知识、启智增慧、培养道德的重要途径，可以让人得到思想启发，树立崇高理想，涵养浩然之气。”中宣部出版局副局长张怀海在新闻发布会上表示，2022年以来，全民阅读大会在北京、浙江杭州、云南昆明、山西太原连续举办四届，成
+新华社北京5月25日电(记者齐琪、冯家顺)记者5月25日从最高人民法院第五次全国人民法庭工作会议上了解到，五年来(2021-2025年)，人民法庭数量由10759个增至11035个，乡村法庭为7615个；审结各类案件3400万件，是上一个五年的1.7倍，占全国法院一审结案比例由25%增至35%。据介绍，五年来，人民法庭化解大量民生领域纠纷。线下服务贴近群众，畅通劳动报酬追索、工
 
 ## 正文
 
-中新网南昌4月11日电 (记者 李韵涵)11日，第五届全民阅读大会新闻发布会在江西南昌召开。
+新华社北京5月25日电(记者齐琪、冯家顺)记者5月25日从最高人民法院第五次全国人民法庭工作会议上了解到，五年来(2021-2025年)，人民法庭数量由10759个增至11035个，乡村法庭为7615个；审结各类案件3400万件，是上一个五年的1.7倍，占全国法院一审结案比例由25%增至35%。
 
-记者从会上获悉，大会将于4月20日至22日在江西南昌举办。
+据介绍，五年来，人民法庭化解大量民生领域纠纷。
 
-“阅读是人类获取知识、启智增慧、培养道德的重要途径，可以让人得到思想启发，树立崇高理想，涵养浩然之气。
+线下服务贴近群众，畅通劳动报酬追索、工伤赔偿和残疾人、老年人、军人军属等维权绿色通道，常态化开展巡回审判，“车载法庭”“马背法庭”“水上法庭”覆盖偏远地区；线上服务便捷高效，全面推广网上立案、跨域立案、电子送达、云上庭审、跨域协作，让数据多跑路、群众少跑腿。
 
-”中宣部出版局副局长张怀海在新闻发布会上表示，2022年以来，全民阅读大会在北京、浙江杭州、云南昆明、山西太原连续举办四届，成为扩大全民阅读影响，激发人民群众阅读兴趣，引领社会读书风尚的重要活动和平台。
+此外，人民法庭依法妥善审理涉腾退拆迁、灾后重建等涉众、涉特定群体系列案件，努力将矛盾纠纷吸附在基层，化解于萌芽；审理涉农村土地“三权分置”、高额彩礼、养老育幼等纠纷案件，服务乡村全面振兴；因地制宜加强金融、劳动、旅游、文化遗产保护等专业司法保障，助力区域特色产业发展；建设国边境“移动巡回法庭”调处民族矛盾、跨国纠纷，守护民族边疆地区和谐稳定。
 
-今年2月，《全民阅读促进条例》正式实施，全民阅读促进工作站上新的起点。
-
-据了解，第五届全民阅读大会以“共促全民阅读 共建书香社会”为主题，将结合宣传贯彻《全民阅读促进条例》启动首个全国“全民阅读活动周”，围绕庆祝中国共产党成立105周年、纪念中国工农红军长征胜利90周年，举办系列论坛和主题活动。
-
-据介绍，本次大会聚焦贯彻《全民阅读促进条例》面向不同领域、不同人群举办系列论坛。
-
-包括大会主论坛，围绕“书香校园”建设、青少年阅读、家庭亲子阅读、主题阅读推广、图书馆全民阅读、城市阅读、乡村阅读等方面的话题，探讨深化全民阅读的思路举措。
+同时，人民法庭坚持和发展新时代“枫桥经验”，与村委会、居委会、人民调解委员会等基层治理单位“在线”对接、联防联治，助力大量矛盾纠纷不出村；对接乡镇(街道)综治中心，做实先行调解、指导调解、联动解纷；常态化开展以案说法、送法下乡，指导培育大批“法治带头人”“法律明白人”，积极服务基层良法善治。
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 07:15 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 07:20 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 07:06 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 07:07 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 07:04 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 07:04 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 07:29 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 07:17 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 07:29 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 07:07 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-30 07:13 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 07:21 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 07:22 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 07:22 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 07:09 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 07:19 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 07:24 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 07:11 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 07:23 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 07:28 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 07:11 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 07:10 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 07:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-30 07:20 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/628360.shtml)
-- 2026-06-30 07:16 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/184903383.shtml)
-- 2026-06-30 07:27 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/968937278270.shtml)
-- 2026-06-30 07:09 - [千与千寻](https://www.share.minike.top/Article/details/127623074859.shtml)
-- 2026-06-30 07:08 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/4014342.shtml)
-- 2026-06-30 07:06 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/96472961.shtml)
-- 2026-06-30 07:08 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/9727440.shtml)
-- 2026-06-30 07:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/92588.shtml)
-- 2026-06-30 07:08 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/652391.shtml)
-- 2026-06-30 07:18 - [日本五次世界杯淘汰赛全败](http://www.blog.kurohicncr.top/Article/details/13556.shtml)
-- 2026-06-30 07:04 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/548987316.shtml)
-- 2026-06-30 07:07 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/4172484.shtml)
-- 2026-06-30 07:12 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/591999370841.shtml)
-- 2026-06-30 07:20 - [起风了](http://www.share.minike.top/Article/details/87252805.shtml)
-- 2026-06-30 07:02 - [巴西在进攻三区完成210脚传球](http://www.share.minike.top/Article/details/03485.shtml)
+- 2026-06-30 07:17 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/2251369.shtml)
+- 2026-06-30 07:29 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/830738862255.shtml)
+- 2026-06-30 07:22 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/09414163482.shtml)
+- 2026-06-30 07:07 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/721889072511.shtml)
+- 2026-06-30 07:24 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/32104792223.shtml)
+- 2026-06-30 07:16 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/22038.shtml)
+- 2026-06-30 07:29 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/125921.shtml)
+- 2026-06-30 07:15 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/772667.shtml)
+- 2026-06-30 07:30 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/09203191.shtml)
+- 2026-06-30 07:28 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/25486480118.shtml)
+- 2026-06-30 07:19 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/79597217.shtml)
+- 2026-06-30 07:25 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/4126840066.shtml)
+- 2026-06-30 07:35 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/757244274.shtml)
+- 2026-06-30 07:12 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/55036.shtml)
+- 2026-06-30 07:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/42214672.shtml)

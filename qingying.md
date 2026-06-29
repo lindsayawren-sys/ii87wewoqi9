@@ -1,60 +1,57 @@
-# 外国友人首次获评“杭州好人”
+# 焦点访谈丨新组合、新使命、新突破 中国载人航天再启程
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新网杭州4月10日电(记者 王逸飞)4月10日，在杭州市钱塘区，杭州市文明办为杭州电子科技大学摩洛哥留学生AYOUB FADIL(中文名：尤博)颁发“杭州好人”荣誉证书，表彰其见义勇为的高尚行为。尤博也成为第一位获评“杭州好人”的外国友人。 当日仪式上，杭州市见义勇为基金会同步向尤博颁发“杭州市见义勇为义士”证书，并给予奖励金5000元人民币。尤博能够获得上述荣誉，源于其几天
+5月25日凌晨，新一批中国航天员再次成功抵达中国空间站，这是中国航天员在中国空间站的第八次太空会师，前来和神舟二十一号乘组交接班的神舟二十三号乘组可谓是新新组合，指令长朱杨柱、航天员张志远和载荷专家黎家盈将在接下来的半年左右时间里，深入推进中国空间站的发展和应用。这是一次新的任务，也是中国载人航天深化应用与发展的一个新起点，我们一起来聚焦神舟二十三号这一次的飞天之路。5月24日
 
 ## 正文
 
-中新网杭州4月10日电(记者 王逸飞)4月10日，在杭州市钱塘区，杭州市文明办为杭州电子科技大学摩洛哥留学生AYOUB FADIL(中文名：尤博)颁发“杭州好人”荣誉证书，表彰其见义勇为的高尚行为。
+5月25日凌晨，新一批中国航天员再次成功抵达中国空间站，这是中国航天员在中国空间站的第八次太空会师，前来和神舟二十一号乘组交接班的神舟二十三号乘组可谓是新新组合，指令长朱杨柱、航天员张志远和载荷专家黎家盈将在接下来的半年左右时间里，深入推进中国空间站的发展和应用。
 
-尤博也成为第一位获评“杭州好人”的外国友人。
+这是一次新的任务，也是中国载人航天深化应用与发展的一个新起点，我们一起来聚焦神舟二十三号这一次的飞天之路。
 
-当日仪式上，杭州市见义勇为基金会同步向尤博颁发“杭州市见义勇为义士”证书，并给予奖励金5000元人民币。
+5月24日晚，神舟二十三号航天员从东风航天城问天阁出发，前往发射场。
 
-尤博能够获得上述荣誉，源于其几天前的救人之举。
+5月的酒泉卫星发射中心，树木又长出新叶，又是一次新的旅程开启。
 
-4月6日晚，尤博与女友及两位朋友在钱塘区金沙湖边散步时，忽然发现一名女子正在离岸数米的湖水中挣扎。
+这一次执行神舟二十三号任务的航天员分别是朱杨柱、张志远和黎家盈，每个人都怀有自己的飞天新梦想。
 
-尤博没有迟疑，迅速脱掉鞋子、外套，纵身跃入湖中，拼尽全力将落水女子拖向岸边。
+朱杨柱曾经在神舟十六号飞行任务中担任飞行工程师，这一次二度飞天，他以飞行工程师的身份担任此次任务的指令长，打破了以往指令长都由航天驾驶员担任的惯例。
 
-把人救起的尤博确认女子已恢复意识、无生命危险，又看到民警赶到现场处置后，便悄悄离开。
+航天员 朱杨柱：航天飞行工程师当指令长能不能行、有没有底气？
 
-当晚，他的善举被当地市民拍下，后在网络上传播开来。
+开飞船经过训练是可以达到的，但是我们需要花的功夫更多一些。
 
 ## 相关推荐
 
-- 2026-06-30 07:05 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 07:05 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 07:06 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 07:03 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 07:24 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 07:08 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 07:07 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 07:12 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 07:26 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-30 07:09 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 07:17 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 07:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 07:19 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 07:06 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 07:07 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 07:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 07:23 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 07:09 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 07:29 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 07:29 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 07:33 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 07:14 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 07:24 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 07:11 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 07:08 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:15 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/2781055668.shtml)
-- 2026-06-30 07:22 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/2668473772.shtml)
-- 2026-06-30 07:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/34988.shtml)
-- 2026-06-30 07:28 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/088135563.shtml)
-- 2026-06-30 07:29 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/7707482.shtml)
-- 2026-06-30 07:29 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/22220705.shtml)
-- 2026-06-30 07:28 - [点菜也要教吗](https://www.share.minike.top/Article/details/517874937.shtml)
-- 2026-06-30 07:06 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/016244830297.shtml)
-- 2026-06-30 07:28 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/08053.shtml)
-- 2026-06-30 07:12 - [绘画区你赢了](https://www.blog.minike.top/Article/details/833669.shtml)
-- 2026-06-30 07:11 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/31139480180.shtml)
-- 2026-06-30 07:09 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/91793.shtml)
-- 2026-06-30 07:27 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/02183.shtml)
-- 2026-06-30 07:19 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/5851407110.shtml)
-- 2026-06-30 07:26 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/07234230.shtml)
+- 2026-06-30 07:19 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/08133948241.shtml)
+- 2026-06-30 07:12 - [高质量发展看新疆](http://www.share.minike.top/Article/details/8770446.shtml)
+- 2026-06-30 07:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/44149.shtml)
+- 2026-06-30 07:20 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/188124236.shtml)
+- 2026-06-30 07:11 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/2113782999.shtml)
+- 2026-06-30 07:24 - [勇敢的心第二部](http://www.share.minike.top/Article/details/5398083725.shtml)
+- 2026-06-30 07:23 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/19314238.shtml)
+- 2026-06-30 07:27 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/4197384.shtml)
+- 2026-06-30 07:23 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/30146.shtml)
+- 2026-06-30 07:29 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/133741730788.shtml)
+- 2026-06-30 07:27 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/535292907.shtml)
+- 2026-06-30 07:29 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/739973227271.shtml)
+- 2026-06-30 07:15 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/6890061573.shtml)
+- 2026-06-30 07:15 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/007312434.shtml)
+- 2026-06-30 07:23 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/596219415.shtml)

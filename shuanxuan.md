@@ -1,58 +1,43 @@
-# 京剧马派经典剧目《火牛阵》在福州上演
+# 中东战事影响外溢 巴西核心肉牛产区承压
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新网福州4月11日电 (沙沁湉)京剧马派经典剧目《火牛阵》10日晚在福州凤凰剧院上演。这出由京剧大师马连良先生早年创作的代表性剧目，在著名京剧表演艺术家朱强的倾囊传授下，由福建京剧院青年演员张萌领衔主演，赢得满堂喝彩。 《火牛阵》讲述了战国时期乐毅伐齐、田单以火牛阵大破燕军、收复七十余城的故事。 据福建京剧院相关负责人介绍，该剧由马连良先生在传统剧目《黄金台》基础上增益首尾创
+发布时间：2026年05月25日 15:55 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网福州4月11日电 (沙沁湉)京剧马派经典剧目《火牛阵》10日晚在福州凤凰剧院上演。
-
-这出由京剧大师马连良先生早年创作的代表性剧目，在著名京剧表演艺术家朱强的倾囊传授下，由福建京剧院青年演员张萌领衔主演，赢得满堂喝彩。
-
-《火牛阵》讲述了战国时期乐毅伐齐、田单以火牛阵大破燕军、收复七十余城的故事。
-
-据福建京剧院相关负责人介绍，该剧由马连良先生在传统剧目《黄金台》基础上增益首尾创作而成，唱做并重，是京剧马派艺术早期的重要代表作。
-
-此次演出中，张萌的唱腔既富有音韵之美，又饱含人物情感，将田单忧国忧民、忍辱负重的复杂心境层层递进地展现出来，展现出扎实的功底与日渐成熟的艺术风范。
-
-2023年，张萌正式拜入京剧马派表演艺术家朱强门下，近年来朱强先后为他指导了《赵氏孤儿》《红鬃烈马》及新编现代京剧《林祥谦》等剧目。
-
-2025年，朱强将自己近年整理复排的《火牛阵》倾囊相授。
-
-今年4月，朱强专程来到福州。
+发布时间：2026年05月25日 15:55 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 07:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 07:28 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 07:22 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 07:22 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 07:19 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 07:22 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 07:05 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 07:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 07:09 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 07:21 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 07:19 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 07:03 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 07:15 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 07:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 07:11 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 07:19 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 07:33 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 07:07 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 07:13 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 07:28 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 07:21 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 07:25 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 07:22 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:11 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/88688.shtml)
-- 2026-06-30 07:18 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/6199072.shtml)
-- 2026-06-30 07:00 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/228603447.shtml)
-- 2026-06-30 07:13 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/9447678087.shtml)
-- 2026-06-30 07:14 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/451170.shtml)
-- 2026-06-30 07:22 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/208778280860.shtml)
-- 2026-06-30 07:07 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/210533234.shtml)
-- 2026-06-30 07:11 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/0463950.shtml)
-- 2026-06-30 07:13 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/92803481.shtml)
-- 2026-06-30 07:20 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/438410351.shtml)
-- 2026-06-30 07:08 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/08454.shtml)
-- 2026-06-30 07:20 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/5278000.shtml)
-- 2026-06-30 07:19 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/250588075129.shtml)
-- 2026-06-30 07:24 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/4111403650.shtml)
-- 2026-06-30 07:20 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/815659057586.shtml)
+- 2026-06-30 07:35 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/66898.shtml)
+- 2026-06-30 07:30 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/875958.shtml)
+- 2026-06-30 07:16 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/14753996.shtml)
+- 2026-06-30 07:16 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/26953542.shtml)
+- 2026-06-30 07:06 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/31956710.shtml)
+- 2026-06-30 07:22 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/09299.shtml)
+- 2026-06-30 07:14 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/32483366.shtml)
+- 2026-06-30 07:32 - [一生一世](http://www.share.kurohicncr.top/Article/details/724638648.shtml)
+- 2026-06-30 07:28 - [全球芯片巨头史诗级扩产](http://www.share.kurohicncr.top/Article/details/81437657.shtml)
+- 2026-06-30 07:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/9493665772.shtml)
+- 2026-06-30 07:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/27015774711.shtml)
+- 2026-06-30 07:30 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/2392797.shtml)
+- 2026-06-30 07:28 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/454985.shtml)
+- 2026-06-30 07:31 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/038442160691.shtml)
+- 2026-06-30 07:21 - [请回答王牌2019](https://www.share.minike.top/Article/details/660927684.shtml)

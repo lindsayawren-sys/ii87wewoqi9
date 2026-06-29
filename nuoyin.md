@@ -1,60 +1,58 @@
-# 现货原油价格反映出的能源市场紧张程度
+# 中华人民共和国和塞尔维亚共和国关于持续推进构建新时代中塞命运共同体的联合声明
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-核心要点 本周，在美国、以色列与伊朗冲突升级后，全球油价攀升至 2022 年以来最高水平。国际基准布伦特原油一度突破 100 美元大关，随后回落至这一心理关口下方。自美以对伊朗发起打击以来，液化天然气（LNG）价格亦上涨 50%。这场战争已产生重大影响。 作为全球实体原油定价基准的现货布伦特油价持续波动，能源分析师警告，在市场对中东脆弱停火协议感到担忧的背景下，实体原油市场的严
+新华社北京5月25日电 中华人民共和国和塞尔维亚共和国关于持续推进构建新时代中塞命运共同体的联合声明 应中华人民共和国主席习近平的邀请，塞尔维亚共和国总统阿莱克桑达尔·武契奇于2026年5月24日至28日对中华人民共和国进行国事访问。 访问期间，习近平主席同武契奇总统举行了卓有成效的会晤，中国国务院总理李强、全国政协主席王沪宁分别会见武契奇总统。中国和塞尔维亚(以下简称“双方”
 
 ## 正文
 
-核心要点 本周，在美国、以色列与伊朗冲突升级后，全球油价攀升至 2022 年以来最高水平。
+新华社北京5月25日电 中华人民共和国和塞尔维亚共和国关于持续推进构建新时代中塞命运共同体的联合声明 应中华人民共和国主席习近平的邀请，塞尔维亚共和国总统阿莱克桑达尔·武契奇于2026年5月24日至28日对中华人民共和国进行国事访问。
 
-国际基准布伦特原油一度突破 100 美元大关，随后回落至这一心理关口下方。
+访问期间，习近平主席同武契奇总统举行了卓有成效的会晤，中国国务院总理李强、全国政协主席王沪宁分别会见武契奇总统。
 
-自美以对伊朗发起打击以来，液化天然气（LNG）价格亦上涨 50%。
+中国和塞尔维亚(以下简称“双方”)就深化中塞铁杆友谊、进一步推进新时代中塞命运共同体建设、拓展全方位互利合作、共建“一带一路”、中国－中东欧国家合作以及共同关心的国际和地区问题交换意见，达成广泛共识。
 
-这场战争已产生重大影响。
+双方特此声明如下： 一、两国元首重申2024年5月发表的《中华人民共和国和塞尔维亚共和国关于深化和提升全面战略伙伴关系、构建新时代中塞命运共同体的联合声明》中各项共识，一致认为，中塞构建新时代命运共同体是双方基于彼此发展道路和人民意愿作出的共同战略抉择。
 
-作为全球实体原油定价基准的现货布伦特油价持续波动，能源分析师警告，在市场对中东脆弱停火协议感到担忧的背景下，实体原油市场的严峻紧张局面几乎没有缓解迹象。
+中塞两国虽然历史、文化、国情各异，但始终坚定捍卫国家主权和领土完整，始终坚守公平正义，始终站在历史正确一边，始终秉持开放合作精神，致力于人民幸福和国家富强，致力于维护联合国宪章宗旨和原则，致力于实现人类和平与发展的崇高事业、构建人类命运共同体。
 
-能源市场参与者持续紧盯战略要地霍尔木兹海峡的航运中断状况，现货布伦特与近月布伦特期货之间出现了前所未有的价差，这意味着原油供应在未来一段时间内仍将偏紧。
+双方将共同推动落实全球发展倡议、全球安全倡议、全球文明倡议、全球治理倡议。
 
-普氏能源资讯数据显示，现货布伦特原油（指已确定交货期、未来 10 天至一个月内交付的实体原油货盘）周四下午报价为每桶 131.97 美元。
+双方对新时代中塞命运共同体建设至今取得的合作成果感到满意，一致同意继续本着独立自主、互尊互信、合作共赢、彼此成就的原则，加强政治、经济、科技、社会、文化等各领域合作，不断深化中塞全面战略伙伴关系，持续推进构建新时代中塞命运共同体。
 
-该价格较前一交易日上涨超 7%，但低于周二创下的 144.42 美元历史高点 —— 就在该高点出现后不久，美伊宣布了为期两周的停火协议。
+二、双方将继续发挥元首外交对双边关系的战略引领作用，全面贯彻落实两国元首达成的重要共识，商定继续通过会晤、通话、信函往来等形式保持两国高层密切交往。
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 07:02 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-30 07:04 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 07:23 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-30 07:23 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 07:13 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 07:28 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 07:11 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 07:29 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 07:24 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 07:03 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 07:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 07:04 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 07:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 07:07 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 07:34 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 07:10 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 07:29 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 07:35 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 07:33 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 07:12 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 07:34 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 07:34 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 07:33 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 07:13 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 07:23 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:16 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.minike.top/Article/details/624019.shtml)
-- 2026-06-30 07:15 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/208549033273.shtml)
-- 2026-06-30 07:14 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/709915650873.shtml)
-- 2026-06-30 07:21 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/06782176.shtml)
-- 2026-06-30 07:11 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/48887908.shtml)
-- 2026-06-30 07:25 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/4722897.shtml)
-- 2026-06-30 07:26 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/452964538.shtml)
-- 2026-06-30 07:00 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/1007424141.shtml)
-- 2026-06-30 07:23 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/426832825822.shtml)
-- 2026-06-30 07:05 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/4036149717.shtml)
-- 2026-06-30 07:01 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/557473615016.shtml)
-- 2026-06-30 07:19 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/86162585.shtml)
-- 2026-06-30 07:06 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.minike.top/Article/details/7717247153.shtml)
-- 2026-06-30 07:04 - [我和我的家乡](http://www.share.minike.top/Article/details/3795052.shtml)
-- 2026-06-30 07:15 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/31238492979.shtml)
+- 2026-06-30 07:08 - [三星投资计划](https://www.blog.minike.top/Article/details/99914244.shtml)
+- 2026-06-30 07:14 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/452281712834.shtml)
+- 2026-06-30 07:11 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/96379986828.shtml)
+- 2026-06-30 07:28 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/45202.shtml)
+- 2026-06-30 07:27 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/585374045.shtml)
+- 2026-06-30 07:22 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/39112.shtml)
+- 2026-06-30 07:11 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/1503492039.shtml)
+- 2026-06-30 07:19 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/45203609.shtml)
+- 2026-06-30 07:22 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/84061.shtml)
+- 2026-06-30 07:30 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/28581.shtml)
+- 2026-06-30 07:32 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/8129299.shtml)
+- 2026-06-30 07:21 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/83946.shtml)
+- 2026-06-30 07:21 - [美人鱼](http://www.share.kurohicncr.top/Article/details/035876729.shtml)
+- 2026-06-30 07:17 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/8344866.shtml)
+- 2026-06-30 07:12 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/631424246947.shtml)

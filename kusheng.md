@@ -1,59 +1,57 @@
-# 谷歌扩大与英特尔在AI芯片领域的合作
+# AI如何赋能基金投研？华泰柏瑞基金“一司一省一高校”走进百年南开
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-要点 谷歌已承诺在其人工智能数据中心采用多代英特尔中央处理器，这是对双方现有合作的进一步拓展。 这家互联网巨头长期依赖英特尔处理器，合作历史可追溯至近三十年前谷歌最初搭建服务器集群的阶段。英特尔最新的至强 6 CPU 现已可承载 AI 训练与推理工作负载，这有可能让这家芯片制造商在迄今由英伟达主导的人工智能市场中占据更有利的地位。 “英特尔的至强产品路线图让我们有信心，能够持续
+当AI从概念走向生产力，基金行业的“人机协同”时代已经到来。从海量信息的自动处理，到财报与纪要的智能摘要，再到行业数据的实时跟踪——人工智能正在悄然重塑基金投研的工作方式。未来的基金从业者应如何与AI共处？这也是广大学子的共同关切。 2026年5月21日，由中国证券投资基金业协会指导，华泰柏瑞基金联袂南开大学商学院等机构联合主办的“一司一省一高校”投教暨反诈防非专项活动正式走进
 
 ## 正文
 
-要点 谷歌已承诺在其人工智能数据中心采用多代英特尔中央处理器，这是对双方现有合作的进一步拓展。
+当AI从概念走向生产力，基金行业的“人机协同”时代已经到来。
 
-这家互联网巨头长期依赖英特尔处理器，合作历史可追溯至近三十年前谷歌最初搭建服务器集群的阶段。
+从海量信息的自动处理，到财报与纪要的智能摘要，再到行业数据的实时跟踪——人工智能正在悄然重塑基金投研的工作方式。
 
-英特尔最新的至强 6 CPU 现已可承载 AI 训练与推理工作负载，这有可能让这家芯片制造商在迄今由英伟达主导的人工智能市场中占据更有利的地位。
+未来的基金从业者应如何与AI共处？
 
-“英特尔的至强产品路线图让我们有信心，能够持续满足工作负载日益增长的性能与效率需求。
+这也是广大学子的共同关切。
 
-” 谷歌 AI 基础设施首席技术官阿明・瓦赫达特在周四的一份声明中表示。
+2026年5月21日，由中国证券投资基金业协会指导，华泰柏瑞基金联袂南开大学商学院等机构联合主办的“一司一省一高校”投教暨反诈防非专项活动正式走进百年南开。
 
-双方并未披露财务条款，也未提供协议的实施时间表。
+活动以“告白青春·投资未来”为主题，围绕AI如何赋能投资研究展开深度交流，以专业视角为青年学子带来前沿的AI赋能投研分享。
 
-该协议达成之际，中央处理器（CPU）正成为人工智能竞赛下一阶段的核心焦点。
+作为主动拥抱科技变革的先行者，华泰柏瑞基金正将AI深度融入投资研究的每一个环节。
 
-英伟达 AI 基础设施负责人迪昂・哈里斯今年 3 月向 CNBC 表示，随着智能体类工作负载将算力需求拓展到目前主导 AI 领域的图形处理器之外，CPU “正成为瓶颈”。
+活动当日，华泰柏瑞基金研究员曾懿之作为主讲嘉宾，以《人工智能如何赋能未来投资研究》为主题，向在场学子深入剖析了AI技术如何重塑传统投研范式，全面展示了人工智能在主动投研领域的落地实践。
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 07:29 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 07:11 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 07:07 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 07:22 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 07:22 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 07:03 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 07:20 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 07:28 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 07:10 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-30 07:01 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 07:10 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 07:00 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 07:31 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-30 07:23 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 07:12 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 07:27 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 07:13 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 07:06 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 07:30 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 07:29 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 07:24 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-30 07:21 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 07:16 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:02 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/595177.shtml)
-- 2026-06-30 07:08 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/770892469050.shtml)
-- 2026-06-30 07:04 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/01544.shtml)
-- 2026-06-30 07:23 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/25575953029.shtml)
-- 2026-06-30 07:29 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/537413208.shtml)
-- 2026-06-30 07:07 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/5393512673.shtml)
-- 2026-06-30 07:27 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/5816938389.shtml)
-- 2026-06-30 07:23 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/46850341.shtml)
-- 2026-06-30 07:28 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/8320626212.shtml)
-- 2026-06-30 07:05 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/439645.shtml)
-- 2026-06-30 07:24 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/5150320483.shtml)
-- 2026-06-30 07:20 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/83630.shtml)
-- 2026-06-30 07:08 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/15382581.shtml)
-- 2026-06-30 07:29 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/06295854.shtml)
-- 2026-06-30 07:26 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/364002.shtml)
+- 2026-06-30 07:09 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/898608168.shtml)
+- 2026-06-30 07:15 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/45698.shtml)
+- 2026-06-30 07:29 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/54618345584.shtml)
+- 2026-06-30 07:35 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/39666717.shtml)
+- 2026-06-30 07:32 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/72177.shtml)
+- 2026-06-30 07:19 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/183798842545.shtml)
+- 2026-06-30 07:28 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/210687305097.shtml)
+- 2026-06-30 07:21 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/160143901306.shtml)
+- 2026-06-30 07:09 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/83333663.shtml)
+- 2026-06-30 07:15 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/312042110505.shtml)
+- 2026-06-30 07:13 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/2975382.shtml)
+- 2026-06-30 07:20 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/721456.shtml)
+- 2026-06-30 07:13 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/007575163234.shtml)
+- 2026-06-30 07:22 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/478118978808.shtml)
+- 2026-06-30 07:12 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/182061.shtml)

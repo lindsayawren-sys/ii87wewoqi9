@@ -1,58 +1,61 @@
-# 十几万娶的“外籍新娘”全跑路 揭秘跨境骗婚黑色产业链
+# 哈萨克斯坦首个“人工智能”电影节启动全球征片
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-十几万就能娶越南、缅甸“温柔新娘”？这样的违规广告吸引了一些单身人士的目光。但广告的背后，根本不是相亲，而是组织偷渡加连环骗婚的黑色产业链。国家移民管理局、公安部、中国海警局自2022年起联合开展“獴猎”行动，严打组织偷渡、伪造证件、跨境电诈、涉外婚骗等违法犯罪，已侦办数万起案件、抓获数万名嫌疑人。近日，山东边检总站与湖南省冷水江市公安局公布，两地警方联合办案，凭一条可疑网帖，
+中新社阿斯塔纳5月25日电 (记者 单璐)哈萨克斯坦首个以人工智能为主题的国际电影节——阿斯塔纳人工智能电影节将于9月28日至10月1日在阿斯塔纳举行。电影节主办方25日在阿斯塔纳举行新闻发布会，宣布即日起面向全球创作者征集由人工智能生成的短片。 据主办方介绍，本届电影节设有主竞赛单元和开放竞赛单元。主竞赛单元以“值得生活的未来”(The Future Worth Living
 
 ## 正文
 
-十几万就能娶越南、缅甸“温柔新娘”？
+中新社阿斯塔纳5月25日电 (记者 单璐)哈萨克斯坦首个以人工智能为主题的国际电影节——阿斯塔纳人工智能电影节将于9月28日至10月1日在阿斯塔纳举行。
 
-这样的违规广告吸引了一些单身人士的目光。
+电影节主办方25日在阿斯塔纳举行新闻发布会，宣布即日起面向全球创作者征集由人工智能生成的短片。
 
-但广告的背后，根本不是相亲，而是组织偷渡加连环骗婚的黑色产业链。
+据主办方介绍，本届电影节设有主竞赛单元和开放竞赛单元。
 
-国家移民管理局、公安部、中国海警局自2022年起联合开展“獴猎”行动，严打组织偷渡、伪造证件、跨境电诈、涉外婚骗等违法犯罪，已侦办数万起案件、抓获数万名嫌疑人。
+主竞赛单元以“值得生活的未来”(The Future Worth Living In)为主题，开放竞赛单元设置最佳导演、最佳视觉语言、最佳故事、最佳创意概念、最佳人物塑造五个奖项。
 
-近日，山东边检总站与湖南省冷水江市公安局公布，两地警方联合办案，凭一条可疑网帖，牵出一桩特大跨境婚骗案。
+电影节总奖金池为100万美元。
 
-一条可疑网帖牵出特大跨境婚骗案 2025年2月，山东边检总站石岛边检站民警在日常网络巡查时，一条高频刷屏的违规广告，瞬间触发预警。
+据介绍，参赛作品须为时长不超过10分钟的人工智能生成短片，人工智能应作为影片核心制作方式，而非仅用于后期增强。
 
-有人长期公开揽客，专业介绍越南、缅甸美女入境结婚生子。
+个人创作者和团队均可报名，申请截至8月15日。
 
-话术极具诱惑，专门瞄准单身男性。
+电影节团队和国际专家将选出25部入围作品，最终获奖作品由国际评审团评定。
 
 ## 相关推荐
 
-- 2026-06-30 07:25 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-30 07:29 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 07:19 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 07:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 07:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 07:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 07:06 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 07:08 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 07:15 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 07:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 07:08 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 07:28 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-30 07:29 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 07:33 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 07:29 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 07:15 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-30 07:32 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 07:13 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 07:11 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 07:35 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 07:21 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 07:31 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 07:34 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 07:35 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 07:34 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 07:19 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 07:13 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:08 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/9398536716.shtml)
-- 2026-06-30 07:08 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/06685.shtml)
-- 2026-06-30 07:08 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/14308003030.shtml)
-- 2026-06-30 07:09 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/99192599.shtml)
-- 2026-06-30 07:22 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/79073459.shtml)
-- 2026-06-30 07:14 - [爱很美味](https://www.share.kurohicncr.top/Article/details/91132.shtml)
-- 2026-06-30 07:18 - [小娘惹](http://www.blog.minike.top/Article/details/128863284.shtml)
-- 2026-06-30 07:14 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/348077109755.shtml)
-- 2026-06-30 07:21 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/000616738035.shtml)
-- 2026-06-30 07:02 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/03247398421.shtml)
-- 2026-06-30 07:00 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/431669.shtml)
-- 2026-06-30 07:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/71704.shtml)
-- 2026-06-30 07:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/946404316.shtml)
-- 2026-06-30 07:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/27955491.shtml)
-- 2026-06-30 07:18 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/01637917837.shtml)
+- 2026-06-30 07:12 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/698407032.shtml)
+- 2026-06-30 07:35 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/47864.shtml)
+- 2026-06-30 07:22 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/19207157.shtml)
+- 2026-06-30 07:24 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/493429090.shtml)
+- 2026-06-30 07:20 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/002778184437.shtml)
+- 2026-06-30 07:17 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/687442518.shtml)
+- 2026-06-30 07:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/050272.shtml)
+- 2026-06-30 07:09 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/322915048262.shtml)
+- 2026-06-30 07:11 - [巴西绝杀日本](http://www.share.minike.top/Article/details/405518.shtml)
+- 2026-06-30 07:27 - [极限挑战第一季](http://www.share.minike.top/Article/details/92995375.shtml)
+- 2026-06-30 07:14 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/13241804823.shtml)
+- 2026-06-30 07:15 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/386394.shtml)
+- 2026-06-30 07:06 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/7541671767.shtml)
+- 2026-06-30 07:15 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/31786951258.shtml)
+- 2026-06-30 07:20 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/776585.shtml)

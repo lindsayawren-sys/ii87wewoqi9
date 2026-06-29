@@ -1,57 +1,49 @@
-# 000586：公司没有算力数据中心相关业务！地缘冲突扰动供应链，铝价持续飙升
+# 日本政府据悉倾向于将食品饮料消费税税率降至1%
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！申万铝指数再度大涨。 5连板牛股盘后发布公告 今日（4月9日）盘后，5连板牛股汇源通信（000586）发布股票交易异常波动公告。 公告显示，公司主营电力光缆、电力系统在线监测装置、塑料光纤等，没有石英光纤预制棒及石英光纤制造产能，电力光缆生产所需石英光纤均需外购。其中：电力光缆是应用于电力市场的配套光缆；塑
+据报道，关于为期两年的食品饮料消费税减税问题，日本政府倾向于降至1%而不是零。 日本首相高市早苗最早可能在6月下旬作出最终决定。 据报道，将消费税下调至1%，相较执政党此前承诺考虑降至零，收银系统所需调整的时间可缩短一半。责任编辑：于健 SF069
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+据报道，关于为期两年的食品饮料消费税减税问题，日本政府倾向于降至1%而不是零。
 
-申万铝指数再度大涨。
+日本首相高市早苗最早可能在6月下旬作出最终决定。
 
-5连板牛股盘后发布公告 今日（4月9日）盘后，5连板牛股汇源通信（000586）发布股票交易异常波动公告。
+据报道，将消费税下调至1%，相较执政党此前承诺考虑降至零，收银系统所需调整的时间可缩短一半。
 
-公告显示，公司主营电力光缆、电力系统在线监测装置、塑料光纤等，没有石英光纤预制棒及石英光纤制造产能，电力光缆生产所需石英光纤均需外购。
-
-其中：电力光缆是应用于电力市场的配套光缆；塑料光纤系列主要用于装饰照明、工业控制、电力设备、消费电子等领域，而与塑料光纤通信配套用的工控光器件产品（速度在100兆以内）主要用于自动化生产线的传感器单元、高压变频器的控制信号传输等方面（非应用数据中心及AI算力等所需高速光模块）。
-
-公司注意到，近期市场对光纤产品供需结构改善及算力数据中心相关光纤光缆、光模块产品关注度较高。
-
-公司目前不存在前述领域业务、在手订单及技术储备。
-
-2025年，公司预计实现归母净利润为亏损300万元至150万元，同比减亏67.89%至83.94%。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 07:18 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 07:26 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 07:09 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 07:23 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 07:06 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 07:17 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 07:25 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 07:04 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 07:03 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 07:23 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 07:02 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 07:23 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 07:12 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 07:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 07:10 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-30 07:29 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 07:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 07:18 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 07:07 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 07:28 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 07:18 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 07:24 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:29 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/08004.shtml)
-- 2026-06-30 07:14 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/9313449008.shtml)
-- 2026-06-30 07:26 - [时光音乐会](https://www.blog.minike.top/Article/details/823761242111.shtml)
-- 2026-06-30 07:27 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/700424525.shtml)
-- 2026-06-30 07:04 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/479288837.shtml)
-- 2026-06-30 07:07 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/29847.shtml)
-- 2026-06-30 07:28 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/257570.shtml)
-- 2026-06-30 07:29 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/31354.shtml)
-- 2026-06-30 07:20 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/284601380926.shtml)
-- 2026-06-30 07:01 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/4833267.shtml)
-- 2026-06-30 07:03 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/605289567321.shtml)
-- 2026-06-30 07:24 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/38176530540.shtml)
-- 2026-06-30 07:00 - [明星大侦探第一季](http://www.share.minike.top/Article/details/218896753.shtml)
-- 2026-06-30 07:26 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/955832682769.shtml)
-- 2026-06-30 07:06 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/42459.shtml)
+- 2026-06-30 07:14 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/11696289797.shtml)
+- 2026-06-30 07:28 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/73716369337.shtml)
+- 2026-06-30 07:32 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/73114628.shtml)
+- 2026-06-30 07:24 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/03012420.shtml)
+- 2026-06-30 07:30 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/489482.shtml)
+- 2026-06-30 07:30 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/6425281042.shtml)
+- 2026-06-30 07:32 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/6467358212.shtml)
+- 2026-06-30 07:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/2967498.shtml)
+- 2026-06-30 07:15 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/690045.shtml)
+- 2026-06-30 07:08 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/23392162.shtml)
+- 2026-06-30 07:24 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/670237709547.shtml)
+- 2026-06-30 07:33 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/74232822.shtml)
+- 2026-06-30 07:30 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/75074673238.shtml)
+- 2026-06-30 07:08 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/981009923804.shtml)
+- 2026-06-30 07:12 - [斗破苍穹](https://www.share.minike.top/Article/details/054317217782.shtml)

@@ -1,59 +1,60 @@
-# 中资券商国际子公司合计总资产同比增长32%
+# 国家医保局曝光4起定点医疗机构违反医保协议典型案例
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本报记者 周尚伃 国际化不仅是建设一流投行的必由之路，更是券商突破增长瓶颈、实现高质量进阶的核心引擎。2025年，中资券商国际化布局步入收获期，呈现“质效双升”态势。中证协最新数据显示，34家中资券商国际子公司总资产合计达1.94万亿港元，营业收入452.33亿港元；港股IPO保荐承销市占率突破90%……头
+中新网5月25日电 据“国家医保局”微信公众号消息，国家医疗保障局选取了4起定点医疗机构违反医保协议的典型案例曝光，涉及医疗机构车接车送、减免费用，医务人员篡改病历、不规范操作、低标入院等损害医保基金行为，不仅造成了医保基金损失，也破坏了定点医疗机构的形象，在社会上产生了不良影响。广大定点医疗机构需严格遵守《医疗保障基金使用监督管理条例》《社会保险经办条例》《医疗机构医疗保障定
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网5月25日电 据“国家医保局”微信公众号消息，国家医疗保障局选取了4起定点医疗机构违反医保协议的典型案例曝光，涉及医疗机构车接车送、减免费用，医务人员篡改病历、不规范操作、低标入院等损害医保基金行为，不仅造成了医保基金损失，也破坏了定点医疗机构的形象，在社会上产生了不良影响。
 
-本报记者 周尚伃 国际化不仅是建设一流投行的必由之路，更是券商突破增长瓶颈、实现高质量进阶的核心引擎。
+广大定点医疗机构需严格遵守《医疗保障基金使用监督管理条例》《社会保险经办条例》《医疗机构医疗保障定点管理暂行办法》，以及当地医保服务协议，建立健全内部管理制度，完善岗位职责、风险防控和责任追究等相关制度，坚决杜绝违法违规违约行为，切实守护好人民群众的“看病钱”和“救命钱”。
 
-2025年，中资券商国际化布局步入收获期，呈现“质效双升”态势。
+一、陕西省西安市周至丰融医院违反医保服务协议，违规使用医保基金案例 2025年12月，陕西省西安市医保部门在对陕西省西安市周至丰融医院问题线索核查中发现，该院存在车接车送、医务人员提成、利益返还等问题。
 
-中证协最新数据显示，34家中资券商国际子公司总资产合计达1.94万亿港元，营业收入452.33亿港元；港股IPO保荐承销市占率突破90%……头部券商国际业务收入占比稳步向三成迈进，国际化已从前期战略布局，转化为实打实的业绩增量与核心竞争力。
+该院员工工资单有患者介绍费，财务凭证中有大量运输费、汽油费报销票据，患者自费费用以欠条形式记账，长期不收回欠款，且监控视频中有向住院患者返还现金的情况。
 
-盘古智库（北京）信息咨询有限公司高级研究员江瀚在接受《证券日报》记者采访时表示：“随着国内资本市场费率改革的深化，传统通道业务利润空间持续收窄，倒逼券商必须寻找新的增长极。
+此外，该院还存在医务人员不规范操作，重复使用相同B超图像生成检查报告问题；重复上传相同DR检查费用；部分病历书写不规范，无病程记录、医嘱、治疗单等；进销存管理混乱；超数量上传结算费用等问题。
 
-国际业务不再仅仅是规模的堆砌，而是从单纯的牌照红利转向专业红利，这符合经济学中从粗放型增长向集约型增长转型的必然逻辑。
+依据《西安市定点医疗机构医疗保障服务协议》，当地医保部门处理结果如下：1.解除该院定点医保服务协议；2.约谈该院有关负责人，责令该院退回违法违规使用医保基金106.11万元，并收取违约金29.16万元，合计135.27万元；3.相关责任人医保支付资格记6分；4.将问题线索移交西安市纪检、公安、卫健、市场监管等部门进行联合查处。
 
-” 夯实企业“出海”主阵地 在全球资产再平衡的背景下，无论是“中国投资”还是“投资中国”，都需要兼具国际市场经验、资源整合能力的专业金融机构保驾护航，这对中资券商国际业务服务能力提出更高要求。
+目前，违规资金和违约金135.27万元已全部追回。
 
-《证券日报》记者梳理2025年上市券商年报发现，中资券商以跨境投行、互联互通、全球综合服务为核心抓手，深度嵌入资本市场双向开放体系，在服务实体经济跨境发展、引导全球资金配置中国资产中发挥关键桥梁作用，资产规模、营收水平与市场竞争力同步提升，国际化发展成色持续加深。
+二、山东省菏泽市郓城夕阳红医院违反医保服务协议，违规使用医保基金案例 2025年12月，山东省菏泽市医保部门在对山东省菏泽市郓城夕阳红医院问题线索核查中，发现该院存在伪造篡改病历、虚构诊疗项目等违法违规使用医保基金行为。
 
 ## 相关推荐
 
-- 2026-06-30 07:10 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-30 07:11 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 07:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 07:14 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 07:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 07:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-30 07:07 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 07:25 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-30 07:05 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 07:15 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 07:16 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 07:14 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 07:28 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 07:20 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 07:23 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 07:25 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 07:21 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 07:12 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 07:08 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 07:11 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 07:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 07:29 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 07:34 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 07:11 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-30 07:16 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 07:25 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 07:18 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:19 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/46267.shtml)
-- 2026-06-30 07:04 - [孙兴慜道歉](http://www.share.minike.top/Article/details/655224.shtml)
-- 2026-06-30 07:26 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/33680.shtml)
-- 2026-06-30 07:27 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/97503.shtml)
-- 2026-06-30 07:29 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/3813358894.shtml)
-- 2026-06-30 07:29 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/4926391762.shtml)
-- 2026-06-30 07:06 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/29121.shtml)
-- 2026-06-30 07:17 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/08396.shtml)
-- 2026-06-30 07:13 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/857484035930.shtml)
-- 2026-06-30 07:14 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/917714.shtml)
-- 2026-06-30 07:14 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/345702.shtml)
-- 2026-06-30 07:28 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/632439.shtml)
-- 2026-06-30 07:11 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/371634357260.shtml)
-- 2026-06-30 07:04 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/53330.shtml)
-- 2026-06-30 07:19 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/1274904971.shtml)
+- 2026-06-30 07:28 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/857686.shtml)
+- 2026-06-30 07:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/764598611.shtml)
+- 2026-06-30 07:08 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/68447.shtml)
+- 2026-06-30 07:26 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/5818040404.shtml)
+- 2026-06-30 07:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/60492947344.shtml)
+- 2026-06-30 07:25 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/2952859183.shtml)
+- 2026-06-30 07:09 - [日本反击率先破门](https://www.share.minike.top/Article/details/64832303.shtml)
+- 2026-06-30 07:20 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/770744016572.shtml)
+- 2026-06-30 07:08 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/52012891712.shtml)
+- 2026-06-30 07:09 - [明星大侦探第四季](http://www.share.minike.top/Article/details/5544966991.shtml)
+- 2026-06-30 07:27 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/374781603473.shtml)
+- 2026-06-30 07:22 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/049239840.shtml)
+- 2026-06-30 07:34 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/678242.shtml)
+- 2026-06-30 07:20 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/0395039734.shtml)
+- 2026-06-30 07:29 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/979067795.shtml)

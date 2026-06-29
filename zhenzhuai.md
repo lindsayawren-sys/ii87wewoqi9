@@ -1,57 +1,60 @@
-# 五部门联合公布《人工智能拟人化互动服务管理暂行办法》
+# “民营企业进边疆·辽宁行”文旅体商推介会在辽宁丹东启幕
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电 据“网信中国”微信公众号消息，4月10日，国家网信办、国家发展改革委、工业和信息化部、公安部、市场监管总局联合公布《人工智能拟人化互动服务管理暂行办法》(以下简称《办法》)，自2026年7月15日起施行。国家网信办有关负责人表示，《办法》旨在促进人工智能拟人化互动服务(以下简称拟人化互动服务)健康发展和规范应用，维护国家安全和社会公共利益，保护公民、法人和其
+中新网丹东5月25日电 (杨茜茜) “民营企业进边疆·辽宁行”文旅体商产业融合发展推介会25日在辽宁丹东举办，来自全国的文旅行业头部企业、政企及媒体代表160余人齐聚鸭绿江畔，搭建招商引资平台，共商边境文旅融合发展大计。 本次活动是“民营企业进边疆·辽宁行”三大平行分会场之一，由辽宁省文化和旅游厅、丹东市人民政府共同主办，得到全国工商联旅游业商会大力支持。活动打破地域边界，整合
 
 ## 正文
 
-中新网4月10日电 据“网信中国”微信公众号消息，4月10日，国家网信办、国家发展改革委、工业和信息化部、公安部、市场监管总局联合公布《人工智能拟人化互动服务管理暂行办法》(以下简称《办法》)，自2026年7月15日起施行。
+中新网丹东5月25日电 (杨茜茜) “民营企业进边疆·辽宁行”文旅体商产业融合发展推介会25日在辽宁丹东举办，来自全国的文旅行业头部企业、政企及媒体代表160余人齐聚鸭绿江畔，搭建招商引资平台，共商边境文旅融合发展大计。
 
-国家网信办有关负责人表示，《办法》旨在促进人工智能拟人化互动服务(以下简称拟人化互动服务)健康发展和规范应用，维护国家安全和社会公共利益，保护公民、法人和其他组织的合法权益。
+本次活动是“民营企业进边疆·辽宁行”三大平行分会场之一，由辽宁省文化和旅游厅、丹东市人民政府共同主办，得到全国工商联旅游业商会大力支持。
 
-近年来，拟人化互动服务快速发展，在文化传播、适幼照护、适老陪伴等领域的创新应用不断涌现。
+活动打破地域边界，整合沈阳、大连、丹东三地优质文旅资源，构建“文化为魂、旅游为体、体育为媒、商业为脉”的融合发展体系。
 
-与此同时，危害未成年人身心健康、影响网络信息安全、威胁公民生命健康以及加剧伦理偏差等问题日益显现。
+会前，三地特色业态市集率先亮相，非遗手作、红色文创、柞蚕丝制品及丹东草莓、蓝莓等特色农产品集中展出，让嘉宾沉浸式感受辽宁多元文旅魅力。
 
-出台《办法》，既是促进拟人化互动服务健康发展的重要要求，也是防范有关安全风险的现实需要。
+暖场演出中，《请到丹东来》与《阿里郎与茉莉花》交相辉映，尽显边境城市的民族文化风情。
 
-《办法》践行以人为本、智能向善的理念，明确国家坚持发展和安全并重、促进创新和依法治理相结合的原则，鼓励拟人化互动服务创新发展，对拟人化互动服务实行包容审慎和分类分级监管；提出拟人化互动服务促进措施，明确支持技术研发创新，鼓励有序拓展文化传播、适老陪伴等相关领域应用；规定提供拟人化互动服务的基本要求，明确不得从事生成危害国家安全、荣誉和利益，煽动颠覆国家政权、推翻社会主义制度等内容的活动，规定拟人化互动服务提供者的安全管理义务；完善网络用户权益保护制度，规定拟人化互动服务提供者的未成年人、老年人权益保护和个人信息保护等义务。
+推介会上，沈阳、大连、丹东三地依次发布重点招商项目。
 
-此外，《办法》还规定了安全评估、算法备案、指导推动人工智能沙箱安全服务平台建设等制度。
+沈阳市推出工业博物馆片区、辽传AI视听产业园等项目；大连市聚焦海洋文旅，推介国际邮轮中心、梭鱼湾游艇经济产业先行示范区；丹东市则围绕边境文脉、温泉康养、生态休闲三大主题，集中推出凤凰山北入口服务区等6个核心项目及22个优质文旅项目。
 
-国家网信办有关负责人表示，拟人化互动服务的发展与治理需要政府、企业、社会、网民等多方参与，共同维护良好网络生态，促进人工智能向上向善。
+三地企业代表还分享了四季景区运营、游艇经济打造、红色IP开发等实战经验。
 
 ## 相关推荐
 
-- 2026-06-30 07:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 07:06 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 07:14 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 07:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 07:01 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 07:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-30 07:25 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 07:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 07:16 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-30 07:18 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 07:14 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 07:32 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 07:16 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 07:33 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 07:32 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 07:18 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 07:32 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 07:19 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 07:06 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 07:26 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-30 07:19 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 07:29 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 07:22 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 07:20 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 07:11 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:14 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/885612.shtml)
-- 2026-06-30 07:25 - [全球芯片巨头史诗级扩产](https://www.share.kurohicncr.top/Article/details/976076692965.shtml)
-- 2026-06-30 07:19 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/75607.shtml)
-- 2026-06-30 07:10 - [请回答王牌2019](https://www.share.minike.top/Article/details/8135443729.shtml)
-- 2026-06-30 07:25 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/539364539.shtml)
-- 2026-06-30 07:26 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/3487587121.shtml)
-- 2026-06-30 07:07 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/229936970.shtml)
-- 2026-06-30 07:18 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/57021.shtml)
-- 2026-06-30 07:20 - [蔚来车主罚站](https://www.share.minike.top/Article/details/12437141.shtml)
-- 2026-06-30 07:15 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/510262960860.shtml)
-- 2026-06-30 07:26 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/80972996863.shtml)
-- 2026-06-30 07:15 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/330874.shtml)
-- 2026-06-30 07:27 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/1553254.shtml)
-- 2026-06-30 07:00 - [索马里女大使：想和中国一起搞事业](https://www.share.kurohicncr.top/Article/details/53065.shtml)
-- 2026-06-30 07:08 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/92031028606.shtml)
+- 2026-06-30 07:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/318420.shtml)
+- 2026-06-30 07:14 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/893706.shtml)
+- 2026-06-30 07:31 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/662243.shtml)
+- 2026-06-30 07:30 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/360526148972.shtml)
+- 2026-06-30 07:23 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/45108655135.shtml)
+- 2026-06-30 07:22 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/60149206.shtml)
+- 2026-06-30 07:27 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/883507.shtml)
+- 2026-06-30 07:15 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/0998831.shtml)
+- 2026-06-30 07:21 - [森保一致歉：世界第一目标没能实现](https://www.share.kurohicncr.top/Article/details/345677265707.shtml)
+- 2026-06-30 07:26 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/79181.shtml)
+- 2026-06-30 07:36 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/286987616.shtml)
+- 2026-06-30 07:07 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/25107770562.shtml)
+- 2026-06-30 07:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/589313.shtml)
+- 2026-06-30 07:19 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/9104665.shtml)
+- 2026-06-30 07:30 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/211524542.shtml)

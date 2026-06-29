@@ -1,56 +1,57 @@
-# 广东计划5年内为200万名女职工提供“两癌”免费筛查服务
+# 最高法发布防范和惩治家庭内部侵害未成年人合法权益典型案例
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新网广州4月10日电 (记者 张璐)广东省总工会第八届女职工委员会9日正式发布未来五年工作蓝图。 据悉，广东工会将积极参与女职工权益相关法律法规的修订，持续推动《广东省实施〈女职工劳动保护特别规定〉办法》等地方性法规的落地见效与评估监督。针对新就业形态女性劳动者、女农民工等群体，加强专项集体合同签订与履约监督，推广应用“一函两书”制度，探索参与女职工权益保障公益诉讼。 在婚育
+中新网5月26日电 据最高人民法院微信公众号消息，家庭是爱的港湾，是未成年人健康成长的“第一课堂”，更是守护未成年人合法权益的“第一防线”。但从司法实践来看，部分家庭监护缺位、防线失守：有的监护人逃避法定抚养义务，有的监护人错误、偏执地将虐待未成年人当作“为孩子好”，有的在婚姻关系变动后纵容甚至参与侵害，让家庭沦为未成年人的“伤心地”，严重侵犯未成年人权益，逾越法律与道德底线。
 
 ## 正文
 
-中新网广州4月10日电 (记者 张璐)广东省总工会第八届女职工委员会9日正式发布未来五年工作蓝图。
+中新网5月26日电 据最高人民法院微信公众号消息，家庭是爱的港湾，是未成年人健康成长的“第一课堂”，更是守护未成年人合法权益的“第一防线”。
 
-据悉，广东工会将积极参与女职工权益相关法律法规的修订，持续推动《广东省实施〈女职工劳动保护特别规定〉办法》等地方性法规的落地见效与评估监督。
+但从司法实践来看，部分家庭监护缺位、防线失守：有的监护人逃避法定抚养义务，有的监护人错误、偏执地将虐待未成年人当作“为孩子好”，有的在婚姻关系变动后纵容甚至参与侵害，让家庭沦为未成年人的“伤心地”，严重侵犯未成年人权益，逾越法律与道德底线。
 
-针对新就业形态女性劳动者、女农民工等群体，加强专项集体合同签订与履约监督，推广应用“一函两书”制度，探索参与女职工权益保障公益诉讼。
+为充分发挥司法裁判规范、评价、教育、引领作用，推动家庭保护关口前移，督促监护人履职尽责，最高人民法院选取六件典型案例予以发布。
 
-在婚育支持方面，广东工会积极打造“会聚良缘”婚恋服务品牌，建设全省职工线上交友平台“粤会吧”；示范性开展青年职工集体婚礼活动，构建全省工会线上线下联动的婚恋服务体系，提高工会婚恋服务质效。
+本批案例具有如下几个特点：一、压实法定监护责任，督促监护人履职尽责 父母对未成年子女的抚养、教育和保护，是不容懈怠、不可放弃的法定义务。
 
-在生育保障方面，广东工会计划五年内新建省级“工会爱心妈妈小屋”350家，为200万名包括困难企业女职工、新就业形态女性劳动者和女农民工在内的女职工提供免费“两癌”筛查，推动200万名女职工参保安康互助保障。
+本次发布的案例中，对离婚后非必要处分个人财产影响对未成年子女法定抚养义务履行，又以收入降低为由主张减免抚养费的，人民法院依法驳回诉求，筑牢未成年人抚养保障底线。
 
-在托育服务方面，广东工会探索多种方式推动用人单位开展福利性托育服务，规范发展工会爱心托管班，推动5年内建设工会爱心托管班1万个，省级工会爱心托管班300个。
+对离婚后直接抚养未成年子女的一方明知再婚配偶对子女实施家暴却放任不管的，法院依法支持变更抚养关系；对监护人放任同居人员虐待未成年子女情节恶劣的，人民法院以虐待罪定罪判刑，倒逼监护人履职尽责，杜绝“不作为”式伤害。
 
-同时，加强女职工心理健康服务与家庭友好型工作场所建设。
+人民法院通过司法裁判明确，监护权既是权利更是责任，任何逃避责任的失职行为，都将受到法律的规制与惩处，以此从源头防范家庭内部侵害未成年人行为。
 
-未来五年，广东工会计划建设女职工创新工作室1000个，其中省级工作室150个，并搭建创新成果展示平台，推动群众性创新活动。
+二、从严惩处虐待残害未成年人犯罪行为，全力守护未成年人健康安全 虐待未成年人绝非“家务事”，而是触碰法律红线、践踏人伦底线的违法犯罪。
 
 ## 相关推荐
 
-- 2026-06-30 07:07 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 07:12 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-30 07:15 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 07:23 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 07:19 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 07:04 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 07:04 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 07:21 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 07:17 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 07:21 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 07:35 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 07:06 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 07:34 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 07:06 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 07:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 07:23 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 07:27 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 07:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 07:13 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 07:28 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 07:06 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:20 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/608667.shtml)
-- 2026-06-30 07:02 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/409204.shtml)
-- 2026-06-30 07:06 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/776026200.shtml)
-- 2026-06-30 07:02 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/06029.shtml)
-- 2026-06-30 07:15 - [日本反击率先破门](http://www.blog.minike.top/Article/details/688525006.shtml)
-- 2026-06-30 07:20 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/884330720.shtml)
-- 2026-06-30 07:11 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/8560870.shtml)
-- 2026-06-30 07:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/098189191.shtml)
-- 2026-06-30 07:18 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/626647.shtml)
-- 2026-06-30 07:22 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/8859520.shtml)
-- 2026-06-30 07:21 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/12693152839.shtml)
-- 2026-06-30 07:11 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/419177083181.shtml)
-- 2026-06-30 07:19 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/78928.shtml)
-- 2026-06-30 07:23 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/01178543741.shtml)
-- 2026-06-30 07:25 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/555457.shtml)
+- 2026-06-30 07:06 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/3214923.shtml)
+- 2026-06-30 07:34 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/78086220.shtml)
+- 2026-06-30 07:08 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/23149814.shtml)
+- 2026-06-30 07:32 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/5559363.shtml)
+- 2026-06-30 07:20 - [巴西绝杀日本](https://www.share.minike.top/Article/details/901481070726.shtml)
+- 2026-06-30 07:19 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/266275893374.shtml)
+- 2026-06-30 07:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/178733517.shtml)
+- 2026-06-30 07:23 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/22843628439.shtml)
+- 2026-06-30 07:12 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/70055171169.shtml)
+- 2026-06-30 07:32 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/2140928153.shtml)
+- 2026-06-30 07:16 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/99093605.shtml)
+- 2026-06-30 07:35 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/04885266.shtml)
+- 2026-06-30 07:28 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/949564357646.shtml)
+- 2026-06-30 07:25 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/05797301626.shtml)
+- 2026-06-30 07:33 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/7078826.shtml)

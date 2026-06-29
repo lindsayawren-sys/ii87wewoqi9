@@ -1,59 +1,59 @@
-# 三年累亏超30亿，清陶能源冲击固态电池港股第一股
+# 第三届中国经贸论坛在剑桥大学举行
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-界面新闻实习记者 | 彭天美 又一固态电池企业向资本市场发起冲击。 4月8日，清陶（昆山）能源发展集团股份有限公司（下称清陶能源）正式向港交所递交招股书，联席保荐人为国泰君安、中金公司和招商证券，拟冲刺固态电池港股第一股。 这是一家从诞生之日起就备受瞩目的企业。2016年，清华大学材料学院两位博士冯玉川、李峥，将导师南策文院士团队的固态电解质研究成果推向产业化，注册清陶能源。目
+中新网伦敦5月26日电 (欧阳开宇 卢映荷)围绕“中国企业出海、人工智能、金融科技”等前沿领域话题，第三届中国经贸论坛日前在剑桥大学嘉治商学院举行。 近年来中国企业出海英国成果斐然。奇瑞的一款混合动力车在登陆英国一年左右的时间，已经成为英国汽车月度销售冠军；比亚迪已经成为英国市场电动车的最大品牌，位居今年前4个月电动车销量榜首。在车企之外，京东英国线上零售平台已经正式推出，与亚
 
 ## 正文
 
-界面新闻实习记者 | 彭天美 又一固态电池企业向资本市场发起冲击。
+中新网伦敦5月26日电 (欧阳开宇 卢映荷)围绕“中国企业出海、人工智能、金融科技”等前沿领域话题，第三届中国经贸论坛日前在剑桥大学嘉治商学院举行。
 
-4月8日，清陶（昆山）能源发展集团股份有限公司（下称清陶能源）正式向港交所递交招股书，联席保荐人为国泰君安、中金公司和招商证券，拟冲刺固态电池港股第一股。
+近年来中国企业出海英国成果斐然。
 
-这是一家从诞生之日起就备受瞩目的企业。
+奇瑞的一款混合动力车在登陆英国一年左右的时间，已经成为英国汽车月度销售冠军；比亚迪已经成为英国市场电动车的最大品牌，位居今年前4个月电动车销量榜首。
 
-2016年，清华大学材料学院两位博士冯玉川、李峥，将导师南策文院士团队的固态电解质研究成果推向产业化，注册清陶能源。
+在车企之外，京东英国线上零售平台已经正式推出，与亚马逊等外国传统零售平台开始正式竞争。
 
-目前，冯玉川等四位创始人作为一致行动人合计持股37%，为控股股东。
+在此次剑桥中国经贸论坛上，来自比亚迪、小米、奇瑞、京东的欧洲高管，分享了中国企业出海的宝贵经验。
 
-官网资料显示，清陶能源已率先实现了固态电池的产业化，建有固态动力锂电池规模化量产线，现已申请国家专利1800多项，其中发明专利超800项，获得授权的有1000多项。
+比亚迪欧洲汽车销售事业部市场与公共关系总监彭莹莹结合比亚迪在欧洲的出海经验指出，中国企业出海需要坚持长期战略，不能图快和追求短期速成。
 
-相较于传统的液态锂电池，固态电池放弃了易燃易爆的液态电解质，采用固态电解质材料，有望在能量密度、安全和寿命等方面取得显著进步，被视为锂电池终极技术。
+“我们来这里不仅是为了卖产品，更是为了树立能与本地消费者建立真正情感连接与信任的品牌。
 
-2020年8月，清陶能源完成E++轮融资，2021年完成F++轮融资，投资方主要包括上汽集团、北汽产投、广汽资本、中银投、峰瑞资本等。
+我们必须时刻思考如何实现本土化，并为当地社区做出贡献。
 
 ## 相关推荐
 
-- 2026-06-30 07:02 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 07:01 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 07:01 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 07:25 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 07:17 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 07:12 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 07:02 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 07:19 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 07:13 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 07:16 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 07:17 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 07:26 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 07:15 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 07:22 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 07:30 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 07:21 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 07:12 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 07:12 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 07:32 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 07:35 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 07:29 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 07:29 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 07:15 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 07:31 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 07:24 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 07:31 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:23 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/02219426357.shtml)
-- 2026-06-30 07:02 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/9198921464.shtml)
-- 2026-06-30 07:01 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/657058.shtml)
-- 2026-06-30 07:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/172088598.shtml)
-- 2026-06-30 07:24 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/757939512269.shtml)
-- 2026-06-30 07:22 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/87708359976.shtml)
-- 2026-06-30 07:09 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/7425372584.shtml)
-- 2026-06-30 07:09 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/436421551823.shtml)
-- 2026-06-30 07:13 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/1001355516.shtml)
-- 2026-06-30 07:07 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/3698531399.shtml)
-- 2026-06-30 07:06 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/6624984.shtml)
-- 2026-06-30 07:26 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/239933075774.shtml)
-- 2026-06-30 07:27 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/93227.shtml)
-- 2026-06-30 07:25 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/4943769.shtml)
-- 2026-06-30 07:12 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/545730134.shtml)
+- 2026-06-30 07:18 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/569585043276.shtml)
+- 2026-06-30 07:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/309381167.shtml)
+- 2026-06-30 07:21 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/91505.shtml)
+- 2026-06-30 07:08 - [逃狱兄弟](https://www.blog.minike.top/Article/details/6096089.shtml)
+- 2026-06-30 07:16 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/9240142508.shtml)
+- 2026-06-30 07:25 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/77488972740.shtml)
+- 2026-06-30 07:28 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/12350.shtml)
+- 2026-06-30 07:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/810263291237.shtml)
+- 2026-06-30 07:15 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/57669744.shtml)
+- 2026-06-30 07:33 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/227880.shtml)
+- 2026-06-30 07:29 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/95729.shtml)
+- 2026-06-30 07:30 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/3787625.shtml)
+- 2026-06-30 07:08 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/65299564.shtml)
+- 2026-06-30 07:25 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/62886222.shtml)
+- 2026-06-30 07:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/8499952425.shtml)

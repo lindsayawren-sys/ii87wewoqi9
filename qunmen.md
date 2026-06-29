@@ -1,55 +1,60 @@
-# 西藏扎囊县24名毕业生赴湖南接受百日技能培训
+# 酒价内参5月26日价格发布：飞天茅台下跌3元/瓶
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新网拉萨4月11日电 (贡嘎来松)记者11日从西藏山南市扎囊县官方获悉，近日，在湖南省第十一批援藏工作队的带领下，扎囊县24名应届高校毕业生，远赴湖南株洲市参加“雪域工匠百日培养计划”技能提升培训班，他们将在这里接受100天的专业技能培训，之后到中车株洲电力机车研究所有限公司(以下简称：中车株洲所)及有关制造业企业就业上岗，开启他们的“雪域工匠”之路。 据相关负责人介绍，此次
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月26日整体走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9926元，较昨日下跌16元，创下近半个月以来最低。市场在此前两日低位修复后再度下探，终端交投情绪有所降温，核心单品涨跌分化依然显著。 今日白酒市场11大单品二涨八跌一平，
 
 ## 正文
 
-中新网拉萨4月11日电 (贡嘎来松)记者11日从西藏山南市扎囊县官方获悉，近日，在湖南省第十一批援藏工作队的带领下，扎囊县24名应届高校毕业生，远赴湖南株洲市参加“雪域工匠百日培养计划”技能提升培训班，他们将在这里接受100天的专业技能培训，之后到中车株洲电力机车研究所有限公司(以下简称：中车株洲所)及有关制造业企业就业上岗，开启他们的“雪域工匠”之路。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月26日整体走弱。
 
-据相关负责人介绍，此次培训班的开办，是湖南就业援藏人才培养的创新之举，旨在搭建跨区域技能学习平台，帮助刚毕业的大学生更好地掌握一技之长，既让他们实现稳定就业，更让他们在竞争激烈的专业技术岗位上站得住、立得稳、走得远。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9926元，较昨日下跌16元，创下近半个月以来最低。
 
-为办好此次培训班，湖南省第十一批援藏工作队充分利用株洲工业强市、职教强市的优势，由株洲市委组织部主办，援藏工作队株洲组承办，联合中车株洲所、湖南铁路科技职业技术学院，投入资金500万元人民币，计划5年内为扎囊县培养200名“工匠”型高素质技能人才，切实推动人才培养与就业帮扶深度融合。
+市场在此前两日低位修复后再度下探，终端交投情绪有所降温，核心单品涨跌分化依然显著。
 
-此项计划的推进，也将更好助力雪域青年实现高质量就业，为湘藏两地发展注入青年人才活力，进一步筑牢民族团结、携手共进的坚实根基。
+今日白酒市场11大单品二涨八跌一平，输家占据绝对优势。
 
-(完)
+上涨方面，青花郎涨幅居前，上涨6元/瓶，重返700元关口上方；五粮液1618小幅上涨1元/瓶。
+
+下跌方面，习酒君品跌幅居前，下跌8元/瓶，价格快速下探至630元下方，创下月内新低；古井贡古20下跌6元/瓶；飞天茅台下跌3元/瓶；洋河梦之蓝M6+下跌2元/瓶，再度失守600元关口；精品茅台、五粮液普五八代、国窖1573与水晶剑南春均下跌1元/瓶，其中普五八代与国窖1573均平近一个月的最低价纪录。
+
+青花汾20的价格环比保持不变，亦平月内最低纪录。
+
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-30 07:27 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 07:10 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-30 07:22 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 07:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 07:19 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 07:00 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 07:29 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 07:10 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 07:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 07:18 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 07:05 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 07:04 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-30 07:12 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 07:21 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-30 07:23 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 07:30 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 07:23 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 07:21 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 07:32 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 07:33 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 07:20 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 07:09 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 07:31 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 07:15 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 07:30 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 07:32 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 07:17 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 07:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 07:23 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:28 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/71750.shtml)
-- 2026-06-30 07:12 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/5555125346.shtml)
-- 2026-06-30 07:17 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/99370.shtml)
-- 2026-06-30 07:19 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/44089885880.shtml)
-- 2026-06-30 07:25 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/9930281.shtml)
-- 2026-06-30 07:14 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/441604971393.shtml)
-- 2026-06-30 07:19 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/343885764390.shtml)
-- 2026-06-30 07:09 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/71728.shtml)
-- 2026-06-30 07:09 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/6831988.shtml)
-- 2026-06-30 07:12 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/09896909.shtml)
-- 2026-06-30 07:05 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/97952853.shtml)
-- 2026-06-30 07:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/666491.shtml)
-- 2026-06-30 07:14 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/021720391479.shtml)
-- 2026-06-30 07:18 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/18918018727.shtml)
-- 2026-06-30 07:20 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/662362989.shtml)
+- 2026-06-30 07:08 - [齐思钧回复张月](https://www.blog.minike.top/Article/details/7331969.shtml)
+- 2026-06-30 07:07 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/55707408.shtml)
+- 2026-06-30 07:29 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/360167198.shtml)
+- 2026-06-30 07:34 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/5487133.shtml)
+- 2026-06-30 07:09 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/410516.shtml)
+- 2026-06-30 07:26 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/403732681239.shtml)
+- 2026-06-30 07:10 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/3755998.shtml)
+- 2026-06-30 07:08 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/76188.shtml)
+- 2026-06-30 07:13 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/80919572.shtml)
+- 2026-06-30 07:19 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/74977362.shtml)
+- 2026-06-30 07:26 - [德国巴拉圭加时](https://www.blog.minike.top/Article/details/088385.shtml)
+- 2026-06-30 07:28 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/66618.shtml)
+- 2026-06-30 07:21 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/4916770.shtml)
+- 2026-06-30 07:09 - [森保一致歉：世界第一目标没能实现](https://www.blog.minike.top/Article/details/0482661.shtml)
+- 2026-06-30 07:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/983349.shtml)

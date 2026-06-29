@@ -1,61 +1,60 @@
-# 猫咪频繁剩饭原因何在？专家解答
+# 规模站上7000亿，四川银行少了10户股东
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-养过猫的人大概都遇到过这样的困惑：明明碗里还有粮，猫咪却扭头走开。过去，人们常把这种现象归咎于猫咪“胃口小”或“脾气怪”。 家猫习惯少食多餐，这确实继承了其祖先非洲野猫单次只猎捕小体型猎物的生存本能。但究竟是什么原因让猫咪频繁剩饭？科学界一直未有定论。 近日，日本岩手大学科学家揭开了这一谜题。他们研究发现，猫咪停下进食，并非单纯因为胃填满了，而是“鼻子说了算”，气味在调控猫的进
+来源：银瑞社 作者：许淑敏 2025年，四川银行的关键词是“变革”。 从董事长、行长履新，副行长队伍扩容，高管团队持续焕新，再到“闪电”入主长城华西银行，四川银行资产规模再上一个台阶。 大家都在好奇，四川银行变得怎么样了。 四川银行管理层，大变样。 2025年，四川银行将帅齐换，郑晔接任林罡成为董事长，引领着整体的发展方向，而新行长王波成为得力的助手。 要论变化最多的，还是四川
 
 ## 正文
 
-养过猫的人大概都遇到过这样的困惑：明明碗里还有粮，猫咪却扭头走开。
+来源：银瑞社 作者：许淑敏 2025年，四川银行的关键词是“变革”。
 
-过去，人们常把这种现象归咎于猫咪“胃口小”或“脾气怪”。
+从董事长、行长履新，副行长队伍扩容，高管团队持续焕新，再到“闪电”入主长城华西银行，四川银行资产规模再上一个台阶。
 
-家猫习惯少食多餐，这确实继承了其祖先非洲野猫单次只猎捕小体型猎物的生存本能。
+大家都在好奇，四川银行变得怎么样了。
 
-但究竟是什么原因让猫咪频繁剩饭？
+四川银行管理层，大变样。
 
-科学界一直未有定论。
+2025年，四川银行将帅齐换，郑晔接任林罡成为董事长，引领着整体的发展方向，而新行长王波成为得力的助手。
 
-近日，日本岩手大学科学家揭开了这一谜题。
+要论变化最多的，还是四川银行的副行长们。
 
-他们研究发现，猫咪停下进食，并非单纯因为胃填满了，而是“鼻子说了算”，气味在调控猫的进食欲望中扮演着关键角色。
+2025年底，刘小波、席代金拟任四川银行副行长。
 
-相关成果发表于最新一期《生理学与行为学》杂志。
+2026年5月，刘小波、席代金任职资格获批复。
 
 ## 相关推荐
 
-- 2026-06-30 07:21 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 07:18 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-30 07:11 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 07:17 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 07:09 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 07:22 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 07:12 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 07:06 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 07:01 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 07:20 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 07:14 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 07:23 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 07:25 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 07:05 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 07:01 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 07:20 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 07:21 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 07:16 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 07:20 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 07:20 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 07:34 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 07:12 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 07:10 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 07:32 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 07:12 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 07:15 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 07:29 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 07:14 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-30 07:15 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:02 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/73821.shtml)
-- 2026-06-30 07:14 - [三星投资计划](http://www.share.kurohicncr.top/Article/details/439816856017.shtml)
-- 2026-06-30 07:15 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/57389735.shtml)
-- 2026-06-30 07:24 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/8645130.shtml)
-- 2026-06-30 07:25 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/06384974417.shtml)
-- 2026-06-30 07:23 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/3175270785.shtml)
-- 2026-06-30 07:05 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/7451506949.shtml)
-- 2026-06-30 07:17 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/666797205991.shtml)
-- 2026-06-30 07:28 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/457400.shtml)
-- 2026-06-30 07:18 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/306560204.shtml)
-- 2026-06-30 07:14 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/0249289806.shtml)
-- 2026-06-30 07:01 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/61058463.shtml)
-- 2026-06-30 07:19 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/89519.shtml)
-- 2026-06-30 07:13 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/4082636347.shtml)
-- 2026-06-30 07:22 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/827953.shtml)
+- 2026-06-30 07:27 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/401732.shtml)
+- 2026-06-30 07:34 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/50986682.shtml)
+- 2026-06-30 07:14 - [恋与深空道歉声明](http://www.share.minike.top/Article/details/09506971445.shtml)
+- 2026-06-30 07:33 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/581386851457.shtml)
+- 2026-06-30 07:32 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/22007341280.shtml)
+- 2026-06-30 07:18 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/611068.shtml)
+- 2026-06-30 07:30 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/499112.shtml)
+- 2026-06-30 07:34 - [这一刀 会很帅](https://www.share.minike.top/Article/details/43350.shtml)
+- 2026-06-30 07:24 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/4117797386.shtml)
+- 2026-06-30 07:12 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/8832196857.shtml)
+- 2026-06-30 07:20 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/496316817.shtml)
+- 2026-06-30 07:31 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/8257722.shtml)
+- 2026-06-30 07:32 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/083383.shtml)
+- 2026-06-30 07:20 - [速度与激情9](http://www.share.minike.top/Article/details/131577.shtml)
+- 2026-06-30 07:32 - [巴拉圭点球大战淘汰德国进16强](https://www.share.minike.top/Article/details/719176990668.shtml)

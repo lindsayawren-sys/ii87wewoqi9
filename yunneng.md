@@ -1,57 +1,58 @@
-# 德国2月出口额环比增长3.6%
+# 新易盛大涨5%逆市新高，“算力基建+应用盈利+CPO提速”三重利好共振，机构建议高度重视光模块龙头
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新社柏林4月9日电 (记者 马秀秀)德国联邦统计局9日公布的数据显示，经工作日和季节性调整后，德国2026年2月出口额为1352亿欧元，环比增长3.6%，显著高于此前经济学家预测的1.0%。 从地区来看，德国对欧盟国家的贸易表现强劲。2月对欧盟国家出口759亿欧元，环比增长5.8%；自欧盟国家进口593亿欧元，增长5.1%。相比之下，对非欧盟国家出口额594亿欧元，仅增长0.
+5月26日，光模块等海外算力链仍然强势向上，龙头表现亮眼！新易盛逆市大涨超5%续创新高，天孚通信涨超1%，中际旭创逆市飘红。热门ETF方面，光模块CPO含量超50%且“易中天”含量高的创业板人工智能ETF华宝（159363）场内窄幅震荡，资金实时净申购2000万份。 当前，光模块CPO累积多重利好，开源证券表示，在算力应用侧商业闭环加速成形、算力基建侧资本开支持续上修、算力互联
 
 ## 正文
 
-中新社柏林4月9日电 (记者 马秀秀)德国联邦统计局9日公布的数据显示，经工作日和季节性调整后，德国2026年2月出口额为1352亿欧元，环比增长3.6%，显著高于此前经济学家预测的1.0%。
+5月26日，光模块等海外算力链仍然强势向上，龙头表现亮眼！
 
-从地区来看，德国对欧盟国家的贸易表现强劲。
+新易盛逆市大涨超5%续创新高，天孚通信涨超1%，中际旭创逆市飘红。
 
-2月对欧盟国家出口759亿欧元，环比增长5.8%；自欧盟国家进口593亿欧元，增长5.1%。
+热门ETF方面，光模块CPO含量超50%且“易中天”含量高的创业板人工智能ETF华宝（159363）场内窄幅震荡，资金实时净申购2000万份。
 
-相比之下，对非欧盟国家出口额594亿欧元，仅增长0.8%；自非欧盟国家进口额562亿欧元，增长4.4%。
+当前，光模块CPO累积多重利好，开源证券表示，在算力应用侧商业闭环加速成形、算力基建侧资本开支持续上修、算力互联侧CPO发展持续提质增速三重逻辑共振下，光互联重要性得到显著抬升，建议高度重视光模块龙头。
 
-尽管美国仍是德国最大出口市场，但出口明显回落。
+1、算力基建侧：英伟达业绩扩容趋势明确，资本开支再创新高 英伟达2027Q1业绩显示，公司单季营收816.2亿美元，yoy+85%；净利润583亿美元，yoy+211%。
 
-2月对美出口额为122亿欧元，环比下降7.5%，同比下降13.3%。
+随着英伟达业务持续扩张与AI算力资本开支不断加码，国内光通信产业链传统光模块、光模块上游零部件及光器件、CPO环节或成为首要受益方向，相关细分子赛道景气度持续提升。
 
-进口方面，2月德国进口额为1154亿欧元，环比增长4.7%。
+2、算力应用侧： Anthropic首次实现盈利， 验证大模型经济盈利闭环 Anthropic预计2026年第二季度预计实现营业利润5.59亿美元，成功扭亏为盈，迎来公司成立以来的首个盈利季度。
 
-其中，自中国进口规模最大，达150亿欧元，环比增长6.5%。
+Anthropic Q2的盈利已证明头部玩家具备盈亏平衡的能力，将实质性提振市场对整个AI应用赛道的信心，并进一步从需求端催化AI基建的建设进程。
 
 ## 相关推荐
 
-- 2026-06-30 07:27 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 07:25 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 07:24 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 07:25 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 07:13 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 07:21 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 07:29 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 07:25 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 07:21 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 07:15 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 07:10 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 07:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 07:14 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 07:09 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 07:23 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 07:07 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 07:33 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 07:17 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 07:16 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 07:32 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 07:22 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 07:33 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 07:22 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:02 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/95338121579.shtml)
-- 2026-06-30 07:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/431589806.shtml)
-- 2026-06-30 07:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/586228.shtml)
-- 2026-06-30 07:29 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/428402.shtml)
-- 2026-06-30 07:12 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/3879360926.shtml)
-- 2026-06-30 07:26 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/2115840616.shtml)
-- 2026-06-30 07:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/004318.shtml)
-- 2026-06-30 07:03 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/1682068167.shtml)
-- 2026-06-30 07:11 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/3156518813.shtml)
-- 2026-06-30 07:02 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/476256866.shtml)
-- 2026-06-30 07:27 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/77114.shtml)
-- 2026-06-30 07:02 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/98196.shtml)
-- 2026-06-30 07:29 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/608050.shtml)
-- 2026-06-30 07:14 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/57035458.shtml)
-- 2026-06-30 07:01 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/650795.shtml)
+- 2026-06-30 07:16 - [《共患难》](http://www.share.kurohicncr.top/Article/details/007224143.shtml)
+- 2026-06-30 07:10 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/93570.shtml)
+- 2026-06-30 07:24 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/60512632.shtml)
+- 2026-06-30 07:08 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/3132563.shtml)
+- 2026-06-30 07:07 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/75741258.shtml)
+- 2026-06-30 07:33 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/330897.shtml)
+- 2026-06-30 07:09 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/145553180907.shtml)
+- 2026-06-30 07:27 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/2092693504.shtml)
+- 2026-06-30 07:16 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/2714794843.shtml)
+- 2026-06-30 07:31 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/914633601020.shtml)
+- 2026-06-30 07:07 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/445038050.shtml)
+- 2026-06-30 07:20 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/126519044799.shtml)
+- 2026-06-30 07:09 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/9655975.shtml)
+- 2026-06-30 07:22 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/405611933801.shtml)
+- 2026-06-30 07:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/8084428.shtml)

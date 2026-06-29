@@ -1,59 +1,60 @@
-# 7‑ELEVEN母公司推迟美国子公司IPO，称业务重组仍需时间
+# 百秋尚美净利润与毛利率承压：两年分红2.62亿后，递表同时再分4亿
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-7‑I 控股株式会社（Seven & i Holdings）将推迟其美国便利店业务的上市计划，公司表示，在市场环境不确定的背景下，该业务仍需更多时间实现转型。 这家零售集团在周四的公告中称，当前目标是在截至 2027 年 2 月的财年内完成业绩提升、实现估值最大化，再推进首次公开募股，而非原定的今年晚些时候。 首席执行官斯蒂芬・达卡斯做出推迟 IPO 的决定，凸显出该子公司估值
+《港湾商业观察》徐慧静 当消费者在天猫、抖音刷到那些耳熟能详的奢侈品牌直播间时，背后操盘的很可能不是品牌方自己，而是一家名为百秋尚美的“隐形冠军”。 2026年4月，上海百秋尚美科技服务集团股份有限公司（以下简称，百秋尚美）向港交所递交了上市申请，独家保荐人为中信证券。深耕线上零售综合运营服务市场逾15年，百秋尚美已跻身中国品牌线上零售综合运营服务商第二位，在专注服务海外品牌的
 
 ## 正文
 
-7‑I 控股株式会社（Seven & i Holdings）将推迟其美国便利店业务的上市计划，公司表示，在市场环境不确定的背景下，该业务仍需更多时间实现转型。
+《港湾商业观察》徐慧静 当消费者在天猫、抖音刷到那些耳熟能详的奢侈品牌直播间时，背后操盘的很可能不是品牌方自己，而是一家名为百秋尚美的“隐形冠军”。
 
-这家零售集团在周四的公告中称，当前目标是在截至 2027 年 2 月的财年内完成业绩提升、实现估值最大化，再推进首次公开募股，而非原定的今年晚些时候。
+2026年4月，上海百秋尚美科技服务集团股份有限公司（以下简称，百秋尚美）向港交所递交了上市申请，独家保荐人为中信证券。
 
-首席执行官斯蒂芬・达卡斯做出推迟 IPO 的决定，凸显出该子公司估值高度依赖美国业务的转型成效 —— 美国业务贡献了集团便利店板块约一半的利润。
+深耕线上零售综合运营服务市场逾15年，百秋尚美已跻身中国品牌线上零售综合运营服务商第二位，在专注服务海外品牌的细分赛道更是稳居第一。
 
-燃油需求疲软、消费支出走弱导致到店客流下降，也让公司高度依赖汽油相关销售带动高毛利商品的问题暴露无遗。
+然而，光鲜的GMV数据背后，毛利率持续下滑、净利润大幅波动、客户与供应商双集中、应收账款与存货同步攀升等问题，为其港股IPO之路增添了诸多不确定性。
 
-达卡斯在周四晚些时候的业绩说明会上表示，待市场能够合理反映该子公司价值时，公司将推进美国业务 IPO。
+1 净利润大幅波动，毛利率持续承压 据招股书及天眼查显示，百秋尚美成立于2010年，是中国中高端品牌数字零售运营服务商，通过结合消费洞察、审美能力、数字化技术及系统化运营并利用AI赋能的工具，为品牌商提供带来可衡量成效的贯穿全链路、覆盖多渠道的智能零售解决方案。
 
-他否认公司存在额外融资需求，并称此次上市的目的是提升股东价值，而非筹集资金。
+公司核心优势在于自主研发数字化零售系统Futail，并在天猫、抖音、京东等所有主流电商平台均为头部品牌商提供服务。
 
-该 IPO 计划是 2024 年加拿大 Couche-Tard 集团主动提出收购要约后，公司启动重组改革的一部分。
+财务数据显示，2023年、2024年及2025年（以下简称，报告期内），公司营业收入分别为13.18亿元、14.19亿元和15.87亿元，年内利润分别为2.50亿元、1.43亿元和2.14亿元。
 
-那次收购要约让外界对 7‑I 的综合企业架构及北美业务表现不佳的问题集中提出担忧。
+整体营收呈现稳健增长态势，但净利润波动明显：2024年年内利润较2023年减少42.7%，2025年又较2024年增加49.5%，即便如此，2025年还是不及2023年。
 
 ## 相关推荐
 
-- 2026-06-30 07:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 07:26 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 07:04 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-30 07:09 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 07:04 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 07:21 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 07:22 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 07:23 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 07:11 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 07:07 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 07:22 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 07:14 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 07:14 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 07:14 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 07:33 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 07:20 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 07:26 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 07:12 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 07:13 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 07:29 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 07:28 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 07:12 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 07:11 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 07:27 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 07:07 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 07:17 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 07:28 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:19 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/52717.shtml)
-- 2026-06-30 07:29 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/79928.shtml)
-- 2026-06-30 07:07 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/3696003.shtml)
-- 2026-06-30 07:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/8225086.shtml)
-- 2026-06-30 07:27 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/7862525.shtml)
-- 2026-06-30 07:04 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/53336658335.shtml)
-- 2026-06-30 07:09 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/1644787.shtml)
-- 2026-06-30 07:26 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/96685.shtml)
-- 2026-06-30 07:04 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/3714257.shtml)
-- 2026-06-30 07:04 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/48434140276.shtml)
-- 2026-06-30 07:15 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/965070032506.shtml)
-- 2026-06-30 07:01 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/856620215720.shtml)
-- 2026-06-30 07:16 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/13440.shtml)
-- 2026-06-30 07:19 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/147764200.shtml)
-- 2026-06-30 07:06 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/45660178887.shtml)
+- 2026-06-30 07:22 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/762021881.shtml)
+- 2026-06-30 07:33 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/526121.shtml)
+- 2026-06-30 07:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/072031339.shtml)
+- 2026-06-30 07:17 - [内马尔替补](https://www.blog.minike.top/Article/details/349027.shtml)
+- 2026-06-30 07:35 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/056393970.shtml)
+- 2026-06-30 07:17 - [董卿父亲报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/3862449725.shtml)
+- 2026-06-30 07:16 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/489952.shtml)
+- 2026-06-30 07:07 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/45578605.shtml)
+- 2026-06-30 07:18 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/305790696.shtml)
+- 2026-06-30 07:16 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/248264.shtml)
+- 2026-06-30 07:28 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/2408693.shtml)
+- 2026-06-30 07:33 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/0821082.shtml)
+- 2026-06-30 07:10 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/858153394862.shtml)
+- 2026-06-30 07:21 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/5809266440.shtml)
+- 2026-06-30 07:31 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/50537.shtml)

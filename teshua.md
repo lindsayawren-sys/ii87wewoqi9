@@ -1,56 +1,57 @@
-# 国羽名将高昉洁上演“最后一舞”：亲吻赛场 不说再见
+# 人民论坛网评 | “但民称便”方为好政绩
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新网宁波4月10日电(张煜欢 宣佳含 虞笑梅)4月10日，2026亚洲羽毛球锦标赛女单1/4决赛现场，温情与遗憾交织。国羽女单名将高昉洁迎战日本老将山口茜，历经三局苦战，最终大比分1-2憾负对手，止步八强。这场比赛，是高昉洁职业生涯的最后一舞，也是她与热爱的羽坛最温柔的告别。 首局，双方比分紧咬，一路战至20平。高昉洁在关键分上把握更胜一筹，以23:21险胜。第二局，高昉洁开
+人民论坛网评 | “但民称便”方为好政绩 ——“树立和践行正确政绩观”系列评 “不问吏材能否，施设何如，但民称便，即是良吏。”这句古训，道出为政之本、履职之要。评价干部，不在才华高低、场面大小，而在百姓是否得便利、得实惠。广大党员干部当从中汲取理政智慧，把为民办事、为民造福作为自觉追求，以实实在在的便民利民成效，创造经得起实践、人民、历史检验的实绩。 一个“便”字，看似寻常，实
 
 ## 正文
 
-中新网宁波4月10日电(张煜欢 宣佳含 虞笑梅)4月10日，2026亚洲羽毛球锦标赛女单1/4决赛现场，温情与遗憾交织。
+人民论坛网评 | “但民称便”方为好政绩 ——“树立和践行正确政绩观”系列评 “不问吏材能否，施设何如，但民称便，即是良吏。
 
-国羽女单名将高昉洁迎战日本老将山口茜，历经三局苦战，最终大比分1-2憾负对手，止步八强。
+”这句古训，道出为政之本、履职之要。
 
-这场比赛，是高昉洁职业生涯的最后一舞，也是她与热爱的羽坛最温柔的告别。
+评价干部，不在才华高低、场面大小，而在百姓是否得便利、得实惠。
 
-首局，双方比分紧咬，一路战至20平。
+广大党员干部当从中汲取理政智慧，把为民办事、为民造福作为自觉追求，以实实在在的便民利民成效，创造经得起实践、人民、历史检验的实绩。
 
-高昉洁在关键分上把握更胜一筹，以23:21险胜。
+一个“便”字，看似寻常，实则重逾千钧。
 
-第二局，高昉洁开局一度以6:0领先，但随后在山口茜的强势反扑下，以11:21被对手扳回一局。
+它映照着人民至上的价值追求，彰显着从群众中来、到群众中去的工作方法，是检验政绩成色的重要标尺。
 
-决胜局，双方从开局便陷入胶着，交替得分至10平后，高昉洁未能顶住压力，最终以13:21遗憾落败。
+评判政绩，老百姓心中自有一杆秤。
 
-比赛结束后，全场观众的呐喊与掌声响彻场馆，致敬这位坚守热爱、永不言弃的运动员。
+展板数据再亮眼，不如办事少跑一趟路；工程场面再大，不如解决一件愁事。
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 07:27 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 07:23 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 07:07 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 07:02 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 07:10 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 07:00 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 07:10 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 07:05 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 07:17 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-30 07:11 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 07:09 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 07:15 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 07:26 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 07:07 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 07:33 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 07:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 07:21 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 07:17 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 07:12 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 07:28 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:06 - [流金岁月](https://www.share.kurohicncr.top/Article/details/482042.shtml)
-- 2026-06-30 07:09 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/510226623.shtml)
-- 2026-06-30 07:06 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/409550.shtml)
-- 2026-06-30 07:21 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/01665739555.shtml)
-- 2026-06-30 07:16 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/22029997139.shtml)
-- 2026-06-30 07:29 - [蔚来车主罚站](http://www.share.minike.top/Article/details/32878451.shtml)
-- 2026-06-30 07:05 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/8796167.shtml)
-- 2026-06-30 07:13 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/984638035821.shtml)
-- 2026-06-30 07:16 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/5699898872.shtml)
-- 2026-06-30 07:20 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/56129.shtml)
-- 2026-06-30 07:08 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/558356433833.shtml)
-- 2026-06-30 07:21 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/931941677413.shtml)
-- 2026-06-30 07:04 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/29244445046.shtml)
-- 2026-06-30 07:12 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/5401011423.shtml)
-- 2026-06-30 07:08 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/442418635.shtml)
+- 2026-06-30 07:30 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/7570503327.shtml)
+- 2026-06-30 07:27 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/196664.shtml)
+- 2026-06-30 07:33 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/93913219.shtml)
+- 2026-06-30 07:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/826245621455.shtml)
+- 2026-06-30 07:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/96389716.shtml)
+- 2026-06-30 07:25 - [德国巴拉圭进入点球大战](http://www.blog.minike.top/Article/details/590029571640.shtml)
+- 2026-06-30 07:12 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/889266.shtml)
+- 2026-06-30 07:18 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/1626755.shtml)
+- 2026-06-30 07:33 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/15236849.shtml)
+- 2026-06-30 07:24 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/72306707299.shtml)
+- 2026-06-30 07:17 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/92587781309.shtml)
+- 2026-06-30 07:06 - [德国淘汰](http://www.blog.minike.top/Article/details/2913605.shtml)
+- 2026-06-30 07:26 - [美人鱼](http://www.blog.minike.top/Article/details/568997035875.shtml)
+- 2026-06-30 07:10 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.minike.top/Article/details/53787.shtml)
+- 2026-06-30 07:09 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/429258.shtml)

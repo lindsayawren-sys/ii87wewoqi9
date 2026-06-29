@@ -1,57 +1,61 @@
-# 国际乒联主席：每张桌子都可以是乒乓桌 更是友谊的桥梁
+# 市场监管总局总工程师刘敏会见国际计量局局长
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月10日 22:25 来源：中国新闻网 2026年是中美“乒乓外交”55周年。近日，应中国人民对外友好协会邀请，国际乒联主席佩特拉·索林来华出席系列纪念活动，并接受中新社记者采访。在她看来，乒乓球乃至整个体育运动，都是人与人之间联结的纽带。就拿乒乓球来说，一张球桌便能迅速拉近彼此的距离。1971年，“以小球推动大球”，“乒乓外交”开启了中美关系正常化的历
+中新网北京5月25日电 (记者 刘亮)市场监管总局总工程师刘敏近日在北京会见新任国际计量局局长安妮特·古。国际计量大会将于2026年10月在法国巴黎召开，双方就大会决议草案、国际计量局工作计划、深化与成员国合作等议题交换了意见。刘敏祝贺安妮特·古就任国际计量局局长，并对其专程来华就有关议题进行交流表示欢迎。她表示，市场监管总局作为国际计量组织可信任的成员，将支持大会有关决议及工
 
 ## 正文
 
-发布时间：2026年04月10日 22:25 来源：中国新闻网 2026年是中美“乒乓外交”55周年。
+中新网北京5月25日电 (记者 刘亮)市场监管总局总工程师刘敏近日在北京会见新任国际计量局局长安妮特·古。
 
-近日，应中国人民对外友好协会邀请，国际乒联主席佩特拉·索林来华出席系列纪念活动，并接受中新社记者采访。
+国际计量大会将于2026年10月在法国巴黎召开，双方就大会决议草案、国际计量局工作计划、深化与成员国合作等议题交换了意见。
 
-在她看来，乒乓球乃至整个体育运动，都是人与人之间联结的纽带。
+刘敏祝贺安妮特·古就任国际计量局局长，并对其专程来华就有关议题进行交流表示欢迎。
 
-就拿乒乓球来说，一张球桌便能迅速拉近彼此的距离。
+她表示，市场监管总局作为国际计量组织可信任的成员，将支持大会有关决议及工作计划的落实，希望加强与国际计量局合作，为全球计量体系发展发挥建设性作用。
 
-1971年，“以小球推动大球”，“乒乓外交”开启了中美关系正常化的历史进程。
+安妮特·古表示，此访主要是听取中国等主要成员国对大会决议和工作计划的意见。
 
-索林认为，这段过往激励着人们，不止回望历史、致敬过往，更要接续前行。
+国际计量局始终顺应成员国需求，动态调整优先工作，确保落实组织战略目标，并高度赞赏中方在参与全球计量治理、提供自愿性支持等方面作出的重要贡献，期待与中国开展更广泛、深入的合作。
 
-(记者 郎佳慧 周昕 北京报道） 责任编辑：【于晓】
+市场监管总局相关司局和直属单位负责人参加会见。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:28 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 07:18 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 07:11 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 07:06 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 07:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 07:21 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 07:09 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 07:00 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 07:11 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 07:27 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 07:07 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 07:25 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 07:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-30 07:28 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 07:32 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 07:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 07:27 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 07:14 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 07:29 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-30 07:32 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 07:18 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 07:09 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 07:29 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 07:26 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 07:07 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 07:11 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 07:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 07:11 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:00 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/113764157146.shtml)
-- 2026-06-30 07:11 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/66269945.shtml)
-- 2026-06-30 07:03 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/19935.shtml)
-- 2026-06-30 07:10 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/82854394.shtml)
-- 2026-06-30 07:17 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/27866824877.shtml)
-- 2026-06-30 07:00 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/35774.shtml)
-- 2026-06-30 07:15 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/1237529116.shtml)
-- 2026-06-30 07:10 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/44524623.shtml)
-- 2026-06-30 07:17 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/4736039.shtml)
-- 2026-06-30 07:18 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/9205440621.shtml)
-- 2026-06-30 07:02 - [中国新一轮出口管制直指日本命脉](https://www.share.minike.top/Article/details/055548.shtml)
-- 2026-06-30 07:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/9701444279.shtml)
-- 2026-06-30 07:25 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/3579536699.shtml)
-- 2026-06-30 07:26 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/744260233567.shtml)
-- 2026-06-30 07:27 - [武磊：日本队有能力跟任何强队抗衡](https://www.share.kurohicncr.top/Article/details/0191585.shtml)
+- 2026-06-30 07:14 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/1296317.shtml)
+- 2026-06-30 07:25 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/042373814.shtml)
+- 2026-06-30 07:09 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/2431986233.shtml)
+- 2026-06-30 07:33 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/034445525529.shtml)
+- 2026-06-30 07:08 - [日本五次世界杯淘汰赛全败](https://www.share.kurohicncr.top/Article/details/1819018782.shtml)
+- 2026-06-30 07:06 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/5560347.shtml)
+- 2026-06-30 07:24 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/9476752.shtml)
+- 2026-06-30 07:24 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/05853.shtml)
+- 2026-06-30 07:32 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/1718051748.shtml)
+- 2026-06-30 07:12 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/02305.shtml)
+- 2026-06-30 07:32 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/455781662.shtml)
+- 2026-06-30 07:21 - [斗破苍穹](http://www.blog.minike.top/Article/details/669288181.shtml)
+- 2026-06-30 07:11 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/3093266618.shtml)
+- 2026-06-30 07:16 - [巴西绝杀日本](https://www.share.minike.top/Article/details/94884585.shtml)
+- 2026-06-30 07:13 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/7540021.shtml)

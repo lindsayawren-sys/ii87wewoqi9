@@ -1,57 +1,48 @@
-# 美中航空遗产基金会主席：日本应该为自己的战争罪行向中国道歉
+# PCB概念股再度走高 胜宏科技及建滔积层板均涨超7%
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月10日 11:47 来源：中国新闻网 如何看待日本一些历史教科书刻意淡化、否定、美化自身侵略历史，误导日本民众尤其是年轻一代的历史认知？美中航空遗产基金会主席杰夫·格林9日在接受中新社记者专访时表示，日本应该学习德国，深刻反思自身的战争罪责。“德国人知道有多少人因为他们的所作所为而死，并对此感到羞愧。”他以德国的战后反思为例，认为当前的日本政府应该要有
+PCB概念股再度走高，截至发稿，胜宏科技（02476）上涨7.68%，报434.60港元；建滔积层板（01888）上涨7.53%，报54.95港元。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年04月10日 11:47 来源：中国新闻网 如何看待日本一些历史教科书刻意淡化、否定、美化自身侵略历史，误导日本民众尤其是年轻一代的历史认知？
+PCB概念股再度走高，截至发稿，胜宏科技（02476）上涨7.68%，报434.60港元；建滔积层板（01888）上涨7.53%，报54.95港元。
 
-美中航空遗产基金会主席杰夫·格林9日在接受中新社记者专访时表示，日本应该学习德国，深刻反思自身的战争罪责。
-
-“德国人知道有多少人因为他们的所作所为而死，并对此感到羞愧。
-
-”他以德国的战后反思为例，认为当前的日本政府应该要有正视历史、承认罪责的正确态度。
-
-“他们需要向中国正式道歉。
-
-”格林说。
-
-据介绍，成立于1998年的美中航空遗产基金会长期致力于在中美两国传播飞虎队故事，纪念两国人民在二战期间的友好合作，增进理解和友谊。
-
-(刘梦青) 责任编辑：【李光伟】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 07:09 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 07:28 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 07:03 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 07:14 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 07:29 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 07:21 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 07:13 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-30 07:05 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 07:06 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 07:14 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 07:10 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 07:09 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 07:11 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 07:31 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 07:20 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 07:22 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-30 07:33 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 07:33 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 07:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 07:18 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 07:18 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 07:14 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 07:22 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 07:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 07:19 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:01 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/71966.shtml)
-- 2026-06-30 07:14 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/8429642.shtml)
-- 2026-06-30 07:26 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/90253.shtml)
-- 2026-06-30 07:03 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.minike.top/Article/details/08927935000.shtml)
-- 2026-06-30 07:27 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/27878757408.shtml)
-- 2026-06-30 07:19 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/30954.shtml)
-- 2026-06-30 07:13 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/79600059672.shtml)
-- 2026-06-30 07:15 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/0034501.shtml)
-- 2026-06-30 07:11 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/7832766181.shtml)
-- 2026-06-30 07:01 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/88105.shtml)
-- 2026-06-30 07:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/22487.shtml)
-- 2026-06-30 07:17 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/50793.shtml)
-- 2026-06-30 07:19 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/26239671022.shtml)
-- 2026-06-30 07:13 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/48568.shtml)
-- 2026-06-30 07:01 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/989110.shtml)
+- 2026-06-30 07:07 - [一见倾心](https://www.share.kurohicncr.top/Article/details/717562434.shtml)
+- 2026-06-30 07:30 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/1801323.shtml)
+- 2026-06-30 07:34 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/74456332056.shtml)
+- 2026-06-30 07:15 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/15373887856.shtml)
+- 2026-06-30 07:33 - [德国巴拉圭进入点球大战](https://www.share.minike.top/Article/details/32791606.shtml)
+- 2026-06-30 07:17 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/211326.shtml)
+- 2026-06-30 07:26 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/97547572113.shtml)
+- 2026-06-30 07:21 - [感动全网的699分女生想报考清华](http://www.blog.kurohicncr.top/Article/details/405783534322.shtml)
+- 2026-06-30 07:16 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/292311.shtml)
+- 2026-06-30 07:24 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/675166656.shtml)
+- 2026-06-30 07:15 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/807133094328.shtml)
+- 2026-06-30 07:32 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/9047969157.shtml)
+- 2026-06-30 07:08 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/21026.shtml)
+- 2026-06-30 07:14 - [F1奥地利站赛后复盘](http://www.blog.kurohicncr.top/Article/details/922133074007.shtml)
+- 2026-06-30 07:18 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/0228506.shtml)

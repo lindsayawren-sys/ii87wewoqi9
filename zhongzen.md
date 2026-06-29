@@ -1,59 +1,58 @@
-# 四川成都：地铁寄存行李30秒搞定 游客轻装逛蓉城
+# 华泰期货：锌矿的紧张给予锌价有力支撑
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-中新网成都4月9日电 (记者 刘忠俊)记者9日从成都轨道集团获悉，成都地铁首批行李寄存柜正式在东郊记忆站和熊猫大道站上线。外地乘客只需手机扫码、选择格口、完成支付，仅30秒即可将行李寄存在地铁站，真正实现“行李存地铁，畅游蓉城”。 在成都东郊记忆地铁站，来自山西的席先生正拖着行李箱准备出站。东郊记忆原本只是他成都之行的最后一站，“我本来准备拉着箱子随便转转，然后直接坐地铁去东站
+来源：华泰期货 作者： 封帆 重要数据 现货方面：LME锌现货升水为-12.73美元/吨。SMM上海锌现货价较前一交易日变化50元/吨至24820元/吨，SMM上海锌现货升贴水-5元/吨；SMM广东锌现货价较前一交易日变化50元/吨至24840元/吨，广东锌现货升贴水-55元/吨；天津锌现货价较前一交易日变化50元/吨至24740元/吨，天津锌现货升贴水-85元/吨。 期货方面
 
 ## 正文
 
-中新网成都4月9日电 (记者 刘忠俊)记者9日从成都轨道集团获悉，成都地铁首批行李寄存柜正式在东郊记忆站和熊猫大道站上线。
+来源：华泰期货 作者： 封帆 重要数据 现货方面：LME锌现货升水为-12.73美元/吨。
 
-外地乘客只需手机扫码、选择格口、完成支付，仅30秒即可将行李寄存在地铁站，真正实现“行李存地铁，畅游蓉城”。
+SMM上海锌现货价较前一交易日变化50元/吨至24820元/吨，SMM上海锌现货升贴水-5元/吨；SMM广东锌现货价较前一交易日变化50元/吨至24840元/吨，广东锌现货升贴水-55元/吨；天津锌现货价较前一交易日变化50元/吨至24740元/吨，天津锌现货升贴水-85元/吨。
 
-在成都东郊记忆地铁站，来自山西的席先生正拖着行李箱准备出站。
+期货方面：2026-05-25沪锌主力合约开于24790元/吨，收于24875元/吨，较前一交易日95元/吨，全天交易日成交101617手，全天交易日持仓106186手，日内价格最高点达到24915元/吨，最低点达到24695元/吨。
 
-东郊记忆原本只是他成都之行的最后一站，“我本来准备拉着箱子随便转转，然后直接坐地铁去东站赶动车。
+库存方面：截至2026-05-25，SMM七地锌锭库存总量为26.50万吨，较上期变化0.25万吨。
 
-”在工作人员指引下，他不到半分钟就存好了行李。
+截止2026-05-25，LME锌库存为111025吨，较上一交易日变化-225吨。
 
-“这下好了，最后半天也能轻松深度游了！
+策略分析 锌价对宏观压力表现相对抗跌，得益于矿端供应的趋紧化。
 
-”席先生感叹道。
+供给方面呈现向好走势，矿价下行趋势不改，冶炼厂采购积极性依旧较高，进口矿富含矿报价降至-70~-60美元/吨，国内锌矿TC仍将进一步下滑，矿价对锌价形成有利支撑。
 
-当天，东郊记忆站和熊猫大道站共30个寄存格口同步启用，柜体配备大、中、小多种类型格口，可满足行李箱、背包、手提袋、购物袋等多种物品的存放需求。
+冶炼端除了海外突发事故引发的产量影响，国内硫酸价格继续上涨乏力，河南地区甚至出现小幅下滑，单纯冶炼亏损达到历史最大水平，综合冶炼同样开始面临亏损的风险，亏损将有望造成国内冶炼检修范围扩大。
 
 ## 相关推荐
 
-- 2026-06-30 07:07 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 07:20 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 07:26 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 07:06 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 07:16 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-30 07:19 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 07:03 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-30 07:14 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 07:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-30 07:19 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 07:06 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 07:04 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 07:13 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 07:08 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 07:20 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 07:11 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 07:23 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 07:32 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 07:21 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 07:32 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 07:18 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 07:22 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 07:30 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 07:09 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 07:35 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:15 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/991192.shtml)
-- 2026-06-30 07:20 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/84701294848.shtml)
-- 2026-06-30 07:06 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/75469653988.shtml)
-- 2026-06-30 07:11 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/599627779695.shtml)
-- 2026-06-30 07:08 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/163329538.shtml)
-- 2026-06-30 07:27 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/5484635.shtml)
-- 2026-06-30 07:29 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/52021761.shtml)
-- 2026-06-30 07:10 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/810355.shtml)
-- 2026-06-30 07:01 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/43601.shtml)
-- 2026-06-30 07:29 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/317964.shtml)
-- 2026-06-30 07:22 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/185332.shtml)
-- 2026-06-30 07:21 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/857217697.shtml)
-- 2026-06-30 07:14 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/618267870287.shtml)
-- 2026-06-30 07:21 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/9402529.shtml)
-- 2026-06-30 07:13 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/0062000.shtml)
+- 2026-06-30 07:31 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/66116964260.shtml)
+- 2026-06-30 07:23 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/34132762.shtml)
+- 2026-06-30 07:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/26191395.shtml)
+- 2026-06-30 07:07 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/875032892055.shtml)
+- 2026-06-30 07:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/03150.shtml)
+- 2026-06-30 07:20 - [苗族银饰](http://www.blog.minike.top/Article/details/7533385134.shtml)
+- 2026-06-30 07:10 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/7976175362.shtml)
+- 2026-06-30 07:28 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/146473.shtml)
+- 2026-06-30 07:34 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/54895889951.shtml)
+- 2026-06-30 07:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/61558317.shtml)
+- 2026-06-30 07:12 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/1082372.shtml)
+- 2026-06-30 07:23 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/71983.shtml)
+- 2026-06-30 07:20 - [高质量发展看新疆](http://www.share.minike.top/Article/details/213381433052.shtml)
+- 2026-06-30 07:09 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/106166864925.shtml)
+- 2026-06-30 07:07 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/796474251.shtml)

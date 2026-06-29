@@ -1,59 +1,50 @@
-# 首批！汇丰银行和碇点金融科技获香港稳定币发行人牌照
+# 应急管理部针对安徽启动国家地质灾害四级应急响应
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-首批香港稳定币牌照正式公布。 4月10日，香港金管局宣布，金融管理专员根据《稳定币条例》向碇点金融科技有限公司及香港上海汇丰银行有限公司授予稳定币发行人牌照，以在香港发行稳定币。牌照于今日生效。 根据持牌人的业务计划，待相关准备工作完成后，他们拟于未来数月内开展业务。 两家获牌机构中，碇点金融科技有限公司是由渣打银行（香港）、香港电讯和安拟集团合组的合资企业。 金管局总裁余伟文
+中新网北京5月25日电 (记者 郭超凯 陈溯)据气象部门预测，5月24日至27日，安徽南部有大暴雨到特大暴雨，应急管理部和自然资源部开展联合会商研判，安徽南部局地发生地质灾害的风险较高。根据《国家突发地质灾害应急预案》及有关规定，应急管理部于5月24日19时30分针对安徽启动国家地质灾害四级应急响应。应急管理部要求，相关地区要密切监视雨情汛情和地质灾害灾情险情，落实部门协同联动
 
 ## 正文
 
-首批香港稳定币牌照正式公布。
+中新网北京5月25日电 (记者 郭超凯 陈溯)据气象部门预测，5月24日至27日，安徽南部有大暴雨到特大暴雨，应急管理部和自然资源部开展联合会商研判，安徽南部局地发生地质灾害的风险较高。
 
-4月10日，香港金管局宣布，金融管理专员根据《稳定币条例》向碇点金融科技有限公司及香港上海汇丰银行有限公司授予稳定币发行人牌照，以在香港发行稳定币。
+根据《国家突发地质灾害应急预案》及有关规定，应急管理部于5月24日19时30分针对安徽启动国家地质灾害四级应急响应。
 
-牌照于今日生效。
+应急管理部要求，相关地区要密切监视雨情汛情和地质灾害灾情险情，落实部门协同联动工作机制，压实地方防范应对主体责任，加强会商研判和预警响应联动，预置前置救援力量、物资、装备，强化巡查排查和监测预警，果断组织转移避险，切实做好地质灾害防范应对工作。
 
-根据持牌人的业务计划，待相关准备工作完成后，他们拟于未来数月内开展业务。
+同时，应急管理部继续维持湖南、广东、广西、湖北、贵州、四川、重庆七省(区、市)地质灾害四级应急响应。
 
-两家获牌机构中，碇点金融科技有限公司是由渣打银行（香港）、香港电讯和安拟集团合组的合资企业。
-
-金管局总裁余伟文表示：“批出稳定币发行人牌照是香港数字资产发展的重要里程碑。
-
-监管制度提供一个有序的营运环境，让稳定币发行人在应用创新科技的同时，妥善保障用户权益和管控相关风险，使香港稳定币生态圈健康、负责任和可持续地发展。
-
-我期待发行人按计划开展业务，在管控好风险的同时，积极开拓发展空间，推广合规稳定币的应用，解决金融和经济活动中的痛点，为市民和企业创造价值，推动香港数字资产的健康发展。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 07:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 07:16 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 07:03 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 07:29 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 07:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 07:03 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 07:01 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 07:26 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 07:04 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 07:08 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 07:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 07:19 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 07:26 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 07:33 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 07:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 07:26 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 07:24 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 07:08 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 07:11 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 07:27 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 07:34 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 07:32 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:11 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/58624.shtml)
-- 2026-06-30 07:14 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/0962321415.shtml)
-- 2026-06-30 07:20 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/5418499.shtml)
-- 2026-06-30 07:14 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/015783169743.shtml)
-- 2026-06-30 07:26 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/526335628.shtml)
-- 2026-06-30 07:21 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/516416701.shtml)
-- 2026-06-30 07:05 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/118092.shtml)
-- 2026-06-30 07:01 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/713022.shtml)
-- 2026-06-30 07:21 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/65513.shtml)
-- 2026-06-30 07:24 - [世界杯](https://www.blog.kurohicncr.top/Article/details/18752440962.shtml)
-- 2026-06-30 07:16 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/2395387095.shtml)
-- 2026-06-30 07:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/573666167285.shtml)
-- 2026-06-30 07:04 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/47843040.shtml)
-- 2026-06-30 07:15 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/9779733172.shtml)
-- 2026-06-30 07:09 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/34739.shtml)
+- 2026-06-30 07:27 - [网瘾賊大的阿嬷](http://www.share.kurohicncr.top/Article/details/8311392.shtml)
+- 2026-06-30 07:30 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/28143456398.shtml)
+- 2026-06-30 07:32 - [小娘惹](https://www.share.minike.top/Article/details/57247013.shtml)
+- 2026-06-30 07:17 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/2927323042.shtml)
+- 2026-06-30 07:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/3534408704.shtml)
+- 2026-06-30 07:17 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/795444.shtml)
+- 2026-06-30 07:20 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.kurohicncr.top/Article/details/723174.shtml)
+- 2026-06-30 07:13 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/73123653734.shtml)
+- 2026-06-30 07:16 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/194341244.shtml)
+- 2026-06-30 07:20 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/00575059713.shtml)
+- 2026-06-30 07:13 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/24165718.shtml)
+- 2026-06-30 07:33 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/195492611.shtml)
+- 2026-06-30 07:15 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/109495503.shtml)
+- 2026-06-30 07:12 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/86236517745.shtml)
+- 2026-06-30 07:08 - [金牌调解](http://www.share.kurohicncr.top/Article/details/9762976.shtml)

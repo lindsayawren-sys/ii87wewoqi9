@@ -1,58 +1,59 @@
-# 花500万做公益？揭秘张雪冠军车“中拍者”洗脸熊：多地加盟商跑路，消费者喊“还钱”
+# ST如意累计虚增利润7.81亿，公司及主要责任人被罚，实控人邱亚夫终身禁入证券市场
 
-> 更新时间：2026-06-30 07:30:02 UTC+8
+> 更新时间：2026-06-30 07:36:02 UTC+8
 
 ## 摘要
 
-文|《BUG》栏目 闫妍 张雪机车WSBK冠军复刻赛车公益拍卖，以45秒光速触顶500万引爆全网。 就在昨晚，张雪机车在直播间拍卖WSBK夺冠赛车53号的复刻版，这场拍卖尚未开始，直播间在线人数便已突破10万人次。正式开拍后，竞拍过程异常激烈，整场拍卖不到1分钟即宣告结束。 到底是谁花费了500万元，买走了赛车？背后又有何目的？ 在直播间，张雪当晚连线了这位拍得复刻车的买家。该
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月22日，ST如意（维权）（002193.SZ）公告披露，公司及相关当事人收到证监会山东监管局《行政处罚决定书》。经核查，公司2022年年报虚增利润总额6.77亿元，2024年半年报虚增利润总额1.04亿元。证监会决定对ST如意给予警告并处以700万元罚款；对公司原实控人、时任董事长邱亚夫给予警告、处以400万元罚款并实施终身
 
 ## 正文
 
-文|《BUG》栏目 闫妍 张雪机车WSBK冠军复刻赛车公益拍卖，以45秒光速触顶500万引爆全网。
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月22日，ST如意（维权）（002193.SZ）公告披露，公司及相关当事人收到证监会山东监管局《行政处罚决定书》。
 
-就在昨晚，张雪机车在直播间拍卖WSBK夺冠赛车53号的复刻版，这场拍卖尚未开始，直播间在线人数便已突破10万人次。
+经核查，公司2022年年报虚增利润总额6.77亿元，2024年半年报虚增利润总额1.04亿元。
 
-正式开拍后，竞拍过程异常激烈，整场拍卖不到1分钟即宣告结束。
+证监会决定对ST如意给予警告并处以700万元罚款；对公司原实控人、时任董事长邱亚夫给予警告、处以400万元罚款并实施终身证券市场禁入；其他相关责任人亦被处以50万至250万元不等罚款。
 
-到底是谁花费了500万元，买走了赛车？
+公开资料显示，ST如意前身为老牌毛纺企业济宁毛纺织厂，深耕毛纺服装领域多年，2007年成功登陆深交所，曾是国内毛纺行业的标杆企业，拥有国家级技术研发平台，在高端面料、品牌服装生产销售领域具备深厚行业积淀。
 
-背后又有何目的？
+但近年公司经营持续承压，业绩连年亏损，经营发展陷入困境，在此背景下曝出重大财务造假违规问题。
 
-在直播间，张雪当晚连线了这位拍得复刻车的买家。
+监管核查结果明确了公司两大财务造假事实，违规情节恶劣、涉案金额巨大。
 
-该买家表示，其是广东爱美熊美容科技有限公司旗下品牌“洗脸熊”的一名员工，代表公司参与拍卖。
+一是，2022年度，ST如意通过子公司出资5.6亿元取得佛山莱卡新材料有限公司30%股权。
 
-今日，洗脸熊员工向《BUG》栏目表示，“我们领导提前有部署，动员公司员工参与这个竞拍，很多同事当时都在一起点，突然就中了也觉得很神奇，目前我们的（公司）财务已经和张雪机车财务对接上了，正在走后续的程序。
+经查，佛山莱卡实物出资因重大纠纷未实缴到位，现金出资被转出，未实质开展生产经营。
 
 ## 相关推荐
 
-- 2026-06-30 07:10 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 07:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 07:15 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-30 07:28 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 07:12 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 07:22 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 07:26 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 07:10 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 07:02 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 07:24 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 07:13 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 07:08 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 07:20 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 07:19 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 07:32 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 07:08 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 07:10 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 07:16 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 07:07 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 07:22 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 07:31 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 07:06 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 07:21 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 07:09 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 07:27 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:06 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/1916131034.shtml)
-- 2026-06-30 07:23 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/87426551469.shtml)
-- 2026-06-30 07:15 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/0039711.shtml)
-- 2026-06-30 07:23 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/17803089.shtml)
-- 2026-06-30 07:23 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/166321.shtml)
-- 2026-06-30 07:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/063102307130.shtml)
-- 2026-06-30 07:04 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/967764859.shtml)
-- 2026-06-30 07:22 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/687621626.shtml)
-- 2026-06-30 07:14 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/8217064.shtml)
-- 2026-06-30 07:15 - [巴拉圭进球](http://www.share.kurohicncr.top/Article/details/8306571.shtml)
-- 2026-06-30 07:23 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/1625392.shtml)
-- 2026-06-30 07:14 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.minike.top/Article/details/0824836.shtml)
-- 2026-06-30 07:10 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/08678912823.shtml)
-- 2026-06-30 07:14 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/5666173.shtml)
-- 2026-06-30 07:29 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/483097554338.shtml)
+- 2026-06-30 07:08 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/21501.shtml)
+- 2026-06-30 07:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/123074.shtml)
+- 2026-06-30 07:18 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/998064.shtml)
+- 2026-06-30 07:14 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.kurohicncr.top/Article/details/41187.shtml)
+- 2026-06-30 07:08 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/75970.shtml)
+- 2026-06-30 07:10 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/965234826.shtml)
+- 2026-06-30 07:14 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/8324406.shtml)
+- 2026-06-30 07:27 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/497448304723.shtml)
+- 2026-06-30 07:31 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/9441097.shtml)
+- 2026-06-30 07:32 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/52640.shtml)
+- 2026-06-30 07:15 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/1607774893.shtml)
+- 2026-06-30 07:31 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/213208695857.shtml)
+- 2026-06-30 07:11 - [房价什么时候能涨](https://www.share.minike.top/Article/details/8594513.shtml)
+- 2026-06-30 07:24 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/00414.shtml)
+- 2026-06-30 07:30 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/119331153212.shtml)
