@@ -1,58 +1,56 @@
-# （友城故事）四川与澳大利亚维多利亚州结好十年 州督盼合作持续深化
+# 法语原版音乐剧《大鼻子情圣》首度来华演出
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新社成都5月15日电 (记者 岳依桐)“我此行最大的收获，是真切感受到四川省当下的发展实力，以及双方未来的合作空间。我们现有的合作基础十分扎实，未来的合作机遇非常广阔，甚至可以说潜力巨大。”15日，澳大利亚维多利亚州州督加德纳在成都接受采访时如是说。 2016年，四川与维多利亚州正式缔结友好省州关系，这是四川与澳大利亚第一对正式友好省州关系，也是中澳间第100对友城关系。20
+中新网上海5月14日电 (王笈 李秋莹)浓郁的法兰西风情，跨越世纪的浪漫诗篇……法语原版音乐剧《大鼻子情圣》14日晚在上海文化广场与中国观众见面。 法语原版音乐剧《大鼻子情圣》脱胎于法国剧作家埃德蒙·罗斯丹(Edmond Rostand)创作于19世纪的同名经典五幕诗剧。这部被誉为“19世纪法国戏剧巅峰”的传奇之作，以隽永的诗意与深挚的情感，征服了一代又一代观众。 创作团队在保
 
 ## 正文
 
-中新社成都5月15日电 (记者 岳依桐)“我此行最大的收获，是真切感受到四川省当下的发展实力，以及双方未来的合作空间。
+中新网上海5月14日电 (王笈 李秋莹)浓郁的法兰西风情，跨越世纪的浪漫诗篇……法语原版音乐剧《大鼻子情圣》14日晚在上海文化广场与中国观众见面。
 
-我们现有的合作基础十分扎实，未来的合作机遇非常广阔，甚至可以说潜力巨大。
+法语原版音乐剧《大鼻子情圣》脱胎于法国剧作家埃德蒙·罗斯丹(Edmond Rostand)创作于19世纪的同名经典五幕诗剧。
 
-”15日，澳大利亚维多利亚州州督加德纳在成都接受采访时如是说。
+这部被誉为“19世纪法国戏剧巅峰”的传奇之作，以隽永的诗意与深挚的情感，征服了一代又一代观众。
 
-2016年，四川与维多利亚州正式缔结友好省州关系，这是四川与澳大利亚第一对正式友好省州关系，也是中澳间第100对友城关系。
+创作团队在保留原著浪漫内核的基础上，做出了大胆的叙事重构，把这个以17世纪为历史背景的故事，巧妙置入一个充满怀旧气息的艺术家世界——西哈诺化身为一名才华横溢却敏感内敛的词曲作者，罗克珊是心怀芭蕾舞者梦想的女孩，克里斯蒂安则成了初出茅庐的年轻歌手。
 
-2024年，加德纳履新后首次访问中国，第一站便是四川。
+三人之间复杂而动人的情感交织，在全新编排的音乐与舞蹈中，实现了更具当代感与生命力的表达。
 
-今年正值两省州结好十周年，加德纳再次访问四川并出席庆祝活动。
+音乐剧《大鼻子情圣》的词曲由参与打造过《太阳王》《摇滚莫扎特》的菲利普·哈腾伯格(Philippe Hattemberg)与斯特凡·布鲁内罗(Stéphane Brunello)联袂执笔。
 
-“尽管四川省与维多利亚州相距8700公里，但两个省州及两地民众，却因在资源禀赋与宏伟抱负上的契合而紧密相连。
+两位创作者将原作中细腻的文字转化为风格多变、情感层次丰富的歌曲，让原本流淌于纸页上的情诗在歌声中被一一释放，化为舞台上的情感共鸣。
 
-我们拥有诸多共同之处。
+在法国演出期间，该剧获得了业界与观众的高度评价。
 
 ## 相关推荐
 
-- 2026-06-30 04:51 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 05:04 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 05:05 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 04:53 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 04:51 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-30 05:03 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 05:10 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 04:52 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 04:50 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 05:07 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 04:54 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 04:55 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 05:05 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 04:55 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 04:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 05:00 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 05:17 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 05:05 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 05:13 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 05:17 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 05:04 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 05:09 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:16 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/5685091.shtml)
-- 2026-06-30 05:17 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/11002.shtml)
-- 2026-06-30 05:13 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/464661.shtml)
-- 2026-06-30 04:51 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/81714300619.shtml)
-- 2026-06-30 04:55 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/751407.shtml)
-- 2026-06-30 04:52 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/32100.shtml)
-- 2026-06-30 05:07 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/93516.shtml)
-- 2026-06-30 05:09 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/8855055952.shtml)
-- 2026-06-30 04:56 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/22350513.shtml)
-- 2026-06-30 05:12 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/665460395650.shtml)
-- 2026-06-30 04:58 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/36121308.shtml)
-- 2026-06-30 05:11 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/8328742.shtml)
-- 2026-06-30 04:59 - [巴西扳平比分](http://www.blog.minike.top/Article/details/78745909.shtml)
-- 2026-06-30 04:48 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/120216153290.shtml)
-- 2026-06-30 04:58 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/458122066902.shtml)
+- 2026-06-30 05:16 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/98780796.shtml)
+- 2026-06-30 04:57 - [内马尔替补](https://www.share.minike.top/Article/details/32715.shtml)
+- 2026-06-30 05:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/68780.shtml)
+- 2026-06-30 05:05 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/20433341.shtml)
+- 2026-06-30 05:05 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/588066486832.shtml)
+- 2026-06-30 05:12 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/992664936433.shtml)
+- 2026-06-30 04:54 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/73150.shtml)
+- 2026-06-30 05:06 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/397816981446.shtml)
+- 2026-06-30 05:23 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/78966.shtml)
+- 2026-06-30 05:08 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/581801398.shtml)
+- 2026-06-30 04:59 - [速度与激情9](https://www.blog.minike.top/Article/details/8104209948.shtml)
+- 2026-06-30 05:06 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/77262134.shtml)
+- 2026-06-30 05:01 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/804708544.shtml)
+- 2026-06-30 05:04 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/8939702.shtml)
+- 2026-06-30 05:15 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/734263.shtml)

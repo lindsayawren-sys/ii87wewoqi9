@@ -1,59 +1,61 @@
-# 苏州银行：张伟、毛竹春、蒋亮获批担任董事，夏平、赵欣、吴杰获批担任独立董事
+# 上海国际电影节全新单元“AI片场”在沪“开机”
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-5月15日金融一线消息，苏州银行今日发布公告称，该行该行近日收到《江苏金融监管局关于张伟等 6 人苏州银行董事、独立董事任职资格的批复》（苏金复〔2026〕139号），核准张伟、毛竹春、蒋亮等 3 人该行董事的任职资格，核准夏平、赵欣、吴杰等 3 人该行独立董事的任职资格。 公开资料显示，张伟，男，1988 年 4 月出生，硕士研究生学历，高级会计师、中级经济师，现任苏州高新区
+中新社上海5月13日电 (记者 王笈)人工智能正深刻改变影视内容生产方式，成为越来越多专业影视工作者关注的方向。13日，第28届上海国际电影节全新单元“AI片场”在上海率先“开机”。 将于6月12日至21日举行的第28届上海国际电影节(下称“上影节”)，是中国唯一的国际A类电影节。 本届上影节首次设立“AI片场”单元，打造面向行业开放的AI影像协作实验场，邀请影视创作者与AI超
 
 ## 正文
 
-5月15日金融一线消息，苏州银行今日发布公告称，该行该行近日收到《江苏金融监管局关于张伟等 6 人苏州银行董事、独立董事任职资格的批复》（苏金复〔2026〕139号），核准张伟、毛竹春、蒋亮等 3 人该行董事的任职资格，核准夏平、赵欣、吴杰等 3 人该行独立董事的任职资格。
+中新社上海5月13日电 (记者 王笈)人工智能正深刻改变影视内容生产方式，成为越来越多专业影视工作者关注的方向。
 
-公开资料显示，张伟，男，1988 年 4 月出生，硕士研究生学历，高级会计师、中级经济师，现任苏州高新区国有资本控股集团有限公司总经理助理。
+13日，第28届上海国际电影节全新单元“AI片场”在上海率先“开机”。
 
-历任苏州高新区经济发展集团总公司内控部科员、副科长，苏州新港物业服务有限公司财务副总监，苏州苏高新科技产业发展有限公司财务副总监、二级财务总监，苏州苏高新集团有限公司内控部主任助理、副主任等职。
+将于6月12日至21日举行的第28届上海国际电影节(下称“上影节”)，是中国唯一的国际A类电影节。
 
-毛竹春，男，1973 年 10 月出生，本科学历，注册会计师，现任江苏吴中集团有限公司执行副总裁、财务总监。
+本届上影节首次设立“AI片场”单元，打造面向行业开放的AI影像协作实验场，邀请影视创作者与AI超级创作者以“1+1”方式组队，在一个月内使用AI工具，磨合创作流程，完成AI影像短片创制，并将其过程转化为可被观察、讨论的创制样本。
 
-历任江南学院经济管理学助教，江苏吴中集团有限公司资产审计部经理，江苏吴中集团有限公司财务总监，中国汇融金融控股有限公司执行董事、首席财务官等职。
+在为期43天的公开征集中，“AI片场”收到了来自7个国家和地区的近500名影视创作者、AI超级创作者的报名。
 
-蒋亮，女，1981 年 11 月出生，硕士研究生学历，现任本行总行群团工作部总经理。
+经过前期评选、破冰组队、终选路演，最终形成4组由影视创作者与AI超级创作者组成的融合创制团队，于当日亮相上海临港科技智慧图书馆。
 
-历任中国银行悉尼分行公司部客户经理，交通银行总行公司部产品经理、投资管理部投资并购专员（其间挂职交通银行苏州分行零贷部副总经理、授信部副总经理、投行部副总经理、托管部总经理、金融同业部总经理），本行公司银行总部综合管理部副总经理、公司银行总部企划综合部副总经理、总行办公室副主任。
+上海国际影视节中心副主任童颖表示，“AI片场”创新采用“1+1”融合机制，希望让两类创作者真正进入同一个创作现场——一方带来影像语言和经验判断，另一方带来技术工具和新的生产逻辑，在协作中弥合认知差异，碰撞新的火花。
 
-夏平，男，1963 年 7 月出生，研究生学历，硕士学位，正高级经济师。
+融合创制团队“Bicycle Kids”成员之一、德国AI导演马克(Mark Wachholz)告诉中新社记者，两年前AI电影节开始兴起，他去过韩国、意大利、瑞士等地的相关影展，今年想看看传统电影节能否接纳AI创作，“传统电影制作与AI创作在同一平台进行展示，或许会有新的融合和发现”。
 
 ## 相关推荐
 
-- 2026-06-30 05:11 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 05:18 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 05:03 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 04:57 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-30 04:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 05:16 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 05:01 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-30 05:12 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 05:05 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 04:51 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 04:48 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 04:55 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 05:11 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 05:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 05:14 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 05:16 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 05:22 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 05:12 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 05:07 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 04:58 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 05:19 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 05:08 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 04:58 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 05:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 05:21 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 05:22 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 05:07 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 04:56 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:11 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/921479096488.shtml)
-- 2026-06-30 05:10 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/67035559.shtml)
-- 2026-06-30 04:53 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/9673009222.shtml)
-- 2026-06-30 05:13 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/98072.shtml)
-- 2026-06-30 04:58 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/324992274925.shtml)
-- 2026-06-30 05:00 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/83512.shtml)
-- 2026-06-30 05:14 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/96012095562.shtml)
-- 2026-06-30 05:09 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/440086887104.shtml)
-- 2026-06-30 05:01 - [乔家的儿女](https://www.blog.minike.top/Article/details/23209.shtml)
-- 2026-06-30 04:57 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/27729256.shtml)
-- 2026-06-30 04:53 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/0284682466.shtml)
-- 2026-06-30 05:16 - [千与千寻](https://www.share.minike.top/Article/details/395267.shtml)
-- 2026-06-30 04:54 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/9014072509.shtml)
-- 2026-06-30 05:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/78715.shtml)
-- 2026-06-30 05:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/94305.shtml)
+- 2026-06-30 05:09 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/895052351854.shtml)
+- 2026-06-30 05:10 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/55406838.shtml)
+- 2026-06-30 05:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/27374533.shtml)
+- 2026-06-30 04:59 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/77097.shtml)
+- 2026-06-30 05:17 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/38815.shtml)
+- 2026-06-30 05:00 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/00639.shtml)
+- 2026-06-30 05:21 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/239283819.shtml)
+- 2026-06-30 05:16 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/6349071655.shtml)
+- 2026-06-30 05:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/799504258.shtml)
+- 2026-06-30 05:03 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/8900973.shtml)
+- 2026-06-30 05:01 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/8744230362.shtml)
+- 2026-06-30 04:56 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/327105.shtml)
+- 2026-06-30 05:06 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/320700.shtml)
+- 2026-06-30 05:15 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/22077108205.shtml)
+- 2026-06-30 05:08 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/07839438308.shtml)

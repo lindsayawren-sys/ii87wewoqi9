@@ -1,56 +1,57 @@
-# 斯塔默政治前途“悬而未决” 潜在竞争者都有谁？
+# 让生活更美好 让生产更高效——“中国经济圆桌会”共话服务业扩能提质
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新网5月15日电 “在英国卫生和社会福利大臣韦斯·斯特里廷辞职后，首相斯塔默的政治前途悬而未决。”英国广播公司(BBC)评论道。 数日前，工党在英国地方选举中遭遇惨败，选情重挫直接引爆党内积怨。连日来，工党内部议员不断发声，或是要求斯塔默主动辞职，或是催促其明确下台时间表。随着工党内部分裂持续发酵，数名潜在竞争者也被曝为备选工党党首开路清障。 辞职“逼宫” 当地时间14日，英
+视频：让生活更美好 让生产更高效——“中国经济圆桌会”共话服务业扩能提质来源：新华社服务业是我国国民经济第一大产业，在支撑产业升级、满足民生需要、带动就业扩容等方面发挥的作用日益凸显，成为推动我国经济社会发展的重要引擎。“十五五”时期，服务业规模预计将突破100万亿元。今年4月，全国服务业大会在京召开，习近平总书记就服务业发展作出重要指示。总书记强调，新征程上，要坚持以新时代中
 
 ## 正文
 
-中新网5月15日电 “在英国卫生和社会福利大臣韦斯·斯特里廷辞职后，首相斯塔默的政治前途悬而未决。
+视频：让生活更美好 让生产更高效——“中国经济圆桌会”共话服务业扩能提质来源：新华社服务业是我国国民经济第一大产业，在支撑产业升级、满足民生需要、带动就业扩容等方面发挥的作用日益凸显，成为推动我国经济社会发展的重要引擎。
 
-”英国广播公司(BBC)评论道。
+“十五五”时期，服务业规模预计将突破100万亿元。
 
-数日前，工党在英国地方选举中遭遇惨败，选情重挫直接引爆党内积怨。
+今年4月，全国服务业大会在京召开，习近平总书记就服务业发展作出重要指示。
 
-连日来，工党内部议员不断发声，或是要求斯塔默主动辞职，或是催促其明确下台时间表。
+总书记强调，新征程上，要坚持以新时代中国特色社会主义思想为指导，完整准确全面贯彻新发展理念，突出需求牵引、改革攻坚、科技赋能、开放合作，深入实施服务业扩能提质行动，推进生产性服务业向专业化和价值链高端延伸，促进生活性服务业高品质多样化便利化发展，培育更多“中国服务”品牌，努力开创服务业高质量发展新局面。
 
-随着工党内部分裂持续发酵，数名潜在竞争者也被曝为备选工党党首开路清障。
+新华社推出“中国经济圆桌会”大型全媒体访谈节目，邀请国家发展改革委产业发展司副司长李春芳，国务院发展研究中心市场经济研究所副所长刘涛，中国质量认证中心有限公司总经理刘钢，荣华养老服务有限责任公司董事长张程程，深入阐释如何实现服务业扩能提质、目前我国服务业还存在哪些短板、在推动服务业高质量发展方面将有哪些政策利好，共话服务业发展前景。
 
-辞职“逼宫” 当地时间14日，英国卫生和社会福利大臣韦斯·斯特里廷宣布辞职，成为首位公开宣布辞职“逼宫”的内阁高官。
-
-斯特里廷在辞职信中说，他对斯塔默的领导“失去信心”。
-
-他还直言，种种迹象已经表明，斯塔默无法继续带领工党征战下一届大选。
+新华社音视频部制作 新华通讯社出品
 
 ## 相关推荐
 
-- 2026-06-30 04:49 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 05:11 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 05:02 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-30 05:13 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 04:58 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-30 05:13 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 04:54 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 04:55 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 05:09 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 05:15 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 05:20 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 05:19 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-30 05:17 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 05:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-30 05:09 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 05:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 04:55 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 05:01 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 05:18 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 05:08 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 05:04 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 05:15 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 05:03 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 05:17 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 05:05 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:48 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/28334238.shtml)
-- 2026-06-30 05:13 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/01196125595.shtml)
-- 2026-06-30 04:58 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/36121906.shtml)
-- 2026-06-30 05:00 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/093591.shtml)
-- 2026-06-30 05:10 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/17511618.shtml)
-- 2026-06-30 05:02 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/9217222.shtml)
-- 2026-06-30 05:01 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/28358812169.shtml)
-- 2026-06-30 05:13 - [美股](https://www.share.kurohicncr.top/Article/details/735845141.shtml)
-- 2026-06-30 04:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/413135092.shtml)
-- 2026-06-30 05:10 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/756987.shtml)
-- 2026-06-30 05:17 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/3161484505.shtml)
-- 2026-06-30 04:52 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/2987122.shtml)
-- 2026-06-30 05:11 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/07821282.shtml)
-- 2026-06-30 04:59 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/762756711.shtml)
-- 2026-06-30 05:15 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/569736904688.shtml)
+- 2026-06-30 05:20 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/422198534.shtml)
+- 2026-06-30 05:19 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/45469389.shtml)
+- 2026-06-30 05:05 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/52322767289.shtml)
+- 2026-06-30 05:05 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/62967655105.shtml)
+- 2026-06-30 05:05 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/474651223844.shtml)
+- 2026-06-30 05:19 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/5787097903.shtml)
+- 2026-06-30 05:16 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/08784904108.shtml)
+- 2026-06-30 05:20 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/1642090.shtml)
+- 2026-06-30 05:05 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/4579875423.shtml)
+- 2026-06-30 05:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/3835028.shtml)
+- 2026-06-30 05:21 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/53625123.shtml)
+- 2026-06-30 04:55 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/921982864457.shtml)
+- 2026-06-30 05:04 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/02257.shtml)
+- 2026-06-30 05:04 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/986816522631.shtml)
+- 2026-06-30 05:22 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/46889828.shtml)

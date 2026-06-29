@@ -1,59 +1,58 @@
-# 515投资者保护 | “公益+投教”双融合！《银华小小理财家》财商课荣获2026年度最佳投资者教育创新奖
+# 国家医保局印发《五年行动计划》 建立健全医保基金监管体系
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。银华基金凭借《银华小小理财家》“公益+投教”财商课程活动，荣获2026年度“最佳投资者教育创新奖”。 据悉，为响应中国证券投资基金业协会“一司一省一高校”投资者教育专项号召，深入践行金融为民与普惠金融理念，银华基金创新打造“公益+投教”双融合财商教育模
+本报北京5月13日电 （记者孙秀艳）国家医保局近日印发《医疗保障基金监督检查五年行动计划（2026年—2030年）》，提出未来5年医保基金监管的整体目标任务，即基本建成宽严相济、标本兼治、综合施策，全方位、多层次、立体化的医保基金监管体系，实现震慑态势进一步巩固、智能监管能力明显提升、监管机制更加完备、制度更加健全、主体自我管理主动性有效提升、基金使用行为更加规范、基金运行环境
 
 ## 正文
 
-专题：515投资者保护！
+本报北京5月13日电 （记者孙秀艳）国家医保局近日印发《医疗保障基金监督检查五年行动计划（2026年—2030年）》，提出未来5年医保基金监管的整体目标任务，即基本建成宽严相济、标本兼治、综合施策，全方位、多层次、立体化的医保基金监管体系，实现震慑态势进一步巩固、智能监管能力明显提升、监管机制更加完备、制度更加健全、主体自我管理主动性有效提升、基金使用行为更加规范、基金运行环境深度净化、医保治理体系和治理能力现代化水平显著提升。
 
-新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。
+国家医保局有关负责人表示，国家医保局自成立以来，积极探索建立了飞行检查机制，坚持打防结合，有力筑牢了基金安全防线。
 
-银华基金凭借《银华小小理财家》“公益+投教”财商课程活动，荣获2026年度“最佳投资者教育创新奖”。
+然而，目前基金安全运行仍面临诸多挑战，一方面，基金“跑冒滴漏”问题尚未彻底根治，欺诈骗保时有发生，骗保方式呈现隐蔽化、专业化、复杂化特征，对基金安全构成直接冲击。
 
-据悉，为响应中国证券投资基金业协会“一司一省一高校”投资者教育专项号召，深入践行金融为民与普惠金融理念，银华基金创新打造“公益+投教”双融合财商教育模式，为乡村学子带去生动有趣的《银华小小理财家》财商启蒙课，以金融温度赋能儿童成长，让财商教育的种子扎根校园沃土。
+另一方面，随着医保参保覆盖面扩大、保障待遇水平提升、医保支付方式改革推进，基金使用主体日益多元，资金流转链条不断延伸，进一步加大了医保基金风险防控难度，对基金监管工作提出了更高要求。
 
-财商教育是国民金融素养教育的核心组成，更是儿童素质教育的重要一课。
+《五年行动计划》提出了“十五五”时期医保基金监管重点工作，包括重拳治标，持续巩固“不敢骗”的高压态势，通过强化飞行检查，充分发挥震慑效应；技术赋能，不断织密“不能骗”的天罗地网；源头治本，持续健全“不想骗”的长效机制。
 
-从小培育正确的财富观、消费观与理财意识，不仅能帮助孩子们树立理性规划的生活理念，更能为全民金融素养提升筑牢根基。
+针对飞行检查，推动监督检查全面覆盖，覆盖全国所有统筹地区，覆盖各主体、各类型、各性质、各规模、各场景、各险种。
 
-《银华小小理财家》财商启蒙课程，通过案例讲解、互动分析、游戏实践等多种形式，帮助小朋友了解货币演变、财富来源、理性消费、储蓄意义及复利价值相关知识，引导小朋友树立正确的金钱观、消费观与理财意识，学会合理规划财富。
+通过国家、省、市三级联动，构建起立体化的监管格局。
 
-财商启蒙课一共分为5个部分讲述： 第一部分：主题为“穿越金银岛”主要讲述金钱的演变以及不同国家的货币。
+“十五五”时期，力争完成全国定点医药机构现场检查全覆盖。
 
 ## 相关推荐
 
-- 2026-06-30 05:12 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 04:58 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 05:04 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 04:54 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 04:50 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 05:16 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 04:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 05:12 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 05:15 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 05:01 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 05:00 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 05:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 04:57 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 05:18 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 05:16 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 05:14 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 05:03 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 05:05 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 05:12 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 05:05 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-30 04:56 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 05:02 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 05:13 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 05:07 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 05:05 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:09 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/205201.shtml)
-- 2026-06-30 04:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/411822506.shtml)
-- 2026-06-30 05:02 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/020620658.shtml)
-- 2026-06-30 05:14 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/293912879.shtml)
-- 2026-06-30 05:04 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/09227294358.shtml)
-- 2026-06-30 05:05 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/253306341.shtml)
-- 2026-06-30 05:17 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/3825186526.shtml)
-- 2026-06-30 05:02 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/87782672492.shtml)
-- 2026-06-30 05:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/334224800.shtml)
-- 2026-06-30 04:49 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/222849744273.shtml)
-- 2026-06-30 04:52 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/63123.shtml)
-- 2026-06-30 04:48 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/91556529.shtml)
-- 2026-06-30 05:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/49491321.shtml)
-- 2026-06-30 04:58 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/174288.shtml)
-- 2026-06-30 05:07 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/1004651967.shtml)
+- 2026-06-30 05:10 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/0687534467.shtml)
+- 2026-06-30 05:22 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/2991018.shtml)
+- 2026-06-30 05:15 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/55278.shtml)
+- 2026-06-30 05:20 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/9929400012.shtml)
+- 2026-06-30 05:12 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/1885038.shtml)
+- 2026-06-30 05:01 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/768790.shtml)
+- 2026-06-30 05:20 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/17019021516.shtml)
+- 2026-06-30 05:19 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/24388392372.shtml)
+- 2026-06-30 04:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/64715694544.shtml)
+- 2026-06-30 04:54 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/22285.shtml)
+- 2026-06-30 05:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/225841374856.shtml)
+- 2026-06-30 05:12 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/970521.shtml)
+- 2026-06-30 05:10 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/08769.shtml)
+- 2026-06-30 05:16 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/958090105838.shtml)
+- 2026-06-30 05:16 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/79277.shtml)

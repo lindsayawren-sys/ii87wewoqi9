@@ -1,61 +1,58 @@
-# A股氦气板块周四走强
+# 一季度马来西亚就业岗位总量同比增1.8%
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新社北京5月14日电 (记者 陈康亮)中国A股14日(周四)遭遇调整，主要股指悉数下跌；氦气概念板块逆势上涨，表现亮眼。 根据金融数据服务商东方财富的统计，氦气概念板块当天上涨3.41%，领涨A股所有概念板块。个股方面，正帆科技、侨源股份、和远气体、冰轮环境当天股价均涨逾5%。 据媒体报道，中东战事不仅推高了石油、天然气的价格，还加剧了全球工业氦气的供应短缺。卡塔尔是全球第二
+中新网吉隆坡5月14日电 (记者 刘育英)马来西亚统计局14日发布的2026年第一季度就业统计报告显示，今年第一季度马来西亚就业岗位总量达到923万个，较去年同期的906万个增长1.8%，显示就业市场继续保持扩张态势。数据显示，在923万个岗位中，97.9%(约903万个)已被填补，其余2.1%为空缺岗位。当季共新增3.27万个岗位，同比减少1.5%，但整体岗位规模仍持续增长。
 
 ## 正文
 
-中新社北京5月14日电 (记者 陈康亮)中国A股14日(周四)遭遇调整，主要股指悉数下跌；氦气概念板块逆势上涨，表现亮眼。
+中新网吉隆坡5月14日电 (记者 刘育英)马来西亚统计局14日发布的2026年第一季度就业统计报告显示，今年第一季度马来西亚就业岗位总量达到923万个，较去年同期的906万个增长1.8%，显示就业市场继续保持扩张态势。
 
-根据金融数据服务商东方财富的统计，氦气概念板块当天上涨3.41%，领涨A股所有概念板块。
+数据显示，在923万个岗位中，97.9%(约903万个)已被填补，其余2.1%为空缺岗位。
 
-个股方面，正帆科技、侨源股份、和远气体、冰轮环境当天股价均涨逾5%。
+当季共新增3.27万个岗位，同比减少1.5%，但整体岗位规模仍持续增长。
 
-据媒体报道，中东战事不仅推高了石油、天然气的价格，还加剧了全球工业氦气的供应短缺。
+从行业分布来看，服务业仍是最大就业领域，占已填补岗位的53.3%，约482万个岗位；制造业占26.7%，约241万个岗位；建筑业占13.9%，约125万个岗位。
 
-卡塔尔是全球第二大氦气生产国，其氦气产量约占全球产量的三分之一。
+按技能类别划分，半熟练技能岗位仍占最大比重，共有573万个岗位，占整体岗位需求逾六成。
 
-霍尔木兹海峡航运受阻，导致卡塔尔生产的氦气无法运出。
+熟练技能岗位同比增长2.6%，增至233万个，反映市场对专业技能人才的需求持续增加。
 
-国盛证券分析师花小伟表示，全球氦气市场已进入新一轮短缺周期。
+统计局首席统计师表示，尽管全球地缘政治紧张带来供应链及成本压力，马来西亚就业市场在一季度仍保持较强韧性，政府的应对措施在一定程度上减轻了外部冲击的影响。
 
-半导体、医疗核磁共振、光纤构成中国氦气三大核心消费场景，航天航空等新兴领域应用持续拓展，行业需求刚性不断凸显。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:16 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 04:57 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-30 04:59 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 04:51 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 05:06 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 04:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 05:00 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 05:08 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 05:06 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 05:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 04:49 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 04:54 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 05:04 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 05:10 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-30 04:51 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 04:56 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 05:11 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 05:04 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 05:15 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 05:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 05:19 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 05:19 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 05:23 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 05:15 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 04:54 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 04:56 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 04:55 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/7356155.shtml)
-- 2026-06-30 04:52 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/894750458.shtml)
-- 2026-06-30 04:56 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/8494953.shtml)
-- 2026-06-30 05:02 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/752864356218.shtml)
-- 2026-06-30 05:15 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/0976454543.shtml)
-- 2026-06-30 04:54 - [金刚川](https://www.blog.minike.top/Article/details/40272.shtml)
-- 2026-06-30 04:50 - [内马尔替补](http://www.blog.minike.top/Article/details/8162595.shtml)
-- 2026-06-30 05:03 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/226929014.shtml)
-- 2026-06-30 05:09 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/756084191786.shtml)
-- 2026-06-30 04:50 - [沙丘](https://www.share.minike.top/Article/details/206941.shtml)
-- 2026-06-30 05:13 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/489601648.shtml)
-- 2026-06-30 05:16 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/28058457319.shtml)
-- 2026-06-30 04:50 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/0227535875.shtml)
-- 2026-06-30 04:53 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/99591203.shtml)
-- 2026-06-30 04:54 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/0163989.shtml)
+- 2026-06-30 05:14 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/69801955.shtml)
+- 2026-06-30 05:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/7246435.shtml)
+- 2026-06-30 05:22 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/64735132049.shtml)
+- 2026-06-30 05:00 - [巴西2比1日本](http://www.blog.minike.top/Article/details/5400045719.shtml)
+- 2026-06-30 05:22 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/592388.shtml)
+- 2026-06-30 05:15 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/726288.shtml)
+- 2026-06-30 05:16 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/01699300.shtml)
+- 2026-06-30 05:05 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/2918017.shtml)
+- 2026-06-30 04:57 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/0053823.shtml)
+- 2026-06-30 04:54 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/56705.shtml)
+- 2026-06-30 05:03 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/79045.shtml)
+- 2026-06-30 04:57 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/369074554.shtml)
+- 2026-06-30 05:06 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/75815234595.shtml)
+- 2026-06-30 05:07 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/2953618055.shtml)
+- 2026-06-30 05:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/6937888.shtml)

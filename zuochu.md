@@ -1,57 +1,57 @@
-# 声声鼓劲同筑梦 处处关情促振兴——农工党中央定点帮扶大方县工作综述
+# 玉林海关2026年6月份“关领导接待日”公告
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-1988年毕节试验区建立，农工党中央就和大方县结下深情厚谊。1994年11月，农工党中央正式定点帮扶大方县，从此与这片土地同频共振。30多年来，农工党中央充分发挥医药卫生人才密集的界别优势，推行“中央统筹、项目依托、结对帮扶、沉底乡镇”帮扶模式，举全党之力帮扶大方县。2021年，实现全国30个省级组织、15个副省级城市组织和12个专委会“一对多”“多对一”结对帮扶大方县29个乡
+为了解社会各界的建议和意见，并切实解决实际问题和困难，现就玉林海关2026年6月份关领导接待日有关事项预告如下： 一、接待时间：2026年6月16日(工作时间，上午9:00-12:00；下午14:30-17:00)。 二、当值关领导：玉林海关党委书记、关长邓华。 三、接待地点：玉林市教育东路128号海关大楼。四、有关要求： (一)为做好接待工作，请来访者提前预约，预约的主要内容
 
 ## 正文
 
-1988年毕节试验区建立，农工党中央就和大方县结下深情厚谊。
+为了解社会各界的建议和意见，并切实解决实际问题和困难，现就玉林海关2026年6月份关领导接待日有关事项预告如下： 一、接待时间：2026年6月16日(工作时间，上午9:00-12:00；下午14:30-17:00)。
 
-1994年11月，农工党中央正式定点帮扶大方县，从此与这片土地同频共振。
+二、当值关领导：玉林海关党委书记、关长邓华。
 
-30多年来，农工党中央充分发挥医药卫生人才密集的界别优势，推行“中央统筹、项目依托、结对帮扶、沉底乡镇”帮扶模式，举全党之力帮扶大方县。
+三、接待地点：玉林市教育东路128号海关大楼。
 
-2021年，实现全国30个省级组织、15个副省级城市组织和12个专委会“一对多”“多对一”结对帮扶大方县29个乡(镇、街道)，帮扶全域覆盖。
+四、有关要求： (一)为做好接待工作，请来访者提前预约，预约的主要内容包括： 1.来访者的姓名、人数、单位、联系电话或其他联系方式、身份证号码； 2.来访目的，如反映问题、咨询业务、提供工作建议等； 3.其他需要预约的事项。
 
-2023年7月，中央统战部启动统一战线“地域+领域”组团式帮扶毕节新机制，农工党中央绵绵用力，对大方开展全方位、立体式精准帮扶。
+(二)来访者可通过拨打电话(0775-3268851)告知相关预约信息，也可以填写预约表(详见附件)发至传真(0775-3268935)或者邮箱(ylhg3268932@sina.com)进行预约。
 
-三十余载倾情相守，农工党中央运用健康、产业、智力、公益、消费等组合拳，汇聚各方智慧力量，助力大方县打赢脱贫攻坚战，打造“同心助医工程”“同心全科医生特岗人才计划”“同心圆博爱家园乡村振兴项目”“贫困人口精准医疗爱心行动”“四川大学华西医院协作医院”“同心助学”等一批特色帮扶品牌，同心携手书写共谋发展的动人篇章。
+(注：若您选择电子邮箱发送，务必请您在发送邮件后拨打电话与我们确认您的邮件是否发送成功。
 
-秉持“大方脱了贫，农工党不断线”的庄严承诺，30多年来，农工党中央、农工党贵州省委先后选派17名干部到大方挂职帮扶。
+)预约截止时间：2026年5月29日下午17点前。
 
-各级组织累计引进实施帮扶项目近300个，投入资金70多亿元，捐赠款物3.498亿元，推动大方县如期实现全面小康，以崭新姿态迈步高质量发展新征程。
+玉林海关“关领导接待日”预约登记表.doc
 
 ## 相关推荐
 
-- 2026-06-30 04:55 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 05:09 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 04:49 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 04:51 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 05:00 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 04:54 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 05:08 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-30 05:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 04:49 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 05:15 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 05:04 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-30 05:07 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 05:09 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 05:02 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 04:54 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-30 05:12 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 05:01 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 05:21 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 05:09 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 05:13 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 04:55 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 04:58 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:59 - [沙丘](https://www.blog.kurohicncr.top/Article/details/86159833.shtml)
-- 2026-06-30 05:08 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/00964780506.shtml)
-- 2026-06-30 05:08 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/138564424.shtml)
-- 2026-06-30 05:15 - [美人鱼](https://www.share.kurohicncr.top/Article/details/875929814.shtml)
-- 2026-06-30 05:09 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/76376.shtml)
-- 2026-06-30 04:56 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/6454697.shtml)
-- 2026-06-30 04:53 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/6582574373.shtml)
-- 2026-06-30 05:00 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/95285980577.shtml)
-- 2026-06-30 04:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/644781835378.shtml)
-- 2026-06-30 05:01 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/23090923531.shtml)
-- 2026-06-30 05:05 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/05638005.shtml)
-- 2026-06-30 04:50 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/202149.shtml)
-- 2026-06-30 05:13 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/82250321840.shtml)
-- 2026-06-30 04:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/144396637786.shtml)
-- 2026-06-30 05:09 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/5625895402.shtml)
+- 2026-06-30 04:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/419329262248.shtml)
+- 2026-06-30 05:20 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/37606.shtml)
+- 2026-06-30 05:08 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/304901778456.shtml)
+- 2026-06-30 04:57 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/632566.shtml)
+- 2026-06-30 05:13 - [沙丘](http://www.blog.kurohicncr.top/Article/details/49234089226.shtml)
+- 2026-06-30 04:55 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/525858971485.shtml)
+- 2026-06-30 04:57 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/8390553.shtml)
+- 2026-06-30 05:12 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/472232.shtml)
+- 2026-06-30 05:16 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/493384204850.shtml)
+- 2026-06-30 04:57 - [第一炉香](http://www.share.kurohicncr.top/Article/details/62008.shtml)
+- 2026-06-30 05:22 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/43835.shtml)
+- 2026-06-30 05:13 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/671135008.shtml)
+- 2026-06-30 05:17 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/1676552.shtml)
+- 2026-06-30 05:16 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/16677.shtml)
+- 2026-06-30 05:02 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/94611.shtml)

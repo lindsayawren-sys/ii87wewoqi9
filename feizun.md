@@ -1,57 +1,49 @@
-# 长江有色：14日铸造铝期价收跌0.17% 今日成交以刚需为主
+# 金力永磁获瑞银增持25.34万股 每股作价约19.92港元
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-上海期货价格走势：今日铸造铝合金主力月2607合约高开走弱；截止当日15：00收盘，铸造铝主力合约报23320元，跌40元，跌幅0.17%，全天成交量6207手减少965手；持仓量13786手增加193手。 据长江有色金属网数据统计，5月14日长江现货数据显示，铝合金ADC12报价23600-23800元/吨，均价报23700元/吨，持平；铸造铝合金锭（A356.2）报价249
+香港联交所最新资料显示，5月7日，瑞银增持金力永磁（06680）25.34万股，每股作价19.9214港元，总金额约为504.81万港元。增持后最新持股数目约为1417.53万股，最新持股比例为6.04%。责任编辑：卢昱君
 
 ## 正文
 
-上海期货价格走势：今日铸造铝合金主力月2607合约高开走弱；截止当日15：00收盘，铸造铝主力合约报23320元，跌40元，跌幅0.17%，全天成交量6207手减少965手；持仓量13786手增加193手。
+香港联交所最新资料显示，5月7日，瑞银增持金力永磁（06680）25.34万股，每股作价19.9214港元，总金额约为504.81万港元。
 
-据长江有色金属网数据统计，5月14日长江现货数据显示，铝合金ADC12报价23600-23800元/吨，均价报23700元/吨，持平；铸造铝合金锭（A356.2）报价24900-25300元/吨，均价报25100元/吨，涨100元；铸造铝合金锭（A380）报价25700-25900元/吨，均价报25800元/吨，持平；铸造铝合金锭（ZL102）报价24800-25000元/吨，均价报24900元/吨，涨100元；铸造铝合金锭（ZLD104）报价24800-2500元/吨，均价报24900元/吨，涨100元； ccmn铸造铝合金市场分析： 宏观层面，美国4月PPI超预期暴涨6%，通胀粘性显著增强，令美联储降息前景再添变数。
+增持后最新持股数目约为1417.53万股，最新持股比例为6.04%。
 
-与此同时，凯文·沃什于5月13日以微弱优势正式确认为美联储主席。
-
-尽管特朗普成功扭转了2017年的人事任命，但市场对其能否在复杂的政治环境中保持央行独立性仍存疑虑。
-
-受此影响，美元指数强势冲高，市场避险情绪主导，施压有色金属盘面，沪期铝承压转跌，铸造铝合金紧随原铝波动下滑。
-
-基本面，成本端废铝供应陷入“内外双紧”格局。
-
-霍尔木兹海峡的实质性关闭切断了部分海外废铝海运通道，推升进口成本；叠加国内“反向开票”等税务监管持续收紧，合规废铝货源极度稀缺。
-
-原料成本的刚性锁定，为铸造铝合金价格提供底部强支撑。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:10 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 04:51 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-30 04:48 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 05:02 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 05:06 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 05:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 05:15 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 05:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-30 05:07 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 04:54 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 05:15 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 05:14 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 05:07 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 05:17 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 05:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 05:15 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 05:02 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 05:14 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 04:57 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 05:04 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 04:56 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 05:14 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 05:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 05:21 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:59 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/11390706612.shtml)
-- 2026-06-30 05:17 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/9682088.shtml)
-- 2026-06-30 04:48 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/334227630.shtml)
-- 2026-06-30 05:01 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/645757315526.shtml)
-- 2026-06-30 04:55 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/38649489478.shtml)
-- 2026-06-30 04:50 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/45813148.shtml)
-- 2026-06-30 05:10 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/1453256.shtml)
-- 2026-06-30 05:08 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/6548956.shtml)
-- 2026-06-30 05:01 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/458539485.shtml)
-- 2026-06-30 04:51 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/15614715855.shtml)
-- 2026-06-30 05:13 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/00817.shtml)
-- 2026-06-30 05:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/77342137303.shtml)
-- 2026-06-30 04:52 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/273376626.shtml)
-- 2026-06-30 05:05 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/84662767.shtml)
-- 2026-06-30 05:13 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/938154096435.shtml)
+- 2026-06-30 05:00 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/461335859.shtml)
+- 2026-06-30 04:57 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/783875479481.shtml)
+- 2026-06-30 05:06 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/3598025823.shtml)
+- 2026-06-30 05:15 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/9432773803.shtml)
+- 2026-06-30 05:21 - [日本 高位逼抢](http://www.share.minike.top/Article/details/1246958.shtml)
+- 2026-06-30 05:01 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/2171386.shtml)
+- 2026-06-30 05:01 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/77117778281.shtml)
+- 2026-06-30 04:55 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/391203993.shtml)
+- 2026-06-30 05:12 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/70565222.shtml)
+- 2026-06-30 05:05 - [金牌调解](http://www.share.minike.top/Article/details/041978963596.shtml)
+- 2026-06-30 04:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/36756064211.shtml)
+- 2026-06-30 05:22 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/554946556273.shtml)
+- 2026-06-30 05:15 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/7010933632.shtml)
+- 2026-06-30 05:09 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/8235323.shtml)
+- 2026-06-30 04:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/92175441535.shtml)

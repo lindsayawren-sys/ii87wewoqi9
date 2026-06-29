@@ -1,59 +1,60 @@
-# 万亿营收背后净利滑坡，阿里靠AI和外卖赌未来？
+# 银河航天“造星”8年 中国商业航天出海加速
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷达Finance 雷达财经出品 文|丁禹 编|孟帅 浓眉大眼的阿里，近日交出了一份喜忧参半的成绩单。 2026财年，阿里营收历史性地突破万亿大关，达10236.7亿元，同比增长3%；但归母净利润却出现近四个财年以来的首度负增长，同比减少18.2%至1059.04亿元。 除了在“外卖大战”中大举“烧钱
+中新网北京5月14日题：银河航天“造星”8年 中国商业航天出海加速 记者 马帅莎 近日，银河航天(北京)科技集团股份有限公司(以下简称“银河航天”)与土耳其卫星通信解决方案提供商Profen签署合作意向备忘录。中国商业航天出海更进一步。 2024年5月，泰国罗勇府偏远区域的一家养老院里，70余岁的泰国女士第一次通过屏幕，和曼谷医院的专家完成了远程问诊。一直以来，这个区域网络信号
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京5月14日题：银河航天“造星”8年 中国商业航天出海加速 记者 马帅莎 近日，银河航天(北京)科技集团股份有限公司(以下简称“银河航天”)与土耳其卫星通信解决方案提供商Profen签署合作意向备忘录。
 
-来源：雷达Finance 雷达财经出品 文|丁禹 编|孟帅 浓眉大眼的阿里，近日交出了一份喜忧参半的成绩单。
+中国商业航天出海更进一步。
 
-2026财年，阿里营收历史性地突破万亿大关，达10236.7亿元，同比增长3%；但归母净利润却出现近四个财年以来的首度负增长，同比减少18.2%至1059.04亿元。
+2024年5月，泰国罗勇府偏远区域的一家养老院里，70余岁的泰国女士第一次通过屏幕，和曼谷医院的专家完成了远程问诊。
 
-除了在“外卖大战”中大举“烧钱”外，阿里在AI业务上的“豪横”投入也让公司的现金流面临一定的压力。
+一直以来，这个区域网络信号差，连稳定的视频通话都难以维持。
 
-不过，阿里的高投入，也为其换来了高回报。
+这一次，连接她和专家的信号，来自银河航天自主研制的卫星试验星座“小蜘蛛网”，这也是银河航天在海外落地的第一个卫星互联网应用。
 
-全年来看，公司即时零售的收入增长47%至785.2亿元；AI业务所在的云智能集团收入增长34%至1581.32亿元，双双跑出亮眼增速。
+2018年，银河航天正式成立，一群兼具互联网和航天双重背景的年轻人，挤在北京的小办公室里，开启了他们的“造星”之旅。
 
-聚焦单季表现，阿里AI相关产品收入保持强劲势头，达89.71亿元，连续第十一个季度实现三位数的同比增长。
+他们用8年时间，把“太空WiFi”的遥远梦想，变成了触手可及的现实。
 
-阿里CEO吴泳铭更是放出“狠话”，面向未来五年目标，阿里AI基建投入资金会远远超过此前公布的3800亿元。
+从首发星到“小蜘蛛网” 2020年1月，银河航天的首发星成功发射。
 
 ## 相关推荐
 
-- 2026-06-30 05:04 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-30 04:53 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 04:53 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 05:00 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 05:12 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 04:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 05:16 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 04:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 05:15 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 05:09 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 05:13 - [巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 05:06 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 04:53 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 05:17 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 05:20 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 05:18 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 05:23 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 05:03 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 05:10 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 04:55 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 05:22 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 05:07 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 05:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 05:16 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 05:13 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 05:17 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 05:19 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:01 - [毒液2](https://www.blog.minike.top/Article/details/36197552.shtml)
-- 2026-06-30 04:52 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/6702844.shtml)
-- 2026-06-30 05:10 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/29981.shtml)
-- 2026-06-30 04:59 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/47561393.shtml)
-- 2026-06-30 04:53 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/603236042403.shtml)
-- 2026-06-30 05:10 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/658426.shtml)
-- 2026-06-30 05:08 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/5725962.shtml)
-- 2026-06-30 05:07 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/567220.shtml)
-- 2026-06-30 05:06 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/718546187.shtml)
-- 2026-06-30 05:09 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/61022813855.shtml)
-- 2026-06-30 04:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/939246703.shtml)
-- 2026-06-30 05:13 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/884425442.shtml)
-- 2026-06-30 05:13 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/3689181558.shtml)
-- 2026-06-30 05:00 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/35284455.shtml)
-- 2026-06-30 05:02 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/7010851744.shtml)
+- 2026-06-30 05:19 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/6386096329.shtml)
+- 2026-06-30 05:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/68620.shtml)
+- 2026-06-30 05:02 - [月亮](https://www.blog.minike.top/Article/details/466673.shtml)
+- 2026-06-30 05:00 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/1830998.shtml)
+- 2026-06-30 05:15 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/973567774.shtml)
+- 2026-06-30 04:56 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/418831.shtml)
+- 2026-06-30 04:56 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/59083842.shtml)
+- 2026-06-30 05:22 - [毒液2](http://www.blog.minike.top/Article/details/48551006.shtml)
+- 2026-06-30 05:21 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/3531820001.shtml)
+- 2026-06-30 05:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/004543.shtml)
+- 2026-06-30 05:04 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/471540448238.shtml)
+- 2026-06-30 05:09 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/2012060.shtml)
+- 2026-06-30 05:16 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/57658.shtml)
+- 2026-06-30 04:55 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/7493231486.shtml)
+- 2026-06-30 05:10 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/61949.shtml)

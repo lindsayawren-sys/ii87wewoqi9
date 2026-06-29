@@ -1,57 +1,52 @@
-# 港股“彩妆第一股”毛戈平过半市值已蒸发
+# 4月份巴西出口至中国的原糖数量为3.98万吨，同比减少10.99万吨
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 减持风波中，“港股彩妆第一股”毛戈平（01318.HK）的股价被击穿防线。 5月15日，毛戈平以63港元/股的价格跳空低开，开盘后遭遇急杀，盘中一度跌近17%，股价最低下挫至55.4港元/股，创下盘中最大跌幅纪录。 急跌引来资金护盘，最终毛戈平收跌61.6港元/股，跌幅为7.58%，对应总
+来源：沐甜科技 沐甜14日讯 巴西外贸部公布的数据显示，4月份巴西出口至中国的原糖数量为3.98万吨，同比减少10.99万吨。 2026年1-4月巴西出口至中国的原糖数量为15.63万吨，同比减少23.65万吨。 25/26榨季截至4月底巴西累计出口至中国的原糖数量为160.34万吨，同比增加64.15万吨。责任编辑：李铁民
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：沐甜科技 沐甜14日讯 巴西外贸部公布的数据显示，4月份巴西出口至中国的原糖数量为3.98万吨，同比减少10.99万吨。
 
-来源：国际金融报 减持风波中，“港股彩妆第一股”毛戈平（01318.HK）的股价被击穿防线。
+2026年1-4月巴西出口至中国的原糖数量为15.63万吨，同比减少23.65万吨。
 
-5月15日，毛戈平以63港元/股的价格跳空低开，开盘后遭遇急杀，盘中一度跌近17%，股价最低下挫至55.4港元/股，创下盘中最大跌幅纪录。
+25/26榨季截至4月底巴西累计出口至中国的原糖数量为160.34万吨，同比增加64.15万吨。
 
-急跌引来资金护盘，最终毛戈平收跌61.6港元/股，跌幅为7.58%，对应总市值301.96亿港元。
-
-异动源自股东减持。
-
-此前有消息称，毛戈平股东丁韬及徐科君拟通过摩根大通出售987万股股份，每股作价63.3港元至65港元，较5月14日收盘价（66.65港元）折让约2.5%至5%。
-
-今日早盘盘前（9时18分），毛戈平录得两手合计987.31万股非自动对盘成交，每股作价63.3港元，较前一交易日收盘价折让5%，涉资约6.25亿港元。
-
-这不是毛戈平今年的首次减持。
+责任编辑：李铁民
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 05:16 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 04:49 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-30 04:58 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-30 05:12 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 05:14 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 04:52 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 05:09 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 05:08 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 04:52 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 05:08 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 05:21 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-30 05:03 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 05:02 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 05:06 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 05:10 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 04:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 04:58 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 04:58 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 05:11 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 05:04 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 05:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 05:18 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 05:13 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 04:59 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/3250793798.shtml)
-- 2026-06-30 05:08 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/91670734.shtml)
-- 2026-06-30 05:00 - [恋与深空回应争议](http://www.share.minike.top/Article/details/166128.shtml)
-- 2026-06-30 05:09 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/12479.shtml)
-- 2026-06-30 05:03 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/7149956479.shtml)
-- 2026-06-30 05:03 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/357702798.shtml)
-- 2026-06-30 05:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/735858312.shtml)
-- 2026-06-30 04:48 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/52569976.shtml)
-- 2026-06-30 05:17 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/356449384.shtml)
-- 2026-06-30 05:00 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/7507662994.shtml)
-- 2026-06-30 05:06 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/578069.shtml)
-- 2026-06-30 04:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/93593818.shtml)
-- 2026-06-30 05:07 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/24922.shtml)
-- 2026-06-30 04:54 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/1437260.shtml)
-- 2026-06-30 05:12 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/45863009193.shtml)
+- 2026-06-30 05:10 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/9976426031.shtml)
+- 2026-06-30 05:08 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/971255.shtml)
+- 2026-06-30 05:22 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/888530.shtml)
+- 2026-06-30 05:08 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/66272759770.shtml)
+- 2026-06-30 05:15 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/489029008.shtml)
+- 2026-06-30 05:12 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/89948039.shtml)
+- 2026-06-30 05:01 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/72954977.shtml)
+- 2026-06-30 05:21 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/6083886.shtml)
+- 2026-06-30 04:54 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/518915.shtml)
+- 2026-06-30 05:01 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/279390806327.shtml)
+- 2026-06-30 05:03 - [世界杯](https://www.blog.kurohicncr.top/Article/details/465712.shtml)
+- 2026-06-30 05:00 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/2181929.shtml)
+- 2026-06-30 04:56 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/8231660.shtml)
+- 2026-06-30 05:23 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/475034363.shtml)
+- 2026-06-30 04:56 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/01755902391.shtml)

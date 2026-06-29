@@ -1,56 +1,55 @@
-# “超级食物”≠超级营养 均衡饮食更关键
+# 英诺赛科盘中涨超7% 机构指公司业绩有望保持强劲增长态势
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-近年来，姜黄、蓝莓、奇亚籽、藜麦、亚麻籽、牛油果等食材被贴上了“超级食物”“营养价值极高”“越吃越年轻”等标签。事实真的如此吗？ 有些人将“超级食物”当作“健康特效药”，忽视了科学饮食的本质。从营养学角度来讲，“超级食物”并不是一个严谨的科学定义，更准确的说法应该是“超级食材”。它们确实有突出的营养优势，但绝对不是“无所不能”，更不能替代均衡饮食的关键作用。 这些被称为“超级食
+英诺赛科（02577）盘中涨超7%，截至发稿，股价上涨4.67%，现报87.50港元，成交额17.07亿港元。 英伟达在2025年技术大会上将800V高压直流（HVDC）架构确立为下一代AI工厂的核心供电方案。兴业证券指出，在服务器功率不断增加背景下，预计HVDC在AI数据中心供电电源占比有望逐步提升。 公开资料显示，英诺赛科是英伟达800V系统供应商名单中唯一的中国本土企业，
 
 ## 正文
 
-近年来，姜黄、蓝莓、奇亚籽、藜麦、亚麻籽、牛油果等食材被贴上了“超级食物”“营养价值极高”“越吃越年轻”等标签。
+英诺赛科（02577）盘中涨超7%，截至发稿，股价上涨4.67%，现报87.50港元，成交额17.07亿港元。
 
-事实真的如此吗？
+英伟达在2025年技术大会上将800V高压直流（HVDC）架构确立为下一代AI工厂的核心供电方案。
 
-有些人将“超级食物”当作“健康特效药”，忽视了科学饮食的本质。
+兴业证券指出，在服务器功率不断增加背景下，预计HVDC在AI数据中心供电电源占比有望逐步提升。
 
-从营养学角度来讲，“超级食物”并不是一个严谨的科学定义，更准确的说法应该是“超级食材”。
+公开资料显示，英诺赛科是英伟达800V系统供应商名单中唯一的中国本土企业，近期已成功供货谷歌，其8英寸氮化镓晶圆产线月产能已从1.3万片提升至2万片。
 
-它们确实有突出的营养优势，但绝对不是“无所不能”，更不能替代均衡饮食的关键作用。
+东吴证券表示，随着数据中心及人形机器人领域GaN渗透率的持续提升，公司业绩有望保持强劲增长态势。
 
-这些被称为“超级食物”的食材，确实有其独特的营养亮点。
-
-羽衣甘蓝低热量、高纤维，能有效促进肠道蠕动，改善人们膳食纤维摄入不足的问题；姜黄中的姜黄素经研究证实具有一定的抗炎、抗氧化作用；藜麦被联合国粮农组织认为是一种营养全面的谷物，其蛋白质质量优于多数谷物……但这些营养优势，并不意味着它们能“独当一面”，更不能掩盖其自身的食用局限。
-
-没有任何一种食材适合所有人，人们在食用前，要充分了解食材的独特性和局限性，在适量食用的前提下，尽量发挥其营养优势，同时尽量少地引入油、盐、糖等其他成分，使得最终入口的食品符合营养健康的要求。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 04:59 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 05:10 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 05:04 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 05:10 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 05:11 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 05:01 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 04:51 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 05:15 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 04:50 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 05:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 05:08 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 05:21 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 05:08 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 05:01 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 05:01 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 05:04 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 05:06 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 04:59 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 04:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 05:06 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 04:57 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 04:58 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:03 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/586163986.shtml)
-- 2026-06-30 05:05 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/75363917135.shtml)
-- 2026-06-30 04:56 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/894341.shtml)
-- 2026-06-30 05:17 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/911479372.shtml)
-- 2026-06-30 04:58 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/5177898.shtml)
-- 2026-06-30 04:52 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/108283372.shtml)
-- 2026-06-30 05:09 - [速度与激情9](http://www.blog.minike.top/Article/details/078275676.shtml)
-- 2026-06-30 04:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/13100.shtml)
-- 2026-06-30 05:09 - [起风了](http://www.blog.kurohicncr.top/Article/details/75354.shtml)
-- 2026-06-30 04:51 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/3793712.shtml)
-- 2026-06-30 05:02 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/13580496366.shtml)
-- 2026-06-30 05:16 - [点菜也要教吗](http://www.share.minike.top/Article/details/352588976873.shtml)
-- 2026-06-30 04:52 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/2070692.shtml)
-- 2026-06-30 05:16 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/1177179.shtml)
-- 2026-06-30 05:17 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/26489861295.shtml)
+- 2026-06-30 05:00 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/6870745.shtml)
+- 2026-06-30 05:18 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/9035679242.shtml)
+- 2026-06-30 05:06 - [第一炉香](https://www.blog.minike.top/Article/details/374571950.shtml)
+- 2026-06-30 04:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/2987933.shtml)
+- 2026-06-30 04:56 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/6820301629.shtml)
+- 2026-06-30 05:04 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/82661443.shtml)
+- 2026-06-30 05:03 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/919377971246.shtml)
+- 2026-06-30 05:01 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/02329.shtml)
+- 2026-06-30 04:58 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/3028345962.shtml)
+- 2026-06-30 04:57 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/26329175.shtml)
+- 2026-06-30 04:57 - [沙丘](http://www.share.kurohicncr.top/Article/details/1098144215.shtml)
+- 2026-06-30 04:55 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/212802170.shtml)
+- 2026-06-30 04:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/5757702.shtml)
+- 2026-06-30 05:01 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/403247673.shtml)
+- 2026-06-30 05:21 - [《共患难》](http://www.share.minike.top/Article/details/5363012712.shtml)

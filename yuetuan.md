@@ -1,57 +1,59 @@
-# 韩股收盘暴跌逾6%，短暂突破8000点后遭外资抛售
+# 亚洲首座专业货运机场智慧公共国际货站通过验收
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-韩国股市周五暴跌逾6%，尽管早盘一度短暂突破历史性的8000点大关。投资者在经历创纪录的上涨后，纷纷抛售科技股和其他权重股，而中东危机带来的不确定性也持续存在。 韩国综合股价指数（KOSPI）下跌488.23点，跌幅6.12%，收于7493.18点，盘中最高触及8046.78点。 该指数开盘小幅走低，但不久便开始上涨，迅速突破8000点大关，这主要得益于隔夜华尔街股市的上涨，而
+中新网湖北鄂州5月13日电 (武一力 刘小进 王星予)亚洲首座专业货运机场——湖北鄂州花湖国际机场空港型国家物流枢纽智慧公共国际货站项目13日通过行业验收，标志着该货站已具备投运条件。项目本期具备每年40万吨的国际货邮处理能力，远期将提升至60万吨。 据悉，该项目是花湖机场国际货运体系的核心配套工程，总投资10亿元人民币，占地面积约300亩，主要建设内容包括7.7万平方米的高标
 
 ## 正文
 
-韩国股市周五暴跌逾6%，尽管早盘一度短暂突破历史性的8000点大关。
+中新网湖北鄂州5月13日电 (武一力 刘小进 王星予)亚洲首座专业货运机场——湖北鄂州花湖国际机场空港型国家物流枢纽智慧公共国际货站项目13日通过行业验收，标志着该货站已具备投运条件。
 
-投资者在经历创纪录的上涨后，纷纷抛售科技股和其他权重股，而中东危机带来的不确定性也持续存在。
+项目本期具备每年40万吨的国际货邮处理能力，远期将提升至60万吨。
 
-韩国综合股价指数（KOSPI）下跌488.23点，跌幅6.12%，收于7493.18点，盘中最高触及8046.78点。
+据悉，该项目是花湖机场国际货运体系的核心配套工程，总投资10亿元人民币，占地面积约300亩，主要建设内容包括7.7万平方米的高标准公共国际货库、1万平方米的综合业务楼。
 
-该指数开盘小幅走低，但不久便开始上涨，迅速突破8000点大关，这主要得益于隔夜华尔街股市的上涨，而后者的上涨又受到人工智能（AI）相关股票大幅上涨和地缘政治乐观局面的提振。
+验收过程中，民航行业主管部门对项目货站主体、机坪工程、智慧化系统及配套保障设施进行了全面检查。
 
-然而，在取得这一成就后不久，KOSPI开始暴跌，一度跌至7371.68点，并在当地时间下午1点28分左右触发了卖方熔断指令。
+项目各项设施设备运行稳定，功能满足设计要求，符合行业标准。
 
-这是自4月2日以来，韩国主要交易所运营商首次发布卖方熔断指令。
+作为智慧型国际货站，该项目聚焦全流程智慧化协同，实现了工艺设备智能联动、电子单证无纸化流转、全域感知互联以及冷链全程可视化追踪。
 
-当天成交量巨大，达到 8.787 亿股，成交额达57.8 万亿韩元（385 亿美元），其中下跌股数量远超上涨股数量，比例为 704 对 165。
+货站内部布局了出港收运、暂存、组板，进港拆板、查验，冷链存储、特殊货物处理等多个功能分区，可高效保障普货、电商件、冷链货物、危险品、贵重物品、活体动物等多种品类货物的进出港操作。
 
-分析师表示，由于投资者，尤其是外国投资者，纷纷抛售大型半导体和科技股获利了结，该指数面临沉重的抛售压力。
+国际机场协会(ACI)和国际航空运输协会(IATA)日前发布的2025年全球机场航空货运量排名显示，鄂州花湖国际机场以32.4%的同比增速成为全球货运枢纽“增速冠军”，航空货邮吞吐量达114.57万吨，排名全球第26位。
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 04:52 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 05:17 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 04:53 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-30 05:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 05:17 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 05:10 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-30 05:13 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 05:02 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 04:59 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 05:09 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 05:20 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 05:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 05:10 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-30 05:03 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 04:54 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 05:05 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-30 05:06 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 05:18 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 04:59 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 05:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 05:11 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 05:17 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-30 05:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:00 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/2156668912.shtml)
-- 2026-06-30 05:05 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/005132.shtml)
-- 2026-06-30 04:57 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/028173225818.shtml)
-- 2026-06-30 05:08 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/2128168.shtml)
-- 2026-06-30 04:58 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/82952.shtml)
-- 2026-06-30 05:14 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/8795256.shtml)
-- 2026-06-30 05:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/07628702268.shtml)
-- 2026-06-30 05:02 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/912381.shtml)
-- 2026-06-30 05:07 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/49384.shtml)
-- 2026-06-30 05:15 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/24598418.shtml)
-- 2026-06-30 04:59 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/57302025.shtml)
-- 2026-06-30 05:07 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/840617306613.shtml)
-- 2026-06-30 05:07 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/8682253.shtml)
-- 2026-06-30 05:12 - [沉睡花园](https://www.blog.minike.top/Article/details/2084175586.shtml)
-- 2026-06-30 05:09 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/59448.shtml)
+- 2026-06-30 05:01 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/27071.shtml)
+- 2026-06-30 05:00 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/58647.shtml)
+- 2026-06-30 05:14 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/5821692.shtml)
+- 2026-06-30 05:14 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/78214973.shtml)
+- 2026-06-30 05:11 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/500939572.shtml)
+- 2026-06-30 05:04 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/975251443.shtml)
+- 2026-06-30 05:02 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/642909073913.shtml)
+- 2026-06-30 04:57 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/664335.shtml)
+- 2026-06-30 04:54 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/48832.shtml)
+- 2026-06-30 05:11 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/855300.shtml)
+- 2026-06-30 05:23 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/808095404080.shtml)
+- 2026-06-30 05:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/2538287.shtml)
+- 2026-06-30 05:10 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/438498820.shtml)
+- 2026-06-30 05:10 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/94620728614.shtml)
+- 2026-06-30 05:00 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/703586.shtml)

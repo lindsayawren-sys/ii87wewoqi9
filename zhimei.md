@@ -1,56 +1,60 @@
-# 渤海银行迈入2万亿阵营，11家互联网助贷机构曝光
+# 实控人被立案、股价下跌近5%，泰格医药抛逾5亿元回购计划
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-文/瑞财经 许淑敏 银行业多了一件值得祝贺的事—— 渤海银行进入2万亿阵营了。 截至2026年一季度末，渤海银行总资产2.04万亿元，较年初增长5.7%。 作为全国性股份制银行，渤海银行也算是赶上了末班车，成为第11家突破2万亿的股份制银行，快于恒丰银行。 王锦虹是渤海银行的掌舵者，他自2023年7月接任董事长一职，至今近三年时间。 细数这三年，渤海银行资产增速保持着一定的节奏
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月13日，泰格医药A股收于49.09元/股，下跌4.74%。收盘后，泰格医药抛出5亿-10亿元股份回购方案。5月12日晚间，泰格医药披露，因涉嫌持股变动相关信息披露违法违规，公司实控人叶小平、曹晓春被证监会立案。 A股港股双双下跌 中国证监会的一份立案告知书直指泰格医药信披违法。 泰格医药5月12日晚间公告，上述立案调查内容系
 
 ## 正文
 
-文/瑞财经 许淑敏 银行业多了一件值得祝贺的事—— 渤海银行进入2万亿阵营了。
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月13日，泰格医药A股收于49.09元/股，下跌4.74%。
 
-截至2026年一季度末，渤海银行总资产2.04万亿元，较年初增长5.7%。
+收盘后，泰格医药抛出5亿-10亿元股份回购方案。
 
-作为全国性股份制银行，渤海银行也算是赶上了末班车，成为第11家突破2万亿的股份制银行，快于恒丰银行。
+5月12日晚间，泰格医药披露，因涉嫌持股变动相关信息披露违法违规，公司实控人叶小平、曹晓春被证监会立案。
 
-王锦虹是渤海银行的掌舵者，他自2023年7月接任董事长一职，至今近三年时间。
+A股港股双双下跌 中国证监会的一份立案告知书直指泰格医药信披违法。
 
-细数这三年，渤海银行资产增速保持着一定的节奏。
+泰格医药5月12日晚间公告，上述立案调查内容系关于叶小平、曹晓春过往历史持股变动过程中的信息披露相关事项。
 
-2023年-2025年，该行总资产增幅分别为4.42%、6.41%、4.91%，略有波动。
+截至今年一季度末，叶小平持有泰格医药约1.77亿股，持股比例为20.58%，曹晓春持有泰格医药5.96%的股份，约5131.42万股。
 
-比起资产增长，王锦虹更费心于拉动营收、净利增长。
+两人为一致行动人、泰格医药实际控制人。
 
-2026年一季度，渤海银行实现营业收入81.3亿元，同比增长3%，净利润34.13亿元，同比增长9.79%。
+公开信息显示，出生于1963年2月的叶小平，自2005年3月起任职泰格医药，为泰格医药董事长；曹晓春出生于1969年3月，2003年4月至2004年12月任泰格咨询副总经理，2005年1月起任职于泰格医药，担任公司董事、总经理。
 
 ## 相关推荐
 
-- 2026-06-30 05:01 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 04:52 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 04:54 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-30 05:06 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 05:13 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 05:06 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 05:06 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 04:50 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 05:11 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 05:13 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 04:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 04:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 05:08 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-30 04:59 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 04:59 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 05:19 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 04:56 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 05:21 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 05:03 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 05:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 05:06 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 05:00 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 05:06 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 05:20 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:50 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/3952787774.shtml)
-- 2026-06-30 05:09 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/404106766836.shtml)
-- 2026-06-30 05:04 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/0163227188.shtml)
-- 2026-06-30 04:53 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/432505.shtml)
-- 2026-06-30 05:02 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/600654.shtml)
-- 2026-06-30 05:12 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/1561821592.shtml)
-- 2026-06-30 05:10 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/0307344242.shtml)
-- 2026-06-30 04:52 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/938969077.shtml)
-- 2026-06-30 05:06 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/7966386.shtml)
-- 2026-06-30 04:53 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/65158828.shtml)
-- 2026-06-30 05:06 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/007962684013.shtml)
-- 2026-06-30 05:14 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/68986.shtml)
-- 2026-06-30 05:04 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/934442278984.shtml)
-- 2026-06-30 04:59 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/1885033.shtml)
-- 2026-06-30 05:07 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/1049190868.shtml)
+- 2026-06-30 05:16 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/22211934995.shtml)
+- 2026-06-30 05:18 - [乔家的儿女](http://www.share.minike.top/Article/details/825454943.shtml)
+- 2026-06-30 05:13 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/99491949.shtml)
+- 2026-06-30 05:12 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/7109130942.shtml)
+- 2026-06-30 05:04 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/625708736.shtml)
+- 2026-06-30 05:21 - [啊啊啊](https://www.share.minike.top/Article/details/592390328.shtml)
+- 2026-06-30 05:12 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/0155433.shtml)
+- 2026-06-30 05:07 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/2714954.shtml)
+- 2026-06-30 05:21 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/562196469440.shtml)
+- 2026-06-30 05:16 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/6502302421.shtml)
+- 2026-06-30 05:08 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/53850.shtml)
+- 2026-06-30 05:11 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/3669588.shtml)
+- 2026-06-30 05:22 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/909795258803.shtml)
+- 2026-06-30 05:07 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/359594071589.shtml)
+- 2026-06-30 05:11 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/9152195.shtml)

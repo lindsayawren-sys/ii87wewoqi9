@@ -1,59 +1,61 @@
-# 参议员提出法案，禁止议员离职后担任说客
+# 焦点访谈丨让过程更高效、更智慧 生产性服务业赋能高质量发展
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-核心要点 美国国会两院议员卸任后将被终身禁止担任说客 —— CNBC 独家报道，一项跨党派新法案提出了上述规定。 该法案不仅禁止参议员及众议员注册为职业说客，还严禁其代表企业或利益集团，通过影响在职议员及政府工作人员获取报酬。此举旨在堵住法律漏洞，杜绝前议员以非注册身份从事游说活动的现象。 该法案由佛罗里达州共和党参议员里克・斯科特与马萨诸塞州民主党参议员伊丽莎白・沃伦联合提出
+今年以来，服务业的战略地位被提升到了新的高度。4月初，全国服务业大会召开，两周后，国务院印发《关于推进服务业扩能提质的意见》，以顶层设计擘画服务业高质量发展的路线图。除了大家熟悉的餐饮、旅游等生活性服务业，《意见》还把生产性服务业放到更加突出的位置。那么，什么是生产性服务业？它如何为中国经济赋能？面对这些新部署，企业感受如何呢？在湖南长沙，一家漫剧公司的团队正在忙着制作新作品。
 
 ## 正文
 
-核心要点 美国国会两院议员卸任后将被终身禁止担任说客 —— CNBC 独家报道，一项跨党派新法案提出了上述规定。
+今年以来，服务业的战略地位被提升到了新的高度。
 
-该法案不仅禁止参议员及众议员注册为职业说客，还严禁其代表企业或利益集团，通过影响在职议员及政府工作人员获取报酬。
+4月初，全国服务业大会召开，两周后，国务院印发《关于推进服务业扩能提质的意见》，以顶层设计擘画服务业高质量发展的路线图。
 
-此举旨在堵住法律漏洞，杜绝前议员以非注册身份从事游说活动的现象。
+除了大家熟悉的餐饮、旅游等生活性服务业，《意见》还把生产性服务业放到更加突出的位置。
 
-该法案由佛罗里达州共和党参议员里克・斯科特与马萨诸塞州民主党参议员伊丽莎白・沃伦联合提出。
+那么，什么是生产性服务业？
 
-当前，越来越多议员公开反对民选官员利用职权谋私，本届国会已推出多项跨党派法案，包括禁止议员持有并交易股票、禁止参与预测市场投注等。
+它如何为中国经济赋能？
 
-尽管该法案落地可能性极低，但明确规定：违规一次罚款 5 万美元，最高可判处 5 年监禁。
+面对这些新部署，企业感受如何呢？
 
-斯科特向 CNBC 表示：“民众对政府机构的信任跌至历史最低点，国会山与 K 街（游说机构聚集地）之间的‘旋转门’乱象是核心原因之一。
+在湖南长沙，一家漫剧公司的团队正在忙着制作新作品。
 
-我们必须重建民众对政府的信任，因此我自豪地提出这项跨党派法案，让政府真正回归为民服务的本质。
+所谓漫剧，简单说就是漫画短剧。
 
 ## 相关推荐
 
-- 2026-06-30 05:02 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 05:02 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 05:02 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 04:51 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-30 04:53 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 04:52 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 05:16 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-30 04:48 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 05:03 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 04:49 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 05:09 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 04:57 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 04:57 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 05:11 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 04:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 05:04 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 05:05 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 05:02 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 05:20 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 05:17 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-30 04:59 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 05:15 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 05:23 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-30 04:56 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 05:19 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 05:21 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 05:13 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 05:21 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/7046576835.shtml)
-- 2026-06-30 05:02 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/3798417.shtml)
-- 2026-06-30 05:08 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/84664.shtml)
-- 2026-06-30 05:00 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/55378.shtml)
-- 2026-06-30 04:51 - [斗破苍穹](https://www.share.minike.top/Article/details/160845588.shtml)
-- 2026-06-30 04:54 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/30935.shtml)
-- 2026-06-30 05:11 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/375047.shtml)
-- 2026-06-30 05:11 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/68804287595.shtml)
-- 2026-06-30 05:00 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/50822774341.shtml)
-- 2026-06-30 04:51 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/03651.shtml)
-- 2026-06-30 04:49 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/387217854208.shtml)
-- 2026-06-30 05:10 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/3841573765.shtml)
-- 2026-06-30 04:56 - [《共患难》](https://www.share.kurohicncr.top/Article/details/127881724.shtml)
-- 2026-06-30 04:54 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/950528857588.shtml)
-- 2026-06-30 05:00 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/321157156254.shtml)
+- 2026-06-30 05:14 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/07002952.shtml)
+- 2026-06-30 04:58 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/1206222.shtml)
+- 2026-06-30 05:16 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/924686909.shtml)
+- 2026-06-30 05:05 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/2141458.shtml)
+- 2026-06-30 05:03 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/857752650.shtml)
+- 2026-06-30 05:10 - [锐评T1零封KC](https://www.share.minike.top/Article/details/012024.shtml)
+- 2026-06-30 05:15 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/830372449988.shtml)
+- 2026-06-30 05:12 - [斛珠夫人](https://www.share.minike.top/Article/details/896602055555.shtml)
+- 2026-06-30 05:02 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/52568645857.shtml)
+- 2026-06-30 05:00 - [一生一世](http://www.blog.minike.top/Article/details/31926264818.shtml)
+- 2026-06-30 05:08 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/5830706972.shtml)
+- 2026-06-30 05:06 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/153881164032.shtml)
+- 2026-06-30 05:22 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/2261230.shtml)
+- 2026-06-30 05:03 - [日本淘汰](https://www.blog.minike.top/Article/details/647278236.shtml)
+- 2026-06-30 04:58 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/6352060247.shtml)

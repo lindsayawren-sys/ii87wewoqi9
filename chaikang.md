@@ -1,58 +1,59 @@
-# 法官正在审议民主党诉求，拟阻止特朗普签署的选举相关行政令生效
+# 深夜，直线拉升！一则消息，突然引爆！
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-美国唐纳德・特朗普总统收紧邮寄投票规则的行政令，周四迎来首次重大司法考验：联邦法官开庭审理民主党律师的诉求，后者认为该令会剥夺数百万合格选民的投票权新华网。 在华盛顿举行的两小时庭审中，联邦地区法官卡尔・尼科尔斯未当庭裁定民主党领袖提出的、阻止 3 月 31 日行政令生效的请求新华网。他表示将择期发布书面裁决，并补充称 “知悉本案时间紧迫”。 共和党人特朗普多年来一直宣扬202
+英伟达持仓概念股，集体异动！ 北京时间13日晚间，英伟达持仓概念股集体拉升。截至发稿，AI云公司Nebius涨超14%，迈威尔科技涨超9%，光通信企业Lumentum、Coherent涨超4%，康宁微涨超2%。市场分析人士指出，上述个股走高，可能是受到了英伟达相关利好消息的提振。 另外，Nebius的大涨也跟其最新披露的财报有关。数据显示，Nebius第一季度营收为3.99亿美
 
 ## 正文
 
-美国唐纳德・特朗普总统收紧邮寄投票规则的行政令，周四迎来首次重大司法考验：联邦法官开庭审理民主党律师的诉求，后者认为该令会剥夺数百万合格选民的投票权新华网。
+英伟达持仓概念股，集体异动！
 
-在华盛顿举行的两小时庭审中，联邦地区法官卡尔・尼科尔斯未当庭裁定民主党领袖提出的、阻止 3 月 31 日行政令生效的请求新华网。
+北京时间13日晚间，英伟达持仓概念股集体拉升。
 
-他表示将择期发布书面裁决，并补充称 “知悉本案时间紧迫”。
+截至发稿，AI云公司Nebius涨超14%，迈威尔科技涨超9%，光通信企业Lumentum、Coherent涨超4%，康宁微涨超2%。
 
-共和党人特朗普多年来一直宣扬2020 年大选败于大规模选民舞弊的不实说法，并在 11 月中期选举前呼吁收紧邮寄投票规则 —— 届时共和党将努力保住国会微弱多数席位新华网。
+市场分析人士指出，上述个股走高，可能是受到了英伟达相关利好消息的提振。
 
-该行政令要求政府： 编制各州合格选民的美国公民确认名单； 利用联邦数据协助州选举官员核验选民资格。
+另外，Nebius的大涨也跟其最新披露的财报有关。
 
-同时规定： 美国邮政仅可向各州核准的邮寄选票名单选民投递选票； 各州须将选举相关记录保存五年。
+数据显示，Nebius第一季度营收为3.99亿美元，同比增长684%，超出市场预期。
 
-本案原告包括纽约州联邦参议员、参议院少数党领袖查克・舒默及民主党全国委员会。
+有分析师预计，Nebius将在今年年底前大幅提升其数据中心容量，可能会推动其收入强劲增长。
 
-原告律师拉利・马杜里向尼科尔斯表示：“本案法理清晰，我们所质疑的行政令中各项指令，均无成文法授权。
+当晚，美股三大指数涨跌不一，但在美上市的中国资产大幅拉升，纳斯达克中国金龙指数大涨超4%。
 
 ## 相关推荐
 
-- 2026-06-30 04:49 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-30 05:04 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 05:14 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 05:18 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 04:59 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 05:13 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 05:15 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 04:51 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 05:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 05:06 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 04:54 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 05:10 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 04:58 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 05:18 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 05:04 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 05:13 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 05:07 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 05:19 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-30 04:58 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 05:18 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 05:14 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 05:00 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 05:21 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 05:17 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 05:13 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/850433524.shtml)
-- 2026-06-30 05:07 - [苗族银饰](https://www.share.minike.top/Article/details/3347755540.shtml)
-- 2026-06-30 05:15 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/772235976.shtml)
-- 2026-06-30 05:01 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/742398235.shtml)
-- 2026-06-30 05:14 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/4957419804.shtml)
-- 2026-06-30 04:51 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/76083.shtml)
-- 2026-06-30 04:52 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/730883.shtml)
-- 2026-06-30 04:52 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/306382.shtml)
-- 2026-06-30 04:50 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/479704256271.shtml)
-- 2026-06-30 04:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/908528.shtml)
-- 2026-06-30 04:50 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/87166569.shtml)
-- 2026-06-30 04:51 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/1049965352.shtml)
-- 2026-06-30 05:07 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/65293.shtml)
-- 2026-06-30 05:06 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/144122.shtml)
-- 2026-06-30 05:14 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/21354361652.shtml)
+- 2026-06-30 05:14 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/7089344.shtml)
+- 2026-06-30 04:58 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/404926335622.shtml)
+- 2026-06-30 05:03 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/578367086930.shtml)
+- 2026-06-30 05:14 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/422732.shtml)
+- 2026-06-30 05:15 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/40442.shtml)
+- 2026-06-30 05:10 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/746898110.shtml)
+- 2026-06-30 05:07 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/085611546937.shtml)
+- 2026-06-30 05:04 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/23986292.shtml)
+- 2026-06-30 04:56 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/35876028510.shtml)
+- 2026-06-30 04:58 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/86876.shtml)
+- 2026-06-30 04:57 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/953071578.shtml)
+- 2026-06-30 05:16 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/46668.shtml)
+- 2026-06-30 05:15 - [美股](https://www.blog.minike.top/Article/details/886573068707.shtml)
+- 2026-06-30 05:10 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/019748.shtml)
+- 2026-06-30 05:10 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/230536002.shtml)

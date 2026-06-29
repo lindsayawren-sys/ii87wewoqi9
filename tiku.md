@@ -1,61 +1,57 @@
-# 南宁海关隶属北海海关涉案财物拍卖摇珠公告（2026年5月）
+# ST百灵索赔持续征集，财务造假引发维权
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-我关拟于近期组织公开拍卖一批涉案财物，并通过摇珠选择拍卖企业，拟定于2026年5月18日下午15时30分进行此次拍卖摇珠，具体如下： 一、拍卖标的物 涉案洋酒一批。 通过机器摇珠选择1家拍卖机构进行公开拍卖。二、摇珠范围 入围南宁海关涉案财物拍卖机构备选名录。 三、摇珠地点 北海市海城区西南大道中段6号北海海关大楼701室。 四、联系电话 0779-3235896。 此次摇珠采
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！关于贵州百灵证券虚假陈述责任纠纷案件，已在审理中。这家曾经的“苗药第一股”贵州百灵因系统性操纵销售费用，被处以1000万元顶格罚款，公司创始人、原董事长被罚款500万元并遭10年证券市场禁入。 ST百灵（维权）的财务造假手法更为隐蔽，通过违反权责发生制原则，对销售费用进行跨期调节。2019年至2021年，公
 
 ## 正文
 
-我关拟于近期组织公开拍卖一批涉案财物，并通过摇珠选择拍卖企业，拟定于2026年5月18日下午15时30分进行此次拍卖摇珠，具体如下： 一、拍卖标的物 涉案洋酒一批。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-通过机器摇珠选择1家拍卖机构进行公开拍卖。
+关于贵州百灵证券虚假陈述责任纠纷案件，已在审理中。
 
-二、摇珠范围 入围南宁海关涉案财物拍卖机构备选名录。
+这家曾经的“苗药第一股”贵州百灵因系统性操纵销售费用，被处以1000万元顶格罚款，公司创始人、原董事长被罚款500万元并遭10年证券市场禁入。
 
-三、摇珠地点 北海市海城区西南大道中段6号北海海关大楼701室。
+ST百灵（维权）的财务造假手法更为隐蔽，通过违反权责发生制原则，对销售费用进行跨期调节。
 
-四、联系电话 0779-3235896。
+2019年至2021年，公司连续三年少计销售费用，累计多计利润超6.5亿元；2023年又通过多计销售费用“平账”，少计利润4.59亿元。
 
-此次摇珠采用机选方式确定拍卖企业，参与拍卖摇珠企业可自行决定是否到现场进行监督。
+最终ST百灵2019年、2020年、2021年及2023年年报存在虚假记载。
 
-并请参与现场监督的拍卖企业提前半小时到达办理登记手续。
+贵州证监局明确认定，先少计后多计的平账操作，是掩盖前期造假的补救行为，并非合规整改。
 
-特此公告。
+贵州百灵的财务问题，是内部管理不规范的结果，与行业属性无关。
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 05:04 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 05:04 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 05:13 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 04:58 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 05:14 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 04:49 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-30 05:09 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 04:52 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 05:07 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 05:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 04:55 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 04:55 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 04:50 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 04:51 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 05:10 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 04:57 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 05:02 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 04:55 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 04:54 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 05:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 05:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 05:05 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 05:07 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 04:56 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 05:08 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:52 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/5722336762.shtml)
-- 2026-06-30 04:55 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/07606724.shtml)
-- 2026-06-30 05:09 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/75724515443.shtml)
-- 2026-06-30 05:17 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/773586680.shtml)
-- 2026-06-30 05:12 - [急先锋](http://www.share.minike.top/Article/details/444717932.shtml)
-- 2026-06-30 04:55 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/60782943.shtml)
-- 2026-06-30 05:15 - [电影后室值得看吗](http://www.share.minike.top/Article/details/08887.shtml)
-- 2026-06-30 04:58 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/06501.shtml)
-- 2026-06-30 05:12 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/00179307729.shtml)
-- 2026-06-30 05:07 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/023472074.shtml)
-- 2026-06-30 04:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/900538956.shtml)
-- 2026-06-30 05:17 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/23707912322.shtml)
-- 2026-06-30 04:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/478593663792.shtml)
-- 2026-06-30 05:04 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/4390444.shtml)
-- 2026-06-30 05:16 - [巴西扳平比分](http://www.share.minike.top/Article/details/00239.shtml)
+- 2026-06-30 05:09 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/986390492989.shtml)
+- 2026-06-30 04:55 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/62221136272.shtml)
+- 2026-06-30 05:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/32230288315.shtml)
+- 2026-06-30 05:21 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/53145846.shtml)
+- 2026-06-30 05:18 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/39931.shtml)
+- 2026-06-30 05:21 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/09253432401.shtml)
+- 2026-06-30 05:16 - [勇敢的心第二部](https://www.share.minike.top/Article/details/040770801143.shtml)
+- 2026-06-30 05:18 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/662809122835.shtml)
+- 2026-06-30 05:18 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/49669126496.shtml)
+- 2026-06-30 05:20 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/8918330515.shtml)
+- 2026-06-30 05:03 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/9386340.shtml)
+- 2026-06-30 05:20 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/94073.shtml)
+- 2026-06-30 05:03 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/19412.shtml)
+- 2026-06-30 04:54 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/1260721.shtml)
+- 2026-06-30 05:02 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/8196720.shtml)

@@ -1,51 +1,61 @@
-# 阿克曼：潘兴广场将披露其对微软的新持仓
+# 广州“百企强百村”研训开班 197名“新班长”学“造血”
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-比尔·阿克曼在X平台发文称，潘兴广场将在今日稍后提交的13F文件中披露一项对微软的新持仓。 阿克曼还表示，他认为微软近期股价下跌“主要是受到投资者对两个关键问题担忧的驱动”：一是M365面对“能力日益增强”的人工智能实验室产品时的竞争定位，二是Azure增长的可持续性。 他认为，投资者低估了M365业务的韧性，因为该产品已深度嵌入企业运营之中，而且其性价比极具吸引力。责任编辑：
+中新网广州5月14日电 (记者 方伟彬)广州市委统战部、市农业农村局、市工商联14日联合举办“百企强百村”集体经济发展专题研训活动。该市197个集体经济相对薄弱村的党组织书记集中“充电”，学习产业规划、电商运营及村企对接新模式，旨在贯彻落实广东“百千万工程”推进会精神，为乡村振兴蓄力。 针对换届后近半数村支书履新、基层经验不足的现状，本次研训将85名新任书记列为重点对象，实行导
 
 ## 正文
 
-比尔·阿克曼在X平台发文称，潘兴广场将在今日稍后提交的13F文件中披露一项对微软的新持仓。
+中新网广州5月14日电 (记者 方伟彬)广州市委统战部、市农业农村局、市工商联14日联合举办“百企强百村”集体经济发展专题研训活动。
 
-阿克曼还表示，他认为微软近期股价下跌“主要是受到投资者对两个关键问题担忧的驱动”：一是M365面对“能力日益增强”的人工智能实验室产品时的竞争定位，二是Azure增长的可持续性。
+该市197个集体经济相对薄弱村的党组织书记集中“充电”，学习产业规划、电商运营及村企对接新模式，旨在贯彻落实广东“百千万工程”推进会精神，为乡村振兴蓄力。
 
-他认为，投资者低估了M365业务的韧性，因为该产品已深度嵌入企业运营之中，而且其性价比极具吸引力。
+针对换届后近半数村支书履新、基层经验不足的现状，本次研训将85名新任书记列为重点对象，实行导师结对辅导。
 
-责任编辑：何云
+老书记则自愿参训。
+
+广州市委统战部相关负责人表示，研训不仅是落实“五年显著变化”目标的关键举措，更是为了将“投资于物”与“投资于人”结合，建强基层“头雁方阵”。
+
+自去年起，广州创新推行“行政专班+专业运营”双轮驱动模式。
+
+通过引入农业农村部专家及专业机构，以“理论+实操+陪跑”方式，指导197个村定制“一村一策”发展计划，成功导入淡水蓝龙虾等优质项目。
+
+农业农村部专家顾益康评价称，该模式既强化了政策统筹，又激活了市场效能。
 
 ## 相关推荐
 
-- 2026-06-30 05:02 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 04:55 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 04:48 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 04:58 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 05:14 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 05:10 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 04:48 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 04:51 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 04:48 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 05:14 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 05:02 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 04:50 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 04:57 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 04:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 05:16 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-30 05:11 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 05:10 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 04:57 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 05:24 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 05:04 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 04:56 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 05:02 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 05:12 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 05:13 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 04:56 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 05:16 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 04:59 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 05:22 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:03 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/27712.shtml)
-- 2026-06-30 05:06 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/9181825.shtml)
-- 2026-06-30 05:04 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/000550631.shtml)
-- 2026-06-30 05:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/009688684703.shtml)
-- 2026-06-30 04:49 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/515374584872.shtml)
-- 2026-06-30 05:08 - [一见倾心](https://www.share.kurohicncr.top/Article/details/61323.shtml)
-- 2026-06-30 04:51 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/64642347512.shtml)
-- 2026-06-30 05:01 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/4428958.shtml)
-- 2026-06-30 04:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/860170122818.shtml)
-- 2026-06-30 04:59 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/925533.shtml)
-- 2026-06-30 05:04 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/3013898.shtml)
-- 2026-06-30 05:15 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/84906621087.shtml)
-- 2026-06-30 04:53 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/9019734.shtml)
-- 2026-06-30 04:59 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/96769380.shtml)
-- 2026-06-30 04:55 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/537201.shtml)
+- 2026-06-30 05:09 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/507434.shtml)
+- 2026-06-30 05:13 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/6654229250.shtml)
+- 2026-06-30 05:18 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/823092221192.shtml)
+- 2026-06-30 05:08 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/617747.shtml)
+- 2026-06-30 05:21 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/257916.shtml)
+- 2026-06-30 05:07 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/11728091401.shtml)
+- 2026-06-30 05:22 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/151501.shtml)
+- 2026-06-30 05:12 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/6099618372.shtml)
+- 2026-06-30 05:01 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/3954544.shtml)
+- 2026-06-30 04:55 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/753228090730.shtml)
+- 2026-06-30 05:09 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/75419383846.shtml)
+- 2026-06-30 05:10 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/3345629707.shtml)
+- 2026-06-30 05:22 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/239627365.shtml)
+- 2026-06-30 05:17 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/334926571.shtml)
+- 2026-06-30 04:54 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/220436582082.shtml)

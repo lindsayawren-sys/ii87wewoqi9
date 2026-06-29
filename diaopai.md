@@ -1,56 +1,59 @@
-# Curtiss-Wright连续第10年提高股息，季度派息上调8%至0.26美元
+# 长江有色：14日氧化铝期价收涨0.14% 下游维持刚需交易节奏
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-航空航天与国防工程制造商Curtiss-Wright公司宣布，其董事会已批准将季度股息提高8%，从每股0.24美元上调至0.26美元，标志着公司连续第10年实现股息增长。 股息详情 根据公司公告，上调后的季度股息每股0.26美元，按年化计算相当于每股1.04美元。本次股息将于2026年7月6日支付给2026年6月15日登记在册的股东。 Curtiss-Wright董事长兼首席执
+长江有色网5月14日讯，今日氧化铝所有合约涨跌分化，主力月2609合约早盘高开后略有回落，但随即反弹震荡，午后盘面进入区间震荡运行；截止当日15：00收盘，氧化铝主力月2609合约报2790元，涨4元，涨幅0.14%；加权合约累计成交325780手，比前一交易日增加112542手，涨幅52.78%；持仓量542512手增加1303手，涨幅0.24%。 今日国内氧化铝现货价格稳中
 
 ## 正文
 
-航空航天与国防工程制造商Curtiss-Wright公司宣布，其董事会已批准将季度股息提高8%，从每股0.24美元上调至0.26美元，标志着公司连续第10年实现股息增长。
+长江有色网5月14日讯，今日氧化铝所有合约涨跌分化，主力月2609合约早盘高开后略有回落，但随即反弹震荡，午后盘面进入区间震荡运行；截止当日15：00收盘，氧化铝主力月2609合约报2790元，涨4元，涨幅0.14%；加权合约累计成交325780手，比前一交易日增加112542手，涨幅52.78%；持仓量542512手增加1303手，涨幅0.24%。
 
-股息详情 根据公司公告，上调后的季度股息每股0.26美元，按年化计算相当于每股1.04美元。
+今日国内氧化铝现货价格稳中有跌；据长江有色网ccmn数据，5月14日氧化铝华南地区每吨报2680-2730元之间，与前一交易日报价持平；华东地区氧化铝每吨报2680-2720元之间，与前一交易日报价持平；西南地区氧化铝每吨2765-2805元之间，与前一交易日报价持平；西北地区氧化铝每吨报2945-2985元之间，与前一交易日报价跌40元。
 
-本次股息将于2026年7月6日支付给2026年6月15日登记在册的股东。
+今日上期所氧化铝期货主力2605合约冲高震荡，日间交易收涨0.14%，国内氧化铝现货价格稳中有跌； 宏观方面，美联储新任主席已敲定由沃什接任，但市场对快速降息预期极低。
 
-Curtiss-Wright董事长兼首席执行官Lynn M． Bamford表示，这标志着公司连续第10年提高股息。
+4月PPI超预期飙升创2022年初以来最大涨幅，叠加通胀加剧，年内降息预期基本破灭，甚至计价明年加息可能。
 
-她强调，公司致力于通过持续的股票回购为股东提供稳定回报，并承诺随着长期销售增长而稳步增加股息。
+美元走强、美债收益率攀升及股市吸金效应共振，情绪摇摆。
 
-在严谨的资本配置策略下，公司仍将致力于通过战略收购作为有机增长的推手，同时瞄准回报率最高的运营投资，以推动长期股东价值。
+但市场聚焦特朗普与中国领导人北京会晤，整体维持谨慎乐观。
 
-业绩支撑与业务概况 此次股息上调得到了公司强劲财务表现的支持。
+产业层面，海外印度国家铝业宣布部分减产，且几内亚铝土矿出口政策尚不明朗，进口矿价格持稳，对海外氧化铝价格形成一定支撑。
 
-公司此前公布的第一季度财报显示，营收达9.14亿美元，同比增长13%，调整后稀释每股收益为3.48美元，同比增长23%。
+国内供应端则呈现增减产并行态势，前期计划的复产与新投基本符合预期，氧化铝开工产能小幅爬升。
 
 ## 相关推荐
 
-- 2026-06-30 04:55 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 05:11 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 05:17 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 05:13 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 05:08 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 05:09 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 04:54 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 04:59 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 05:11 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 04:58 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 05:14 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 05:20 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 05:07 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 05:21 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-30 05:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 05:14 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 05:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 05:04 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 04:59 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 05:03 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 05:00 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 05:21 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 05:23 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:52 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/293632799.shtml)
-- 2026-06-30 05:04 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/557475.shtml)
-- 2026-06-30 05:00 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/8879174.shtml)
-- 2026-06-30 04:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/88536.shtml)
-- 2026-06-30 05:02 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/16321.shtml)
-- 2026-06-30 04:55 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/6486323.shtml)
-- 2026-06-30 04:59 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/27667054424.shtml)
-- 2026-06-30 05:06 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/737057977.shtml)
-- 2026-06-30 04:54 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/26636712.shtml)
-- 2026-06-30 05:06 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/013860.shtml)
-- 2026-06-30 05:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/435160.shtml)
-- 2026-06-30 05:02 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/5405082.shtml)
-- 2026-06-30 04:49 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/535369.shtml)
-- 2026-06-30 05:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/50506.shtml)
-- 2026-06-30 05:04 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/61206857211.shtml)
+- 2026-06-30 05:12 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/23479677206.shtml)
+- 2026-06-30 05:16 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/0840351.shtml)
+- 2026-06-30 04:59 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/36597.shtml)
+- 2026-06-30 05:00 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/06095731760.shtml)
+- 2026-06-30 05:13 - [我们的少年时代2](https://www.share.minike.top/Article/details/290811130.shtml)
+- 2026-06-30 05:05 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/53555410.shtml)
+- 2026-06-30 04:54 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/69035763119.shtml)
+- 2026-06-30 05:19 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/004015.shtml)
+- 2026-06-30 05:09 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/702536926.shtml)
+- 2026-06-30 05:22 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/656696109398.shtml)
+- 2026-06-30 05:01 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/52689.shtml)
+- 2026-06-30 05:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/33521.shtml)
+- 2026-06-30 05:20 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/43734.shtml)
+- 2026-06-30 05:19 - [沙丘](http://www.share.kurohicncr.top/Article/details/986056.shtml)
+- 2026-06-30 05:02 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/74473436703.shtml)

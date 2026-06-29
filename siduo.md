@@ -1,56 +1,56 @@
-# 美国4月进出口价格指数显示通胀压力持续升温
+# “Z世代”台青的武汉机缘与情缘
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-美国劳工统计局周四公布的数据显示，4月进出口价格涨幅双双远超市场预期，创下多年新高，进一步表明中东冲突引发的能源成本上涨正在持续向美国经济输入通胀压力。 进口价格飙升，能源成主因 4月进口价格环比上涨1.9%，远高于市场预期的1.0%，也较3月上修后的0.9%涨幅扩大整整1个百分点。从同比看，进口价格上涨4.2%，为2022年10月以来最大涨幅。 能源价格是此次上涨的主要推手：
+发布时间：2026年05月13日 22:58 来源：中国新闻网 近日，“Z世代”台湾青年林伯洋收拾好行李箱，准备从武汉飞往迪拜，参与“武汉造”新能源汽车的出海项目。来武汉一年半，这位“斜杠青年”已先后试水疗愈经济、台湾美食等创业领域，如今投身汽车赛道，收获了机缘与情缘。 林伯洋此前在台湾从事汽车销售行业，2024年，他受邀参加武汉台湾周，第一次踏上大陆。他回忆道。自己就像个初次
 
 ## 正文
 
-美国劳工统计局周四公布的数据显示，4月进出口价格涨幅双双远超市场预期，创下多年新高，进一步表明中东冲突引发的能源成本上涨正在持续向美国经济输入通胀压力。
+发布时间：2026年05月13日 22:58 来源：中国新闻网 近日，“Z世代”台湾青年林伯洋收拾好行李箱，准备从武汉飞往迪拜，参与“武汉造”新能源汽车的出海项目。
 
-进口价格飙升，能源成主因 4月进口价格环比上涨1.9%，远高于市场预期的1.0%，也较3月上修后的0.9%涨幅扩大整整1个百分点。
+来武汉一年半，这位“斜杠青年”已先后试水疗愈经济、台湾美食等创业领域，如今投身汽车赛道，收获了机缘与情缘。
 
-从同比看，进口价格上涨4.2%，为2022年10月以来最大涨幅。
+林伯洋此前在台湾从事汽车销售行业，2024年，他受邀参加武汉台湾周，第一次踏上大陆。
 
-能源价格是此次上涨的主要推手：燃料价格暴涨16.3%，创下四年多来最大涨幅；石油及石油产品价格飙升19%。
+他回忆道。
 
-剔除燃料后，核心进口价格环比上涨0.7%，表明能源之外的更广泛价格压力同样存在。
+自己就像个初次与世界接触的孩子，在武汉看到了课本上的黄鹤楼、视频里的长江、烟火气十足的万松园。
 
-分品类看，资本品价格上涨1.1%，非燃料供应品以及食品和饮料价格也有所上涨，消费品价格涨幅相对温和，汽车价格则小幅下跌。
+这份强烈的归属感，让他下定决心来武汉打拼。
 
-出口价格创逾四年最大涨幅 出口方面涨幅更为惊人。
-
-4月出口价格环比飙升3.3%，远高于市场预期的1.2%，创下2022年3月以来最大月度涨幅。
+(记者 郑子颜 湖北武汉报道) 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-30 05:17 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 04:55 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 05:16 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 05:11 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 04:59 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 05:17 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 04:54 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-30 04:58 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 04:56 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 04:52 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 05:09 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 05:08 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 05:07 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 05:22 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 05:09 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 05:10 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 05:12 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 05:14 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 05:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 05:07 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 05:18 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 05:18 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:17 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/669872.shtml)
-- 2026-06-30 04:48 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/7065340.shtml)
-- 2026-06-30 05:06 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/217487.shtml)
-- 2026-06-30 04:51 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/765864136.shtml)
-- 2026-06-30 05:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/77672115584.shtml)
-- 2026-06-30 04:54 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/03133.shtml)
-- 2026-06-30 04:57 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/22074347476.shtml)
-- 2026-06-30 04:51 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/664585808.shtml)
-- 2026-06-30 05:11 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/560588547685.shtml)
-- 2026-06-30 05:09 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/66614722.shtml)
-- 2026-06-30 05:10 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.kurohicncr.top/Article/details/2935337.shtml)
-- 2026-06-30 05:14 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/80539.shtml)
-- 2026-06-30 05:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/1051499.shtml)
-- 2026-06-30 04:56 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/514606311882.shtml)
-- 2026-06-30 05:06 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/359937.shtml)
+- 2026-06-30 04:55 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/68138.shtml)
+- 2026-06-30 05:14 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/33132.shtml)
+- 2026-06-30 05:07 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/550751567.shtml)
+- 2026-06-30 04:57 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/0956016561.shtml)
+- 2026-06-30 04:59 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/92532909184.shtml)
+- 2026-06-30 05:05 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/8184336.shtml)
+- 2026-06-30 04:57 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/45451820637.shtml)
+- 2026-06-30 04:59 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/7117533475.shtml)
+- 2026-06-30 05:22 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/24205.shtml)
+- 2026-06-30 04:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/186773726.shtml)
+- 2026-06-30 05:23 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/3058541.shtml)
+- 2026-06-30 05:09 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/37274584.shtml)
+- 2026-06-30 05:04 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/834522959.shtml)
+- 2026-06-30 05:18 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/20532166216.shtml)
+- 2026-06-30 05:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/846791.shtml)

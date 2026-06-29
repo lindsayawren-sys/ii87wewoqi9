@@ -1,58 +1,57 @@
-# 中国红基会“天使之旅”——先心病患儿筛查救助行动走进贵州兴义
+# 世行预计越南今年经济增速放缓至6.8%
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新网贵州兴义5月14日电 (记者 瞿宏伦)“天使之旅”——2026年贵州先心病患儿筛查救助行动(以下简称：救助行动)14日走进贵州省黔西南布依族苗族自治州兴义市。中国红十字基金会携手淄博世博高新医院，对黔西南州等地的适龄儿童进行先心病筛查，将为符合手术指征的孩子进行免费手术治疗。 此次筛查对象是黔西南州14周岁(含)以下的，患有先天性心脏病未手术、需二次手术或需术后复查的儿童
+世界银行周五表示，预计越南今年的经济增速将从去年的8%放缓至6.8%。 世界银行在一份声明中指出，越南的经济前景依然稳健，但短期内风险仍然较高。 世界银行驻越南主任玛丽亚姆·谢尔曼表示：“全球经济疲软加剧了越南外部环境的挑战，石油危机更是雪上加霜。” 越南的目标是今年及未来十年每年GDP增速至少达到10%。 受伊朗冲突影响，越南面临通胀压力，4月份通胀率高于政府设定的4.5%的
 
 ## 正文
 
-中新网贵州兴义5月14日电 (记者 瞿宏伦)“天使之旅”——2026年贵州先心病患儿筛查救助行动(以下简称：救助行动)14日走进贵州省黔西南布依族苗族自治州兴义市。
+世界银行周五表示，预计越南今年的经济增速将从去年的8%放缓至6.8%。
 
-中国红十字基金会携手淄博世博高新医院，对黔西南州等地的适龄儿童进行先心病筛查，将为符合手术指征的孩子进行免费手术治疗。
+世界银行在一份声明中指出，越南的经济前景依然稳健，但短期内风险仍然较高。
 
-此次筛查对象是黔西南州14周岁(含)以下的，患有先天性心脏病未手术、需二次手术或需术后复查的儿童。
+世界银行驻越南主任玛丽亚姆·谢尔曼表示：“全球经济疲软加剧了越南外部环境的挑战，石油危机更是雪上加霜。
 
-筛查精准聚焦当地儿童医疗短板，下沉基层开展免费筛查，打通医疗救助服务“最后一公里”。
+” 越南的目标是今年及未来十年每年GDP增速至少达到10%。
 
-救助项目中，淄博世博高新医院组建的骨干医疗团队拥有丰富的先心病诊疗经验，团队术前将逐一研判患儿病情，定制个性化手术诊疗方案，术后持续跟进患儿康复情况，建立筛查、诊疗、随访一体化救助模式，全方位守护患儿身心健康。
+受伊朗冲突影响，越南面临通胀压力，4月份通胀率高于政府设定的4.5%的目标。
 
-医疗团队携带专业心脏彩超设备，在筛查现场有条不紊开展工作。
-
-医护人员耐心为每一名儿童进行心脏听诊、彩超检查，细致记录孩子身体状况，精准排查房间隔缺损、室间隔缺损等先天性心脏病，同时向陪同家长科普先心病注意事项，破除家长对先心病的认知误区。
-
-先天性心脏病作为儿童常见高发先天性疾病，早筛查、早诊断、早治疗是患儿康复的关键。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 04:56 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 04:56 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 05:06 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 05:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 05:12 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 05:03 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 05:01 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 05:09 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 04:53 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 05:08 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 04:51 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 05:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 05:18 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 05:12 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 05:07 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 05:16 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 04:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 05:23 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 05:19 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 05:01 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 05:15 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 05:03 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 05:21 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 05:03 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 05:20 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 05:02 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 05:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:07 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/875522131511.shtml)
-- 2026-06-30 04:55 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/394740338.shtml)
-- 2026-06-30 05:03 - [请回答王牌2019](http://www.share.minike.top/Article/details/33107722.shtml)
-- 2026-06-30 05:13 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/5763735849.shtml)
-- 2026-06-30 04:54 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/38027475236.shtml)
-- 2026-06-30 05:03 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.kurohicncr.top/Article/details/6229475.shtml)
-- 2026-06-30 05:09 - [扫黑风暴](https://www.blog.minike.top/Article/details/117690436352.shtml)
-- 2026-06-30 05:02 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/625235545734.shtml)
-- 2026-06-30 05:00 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/42848554.shtml)
-- 2026-06-30 05:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/04875.shtml)
-- 2026-06-30 04:58 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/3197080.shtml)
-- 2026-06-30 05:04 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/903309834352.shtml)
-- 2026-06-30 05:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/29853153.shtml)
-- 2026-06-30 04:54 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/2874081690.shtml)
-- 2026-06-30 05:14 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/859505063.shtml)
+- 2026-06-30 05:02 - [世界杯](https://www.blog.kurohicncr.top/Article/details/65250091457.shtml)
+- 2026-06-30 05:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/3908221.shtml)
+- 2026-06-30 05:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/649553087904.shtml)
+- 2026-06-30 04:55 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/38194986.shtml)
+- 2026-06-30 04:59 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/749842243720.shtml)
+- 2026-06-30 05:05 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/399470904138.shtml)
+- 2026-06-30 05:00 - [月亮](http://www.blog.minike.top/Article/details/71188.shtml)
+- 2026-06-30 05:15 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/733598.shtml)
+- 2026-06-30 05:21 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/10547939053.shtml)
+- 2026-06-30 05:20 - [斛珠夫人](http://www.blog.minike.top/Article/details/79718173684.shtml)
+- 2026-06-30 05:17 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/2182977.shtml)
+- 2026-06-30 05:21 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/177940.shtml)
+- 2026-06-30 05:22 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/026804.shtml)
+- 2026-06-30 05:19 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/084828855784.shtml)
+- 2026-06-30 05:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/702671.shtml)

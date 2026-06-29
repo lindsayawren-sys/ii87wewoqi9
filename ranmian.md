@@ -1,50 +1,54 @@
-# 镇康县农村信用合作联社被罚146.4万元：违反支付结算管理规定等
+# 中国中车注册资本增至约245.1亿！
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-5月15日金融一线消息，中国人民银行临沧市分行行政处罚决定信息公示表显示，镇康县农村信用合作联社因违反支付结算管理规定、违反金融科技管理规定、违反货币金银管理规定、违反国库管理规定、违反征信管理规定、违反反洗钱管理规定、违反CRS管理规定，被中国人民银行临沧市分行警告、通报批评，没收违法所得639.06元，并处1464000元罚款。 赵*云（时任财务与运行管理部副经理-主持工作
+近日，天眼查 App 显示，中国中车集团有限公司完成工商变更，注册资本由 230 亿元增至约 245.1 亿元，资本实力进一步壮大，为企业高质量发展注入强劲动能。中国中车股份有限公司（中文简称“中国中车”，英文简称缩写“CRRC”）是经国务院国资委批准，由中国北车股份有限公司、中国南车股份有限公司按照对等原则合并组建的A+H股份上市公司。经中国证监会核准，2015年6月8日，中
 
 ## 正文
 
-5月15日金融一线消息，中国人民银行临沧市分行行政处罚决定信息公示表显示，镇康县农村信用合作联社因违反支付结算管理规定、违反金融科技管理规定、违反货币金银管理规定、违反国库管理规定、违反征信管理规定、违反反洗钱管理规定、违反CRS管理规定，被中国人民银行临沧市分行警告、通报批评，没收违法所得639.06元，并处1464000元罚款。
+近日，天眼查 App 显示，中国中车集团有限公司完成工商变更，注册资本由 230 亿元增至约 245.1 亿元，资本实力进一步壮大，为企业高质量发展注入强劲动能。
 
-赵*云（时任财务与运行管理部副经理-主持工作）对镇康县农村信用合作联社“违反CRS业务管理规定”的违规行为负有直接责任，被中国人民银行临沧市分行警告，并处68000元罚款。
+中国中车股份有限公司（中文简称“中国中车”，英文简称缩写“CRRC”）是经国务院国资委批准，由中国北车股份有限公司、中国南车股份有限公司按照对等原则合并组建的A+H股份上市公司。
 
-责任编辑：李琳琳
+经中国证监会核准，2015年6月8日，中国中车在上海证券交易所和香港联交所成功上市。
+
+现有46家全资及控股子公司，员工17万余人。
+
+总部设在北京。
 
 ## 相关推荐
 
-- 2026-06-30 05:17 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 04:57 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 05:08 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 04:51 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 04:54 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 04:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 04:59 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 05:16 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 04:48 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 05:12 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 04:53 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 05:05 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 05:16 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 04:51 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 04:57 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 05:16 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 04:57 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-30 05:18 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 05:05 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 05:04 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 05:08 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 05:10 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 05:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 05:22 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 04:54 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 05:19 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 04:59 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 05:09 - [巴西绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:56 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/54227100.shtml)
-- 2026-06-30 04:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/598184.shtml)
-- 2026-06-30 04:48 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/6400361.shtml)
-- 2026-06-30 05:03 - [人类...完蛋了...](https://www.share.minike.top/Article/details/68062544910.shtml)
-- 2026-06-30 05:12 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/925778.shtml)
-- 2026-06-30 05:09 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/2773173.shtml)
-- 2026-06-30 04:48 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/155811046.shtml)
-- 2026-06-30 04:57 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/645565242.shtml)
-- 2026-06-30 05:08 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/661248.shtml)
-- 2026-06-30 05:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/7895744.shtml)
-- 2026-06-30 04:53 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/197829762185.shtml)
-- 2026-06-30 04:56 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/1366520793.shtml)
-- 2026-06-30 05:04 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/39096504645.shtml)
-- 2026-06-30 05:05 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/095253.shtml)
-- 2026-06-30 04:58 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/922636.shtml)
+- 2026-06-30 05:09 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/116505081474.shtml)
+- 2026-06-30 05:18 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/81926011.shtml)
+- 2026-06-30 05:03 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/466208658.shtml)
+- 2026-06-30 05:14 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/699184.shtml)
+- 2026-06-30 05:05 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/81698438.shtml)
+- 2026-06-30 05:00 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/9209449860.shtml)
+- 2026-06-30 05:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/8065961543.shtml)
+- 2026-06-30 05:15 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/9455873543.shtml)
+- 2026-06-30 04:56 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/810060766673.shtml)
+- 2026-06-30 05:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/18580.shtml)
+- 2026-06-30 05:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/995226.shtml)
+- 2026-06-30 05:09 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/286313266560.shtml)
+- 2026-06-30 05:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/18135161531.shtml)
+- 2026-06-30 05:09 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/6458625.shtml)
+- 2026-06-30 05:01 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/521687399.shtml)

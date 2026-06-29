@@ -1,59 +1,59 @@
-# 贸易商维多据悉推销可在霍尔木兹海峡外交付的伊拉克石油
+# 外交部发言人就美国总统特朗普访华情况答记者问
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-据知情人士透露，维多集团正在向客户兜售伊拉克巴士拉原油，这显示部分原油可能已经成功运出波斯湾。 知情人士说，维多过去几天向炼油商推销多批货物，其中包括可在阿联酋近海（包括富查伊拉港）以船对船过驳方式交付的巴士拉中质原油和巴士拉重质原油。因谈判私下进行，知情人士要求匿名。 维多发言人不予评论。 如果成功，这将是自战争和霍尔木兹海峡封锁开始以来，伊拉克原油罕见地出现在现货市场并由贸
+中新网5月15日电 据外交部网站消息，外交部发言人就美国总统特朗普访华情况答记者问。 有记者问：5月14日，习近平主席为正在访华的美国总统特朗普举行系列国事活动，国内外高度关注。中方能否进一步介绍相关情况？ 答：应习近平主席邀请，美国总统特朗普正在对中国进行国事访问。这是中美两国元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。5月14日，习近平主席为特朗普
 
 ## 正文
 
-据知情人士透露，维多集团正在向客户兜售伊拉克巴士拉原油，这显示部分原油可能已经成功运出波斯湾。
+中新网5月15日电 据外交部网站消息，外交部发言人就美国总统特朗普访华情况答记者问。
 
-知情人士说，维多过去几天向炼油商推销多批货物，其中包括可在阿联酋近海（包括富查伊拉港）以船对船过驳方式交付的巴士拉中质原油和巴士拉重质原油。
+有记者问：5月14日，习近平主席为正在访华的美国总统特朗普举行系列国事活动，国内外高度关注。
 
-因谈判私下进行，知情人士要求匿名。
+中方能否进一步介绍相关情况？
 
-维多发言人不予评论。
+答：应习近平主席邀请，美国总统特朗普正在对中国进行国事访问。
 
-如果成功，这将是自战争和霍尔木兹海峡封锁开始以来，伊拉克原油罕见地出现在现货市场并由贸易商出售。
+这是中美两国元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。
 
-数月以来，波斯湾大部分原油产量被困，无法运出，阿布扎比国家石油公司（ADNOC）是最早一批通过海峡运出石油的公司之一。
+5月14日，习近平主席为特朗普总统举行欢迎仪式和欢迎宴会，同特朗普总统举行会谈，并共同参观天坛。
 
-责任编辑：王永生
+两国元首就事关两国和世界的重大问题深入交换意见，达成一系列新共识。
+
+两国元首赞同将构建“中美建设性战略稳定关系”作为中美关系新定位，为未来3年乃至更长时间的中美关系提供战略指引，推动两国关系稳定、健康、可持续发展，为世界带来更多和平、繁荣、进步。
 
 ## 相关推荐
 
-- 2026-06-30 05:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 05:05 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-30 04:55 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-30 04:57 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 04:50 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 05:06 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 04:50 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 04:51 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 04:56 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 05:00 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 04:48 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 05:05 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 04:53 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 05:02 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-30 04:54 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 05:13 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 05:11 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 05:22 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 05:06 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 05:18 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 05:04 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 05:00 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 05:00 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 05:10 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 05:16 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 05:21 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 05:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 05:08 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:59 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/895625979.shtml)
-- 2026-06-30 05:12 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/3904833279.shtml)
-- 2026-06-30 05:03 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/813854294.shtml)
-- 2026-06-30 04:58 - [苗族银饰](http://www.share.minike.top/Article/details/906806927511.shtml)
-- 2026-06-30 05:07 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/389689505.shtml)
-- 2026-06-30 04:58 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/094549787.shtml)
-- 2026-06-30 05:12 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/74129832884.shtml)
-- 2026-06-30 04:48 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/05749315.shtml)
-- 2026-06-30 05:03 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/6597301767.shtml)
-- 2026-06-30 04:53 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/26263033715.shtml)
-- 2026-06-30 04:58 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/28606.shtml)
-- 2026-06-30 04:54 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/3597662.shtml)
-- 2026-06-30 05:07 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/684872624723.shtml)
-- 2026-06-30 04:51 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/785543.shtml)
-- 2026-06-30 05:11 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/3841638487.shtml)
+- 2026-06-30 05:02 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/9482657191.shtml)
+- 2026-06-30 05:14 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/728590033.shtml)
+- 2026-06-30 05:02 - [爱很美味](https://www.share.kurohicncr.top/Article/details/6213105.shtml)
+- 2026-06-30 05:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/352713455227.shtml)
+- 2026-06-30 05:09 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/3978129597.shtml)
+- 2026-06-30 05:22 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/5785413586.shtml)
+- 2026-06-30 05:15 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/26647850851.shtml)
+- 2026-06-30 05:21 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/5374503391.shtml)
+- 2026-06-30 05:23 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/4617657.shtml)
+- 2026-06-30 04:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/48863377383.shtml)
+- 2026-06-30 04:55 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/481707779902.shtml)
+- 2026-06-30 05:03 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/7383678157.shtml)
+- 2026-06-30 05:08 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/0962933.shtml)
+- 2026-06-30 05:04 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/97148183958.shtml)
+- 2026-06-30 05:18 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/12321025772.shtml)

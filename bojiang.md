@@ -1,51 +1,61 @@
-# 龙光集团盘中涨近20% 近日已向开曼群岛大法院申请协议安排计划聆讯
+# 中信建投期货：5月14日能化早报
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-龙光集团（03380）盘中一度拉升近20%。截至发稿，股价上涨4.72%，现报1.33港元，成交额7843.06万港元。 近日，龙光集团发布公告，公司已向开曼群岛大法院申请协议安排计划聆讯，寻求批准召开计划债权人会议以考虑及批准（不论是否经修改）开曼计划。 公告称，公司已通过交易网站发布与开曼计划有关的“实务声明函”。责任编辑：卢昱君
+橡胶：供给扰动再度引爆预期 周三，国产全乳胶18200/吨，环比上日上涨550元/吨；泰国20号混合胶17650元/吨，环比上日上涨550元/吨。 原料端：泰国昨日假期，原料市场休市；云南胶水报收16．元/公斤，环比上日上涨0.1元/公斤；海南胶水报收16.5元/公斤，环比上日持平。 截至2026年5月10日，中国天然橡胶社会库存132.7万吨，环比增加0.9万吨，增幅0.6%
 
 ## 正文
 
-龙光集团（03380）盘中一度拉升近20%。
+橡胶：供给扰动再度引爆预期 周三，国产全乳胶18200/吨，环比上日上涨550元/吨；泰国20号混合胶17650元/吨，环比上日上涨550元/吨。
 
-截至发稿，股价上涨4.72%，现报1.33港元，成交额7843.06万港元。
+原料端：泰国昨日假期，原料市场休市；云南胶水报收16．元/公斤，环比上日上涨0.1元/公斤；海南胶水报收16.5元/公斤，环比上日持平。
 
-近日，龙光集团发布公告，公司已向开曼群岛大法院申请协议安排计划聆讯，寻求批准召开计划债权人会议以考虑及批准（不论是否经修改）开曼计划。
+截至2026年5月10日，中国天然橡胶社会库存132.7万吨，环比增加0.9万吨，增幅0.6%。
 
-公告称，公司已通过交易网站发布与开曼计划有关的“实务声明函”。
+中国深色胶社会总库存为91.5万吨，增幅0.6%。
 
-责任编辑：卢昱君
+其中青岛现货库存增1%；云南降1.6%；越南10增0.7%；NR库存小计持平。
+
+中国浅色胶社会总库存为41.2万吨，环比增0.8%。
+
+其中老全乳胶环比降0.7%，3L环比降0.8%，RU库存小计增加3.8%。
+
+观点：近期，泰国等全球天然橡胶主产区正逐步进入季节性的增产期，目前全球主产区的降雨量同比2024年同期未有明显减少；气温同期2024年同期也未显著偏高。
 
 ## 相关推荐
 
-- 2026-06-30 05:13 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 05:17 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-30 04:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 04:55 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 05:10 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 05:11 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 05:01 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 04:56 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 05:17 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-30 04:49 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-30 04:52 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 05:00 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 05:17 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 05:04 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 05:05 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 05:10 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-30 04:54 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 05:02 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 05:22 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 05:17 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 05:20 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 05:13 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 05:05 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 05:21 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 05:13 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 05:03 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:53 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/779098.shtml)
-- 2026-06-30 04:55 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/27560.shtml)
-- 2026-06-30 05:00 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/599770342.shtml)
-- 2026-06-30 04:52 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/69641466632.shtml)
-- 2026-06-30 05:00 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/448172.shtml)
-- 2026-06-30 05:01 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/19894.shtml)
-- 2026-06-30 05:14 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/37265444096.shtml)
-- 2026-06-30 04:56 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/799428352008.shtml)
-- 2026-06-30 05:11 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/56665.shtml)
-- 2026-06-30 05:08 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/52481.shtml)
-- 2026-06-30 04:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/045785.shtml)
-- 2026-06-30 04:56 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/70002087.shtml)
-- 2026-06-30 05:06 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/1111160259.shtml)
-- 2026-06-30 05:12 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/28791315410.shtml)
-- 2026-06-30 04:48 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/94536034915.shtml)
+- 2026-06-30 05:14 - [沉睡花园](https://www.share.minike.top/Article/details/3742857740.shtml)
+- 2026-06-30 05:21 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/82659.shtml)
+- 2026-06-30 05:11 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/98860.shtml)
+- 2026-06-30 05:11 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/66756300.shtml)
+- 2026-06-30 05:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/2369567095.shtml)
+- 2026-06-30 05:19 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/03347923.shtml)
+- 2026-06-30 05:16 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/1499770.shtml)
+- 2026-06-30 05:14 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/1117016781.shtml)
+- 2026-06-30 04:58 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/30734699873.shtml)
+- 2026-06-30 05:08 - [85花告别古偶](https://www.share.minike.top/Article/details/59499918259.shtml)
+- 2026-06-30 04:54 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/2175120.shtml)
+- 2026-06-30 04:56 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/231591700.shtml)
+- 2026-06-30 05:11 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/060956485148.shtml)
+- 2026-06-30 05:22 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/702887.shtml)
+- 2026-06-30 05:02 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/361127215331.shtml)

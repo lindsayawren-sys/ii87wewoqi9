@@ -1,58 +1,56 @@
-# 中方：愿同纽埃新一届政府拓展交流合作
+# 广州以南沙为“棋眼” 扎实推进粤港澳大湾区建设
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新网北京5月15日电 (记者 曾玥 黄钰钦)中国外交部发言人郭嘉昆15日主持例行记者会。 有记者提问：据报道，纽埃议会5月14日选举现任总理塔格拉吉为新任总理。中方对此有何评论？对中纽关系有何期待？ 郭嘉昆：中方对塔格拉吉总理成功连任表示祝贺。中方高度重视中纽关系发展，愿同纽埃新一届政府共同努力，增进政治互信，拓展交流合作，推动两国相互尊重、共同发展的全面战略伙伴关系迈上新台
+广州以南沙为“棋眼”扎实推进粤港澳大湾区建设 人货钱集聚 这里自带流量密码 文/广州日报全媒体记者方晴(署名除外) 香港科技大学(广州)教师张卓妮最近办成了一件小事：在南沙住房公积金服务专窗，只用了20分钟，公积金账户余额就直接汇入了她的香港银行账户。这是广州办结的首笔住房公积金跨境人民币结算，钱“过海”不再需要往返两地开账户、走汇款。截至今年3月，已有9143名港澳人士在穗缴
 
 ## 正文
 
-中新网北京5月15日电 (记者 曾玥 黄钰钦)中国外交部发言人郭嘉昆15日主持例行记者会。
+广州以南沙为“棋眼”扎实推进粤港澳大湾区建设 人货钱集聚 这里自带流量密码 文/广州日报全媒体记者方晴(署名除外) 香港科技大学(广州)教师张卓妮最近办成了一件小事：在南沙住房公积金服务专窗，只用了20分钟，公积金账户余额就直接汇入了她的香港银行账户。
 
-有记者提问：据报道，纽埃议会5月14日选举现任总理塔格拉吉为新任总理。
+这是广州办结的首笔住房公积金跨境人民币结算，钱“过海”不再需要往返两地开账户、走汇款。
 
-中方对此有何评论？
+截至今年3月，已有9143名港澳人士在穗缴存住房公积金，其中187人已用公积金在穗置业。
 
-对中纽关系有何期待？
+做好这些“安居”的小事，正是大湾区建设的“头等大事”。
 
-郭嘉昆：中方对塔格拉吉总理成功连任表示祝贺。
+人要留下来，前提是规则先通、路先通、产业先通。
 
-中方高度重视中纽关系发展，愿同纽埃新一届政府共同努力，增进政治互信，拓展交流合作，推动两国相互尊重、共同发展的全面战略伙伴关系迈上新台阶，更好惠及两国人民。
+2026年全国两会闭幕不到一周，广州市市长孙志洋率团抵达香港，一天之内拜会了中旅集团、华润集团，出席“穗港同行 共建湾区”专题活动和穗港新春交流会，向外界释放出穗港合作提档升级的强烈信号。
 
-(完)
+当日，穗港科技和产业融合创新中心正式揭牌，明确将重点聚焦生命健康、人工智能与机器人、微电子、新能源四大领域，致力于构建“技术研发—成果转化—产业落地”的全链条服务体系，这也为科技产业这一穗港合作的“最大公约数”明晰了方向。
+
+如何让“公约数”落到实处？
 
 ## 相关推荐
 
-- 2026-06-30 04:48 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 05:09 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 04:54 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 04:57 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 05:10 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 05:08 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 05:13 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 05:10 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 04:58 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 05:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 04:48 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 05:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 05:06 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 05:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 05:02 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 05:00 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 05:23 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 05:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 04:54 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 05:06 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-30 05:21 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-30 04:57 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 05:01 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 05:05 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:53 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/63717230.shtml)
-- 2026-06-30 05:09 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/737483516666.shtml)
-- 2026-06-30 05:04 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/217032893.shtml)
-- 2026-06-30 05:06 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/96221702628.shtml)
-- 2026-06-30 05:01 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/07946064330.shtml)
-- 2026-06-30 04:57 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/89424.shtml)
-- 2026-06-30 05:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/52220987018.shtml)
-- 2026-06-30 04:57 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/439653566.shtml)
-- 2026-06-30 04:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/57578.shtml)
-- 2026-06-30 04:49 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/124193.shtml)
-- 2026-06-30 04:49 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/547328053118.shtml)
-- 2026-06-30 05:07 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/74047.shtml)
-- 2026-06-30 05:07 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/86968652.shtml)
-- 2026-06-30 04:52 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/866200.shtml)
-- 2026-06-30 04:53 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/231224219787.shtml)
+- 2026-06-30 05:22 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/2799755.shtml)
+- 2026-06-30 05:18 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/108042987843.shtml)
+- 2026-06-30 05:10 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/33635.shtml)
+- 2026-06-30 05:08 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/77108.shtml)
+- 2026-06-30 05:20 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/74116966.shtml)
+- 2026-06-30 05:02 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/326282.shtml)
+- 2026-06-30 05:01 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/53265.shtml)
+- 2026-06-30 04:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/042568626301.shtml)
+- 2026-06-30 04:56 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/4094354.shtml)
+- 2026-06-30 04:58 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/839280.shtml)
+- 2026-06-30 05:15 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/7549417.shtml)
+- 2026-06-30 05:23 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/494877297495.shtml)
+- 2026-06-30 04:59 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/0549254306.shtml)
+- 2026-06-30 05:04 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/060970.shtml)
+- 2026-06-30 05:15 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/806658.shtml)

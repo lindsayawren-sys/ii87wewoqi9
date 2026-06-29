@@ -1,57 +1,57 @@
-# 7年少了700万！保险代理人“大缩水”，有公司已不足10人
+# 详讯丨习近平同美国总统特朗普会谈
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-来源：中新经纬 作者：李自曼 近期，人身险公司2026年一季度偿付能力报告首次集中披露个险营销员人数。 据中新经纬统计，截至2026年一季度末，已披露相关数据的56家人身险公司，个险营销员合计约212.6万。对比2019年912万的历史高峰，七年行业少了近700万代理人，曾经的人海战术逐渐落幕。 业内人士对中新经纬表示，寿险代理人的粗放式增长阶段已经过去，靠“人口红利”的发展模
+新华社北京5月14日电（记者杨依军、朱基钗）5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。 习近平指出，当前百年变局加速演进，国际形势变乱交织，中美两国能不能跨越“修昔底德陷阱”，开创大国关系新范式？能不能携手应对全球性挑战，为世界注入更多稳定性？能不能着眼两国人民福祉和人类前途命运，共同开创两国关系美好未来？这些是历史之问、世界之问
 
 ## 正文
 
-来源：中新经纬 作者：李自曼 近期，人身险公司2026年一季度偿付能力报告首次集中披露个险营销员人数。
+新华社北京5月14日电（记者杨依军、朱基钗）5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。
 
-据中新经纬统计，截至2026年一季度末，已披露相关数据的56家人身险公司，个险营销员合计约212.6万。
+习近平指出，当前百年变局加速演进，国际形势变乱交织，中美两国能不能跨越“修昔底德陷阱”，开创大国关系新范式？
 
-对比2019年912万的历史高峰，七年行业少了近700万代理人，曾经的人海战术逐渐落幕。
+能不能携手应对全球性挑战，为世界注入更多稳定性？
 
-业内人士对中新经纬表示，寿险代理人的粗放式增长阶段已经过去，靠“人口红利”的发展模式已经无以为继，在行业高质量转型过程中，对代理人渠道的改革，重点体现在重新定位、重建模式和重塑能力。
+能不能着眼两国人民福祉和人类前途命运，共同开创两国关系美好未来？
 
-中国人寿、太保寿险个险人力增加 整体看，头部人身险公司占据八成以上的人力，剩下50家中小险企分食不到18%的市场空间。
+这些是历史之问、世界之问、人民之问，也是大国领导人需要共同书写的时代答卷。
 
-据各家公司2026年一季度偿付能力报告，中国人寿64.5万人独占三成份额，平安人寿33.3万、泰康人寿27.6万、太保寿险19万、太平人寿18.3万、新华保险12.9万。
+我愿同特朗普总统共同为中美关系这艘大船领好航、掌好舵，让2026年成为中美关系继往开来的历史性、标志性年份。
 
-六家合计约175.5万个险营销员，占总量八成以上。
+习近平强调，中方致力于中美关系稳定、健康、可持续发展。
 
-与2025年末相比，中国人寿、太保寿险的个险营销员数量等在一季度出现净增长。
+我同特朗普总统赞同将构建“中美建设性战略稳定关系”作为中美关系新定位，将为未来3年乃至更长时间的中美关系提供战略指引，相信会受到两国人民和国际社会的欢迎。
 
 ## 相关推荐
 
-- 2026-06-30 05:07 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 05:12 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 05:09 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-30 04:54 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 04:48 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-30 05:14 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 05:11 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 05:04 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 04:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 05:01 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 05:10 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 05:18 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 05:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 05:13 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 05:04 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 05:14 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 05:15 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 05:14 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 04:58 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 05:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 05:02 - [巴西2比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 05:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:05 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/706393042.shtml)
-- 2026-06-30 04:49 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/166880.shtml)
-- 2026-06-30 05:10 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/04224.shtml)
-- 2026-06-30 05:06 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/2520233.shtml)
-- 2026-06-30 05:03 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/375318401.shtml)
-- 2026-06-30 05:13 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/85964059059.shtml)
-- 2026-06-30 04:52 - [我和我的家乡](http://www.blog.minike.top/Article/details/274862399.shtml)
-- 2026-06-30 04:48 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/698939796.shtml)
-- 2026-06-30 05:08 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/8953982539.shtml)
-- 2026-06-30 05:17 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/057338515710.shtml)
-- 2026-06-30 05:08 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/764298.shtml)
-- 2026-06-30 04:51 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/3494569.shtml)
-- 2026-06-30 04:57 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/055949.shtml)
-- 2026-06-30 05:10 - [斗破苍穹](https://www.share.minike.top/Article/details/036410.shtml)
-- 2026-06-30 04:50 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/22061076452.shtml)
+- 2026-06-30 05:08 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/81549702988.shtml)
+- 2026-06-30 05:24 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/592599.shtml)
+- 2026-06-30 05:19 - [小娘惹](http://www.blog.minike.top/Article/details/7770833.shtml)
+- 2026-06-30 05:02 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/11816419.shtml)
+- 2026-06-30 05:09 - [时光音乐会](http://www.blog.minike.top/Article/details/8197603.shtml)
+- 2026-06-30 05:08 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/967172.shtml)
+- 2026-06-30 05:14 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/959297772228.shtml)
+- 2026-06-30 05:09 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/080840531.shtml)
+- 2026-06-30 04:54 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/795243883.shtml)
+- 2026-06-30 04:55 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/08137.shtml)
+- 2026-06-30 05:22 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/07576580.shtml)
+- 2026-06-30 05:15 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/4899137.shtml)
+- 2026-06-30 04:55 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/39607256.shtml)
+- 2026-06-30 04:58 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/9828540.shtml)
+- 2026-06-30 05:21 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/49982.shtml)

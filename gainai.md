@@ -1,60 +1,57 @@
-# 复星医药再加码阿尔茨海默病口服药，预计年内出三期数据
+# 中央宣传部、全国妇联联合发布2026年“最美家庭”
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-“昨天我们刚刚达成协议，今天早上双方团队开始融合了，会以更大的投入来加速整体的完成速度。全球加起来有十几个国家参与，200多个不同的医院参与，所以整个数据清理需要花一点时间，预计今年9-10月份可能出三期数据，到年底，也许能知道这个药是否可以递交NDA（新药申请）。”5月14日，复星医药（600196.SH，2196.HK）联席总裁王兴利在媒体沟通会上透露了上述消息。 5月13
+中新网北京5月15日电 为深入学习贯彻习近平总书记关于注重家庭家教家风建设的重要论述，大力弘扬社会主义家庭文明新风尚，中央宣传部、全国妇联向全社会发布2026年“最美家庭”。 刘闯、庞卫涛、赵娟娟、申芸、张国利、张耘、韩光莹、石慧、何鸿英、隋亚平等10户家庭光荣入选。他们有的潜心钻研，在航天强国、大国工程建设一线拼搏奉献；有的携手扎根乡村，用汗水和智慧团结带领乡亲走上致富路；有
 
 ## 正文
 
-“昨天我们刚刚达成协议，今天早上双方团队开始融合了，会以更大的投入来加速整体的完成速度。
+中新网北京5月15日电 为深入学习贯彻习近平总书记关于注重家庭家教家风建设的重要论述，大力弘扬社会主义家庭文明新风尚，中央宣传部、全国妇联向全社会发布2026年“最美家庭”。
 
-全球加起来有十几个国家参与，200多个不同的医院参与，所以整个数据清理需要花一点时间，预计今年9-10月份可能出三期数据，到年底，也许能知道这个药是否可以递交NDA（新药申请）。
+刘闯、庞卫涛、赵娟娟、申芸、张国利、张耘、韩光莹、石慧、何鸿英、隋亚平等10户家庭光荣入选。
 
-”5月14日，复星医药（600196.SH，2196.HK）联席总裁王兴利在媒体沟通会上透露了上述消息。
+他们有的潜心钻研，在航天强国、大国工程建设一线拼搏奉献；有的携手扎根乡村，用汗水和智慧团结带领乡亲走上致富路；有的积极为爱牵线，身体力行弘扬婚恋新风；有的营造书香之家，带动邻里形成好学之风；有的全家热心公益，温情守护孤儿健康成长；有的相知相守，在国际维和任务中诠释使命担当……他们传承家庭美德、秉持优良家风，把实现个人梦、家庭梦融入国家梦、民族梦之中，在奋斗中收获了幸福，在追梦中成就了精彩。
 
-5月13日晚间，复星医药宣布与韩国生物制药公司AriBio达成合作，就阿尔茨海默病（AD）创新药AR1001的开发、注册、生产和商业化签署了全球独家选择权协议。
+广大干部群众表示，小家连着大家，家事连着国事，国家好，民族好，家庭才会好。
 
-2025年，两家公司已就AR1001在中国境内及港澳地区、约定的东南亚10国的开发、注册、生产及独家商业化权益达成合作，此次双方的合作将拓展至全球包括美国、欧洲和日本等市场。
+要以“最美家庭”为榜样，注重家庭、家教、家风，不断为促进家庭和睦、亲人相爱、下一代健康成长、老人老有所养而努力，用我们每个“小家”的热气腾腾，助力祖国这个“大家”蒸蒸日上。
 
-在全球新药研发中，AD一直被公认为难度大、失败率极高。
+发布仪式现场播放了“最美家庭”先进事迹的视频短片，多角度讲述了他们的家庭故事。
 
-此次合作的AR1001用于治疗早期阿尔茨海默病的全球多中心三期临床试验正在进行中。
+中央宣传部、全国妇联负责同志为他们颁发“最美家庭”证书。
 
-目前的研究数据显示，其具有良好的安全性特征和血脑屏障透过性，对早期AD患者（轻度认知障碍至轻度痴呆）有潜在治疗效果。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:00 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 04:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 05:01 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 05:07 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 05:14 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 05:02 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 05:12 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 04:48 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 05:06 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 04:49 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 05:13 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-30 04:50 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 04:56 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 05:03 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-30 05:23 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 05:16 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 04:57 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 05:06 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 05:10 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 05:18 - [巴西绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 04:57 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 05:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 05:10 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 05:12 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 05:10 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:52 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/062958233258.shtml)
-- 2026-06-30 04:51 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/9317943.shtml)
-- 2026-06-30 05:10 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/53574.shtml)
-- 2026-06-30 04:56 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/92455.shtml)
-- 2026-06-30 05:12 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/02881484.shtml)
-- 2026-06-30 04:55 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/34716640.shtml)
-- 2026-06-30 04:57 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/6219871839.shtml)
-- 2026-06-30 05:14 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/63036517.shtml)
-- 2026-06-30 05:17 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/750552871.shtml)
-- 2026-06-30 05:07 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/654458120.shtml)
-- 2026-06-30 04:49 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/75943115.shtml)
-- 2026-06-30 05:10 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/4366945.shtml)
-- 2026-06-30 05:09 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/120648.shtml)
-- 2026-06-30 05:03 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/23093899122.shtml)
-- 2026-06-30 05:10 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/106271643.shtml)
+- 2026-06-30 05:07 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/6831716181.shtml)
+- 2026-06-30 04:55 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/437125.shtml)
+- 2026-06-30 04:54 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/181451038.shtml)
+- 2026-06-30 05:10 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/601739.shtml)
+- 2026-06-30 05:00 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/30830051991.shtml)
+- 2026-06-30 05:08 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/51171.shtml)
+- 2026-06-30 05:13 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/93202.shtml)
+- 2026-06-30 04:57 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/058603.shtml)
+- 2026-06-30 05:08 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/63459613.shtml)
+- 2026-06-30 05:08 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/949372443210.shtml)
+- 2026-06-30 04:59 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/78951893.shtml)
+- 2026-06-30 04:54 - [女心理师](https://www.blog.minike.top/Article/details/83702880.shtml)
+- 2026-06-30 04:59 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/22101.shtml)
+- 2026-06-30 05:14 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/28040868.shtml)
+- 2026-06-30 05:11 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/082351767896.shtml)

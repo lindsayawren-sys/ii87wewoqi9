@@ -1,58 +1,42 @@
-# ETF日报：猪价有望迎来拐点进入上行周期，带动养殖板块估值与业绩修复，关注养殖ETF
+# 参观天坛现场 特朗普称赞“中国太美了”
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-今日A股高开低走。截至收盘，上证指数跌1.52%，失守4200报4177.92点，深证成指跌2.14%，创业板指跌2.16%，科创综指跌2.36%。全市场逾4300只个股下跌。A股全天成交额3.39万亿元，较上日成交额3.26万亿元小幅放量。分板块来看，今日商业航天、软件、能源金属等有所回调，养殖、白酒、生物育种等概念逆势走强。 数据来源：Wind //今日半导体产业链整体回调
+发布时间：2026年05月14日 19:16 来源：央视新闻客户端 责任编辑：【李太源】
 
 ## 正文
 
-今日A股高开低走。
-
-截至收盘，上证指数跌1.52%，失守4200报4177.92点，深证成指跌2.14%，创业板指跌2.16%，科创综指跌2.36%。
-
-全市场逾4300只个股下跌。
-
-A股全天成交额3.39万亿元，较上日成交额3.26万亿元小幅放量。
-
-分板块来看，今日商业航天、软件、能源金属等有所回调，养殖、白酒、生物育种等概念逆势走强。
-
-数据来源：Wind //今日半导体产业链整体回调。
-
-数据来源：Wind 中美元首今天上午在北京举行会谈，双方就构建“中美建设性战略稳定关系”新定位达成共识，为未来3年乃至更长时间的中美关系提供战略指引。
-
-与此同时，中美双方在韩国首尔提前举行经贸磋商，下一步将“不断拉长合作清单，压缩问题清单”。
+发布时间：2026年05月14日 19:16 来源：央视新闻客户端 责任编辑：【李太源】
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 04:58 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 05:06 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 05:03 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 05:16 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 05:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 05:15 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 04:57 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 04:59 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 05:09 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 05:10 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 04:56 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 05:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 05:10 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 05:08 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 04:59 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 05:05 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 04:57 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 05:11 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 04:57 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 05:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 04:57 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:58 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/3795307.shtml)
-- 2026-06-30 05:17 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/061358633468.shtml)
-- 2026-06-30 04:56 - [小娘惹](http://www.share.minike.top/Article/details/731006734.shtml)
-- 2026-06-30 05:13 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/73339235.shtml)
-- 2026-06-30 05:03 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/7300895.shtml)
-- 2026-06-30 05:13 - [小娘惹](https://www.share.kurohicncr.top/Article/details/184158.shtml)
-- 2026-06-30 05:05 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/55988.shtml)
-- 2026-06-30 04:55 - [青春环游记第三季](https://www.share.minike.top/Article/details/538934.shtml)
-- 2026-06-30 04:52 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/33826165.shtml)
-- 2026-06-30 04:56 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/476084496782.shtml)
-- 2026-06-30 04:59 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/684638151823.shtml)
-- 2026-06-30 05:13 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/8802374.shtml)
-- 2026-06-30 05:08 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/7350677.shtml)
-- 2026-06-30 04:51 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/615635822315.shtml)
-- 2026-06-30 04:51 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/06238904.shtml)
+- 2026-06-30 05:05 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/4155683001.shtml)
+- 2026-06-30 05:10 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/53360.shtml)
+- 2026-06-30 04:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/305234069.shtml)
+- 2026-06-30 05:12 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/216044.shtml)
+- 2026-06-30 05:09 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/961552627.shtml)
+- 2026-06-30 04:59 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/10924737.shtml)
+- 2026-06-30 04:54 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/248849.shtml)
+- 2026-06-30 05:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/5207836395.shtml)
+- 2026-06-30 05:09 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/519489901.shtml)
+- 2026-06-30 05:06 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/8225595949.shtml)
+- 2026-06-30 05:11 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/128983461.shtml)
+- 2026-06-30 05:23 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/436718.shtml)
+- 2026-06-30 05:15 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/778833.shtml)
+- 2026-06-30 05:22 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/20287.shtml)
+- 2026-06-30 05:03 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/69536940203.shtml)

@@ -1,57 +1,60 @@
-# 新加坡稳居马来西亚最大外资来源地
+# 美中加强对话合作将更好共同应对全球性挑战（国际论坛）
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新网吉隆坡5月15日电 (记者 刘育英)马来西亚统计局15日发布的数据显示，截至2026年第一季度末，新加坡以3350亿林吉特(约合5775亿元人民币)的投资存量，占比30.1%，继续位居马来西亚最大外资来源地。 整体来看，截至一季度末，马来西亚外商直接投资(FDI)存量已达1.1138万亿林吉特(约1.92万亿元人民币)，较上一季度增加259亿林吉特(约446.5亿元人民币
+人民日报 劳伦斯·弗里曼 美中两国携手合作，将为全球稳定、发展与繁荣注入强劲动力，世界将变得更加美好 5月14日，中国国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。美中元首会晤对美中两国乃至世界而言都至关重要，作为世界前两大经济体，美中两国作出的决策以及未来的政策走向，将对世界产生重大影响。此次两国元首会晤，为美中关系发展定基调、明方向，是推动美中关
 
 ## 正文
 
-中新网吉隆坡5月15日电 (记者 刘育英)马来西亚统计局15日发布的数据显示，截至2026年第一季度末，新加坡以3350亿林吉特(约合5775亿元人民币)的投资存量，占比30.1%，继续位居马来西亚最大外资来源地。
+人民日报 劳伦斯·弗里曼 美中两国携手合作，将为全球稳定、发展与繁荣注入强劲动力，世界将变得更加美好 5月14日，中国国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。
 
-整体来看，截至一季度末，马来西亚外商直接投资(FDI)存量已达1.1138万亿林吉特(约1.92万亿元人民币)，较上一季度增加259亿林吉特(约446.5亿元人民币)。
+美中元首会晤对美中两国乃至世界而言都至关重要，作为世界前两大经济体，美中两国作出的决策以及未来的政策走向，将对世界产生重大影响。
 
-在外资来源结构中，新加坡优势尤为突出，显著领先于中国香港(占比13.7%)及日本(占比9.5%)。
+此次两国元首会晤，为美中关系发展定基调、明方向，是推动美中关系良性发展的关键契机，意义十分重大。
 
-从行业分布看，外资主要集中于服务业与制造业。
+美中两国保持对话沟通，有助于增进互信、管控分歧、扩大共识、促进合作。
 
-其中，服务业吸纳外资规模达6258亿林吉特(约1.08万亿元人民币)，占比56.2%；制造业为4118亿林吉特(约7099亿元人民币)，占比37.0%。
+美中互为重要的货物贸易伙伴，双方在自然禀赋、市场、资金、技术等领域各有优势、互补性强，合作空间广阔，鼓吹“脱钩断链”言论的人士显然缺乏理性考量。
 
-市场分析认为，近年来，新加坡长期位居马来西亚最大外资来源地，体现其作为区域资本中转枢纽的角色，也反映出跨国资本通过新加坡进行投资布局的趋势。
+在当前国际环境不确定性上升的背景下，维护美中经贸关系稳定、健康、可持续发展，有利于维护全球产业链供应链稳定，提振市场信心，符合两国人民共同利益，也将为世界经济注入更多稳定性和确定性。
 
-随着数据中心、人工智能及高端制造项目持续落地，马来西亚在东南亚产业与资本承接体系中的地位正逐步提升。
+关税战、贸易战没有赢家，美方应摒弃零和思维，充分认识美中合作的巨大潜力，树立合作共赢理念，为改善世界各国民生、促进共同发展作出贡献。
 
-(完)
+事实上，美国民众对中国抱有友好向往，热切期盼赴华交流访问。
 
 ## 相关推荐
 
-- 2026-06-30 05:01 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 05:02 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 04:55 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 05:11 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 04:57 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 04:48 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-30 04:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 05:13 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 05:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 04:55 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 05:07 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 05:15 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 05:13 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 05:10 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 05:19 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 05:10 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 05:10 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 05:02 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 05:05 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 04:54 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 05:01 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 05:18 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-30 05:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 05:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 05:20 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:51 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/765385813545.shtml)
-- 2026-06-30 04:48 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/706427.shtml)
-- 2026-06-30 04:51 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/624050397.shtml)
-- 2026-06-30 05:10 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/167358989552.shtml)
-- 2026-06-30 05:11 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/16144331.shtml)
-- 2026-06-30 05:16 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/5124705.shtml)
-- 2026-06-30 04:55 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/41823066027.shtml)
-- 2026-06-30 05:11 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/47689.shtml)
-- 2026-06-30 04:57 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/1701005293.shtml)
-- 2026-06-30 04:50 - [苗族银饰](http://www.blog.minike.top/Article/details/847979901515.shtml)
-- 2026-06-30 04:49 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/5741107723.shtml)
-- 2026-06-30 05:14 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/294183.shtml)
-- 2026-06-30 04:59 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/4743902.shtml)
-- 2026-06-30 05:14 - [急先锋](https://www.share.minike.top/Article/details/81315.shtml)
-- 2026-06-30 05:13 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/203619672180.shtml)
+- 2026-06-30 05:02 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/84090206.shtml)
+- 2026-06-30 05:02 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/2614290551.shtml)
+- 2026-06-30 05:22 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/8776730.shtml)
+- 2026-06-30 04:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/73483837793.shtml)
+- 2026-06-30 05:21 - [一见倾心](https://www.blog.minike.top/Article/details/1223380349.shtml)
+- 2026-06-30 04:58 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/88401.shtml)
+- 2026-06-30 05:16 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/0268118967.shtml)
+- 2026-06-30 05:12 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/82214.shtml)
+- 2026-06-30 05:11 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/8432223.shtml)
+- 2026-06-30 05:12 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/5960779939.shtml)
+- 2026-06-30 05:00 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/05365544240.shtml)
+- 2026-06-30 05:20 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/4156718797.shtml)
+- 2026-06-30 05:10 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/73583.shtml)
+- 2026-06-30 05:14 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/3457861443.shtml)
+- 2026-06-30 05:21 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/442872104.shtml)

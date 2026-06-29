@@ -1,56 +1,57 @@
-# Cerebras成年内全球最大IPO
+# 燃油成本飙升80%-90% Copa二季度利润率指引降至8%-12%
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-AI芯片赛道迎来重磅新玩家。Cerebras Systems在纳斯达克正式挂牌交易，通过IPO募集资金55.5亿美元，成为2026年以来规模最大的新股发行。该公司专注于AI推理芯片的研发，直接叫板行业霸主英伟达。与英伟达通用型GPU不同，Cerebras采用晶圆级集成技术，其单个芯片面积远超传统产品，在特定大模型推理任务中宣称能效比更高。上市首日，该公司股价大幅上涨，市值迅速攀
+二季度业绩指引与燃油冲击 巴拿马航空控股公司Copa Holdings在2026年第一季度财报电话会议上披露，由于航空燃油价格同比暴涨80%至90%，预计第二季度运营利润率将收窄至8%至12%区间。公司首席执行官Pedro Heilbron表示，受“提前预订水平较高”影响，预计仅能通过提高票价回收约50%的增量燃油成本。 一季度业绩表现强劲 尽管面临成本压力，Copa第一季度业
 
 ## 正文
 
-AI芯片赛道迎来重磅新玩家。
+二季度业绩指引与燃油冲击 巴拿马航空控股公司Copa Holdings在2026年第一季度财报电话会议上披露，由于航空燃油价格同比暴涨80%至90%，预计第二季度运营利润率将收窄至8%至12%区间。
 
-Cerebras Systems在纳斯达克正式挂牌交易，通过IPO募集资金55.5亿美元，成为2026年以来规模最大的新股发行。
+公司首席执行官Pedro Heilbron表示，受“提前预订水平较高”影响，预计仅能通过提高票价回收约50%的增量燃油成本。
 
-该公司专注于AI推理芯片的研发，直接叫板行业霸主英伟达。
+一季度业绩表现强劲 尽管面临成本压力，Copa第一季度业绩依然亮眼。
 
-与英伟达通用型GPU不同，Cerebras采用晶圆级集成技术，其单个芯片面积远超传统产品，在特定大模型推理任务中宣称能效比更高。
+财报显示，公司一季度净利润达2.125亿美元，同比增长20.2%；运营收入同比增长17%至11亿美元，运营利润攀升21%至2.586亿美元。
 
-上市首日，该公司股价大幅上涨，市值迅速攀升。
+当季载客率提升0.8个百分点至87.2%，运能同比增长14%。
 
-亚马逊等科技巨头已表示出初步合作意向，将其作为英伟达之外的第二供应商。
+不含燃油的单位成本同比下降1%至5.8美分，体现了公司持续的成本管控成效。
 
-不过，分析师也警告，挑战英伟达的生态壁垒并非易事，Cerebras能否真正在推理市场站稳脚跟仍有待观察。
+全年运能目标维持不变 展望全年，Copa维持运能增长11%至13%的预期，载客率目标约为87%，不含燃油单位成本预计为5.7美分。
 
-责任编辑：张俊 SF065
+公司财务长Peter Donkersloot Ponce指出，若收益率趋势持续向好，全年燃油成本回收比例有望提升至100%。
 
 ## 相关推荐
 
-- 2026-06-30 05:02 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 04:56 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 05:11 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 04:58 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 05:09 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 05:16 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 04:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-30 05:02 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 05:03 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 05:16 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 05:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 05:14 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 05:16 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 04:55 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 05:16 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 04:55 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 05:01 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 05:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 05:03 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-30 05:17 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 05:15 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/19207682008.shtml)
-- 2026-06-30 04:49 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/42613482516.shtml)
-- 2026-06-30 05:14 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/7836541517.shtml)
-- 2026-06-30 05:00 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/971615664452.shtml)
-- 2026-06-30 05:15 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/30135395857.shtml)
-- 2026-06-30 05:12 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/80389049.shtml)
-- 2026-06-30 05:06 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/14814257642.shtml)
-- 2026-06-30 05:09 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/1828751.shtml)
-- 2026-06-30 04:59 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/21896662.shtml)
-- 2026-06-30 05:06 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/23034331.shtml)
-- 2026-06-30 05:01 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/36111.shtml)
-- 2026-06-30 05:00 - [乔家的儿女](http://www.share.minike.top/Article/details/428727247.shtml)
-- 2026-06-30 05:17 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/07095289390.shtml)
-- 2026-06-30 05:00 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/715977620591.shtml)
-- 2026-06-30 05:01 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/68034.shtml)
+- 2026-06-30 05:01 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/068479750121.shtml)
+- 2026-06-30 05:09 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/91043918234.shtml)
+- 2026-06-30 05:06 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/45285356123.shtml)
+- 2026-06-30 05:03 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/281424337358.shtml)
+- 2026-06-30 05:07 - [蔚来车主罚站](http://www.share.minike.top/Article/details/764735137018.shtml)
+- 2026-06-30 05:01 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/2729267019.shtml)
+- 2026-06-30 05:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/75401302349.shtml)
+- 2026-06-30 04:56 - [千香](https://www.share.kurohicncr.top/Article/details/146636701824.shtml)
+- 2026-06-30 05:01 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/55266696116.shtml)
+- 2026-06-30 05:11 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/319502333.shtml)
+- 2026-06-30 04:58 - [千与千寻](http://www.blog.minike.top/Article/details/08490.shtml)
+- 2026-06-30 05:09 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/335488208.shtml)
+- 2026-06-30 04:57 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/41625.shtml)
+- 2026-06-30 05:10 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/0390116679.shtml)
+- 2026-06-30 04:56 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/536272441419.shtml)

@@ -1,61 +1,43 @@
-# 激活初夏时令农产品消费新场景 “地标夏果”专场推介活动举办
+# 凝千年古韵 承中华文明——世界文化遗产天坛
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新网北京5月15日电 (记者 陈溯)初夏时节，鲜果飘香。15日，全国农业展览馆内的国家地理标志农产品展示体验馆(以下简称“国家地标馆”)举办“地标夏果”主题推介活动，汇聚各地优质夏季地理标志鲜果，以多元活动搭建产销对接平台。 本次活动是继“地标春茶”专场后，国家地标馆推出的又一“地标四季”主题推介活动，精准聚焦初夏时令鲜果品类，集中展示了大兴西瓜、通州樱桃、百色芒果、湛江荔枝
+发布时间：2026年05月14日 15:46 来源：央视新闻客户端 责任编辑：【杨彦宇】
 
 ## 正文
 
-中新网北京5月15日电 (记者 陈溯)初夏时节，鲜果飘香。
-
-15日，全国农业展览馆内的国家地理标志农产品展示体验馆(以下简称“国家地标馆”)举办“地标夏果”主题推介活动，汇聚各地优质夏季地理标志鲜果，以多元活动搭建产销对接平台。
-
-本次活动是继“地标春茶”专场后，国家地标馆推出的又一“地标四季”主题推介活动，精准聚焦初夏时令鲜果品类，集中展示了大兴西瓜、通州樱桃、百色芒果、湛江荔枝等多款地标农产品及新锐优质产品，全方位呈现各地特色夏果的优良品质与地域特色。
-
-活动首次创设地标直播间，参展企业负责人现场讲解产品背后的地域故事。
-
-现场设置趣味互动环节，火热开展“吃瓜大赛”、非遗拓印体验、幸运抽奖、地标公益讲解等活动，搭配悠扬的吉他民谣现场演奏，氛围热烈高涨，市民参与热情十足，实现农产品展示与趣味体验的深度融合。
-
-多家参展企业负责人表示，活动不仅带来了可观的产品销量，成功对接多位集采意向客户，更精准收集到消费者的真实体验与需求建议，为后续产品品质优化、市场拓展规划提供了极具价值的参考。
-
-国家地标馆京东旗舰店同步开展线上引流转化，线上店铺当日访问量大幅提升，新增关注粉丝数量显著增加，线上下单量实现同步增长。
-
-全国农业展览馆馆长何斌表示，用心打造地理标志农产品展示推广国家级平台，持续策划主题鲜明、形式多元、互动性强的特色活动，此次“地标夏果”推介活动通过激活时令农产品消费，助力地理标志产业提质增效。
+发布时间：2026年05月14日 15:46 来源：央视新闻客户端 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-30 05:13 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 05:12 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 05:07 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 04:49 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 05:06 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 05:04 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 05:12 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 05:07 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 05:06 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 04:55 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 05:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 05:12 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 04:53 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 05:05 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 05:00 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 05:16 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 04:56 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 05:10 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 05:02 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 05:19 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 05:21 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 04:54 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 05:21 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 05:06 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 05:21 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 04:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:52 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/867099588.shtml)
-- 2026-06-30 05:10 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/806049.shtml)
-- 2026-06-30 04:51 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/50492753.shtml)
-- 2026-06-30 04:52 - [金刚川](https://www.share.kurohicncr.top/Article/details/314216774441.shtml)
-- 2026-06-30 04:53 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/250755468.shtml)
-- 2026-06-30 04:59 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/516704.shtml)
-- 2026-06-30 05:01 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/522230.shtml)
-- 2026-06-30 05:11 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/072829807.shtml)
-- 2026-06-30 05:15 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/085538.shtml)
-- 2026-06-30 05:01 - [日本反击率先破门](https://www.blog.minike.top/Article/details/8635568315.shtml)
-- 2026-06-30 05:14 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/610244821379.shtml)
-- 2026-06-30 05:02 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/223619998414.shtml)
-- 2026-06-30 04:57 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/221559746.shtml)
-- 2026-06-30 05:15 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/1455326.shtml)
-- 2026-06-30 05:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/0423598.shtml)
+- 2026-06-30 05:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/073194.shtml)
+- 2026-06-30 05:20 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/5282243242.shtml)
+- 2026-06-30 05:04 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/363640150084.shtml)
+- 2026-06-30 05:15 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/976266640.shtml)
+- 2026-06-30 04:56 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/1560965.shtml)
+- 2026-06-30 05:17 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/01391050196.shtml)
+- 2026-06-30 05:08 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/55746847350.shtml)
+- 2026-06-30 05:11 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/6838011.shtml)
+- 2026-06-30 05:08 - [日本反击率先破门](http://www.blog.minike.top/Article/details/39078.shtml)
+- 2026-06-30 05:17 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/84158.shtml)
+- 2026-06-30 05:05 - [亚洲球队全部告别世界杯](https://www.blog.minike.top/Article/details/18028.shtml)
+- 2026-06-30 05:17 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/947702.shtml)
+- 2026-06-30 04:58 - [85花告别古偶](https://www.blog.minike.top/Article/details/388355.shtml)
+- 2026-06-30 04:58 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/74237.shtml)
+- 2026-06-30 05:21 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/5853597520.shtml)

@@ -1,57 +1,57 @@
-# 中美关系新定位！
+# （经济观察）长春打造“中国光电城”推动中国“光电版图”向北延伸
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。 习近平强调，中方致力于中美关系稳定、健康、可持续发展。我同特朗普总统赞同将构建“中美建设性战略稳定关系”作为中美关系新定位，将为未来3年乃至更长时间的中美关系提供战略指引，相信会受到两国人民和国际社会的欢迎。“建设性战略稳定”应该是合作为主的积极稳定，应该是竞争有度的良性稳定，应该是分歧
+中新网长春5月13日电 (记者 郭佳)“中国光电城”是长春现代化都市圈的“白菜心”——吉林省委书记黄强近日的这一表述，让长春在新一轮地方产业竞争中的方向愈发清晰。 最近一个月，从本土企业登陆资本市场，到新技术、新产品密集发布，“中国光电城”建设持续升温。第三届长春光博会临近，长春市官方13日组织媒体团走访当地光电信息企业，了解这颗“白菜心”如何加速生长。 前不久在港交所主板挂牌
 
 ## 正文
 
-5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。
+中新网长春5月13日电 (记者 郭佳)“中国光电城”是长春现代化都市圈的“白菜心”——吉林省委书记黄强近日的这一表述，让长春在新一轮地方产业竞争中的方向愈发清晰。
 
-习近平强调，中方致力于中美关系稳定、健康、可持续发展。
+最近一个月，从本土企业登陆资本市场，到新技术、新产品密集发布，“中国光电城”建设持续升温。
 
-我同特朗普总统赞同将构建“中美建设性战略稳定关系”作为中美关系新定位，将为未来3年乃至更长时间的中美关系提供战略指引，相信会受到两国人民和国际社会的欢迎。
+第三届长春光博会临近，长春市官方13日组织媒体团走访当地光电信息企业，了解这颗“白菜心”如何加速生长。
 
-“建设性战略稳定”应该是合作为主的积极稳定，应该是竞争有度的良性稳定，应该是分歧可控的常态稳定，应该是和平可期的持久稳定。
+前不久在港交所主板挂牌上市的长春长光辰芯微电子股份有限公司，近期又与高端相机品牌徕卡达成战略合作，将为下一代徕卡相机定制高性能CMOS图像传感器芯片。
 
-“中美建设性战略稳定关系”不是一句口号，而应该是相向而行的行动。
+连日来，企业正开足马力生产。
 
-责任编辑：刘万里 SF014
+该公司联合创始人、研发副总经理李扬表示，中国工业与科学成像行业起步稍晚，但随着国家政策持续赋能、国内企业技术实力稳步提升，国产高端图像传感器产业正迎来高速发展机遇。
+
+记者在长春长光精瓷复合材料有限公司了解到，近年来随着企业突破超轻量化碳化硅反射镜坯快速制造等关键技术，产品已应用于商业航天、航空遥感以及半导体设备领域。
+
+该公司总经理助理王笑天介绍，目前，企业还积极开发碳化硅作为光电系统的焦面基板、背板、框架等新构件，扩展先进材料的应用场景，为新型光电装备的设计开发提供更丰富的方案选择。
 
 ## 相关推荐
 
-- 2026-06-30 04:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 04:49 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 04:48 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-30 04:56 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 05:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 05:13 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 05:04 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 04:56 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-30 04:59 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 04:55 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 04:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 04:49 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 05:07 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 05:18 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-30 05:06 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 05:21 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 04:59 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 05:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 05:22 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 05:13 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 05:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 04:56 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 04:56 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 05:07 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 05:03 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 05:09 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/781301643789.shtml)
-- 2026-06-30 05:11 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/7292300.shtml)
-- 2026-06-30 04:55 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/740188360481.shtml)
-- 2026-06-30 05:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/575164361652.shtml)
-- 2026-06-30 05:00 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/6414655603.shtml)
-- 2026-06-30 04:57 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/89840.shtml)
-- 2026-06-30 05:02 - [苗族银饰](https://www.share.minike.top/Article/details/465043.shtml)
-- 2026-06-30 04:59 - [我们的少年时代2](http://www.share.minike.top/Article/details/2851535801.shtml)
-- 2026-06-30 05:04 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/44847643238.shtml)
-- 2026-06-30 05:18 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/5758065770.shtml)
-- 2026-06-30 05:08 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/499549907546.shtml)
-- 2026-06-30 04:56 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/80815.shtml)
-- 2026-06-30 05:16 - [金刚川](http://www.share.minike.top/Article/details/423273312.shtml)
-- 2026-06-30 04:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/593776.shtml)
-- 2026-06-30 05:10 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/1344599572.shtml)
+- 2026-06-30 05:15 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/37637369651.shtml)
+- 2026-06-30 04:54 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/6999377019.shtml)
+- 2026-06-30 05:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/3040147188.shtml)
+- 2026-06-30 04:56 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/34530027762.shtml)
+- 2026-06-30 04:58 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/1690523244.shtml)
+- 2026-06-30 05:20 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/923665.shtml)
+- 2026-06-30 05:14 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/57367571.shtml)
+- 2026-06-30 05:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/649678906.shtml)
+- 2026-06-30 05:16 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/729963229.shtml)
+- 2026-06-30 05:07 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/22290029.shtml)
+- 2026-06-30 05:13 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/4370701680.shtml)
+- 2026-06-30 04:55 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/47471357.shtml)
+- 2026-06-30 05:23 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/60274562.shtml)
+- 2026-06-30 05:03 - [天道](http://www.share.kurohicncr.top/Article/details/1604092.shtml)
+- 2026-06-30 05:22 - [房价什么时候能涨](http://www.share.minike.top/Article/details/24684990816.shtml)

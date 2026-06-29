@@ -1,57 +1,56 @@
-# 日本长期国债暴跌 全球抛售潮加剧压力
+# 2700亿存储龙头大普微—UW，20CM拉升！“散户大本营”霸榜
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-尽管30年期国债拍卖需求强劲，但受全球收益率持续上行拖累，日本长期国债周四价格下跌。 30年期国债收益率一度攀升10个基点至3.915%，创该品种1999年推出以来新高；20年期与40年期国债收益率也同步升至数十年高位，分别上涨8个基点和7.5个基点。 本周美国经济数据强化通胀加速迹象，美债收益率随之走高，交易员进而加大对美联储加息的押注，引发此次抛售潮。英国长期国债也因首相面
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月13日，大普微—UW大涨19.96%，收盘报631元/股，总市值达2753亿元。 这只上市不到一个月的“AI SSD第一股”，在短短17个交易日内，股价较发行价已飙涨近13倍，堪称今年A股最强新股之一。 然而，随着股价持续攀升，主力资金开始发生微妙变化，之前的拉升主力——游资和机构逐步获利了结，散户成为
 
 ## 正文
 
-尽管30年期国债拍卖需求强劲，但受全球收益率持续上行拖累，日本长期国债周四价格下跌。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-30年期国债收益率一度攀升10个基点至3.915%，创该品种1999年推出以来新高；20年期与40年期国债收益率也同步升至数十年高位，分别上涨8个基点和7.5个基点。
+5月13日，大普微—UW大涨19.96%，收盘报631元/股，总市值达2753亿元。
 
-本周美国经济数据强化通胀加速迹象，美债收益率随之走高，交易员进而加大对美联储加息的押注，引发此次抛售潮。
+这只上市不到一个月的“AI SSD第一股”，在短短17个交易日内，股价较发行价已飙涨近13倍，堪称今年A股最强新股之一。
 
-英国长期国债也因首相面临辞职压力而下跌，加剧了包括日本国债在内的全球主要债市疲软态势。
+然而，随着股价持续攀升，主力资金开始发生微妙变化，之前的拉升主力——游资和机构逐步获利了结，散户成为接盘主力。
 
-与此同时，油价高位运行令通胀压力持续；伊朗冲突结束前景仍不明朗，而美国总统特朗普正访华出席高风险峰会。
+5月13日，大普微—UW盘后龙虎榜显示，“东方财富拉萨东环路”“东方财富拉萨团结路”等散户大本营，在买入前5营业部中占据4席。
 
-日本央行委员增田和幸表示，若经济未显现陷入困境迹象，应尽快加息，理由是伊朗战争带来更持久的通胀风险。
+由于东方财富长期以互联网开户为主，开户门槛较低、活跃用户众多，因此“东方财富拉萨金融城”“东方财富拉萨团结路”“东方财富拉萨东环路”等营业部，被市场视为高活跃散户资金的大本营。
 
-Lombard Odier高级宏观策略师李浩民称，日本国债市场波动“主要受增田的鹰派言论与英国国债市场波动的情绪溢出共同推动”。
+“拉萨席位”霸占龙虎榜 5月13日，大普微—UW龙虎榜显示，买入前5营业部中，买1被机构席位“中信四川分公司”拿下，散户大本营“拉萨席位”则包揽剩余四席，并日内大举做T。
 
-他补充道，全球债市震荡或正在推动期限溢价发生转变。
+在卖出前5营业部中，同样出现两个“拉萨席位”。
 
 ## 相关推荐
 
-- 2026-06-30 04:52 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 05:05 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 05:13 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 04:54 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 05:02 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 05:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 05:00 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 04:54 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 05:17 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 05:16 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 05:02 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 05:18 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 05:07 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 05:15 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 05:07 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 05:18 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 04:56 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 05:23 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 05:01 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 05:23 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 05:17 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:51 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/941014493.shtml)
-- 2026-06-30 05:13 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/93565.shtml)
-- 2026-06-30 05:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/8118066413.shtml)
-- 2026-06-30 05:09 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/086397247.shtml)
-- 2026-06-30 05:15 - [爱很美味](http://www.share.minike.top/Article/details/4024531.shtml)
-- 2026-06-30 05:00 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/765220.shtml)
-- 2026-06-30 05:07 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/8838373.shtml)
-- 2026-06-30 04:57 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/6715996873.shtml)
-- 2026-06-30 05:02 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/383768499160.shtml)
-- 2026-06-30 04:48 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/476692066527.shtml)
-- 2026-06-30 05:10 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/11633208286.shtml)
-- 2026-06-30 05:15 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/147250146174.shtml)
-- 2026-06-30 05:00 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/734253686.shtml)
-- 2026-06-30 05:17 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/7534980.shtml)
-- 2026-06-30 05:03 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/581161.shtml)
+- 2026-06-30 05:09 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/25793681.shtml)
+- 2026-06-30 05:16 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/379032583931.shtml)
+- 2026-06-30 04:56 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/29100.shtml)
+- 2026-06-30 05:03 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/797947888.shtml)
+- 2026-06-30 05:20 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/288126.shtml)
+- 2026-06-30 05:17 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/420910682646.shtml)
+- 2026-06-30 05:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/036058.shtml)
+- 2026-06-30 05:09 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/128129768.shtml)
+- 2026-06-30 05:18 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/9434031.shtml)
+- 2026-06-30 05:06 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/58840.shtml)
+- 2026-06-30 05:09 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/290856303405.shtml)
+- 2026-06-30 04:54 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/8999025544.shtml)
+- 2026-06-30 05:00 - [我和我的家乡](http://www.blog.minike.top/Article/details/571858.shtml)
+- 2026-06-30 04:58 - [金刚川](http://www.share.kurohicncr.top/Article/details/543722.shtml)
+- 2026-06-30 05:02 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/1366464.shtml)

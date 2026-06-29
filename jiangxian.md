@@ -1,57 +1,56 @@
-# （粤港澳大湾区）深圳前海一季度实际使用外资同比增长75.6%
+# 美国姑娘宋莉乐：把“中国之美”穿在身上
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新社深圳5月14日电 (记者 索有为)深圳市前海管理局14日发布统计数据显示，今年一季度，前海深港现代服务业合作区(下称“前海”)实际使用外资116.2亿元(人民币，下同)，同比增长75.6%，占深圳市的比重为68.5%。其中实际使用港资115.3亿元，同比增长191.2%，占前海实际使用外资的比重为99.2%。今年一季度，前海合作区新增外资企业615家。截至一季度末，前海外
+中新网上海5月14日电 题：美国姑娘宋莉乐：把“中国之美”穿在身上 作者 高志苗 康玉湛 苗族的银冠在阳光下熠熠生辉，蒙古族的珠绣在镜头前绚丽多彩……每当宋莉乐(Lile Song Mahoney)身着中国的民族服饰出现在街头巷尾，总能引来路人驻足合影。这位2004年出生的美国姑娘，把中国之美穿在身上，也用镜头将这份美传递给世界。 “奶奶是我的头号粉丝。”宋莉乐接受中新网专访时
 
 ## 正文
 
-中新社深圳5月14日电 (记者 索有为)深圳市前海管理局14日发布统计数据显示，今年一季度，前海深港现代服务业合作区(下称“前海”)实际使用外资116.2亿元(人民币，下同)，同比增长75.6%，占深圳市的比重为68.5%。
+中新网上海5月14日电 题：美国姑娘宋莉乐：把“中国之美”穿在身上 作者 高志苗 康玉湛 苗族的银冠在阳光下熠熠生辉，蒙古族的珠绣在镜头前绚丽多彩……每当宋莉乐(Lile Song Mahoney)身着中国的民族服饰出现在街头巷尾，总能引来路人驻足合影。
 
-其中实际使用港资115.3亿元，同比增长191.2%，占前海实际使用外资的比重为99.2%。
+这位2004年出生的美国姑娘，把中国之美穿在身上，也用镜头将这份美传递给世界。
 
-今年一季度，前海合作区新增外资企业615家。
+“奶奶是我的头号粉丝。
 
-截至一季度末，前海外资企业总量已达1.34万家，其中港资企业1.1万家，深港产业协同的纽带愈发紧密，成为前海引资的核心支撑。
+”宋莉乐接受中新网专访时笑着回忆，每次发布视频内容，远在美国的奶奶虽然不懂中文，却每条都会认真看完，毫不吝啬地给出夸奖。
 
-作为前海首个试点“香港建设模式”的投资项目，前海嘉里中心成为外资集聚的“标杆载体”。
+这份来自家人的支持，成为她坚持下去的动力之一。
 
-从韩国最大资管集团未来资产金融科技研发中心，到IBM、西门子等国际科技巨头，再到东亚前海证券、大新银行等跨境金融创新企业，这里的150家企业覆盖15个国家和17个地区，涵盖港资金融总部、外资券商、国际资管、跨境银行、金融科技等多个领域。
+宋莉乐的成长，也是一条融合之路：小学一年级随父母来到上海，初中毕业后赴美读高中，2022年又回到上海，进入华东师范大学攻读汉语言文学专业。
 
-去年底，富邦银行(香港)深圳分行入驻前海嘉里中心，成立富邦金控内地首家分行。
+“选择汉语言文学，是因为从小对文学感兴趣。
 
-国际社会对前海的关注与认可也在持续升温。
+”宋莉乐说，在美国读高中期间，她坚持用中文阅读，甚至英文著作也偏好读中文译本。
 
 ## 相关推荐
 
-- 2026-06-30 05:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 04:58 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-30 05:14 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 05:12 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 04:50 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 05:08 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 04:51 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 05:06 - [张凌赫 客串](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 05:00 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 04:54 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 05:16 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 05:11 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 04:54 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 05:23 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 05:08 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 05:14 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-30 05:13 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 05:08 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 05:00 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 05:01 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 05:15 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:51 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/0845222771.shtml)
-- 2026-06-30 04:53 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/76790054024.shtml)
-- 2026-06-30 04:56 - [点菜也要教吗](https://www.blog.minike.top/Article/details/6265911234.shtml)
-- 2026-06-30 05:13 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/192339921.shtml)
-- 2026-06-30 04:53 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/9199366814.shtml)
-- 2026-06-30 04:54 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/024153179607.shtml)
-- 2026-06-30 04:59 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/702765.shtml)
-- 2026-06-30 05:02 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/827708.shtml)
-- 2026-06-30 05:12 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/61931.shtml)
-- 2026-06-30 05:04 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/710628332299.shtml)
-- 2026-06-30 04:48 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/4036295234.shtml)
-- 2026-06-30 05:15 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/2089398.shtml)
-- 2026-06-30 05:00 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/441074753354.shtml)
-- 2026-06-30 04:56 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/735741847208.shtml)
-- 2026-06-30 05:01 - [内马尔替补](https://www.blog.minike.top/Article/details/529140.shtml)
+- 2026-06-30 05:10 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/19340519794.shtml)
+- 2026-06-30 05:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/05105274231.shtml)
+- 2026-06-30 04:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/1925676.shtml)
+- 2026-06-30 05:13 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/10117702.shtml)
+- 2026-06-30 05:23 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/7963479623.shtml)
+- 2026-06-30 05:20 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/47225099.shtml)
+- 2026-06-30 05:05 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/012678709.shtml)
+- 2026-06-30 05:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/754197479108.shtml)
+- 2026-06-30 05:06 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/36455991362.shtml)
+- 2026-06-30 05:22 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/7575209.shtml)
+- 2026-06-30 05:08 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/907332860885.shtml)
+- 2026-06-30 05:02 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/087523.shtml)
+- 2026-06-30 04:55 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/8194208683.shtml)
+- 2026-06-30 04:58 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/61434253224.shtml)
+- 2026-06-30 04:57 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/96246.shtml)

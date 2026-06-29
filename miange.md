@@ -1,57 +1,61 @@
-# 宏和科技股价一年涨超14倍，董事长毛嘉明与董秘邹新娥减持窗口刚开就套现4658万 | 长三角资本局
+# 大咖研习社|国泰基金朱丹：2026全球资产配置策略
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 一边提示股价存在非理性炒作风险，一边董事长、董秘在减持窗口开启后快速完成套现。被AI、PCB概念推到市场风口上的宏和科技，正在经历业绩高增、估值高企与高管减持同时发生的时刻。 5月12日，宏和科技披露《董事高管减持股份结果公告》。公司董事长、总经理毛嘉明，董事会秘书邹新娥的减持计划均已实施完毕。公告显示，毛嘉明于2026年5月11日至5月12日通过集中
+2026年即将行至中场，全球宏观格局正经历深刻重塑。国际货币秩序的重构，战略资源的重估，叠加高油价引发的通胀预期，给投资者带来了前所未有的挑战与机遇。 在近期举办的“和风日盛，万物竞发”国泰基金2026年夏季策略会上，国泰基金国际业务部负责人、基金经理朱丹，分享了2026全球资产配置策略观点： 市场主线切换 华尔街从“TACO”走向“NACHO” 我们认为，理解当前市场的关键在
 
 ## 正文
 
-文|新浪财经上海站 十里 一边提示股价存在非理性炒作风险，一边董事长、董秘在减持窗口开启后快速完成套现。
+2026年即将行至中场，全球宏观格局正经历深刻重塑。
 
-被AI、PCB概念推到市场风口上的宏和科技，正在经历业绩高增、估值高企与高管减持同时发生的时刻。
+国际货币秩序的重构，战略资源的重估，叠加高油价引发的通胀预期，给投资者带来了前所未有的挑战与机遇。
 
-5月12日，宏和科技披露《董事高管减持股份结果公告》。
+在近期举办的“和风日盛，万物竞发”国泰基金2026年夏季策略会上，国泰基金国际业务部负责人、基金经理朱丹，分享了2026全球资产配置策略观点： 市场主线切换 华尔街从“TACO”走向“NACHO” 我们认为，理解当前市场的关键在于认清叙事主线的根本转变。
 
-公司董事长、总经理毛嘉明，董事会秘书邹新娥的减持计划均已实施完毕。
+此前市场流行的叙事是“TACO交易”，本质上是基于地缘政治中特定决策者个人态度的预期博弈——即押注特定决策者会临阵退缩，从而引发风险资产的“深V”反弹。
 
-公告显示，毛嘉明于2026年5月11日至5月12日通过集中竞价方式减持24.07万股，占公司总股本0.0266%；邹新娥同期减持7.5万股，占公司总股本0.0083%。
+然而，进入二季度后，这一逻辑已不再适用。
 
-这笔减持的速度并不慢。
+取而代之的是“NACHO交易”。
 
-二人此前的减持计划首次披露日期为2026年4月14日，减持期间为2026年5月11日至2026年8月10日。
+在华尔街的语境中，“NACHO”指代一个更严峻的现实：即霍尔木兹海峡短期内重开“绝无可能”。
 
-也就是说，减持窗口刚开启，董事长和董秘便在两个交易日内完成了计划。
+自3月以来，承担全球近30%原油贸易量的霍尔木兹海峡已实质性断航超过两个月，所带来的冲击幅度超过上世纪70年代的石油危机。
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 04:49 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 05:07 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 04:53 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 04:50 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 05:08 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 05:13 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 05:12 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 05:14 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 05:11 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 04:57 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 05:19 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 05:20 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 05:13 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 05:14 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 05:04 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 05:03 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 05:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 04:59 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 05:11 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 05:01 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 05:21 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 05:21 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 04:58 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 05:23 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 05:17 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:55 - [乔家的儿女](https://www.share.minike.top/Article/details/5624393.shtml)
-- 2026-06-30 04:59 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/63941.shtml)
-- 2026-06-30 04:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/43944327.shtml)
-- 2026-06-30 04:52 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/99975.shtml)
-- 2026-06-30 05:00 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/616350888749.shtml)
-- 2026-06-30 04:51 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/0603421481.shtml)
-- 2026-06-30 05:04 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/3691447.shtml)
-- 2026-06-30 05:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/9451702804.shtml)
-- 2026-06-30 05:06 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/59477168884.shtml)
-- 2026-06-30 05:09 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/630742026735.shtml)
-- 2026-06-30 04:53 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/95154367271.shtml)
-- 2026-06-30 05:17 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/3600875.shtml)
-- 2026-06-30 05:10 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/1967891949.shtml)
-- 2026-06-30 05:12 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/7441165804.shtml)
-- 2026-06-30 05:10 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/60489.shtml)
+- 2026-06-30 04:59 - [金牌调解](http://www.blog.minike.top/Article/details/424793967.shtml)
+- 2026-06-30 05:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/860596.shtml)
+- 2026-06-30 04:55 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/2217168.shtml)
+- 2026-06-30 05:02 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/273983855.shtml)
+- 2026-06-30 05:16 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/55804848.shtml)
+- 2026-06-30 05:13 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/0255156.shtml)
+- 2026-06-30 05:03 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/39009845.shtml)
+- 2026-06-30 05:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/124305828.shtml)
+- 2026-06-30 05:07 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/20785521771.shtml)
+- 2026-06-30 04:58 - [乔家的儿女](http://www.share.minike.top/Article/details/13403272163.shtml)
+- 2026-06-30 05:07 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/566168357.shtml)
+- 2026-06-30 04:58 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/657262641.shtml)
+- 2026-06-30 05:10 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/656204719.shtml)
+- 2026-06-30 05:23 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/171786.shtml)
+- 2026-06-30 05:04 - [刘念回应](http://www.share.kurohicncr.top/Article/details/5567212374.shtml)

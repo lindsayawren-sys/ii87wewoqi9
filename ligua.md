@@ -1,57 +1,59 @@
-# 沙特欲拉伊朗签互不侵犯条约，以色列难入局成“硬伤”！
+# 菲军方称向参议院派兵负责安保执勤 开枪事件仍在调查
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十数据 围绕伊朗冲突结束后的地区秩序重建，沙特阿拉伯正推动一项涉及中东多国的安全设想。多名外交人士透露，利雅得已与盟友讨论建立涵盖伊朗在内的“互不侵犯协议”，以缓解长期紧张关系并降低未来冲突风险。 这一构想并非孤立提出。两位西方外交官表示，沙特方面正参考20世纪70年代的“赫尔辛基进程”，试图为中东
+菲律宾武装部队13日发表声明称，当天出现在参议院内的军方人员，是派驻该机构负责安保勤务的人员。 声明称，在参议院警卫官办公室要求下，菲海军陆战队突击队成员当天到参议院进行安保工作。 相关画面显示，13日晚，菲执法人员和军方人员进入参议院大楼。大楼内传出枪声和人群惊慌失措的喊叫声。菲参议员、前国家警察总监罗纳德·德拉罗萨当天早些时候称自己可能即将被捕。 菲警方表示，在参议院及其附
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+菲律宾武装部队13日发表声明称，当天出现在参议院内的军方人员，是派驻该机构负责安保勤务的人员。
 
-来源：金十数据 围绕伊朗冲突结束后的地区秩序重建，沙特阿拉伯正推动一项涉及中东多国的安全设想。
+声明称，在参议院警卫官办公室要求下，菲海军陆战队突击队成员当天到参议院进行安保工作。
 
-多名外交人士透露，利雅得已与盟友讨论建立涵盖伊朗在内的“互不侵犯协议”，以缓解长期紧张关系并降低未来冲突风险。
+相关画面显示，13日晚，菲执法人员和军方人员进入参议院大楼。
 
-这一构想并非孤立提出。
+大楼内传出枪声和人群惊慌失措的喊叫声。
 
-两位西方外交官表示，沙特方面正参考20世纪70年代的“赫尔辛基进程”，试图为中东建立类似的安全与合作框架。
+菲参议员、前国家警察总监罗纳德·德拉罗萨当天早些时候称自己可能即将被捕。
 
-该机制当年由美国、欧洲国家以及苏联阵营共同签署，旨在缓解冷战对峙并推动经济合作。
+菲警方表示，在参议院及其附近部署约1500名人员，并于当晚实施全面警戒，目前对相关事件的调查仍在进行中。
 
-当前讨论的直接背景，是2月28日爆发的美以对伊战争及其外溢影响。
+菲国家警察总监何塞·梅伦肖·纳塔特斯和国家调查局局长梅尔文·马蒂瓦格当日均否认其人员与开枪事件有关。
 
-多国担心，一旦冲突结束且美国在地区的军事存在减少，海湾国家将面对一个虽受削弱但更具强硬立场的伊朗。
+据菲方消息，菲总统马科斯说目前尚不清楚是谁试图闯入参议院引发骚乱、导致交火，并表示当局正在搜集证据、查明真相。
 
 ## 相关推荐
 
-- 2026-06-30 05:10 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 05:14 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 05:00 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 04:58 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-30 05:05 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 04:58 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 04:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-30 05:11 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 05:12 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 05:10 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 04:49 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 05:01 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 05:16 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 05:07 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 05:15 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 05:22 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-30 05:06 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-30 05:03 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 05:18 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 05:02 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 05:11 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 05:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 05:21 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 05:15 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:51 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/45126.shtml)
-- 2026-06-30 04:55 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/58429.shtml)
-- 2026-06-30 04:56 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/639367.shtml)
-- 2026-06-30 04:59 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/678888444.shtml)
-- 2026-06-30 04:50 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/05289.shtml)
-- 2026-06-30 04:49 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/235206.shtml)
-- 2026-06-30 04:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/661047288.shtml)
-- 2026-06-30 05:13 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/079826029512.shtml)
-- 2026-06-30 04:52 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/977765013008.shtml)
-- 2026-06-30 04:57 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/441826177.shtml)
-- 2026-06-30 04:51 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/78133.shtml)
-- 2026-06-30 04:58 - [月亮](http://www.blog.minike.top/Article/details/1373221.shtml)
-- 2026-06-30 05:03 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/540772260.shtml)
-- 2026-06-30 05:03 - [斗破苍穹](https://www.blog.minike.top/Article/details/12974191.shtml)
-- 2026-06-30 04:58 - [爱很美味](https://www.blog.minike.top/Article/details/064105119.shtml)
+- 2026-06-30 05:21 - [孙兴慜道歉](https://www.share.minike.top/Article/details/36078138994.shtml)
+- 2026-06-30 05:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/11355012670.shtml)
+- 2026-06-30 04:57 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/841293178.shtml)
+- 2026-06-30 05:08 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/25990476586.shtml)
+- 2026-06-30 04:55 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/225402397658.shtml)
+- 2026-06-30 05:03 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/5110988516.shtml)
+- 2026-06-30 04:57 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/1413819.shtml)
+- 2026-06-30 05:03 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/87871.shtml)
+- 2026-06-30 05:10 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/69626585.shtml)
+- 2026-06-30 05:12 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/48581673707.shtml)
+- 2026-06-30 05:01 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/8918830570.shtml)
+- 2026-06-30 05:22 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/60973045.shtml)
+- 2026-06-30 04:57 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/9481843097.shtml)
+- 2026-06-30 04:54 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/432023915.shtml)
+- 2026-06-30 05:00 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/5207537.shtml)

@@ -1,56 +1,59 @@
-# 成都新一批“科技副总”上岗破解产业难题
+# EIA：美国上周天然气库存增加850亿立方英尺 略低于预期
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新网成都5月14日电 (王利文)5月14日，“科创天府·智汇蓉城”成都市“科技副总”选聘(电子信息与人工智能领域)专场活动在成都举行，5家企业现场为新聘任的“科技副总”颁发聘书，4家企业登台发布技术需求，高校专家现场“揭榜”解题。截至目前，成都已有超70位“科技副总”完成备案，覆盖人工智能等多个重点产业领域，成为推动技术成果从实验室走向生产线的“共同破题者”。 “科技副总”是
+美国能源信息署(EIA)周四公布的最新数据显示，截至5月8日当周，美国天然气库存净增加850亿立方英尺，略低于市场预期，但较前一周增幅明显扩大。 库存数据详情 根据EIA发布的每周天然气库存报告，截至5月8日当周，美国天然气库存总量升至22，900亿立方英尺，较此前一周增加850亿立方英尺。这一数据略低于市场预期的860亿立方英尺，但高于前一周的630亿立方英尺增幅。 与去年同
 
 ## 正文
 
-中新网成都5月14日电 (王利文)5月14日，“科创天府·智汇蓉城”成都市“科技副总”选聘(电子信息与人工智能领域)专场活动在成都举行，5家企业现场为新聘任的“科技副总”颁发聘书，4家企业登台发布技术需求，高校专家现场“揭榜”解题。
+美国能源信息署(EIA)周四公布的最新数据显示，截至5月8日当周，美国天然气库存净增加850亿立方英尺，略低于市场预期，但较前一周增幅明显扩大。
 
-截至目前，成都已有超70位“科技副总”完成备案，覆盖人工智能等多个重点产业领域，成为推动技术成果从实验室走向生产线的“共同破题者”。
+库存数据详情 根据EIA发布的每周天然气库存报告，截至5月8日当周，美国天然气库存总量升至22，900亿立方英尺，较此前一周增加850亿立方英尺。
 
-“科技副总”是成都推动校(院)地合作和科技成果转化的创新举措，即企业与高校院所在职人才共同开展科技攻关等合作，实现双向奔赴互利共赢。
+这一数据略低于市场预期的860亿立方英尺，但高于前一周的630亿立方英尺增幅。
 
-去年11月印发的《关于开展“科技副总”选聘工作的实施方案》明确，到2028年，成都将力争形成一支500人左右规模的“科技副总”专家队伍，带动培育一批具有核心竞争力的科技型企业。
+与去年同期相比，当前库存水平高出510亿立方英尺，增幅为2.3%；与过去五年同期均值相比，则高出1，400亿立方英尺，增幅达6.5%。
 
-四川显亮科技有限公司聚焦高端智能装备与人工智能领域，专注高安全场景下的智能管控解决方案。
+市场反应 受库存数据影响，天然气期货价格小幅走低。
 
-该公司生产经理赵鑫坦言：目前公司技术框架已基本搭建完成，核心功能也已实现，但要更加精准判断人的复杂行为，仍需更多专业基础理论知识的支撑。
+数据显示，天然气期货主力合约下跌约2.1%，报每百万英热单位2.80美元。
 
-基于此，该企业正式聘任上海交通大学四川研究院新都智能制造创新中心主任吴双武担任“科技副总”。
+相关交易所交易基金中，做多天然气的UNG和BOIL承压，而做空天然气的KOLD则获得提振。
 
-“吴双武团队在底层算法逻辑、AI边缘算法及人的行为管控三个领域拥有多年研究成果。
+背景分析 此前的5月1日当周，天然气库存增加630亿立方英尺。
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 05:07 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 05:10 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 05:17 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 05:07 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 04:50 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 04:56 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 05:05 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 05:10 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 05:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 05:02 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 05:22 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 05:16 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 05:07 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 05:21 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 05:16 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 05:18 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 05:22 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 05:22 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 05:23 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 05:13 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 05:03 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 05:17 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:00 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/814144.shtml)
-- 2026-06-30 05:15 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/4396103.shtml)
-- 2026-06-30 05:05 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/93513846026.shtml)
-- 2026-06-30 05:03 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/7089601756.shtml)
-- 2026-06-30 04:51 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/7413195.shtml)
-- 2026-06-30 05:02 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/1641814.shtml)
-- 2026-06-30 04:48 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/10944878.shtml)
-- 2026-06-30 05:13 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/9479753925.shtml)
-- 2026-06-30 05:12 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/3856836.shtml)
-- 2026-06-30 05:02 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/63524.shtml)
-- 2026-06-30 04:58 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/629821768885.shtml)
-- 2026-06-30 04:54 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/61045.shtml)
-- 2026-06-30 05:05 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/98559.shtml)
-- 2026-06-30 05:02 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/766408.shtml)
-- 2026-06-30 05:03 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/690061254264.shtml)
+- 2026-06-30 04:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/322539.shtml)
+- 2026-06-30 05:21 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/21093.shtml)
+- 2026-06-30 05:04 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/93021.shtml)
+- 2026-06-30 05:04 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/319060665.shtml)
+- 2026-06-30 05:06 - [人类...完蛋了...](http://www.share.minike.top/Article/details/7629735180.shtml)
+- 2026-06-30 05:07 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/279761.shtml)
+- 2026-06-30 05:10 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/541391.shtml)
+- 2026-06-30 05:13 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/19604.shtml)
+- 2026-06-30 05:15 - [张凌赫 客串](https://www.share.minike.top/Article/details/225174043835.shtml)
+- 2026-06-30 05:09 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/631664.shtml)
+- 2026-06-30 05:00 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/544177372063.shtml)
+- 2026-06-30 05:07 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/954390386.shtml)
+- 2026-06-30 05:03 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/56073567.shtml)
+- 2026-06-30 05:01 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/3522709427.shtml)
+- 2026-06-30 05:03 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/608554752186.shtml)

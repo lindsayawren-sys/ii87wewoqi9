@@ -1,51 +1,55 @@
-# 印度采取更多措施限制黄金进口 超过100公斤需获得政府许可
+# 日本广岛县一船舶拆解厂发生火灾 当地政府发布疏散指示
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-在中东战争仍未停歇之际，印度进一步收紧黄金进口规定，总理纳伦德拉·莫迪加大力度捍卫卢比汇率。 一份政府通知称，超过100公斤（220磅）的金条进口将需事先获得政府许可，后续进口只有在完成50%出口后才会获批。 新德里正在考虑多项紧急措施以巩固外汇储备并限制中东战争带来的冲击。责任编辑：江学思
+中新网5月15日电 综合日媒报道，日本广岛县吴市一船舶拆解厂14日发生火灾，暂无人员伤亡报告。 据报道，当天，日本消防部门收到火灾报告。现场多艘船只起火，并伴有爆炸声。现场视频显示，有大量黑烟升起。 报道称，日本海上保安部门出动船只参与灭火。当地政府已向在事发地附近居住的约650人发布疏散指示。
 
 ## 正文
 
-在中东战争仍未停歇之际，印度进一步收紧黄金进口规定，总理纳伦德拉·莫迪加大力度捍卫卢比汇率。
+中新网5月15日电 综合日媒报道，日本广岛县吴市一船舶拆解厂14日发生火灾，暂无人员伤亡报告。
 
-一份政府通知称，超过100公斤（220磅）的金条进口将需事先获得政府许可，后续进口只有在完成50%出口后才会获批。
+据报道，当天，日本消防部门收到火灾报告。
 
-新德里正在考虑多项紧急措施以巩固外汇储备并限制中东战争带来的冲击。
+现场多艘船只起火，并伴有爆炸声。
 
-责任编辑：江学思
+现场视频显示，有大量黑烟升起。
+
+报道称，日本海上保安部门出动船只参与灭火。
+
+当地政府已向在事发地附近居住的约650人发布疏散指示。
 
 ## 相关推荐
 
-- 2026-06-30 05:01 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 04:53 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 04:53 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 04:58 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 04:55 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 05:03 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 05:05 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 05:16 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 04:56 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 04:48 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-30 05:07 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 05:13 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 05:06 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 05:07 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 05:17 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 05:16 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 05:06 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 05:04 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 05:16 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-30 05:19 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 05:01 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 05:02 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 05:19 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 04:57 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 05:02 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 05:22 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:04 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/577144.shtml)
-- 2026-06-30 05:14 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/656539.shtml)
-- 2026-06-30 05:05 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/80935389476.shtml)
-- 2026-06-30 04:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/69238359759.shtml)
-- 2026-06-30 05:07 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/81946319.shtml)
-- 2026-06-30 05:07 - [锐评T1零封KC](http://www.share.minike.top/Article/details/763470430861.shtml)
-- 2026-06-30 05:17 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/428732265085.shtml)
-- 2026-06-30 04:54 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/8789247.shtml)
-- 2026-06-30 05:17 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/55884.shtml)
-- 2026-06-30 05:05 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/67489472505.shtml)
-- 2026-06-30 04:56 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/978905029.shtml)
-- 2026-06-30 05:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/1543550804.shtml)
-- 2026-06-30 05:00 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/133307.shtml)
-- 2026-06-30 05:00 - [苗族银饰](https://www.share.minike.top/Article/details/35031979921.shtml)
-- 2026-06-30 05:03 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/502486522.shtml)
+- 2026-06-30 04:54 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/73193.shtml)
+- 2026-06-30 05:07 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/253876487359.shtml)
+- 2026-06-30 04:55 - [青春环游记第三季](http://www.share.minike.top/Article/details/634454396721.shtml)
+- 2026-06-30 04:56 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/4029124157.shtml)
+- 2026-06-30 05:07 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/81830216.shtml)
+- 2026-06-30 05:15 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/749455402.shtml)
+- 2026-06-30 05:14 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/221628188.shtml)
+- 2026-06-30 04:59 - [恋与深空 日服](http://www.blog.minike.top/Article/details/913084.shtml)
+- 2026-06-30 05:10 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/888602.shtml)
+- 2026-06-30 05:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/506680.shtml)
+- 2026-06-30 05:19 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/655371.shtml)
+- 2026-06-30 05:02 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/662794593984.shtml)
+- 2026-06-30 05:11 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/83794.shtml)
+- 2026-06-30 05:04 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/41384765413.shtml)
+- 2026-06-30 05:20 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/2572756.shtml)

@@ -1,60 +1,57 @@
-# 第四届山东人才创新发展大会暨第十四届“海洽会”举行
+# 朱雀二号改进型遥五运载火箭发射成功
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新网济南5月14日电(吕妍 孙婷婷)第四届山东人才创新发展大会暨第十四届“海洽会”5月14日在山东济南举行。大会以“人才引领创新 开放赋能发展”为主题，进一步深化山东与海内外专家人才交流合作，广泛汇聚各方智慧力量，为奋力谱写中国式现代化山东篇章提供坚实人才支撑。 山东省委书记林武在致辞中表示，近年来，该省大力实施科教强鲁人才兴鲁战略，出台更加积极开放有效的人才政策，高标准创建
+中新社北京5月14日电 (记者 马帅莎)记者从蓝箭航天获悉，北京时间5月14日11时，朱雀二号改进型遥五运载火箭在东风商业航天创新试验区发射升空，运载火箭全程飞行正常，二子级进入预定轨道，飞行试验任务取得圆满成功。 朱雀二号改进型遥五运载火箭是由蓝箭航天自主研制的两级低温加长型液体运载火箭。本次任务的轨道高度为900公里，搭载面向大型星座组网的2.8吨定制化试验载荷。 朱雀二号
 
 ## 正文
 
-中新网济南5月14日电(吕妍 孙婷婷)第四届山东人才创新发展大会暨第十四届“海洽会”5月14日在山东济南举行。
+中新社北京5月14日电 (记者 马帅莎)记者从蓝箭航天获悉，北京时间5月14日11时，朱雀二号改进型遥五运载火箭在东风商业航天创新试验区发射升空，运载火箭全程飞行正常，二子级进入预定轨道，飞行试验任务取得圆满成功。
 
-大会以“人才引领创新 开放赋能发展”为主题，进一步深化山东与海内外专家人才交流合作，广泛汇聚各方智慧力量，为奋力谱写中国式现代化山东篇章提供坚实人才支撑。
+朱雀二号改进型遥五运载火箭是由蓝箭航天自主研制的两级低温加长型液体运载火箭。
 
-山东省委书记林武在致辞中表示，近年来，该省大力实施科教强鲁人才兴鲁战略，出台更加积极开放有效的人才政策，高标准创建济青吸引和集聚人才平台，深化泰山、齐鲁人才工程，越来越多的人才来鲁兴学兴业。
+本次任务的轨道高度为900公里，搭载面向大型星座组网的2.8吨定制化试验载荷。
 
-山东将着力推动科技创新和产业创新深度融合，为人才创新创业拓展更广空间；着力深化教育科技人才一体改革，为人才创新创业注入更强活力；着力搭建高能级平台，为人才创新创业提供更大支撑；着力构建全周期保障体系，为人才创新创业营造更优生态。
+朱雀二号改进型遥五运载火箭直径3.35米，整流罩最大直径4.2米，全箭长度约55.9米，火箭起飞质量为267吨(不含有效载荷)，起飞推力338吨。
 
-“诚挚邀请广大人才关注山东、选择山东，为山东现代化强省建设出谋划策、贡献智慧。
+它是朱雀二号改进型运载火箭加长状态的首飞产品，通过一子级加长、推进剂加注量增加、结构减重以及一级发动机提推等技术措施，进一步优化了火箭运载效率。
 
-” 山东省委副书记、省长周乃翔主持会议。
+该型号已实现500公里太阳同步轨道4吨、近地轨道6吨的运载能力。
 
-中国科学院院士、中国科学院量子信息与量子科技创新研究院院长、中国科学技术大学常务副校长潘建伟，中国工程院院士、北京化工大学党委副书记、校长谭天伟，中国科学院院士、上海交通大学讲席教授张荻作主旨演讲。
+此次任务是朱雀二号运载火箭的第7次飞行。
 
-会议现场为齐鲁友谊奖获奖代表、齐鲁杰出人才提名奖获奖人选、齐鲁杰出人才奖获奖人选颁奖；围绕打造北方优秀青年人才集聚区、建设科技创新与产业创新融合生态、济南人才发展环境进行推介；举行全省重点人才项目合作签约；启动第八届“创业齐鲁·共赢未来”高层次人才创业大赛；发布《人才引领支撑山东“十五五”高质量发展倡议》。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:50 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-30 04:50 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 05:00 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 05:07 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 04:57 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 04:50 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 04:49 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 05:11 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 05:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 04:58 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 04:58 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 05:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 04:52 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-30 04:54 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 04:55 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 05:10 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 05:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 05:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 04:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 05:20 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 05:15 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 04:56 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-30 05:15 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 04:54 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 04:57 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:57 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/819119161517.shtml)
-- 2026-06-30 05:10 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/7308816989.shtml)
-- 2026-06-30 04:49 - [点菜也要教吗](http://www.share.minike.top/Article/details/12275.shtml)
-- 2026-06-30 05:09 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/940288.shtml)
-- 2026-06-30 05:12 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/28317309064.shtml)
-- 2026-06-30 04:49 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/4930022124.shtml)
-- 2026-06-30 05:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/04165.shtml)
-- 2026-06-30 05:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/00333.shtml)
-- 2026-06-30 05:07 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/1928069.shtml)
-- 2026-06-30 04:54 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/03249.shtml)
-- 2026-06-30 04:58 - [金刚川](http://www.share.minike.top/Article/details/67665589691.shtml)
-- 2026-06-30 05:04 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/5921763975.shtml)
-- 2026-06-30 05:15 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/72931700.shtml)
-- 2026-06-30 05:15 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/4382075233.shtml)
-- 2026-06-30 05:14 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/815895.shtml)
+- 2026-06-30 05:18 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/84759385.shtml)
+- 2026-06-30 05:13 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/302168138894.shtml)
+- 2026-06-30 04:54 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/7424924928.shtml)
+- 2026-06-30 05:01 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/06688438.shtml)
+- 2026-06-30 05:01 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/1097068.shtml)
+- 2026-06-30 05:13 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/331072.shtml)
+- 2026-06-30 05:11 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/00152521.shtml)
+- 2026-06-30 05:02 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/0805502.shtml)
+- 2026-06-30 05:04 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/6115571444.shtml)
+- 2026-06-30 05:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/889904746635.shtml)
+- 2026-06-30 05:08 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/460520433.shtml)
+- 2026-06-30 05:23 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/5190421922.shtml)
+- 2026-06-30 05:05 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/728415.shtml)
+- 2026-06-30 04:59 - [恋与深空 巧合](https://www.share.minike.top/Article/details/2983175.shtml)
+- 2026-06-30 05:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/17461961.shtml)

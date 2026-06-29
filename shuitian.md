@@ -1,61 +1,60 @@
-# 从正确政绩观看义乌发展：不逐一时之 “显” 唯求长远之 “兴”
+# 学习手记 | 从南水北调工程体悟治理之道
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新网义乌5月15日电 题：从正确政绩观看义乌发展：不逐一时之 “显” 唯求长远之 “兴” 作者 钱晨菲 义乌国际商贸城里，来自世界各地的客商拖着行李箱穿梭于商铺之间，多语种报价声此起彼伏；直播间内，老板娘依托AI软件无缝切换数十种语言，实时对接全球订单；汽笛声中，“义新欧”中欧班列满载“中国制造”，从浙中出发横跨亚欧大陆…… 很难想象，40多年前，这里还是浙江典型的贫困县。土
+善治国者必重治水。 2021年5月14日，习近平总书记主持召开推进南水北调后续工程高质量发展座谈会并发表重要讲话，深入分析南水北调工程面临的新形势新任务，为科学推进工程规划建设作出新部署。 南水北调东中线一期工程自全面通水以来已累计调水超880亿立方米，南水北调优化水资源配置、保障群众饮水安全、复苏河湖生态环境、畅通南北经济循环等重要作用充分发挥。 5年前的座谈会上，习近平总书
 
 ## 正文
 
-中新网义乌5月15日电 题：从正确政绩观看义乌发展：不逐一时之 “显” 唯求长远之 “兴” 作者 钱晨菲 义乌国际商贸城里，来自世界各地的客商拖着行李箱穿梭于商铺之间，多语种报价声此起彼伏；直播间内，老板娘依托AI软件无缝切换数十种语言，实时对接全球订单；汽笛声中，“义新欧”中欧班列满载“中国制造”，从浙中出发横跨亚欧大陆…… 很难想象，40多年前，这里还是浙江典型的贫困县。
+善治国者必重治水。
 
-土地贫瘠、人多地少，许多农民只能靠“鸡毛换糖”谋生。
+2021年5月14日，习近平总书记主持召开推进南水北调后续工程高质量发展座谈会并发表重要讲话，深入分析南水北调工程面临的新形势新任务，为科学推进工程规划建设作出新部署。
 
-时任义乌县委书记的谢高华在接受中新社浙江分社采访时曾回忆，自己是1982年春天到义乌工作的，当时人均只有四五分地，不少农村家庭还要考虑温饱问题。
+南水北调东中线一期工程自全面通水以来已累计调水超880亿立方米，南水北调优化水资源配置、保障群众饮水安全、复苏河湖生态环境、畅通南北经济循环等重要作用充分发挥。
 
-除了贫困，被视作“资本主义尾巴”的“鸡毛换糖”在义乌同样出名。
+5年前的座谈会上，习近平总书记精辟概括实施重大跨流域调水工程的宝贵经验：“坚持全国一盘棋”“尊重客观规律”“规划统筹引领”…… 在中华民族的治水实践中，这一世界最大的调水工程丰富着“治水即治国”的哲学，蕴藏着当代中国日进日新的密码。
 
-有人主张继续“堵”，谢高华却带着干部一次次下乡调研。
+这一工程中，有实事求是、全面系统的思维方法。
 
-最终，他得出结论：不是老百姓“不听话”，而是他们确实需要一条活路。
+水情不以人的意志为转移，重大跨流域调水工程的建设、使用必须遵循客观规律。
 
-市场开放，无疑是改写义乌命运、成就其商贸传奇的关键。
+习近平总书记指出，“要遵循确有需要、生态安全、可以持续的重大水利工程论证原则”“南水北调沿线，无论城市建设、产业布局、农业生产，都要考虑节水这个因素”“南水北调的各个环节像多米诺骨牌似的，都是连着的”。
 
-而这一切，要从1982年那次著名的“农妇与县委书记之争”说起。
+这些要求，落实在保障“一泓清水永续北上”的实践中：依据规划推进后续引江补汉工程建设；根据水资源承载能力优化沿线城市空间布局；数百个水质监测站点实现工程沿线水质全程追溯……5年来，南水北调工程实现了从“建好”向“管好、护好、运营好”的转变。
 
 ## 相关推荐
 
-- 2026-06-30 05:02 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 05:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 04:54 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 05:14 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 05:09 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 05:16 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 05:16 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 05:13 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 05:06 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 05:16 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 05:02 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 04:48 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 04:48 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-30 05:07 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 05:03 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 05:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 05:02 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 05:06 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 05:07 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 05:04 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 04:59 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-30 05:12 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 05:08 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 05:06 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 05:14 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 05:20 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 05:16 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 05:12 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 05:22 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/63108264560.shtml)
-- 2026-06-30 04:51 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/7761460753.shtml)
-- 2026-06-30 04:52 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/52416530.shtml)
-- 2026-06-30 05:13 - [巴西vs日本](https://www.blog.minike.top/Article/details/545940.shtml)
-- 2026-06-30 05:12 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/017132769.shtml)
-- 2026-06-30 04:54 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/17714.shtml)
-- 2026-06-30 04:54 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/554196.shtml)
-- 2026-06-30 05:17 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/08717.shtml)
-- 2026-06-30 04:51 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/880127948992.shtml)
-- 2026-06-30 04:49 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/538307.shtml)
-- 2026-06-30 04:49 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/60465703734.shtml)
-- 2026-06-30 04:58 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/36657596.shtml)
-- 2026-06-30 05:16 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/836401866266.shtml)
-- 2026-06-30 04:53 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/98199.shtml)
-- 2026-06-30 05:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/337144561871.shtml)
+- 2026-06-30 05:10 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/10721.shtml)
+- 2026-06-30 05:05 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/9070981.shtml)
+- 2026-06-30 05:21 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/27599922076.shtml)
+- 2026-06-30 04:57 - [起风了](http://www.blog.minike.top/Article/details/552587.shtml)
+- 2026-06-30 04:57 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/73672894859.shtml)
+- 2026-06-30 04:59 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/78517.shtml)
+- 2026-06-30 05:08 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/126879.shtml)
+- 2026-06-30 05:05 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/036025195.shtml)
+- 2026-06-30 05:02 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.minike.top/Article/details/5770371.shtml)
+- 2026-06-30 04:56 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/883307823130.shtml)
+- 2026-06-30 05:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/945008645.shtml)
+- 2026-06-30 05:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/479591.shtml)
+- 2026-06-30 05:05 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/804192.shtml)
+- 2026-06-30 05:22 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/348502.shtml)
+- 2026-06-30 04:56 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/551513.shtml)

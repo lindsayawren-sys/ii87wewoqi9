@@ -1,56 +1,52 @@
-# 美国青年参观桂林飞虎队遗址 触摸历史感悟友谊
+# 三星电子敦促工会重启薪资谈判，并向公众和政府致歉
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新社桂林5月14日电 (欧惠兰 邓竣缤)“飞虎队就是美中友谊最鲜活的证明。”14日，在广西桂林飞虎队遗址公园内，美国青年本·瓦根(Ben Vaagen)站在一架飞越“驼峰航线”的C-47运输机前说。 当天，美国飞虎队历史委员会副总裁马宽池率美国佩珀代因大学师生友好交流代表团一行25人，到桂林飞虎队遗址公园参观。山洞指挥所、陈纳德将军观战石、飞机掩体等文物，成为美国青年触摸那段
+三星电子高管周五敦促工会重启薪资谈判，同时就罢工威胁风波升级引发公众和政府担忧一事致歉。 三星表示，其高管将以开放的态度参与谈判，并呼吁工会尽快重返对话。工会此前表示，因薪资和奖金事宜仍存在争议，计划从5月21日开始发起为期18天的罢工。责任编辑：于健 SF069
 
 ## 正文
 
-中新社桂林5月14日电 (欧惠兰 邓竣缤)“飞虎队就是美中友谊最鲜活的证明。
+三星电子高管周五敦促工会重启薪资谈判，同时就罢工威胁风波升级引发公众和政府担忧一事致歉。
 
-”14日，在广西桂林飞虎队遗址公园内，美国青年本·瓦根(Ben Vaagen)站在一架飞越“驼峰航线”的C-47运输机前说。
+三星表示，其高管将以开放的态度参与谈判，并呼吁工会尽快重返对话。
 
-当天，美国飞虎队历史委员会副总裁马宽池率美国佩珀代因大学师生友好交流代表团一行25人，到桂林飞虎队遗址公园参观。
+工会此前表示，因薪资和奖金事宜仍存在争议，计划从5月21日开始发起为期18天的罢工。
 
-山洞指挥所、陈纳德将军观战石、飞机掩体等文物，成为美国青年触摸那段并肩抗战的历史记忆的入口。
-
-本·瓦根说，他了解到，援华作战期间，2000余名美籍飞虎队队员在战斗中牺牲，中国民众也曾全力救助美军飞行员，“这是双向的友谊”。
-
-飞虎队的正式名称为中国空军美国志愿援华航空队，由美国陈纳德将军于1941年组建。
-
-1942年6月起，飞虎队驻扎在桂林，以秧塘机场为前沿基地对日作战，为保障“驼峰航线”物资运输做出宝贵贡献。
-
-在桂林飞虎队纪念馆内，美国师生们参观了《肩并肩——飞虎队在桂林主题陈列》展览。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 05:07 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 04:59 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 05:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-30 04:50 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 05:01 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 05:01 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 05:08 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 05:01 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 05:16 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 04:48 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 05:19 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 05:10 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 05:00 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 05:16 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 05:20 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 05:20 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 05:09 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 05:23 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 04:54 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 04:54 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 04:59 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 05:00 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 05:08 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 05:23 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:49 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/471035073.shtml)
-- 2026-06-30 05:07 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/089976569989.shtml)
-- 2026-06-30 04:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/79330248122.shtml)
-- 2026-06-30 04:50 - [巴西vs日本](https://www.blog.minike.top/Article/details/92086248048.shtml)
-- 2026-06-30 05:16 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/023175042.shtml)
-- 2026-06-30 04:51 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/581060232129.shtml)
-- 2026-06-30 05:03 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/356241897441.shtml)
-- 2026-06-30 04:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/6699414132.shtml)
-- 2026-06-30 05:13 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/902286075.shtml)
-- 2026-06-30 05:07 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/614697.shtml)
-- 2026-06-30 05:11 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/272058.shtml)
-- 2026-06-30 05:00 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/3395599994.shtml)
-- 2026-06-30 04:57 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/7608264462.shtml)
-- 2026-06-30 05:09 - [千香](https://www.share.minike.top/Article/details/856416645808.shtml)
-- 2026-06-30 04:58 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/91671.shtml)
+- 2026-06-30 05:21 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/894428501865.shtml)
+- 2026-06-30 04:55 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/94311520.shtml)
+- 2026-06-30 04:58 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/1708644411.shtml)
+- 2026-06-30 05:23 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/20034573677.shtml)
+- 2026-06-30 05:21 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/59680113417.shtml)
+- 2026-06-30 05:20 - [小娘惹](http://www.share.minike.top/Article/details/5071037987.shtml)
+- 2026-06-30 05:17 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/084999409307.shtml)
+- 2026-06-30 05:21 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/3842367059.shtml)
+- 2026-06-30 04:57 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/149530.shtml)
+- 2026-06-30 05:21 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/97202.shtml)
+- 2026-06-30 05:02 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/7444831.shtml)
+- 2026-06-30 05:23 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/516261.shtml)
+- 2026-06-30 05:09 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/39598.shtml)
+- 2026-06-30 05:09 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/29322913.shtml)
+- 2026-06-30 04:59 - [日本 高位逼抢](https://www.share.minike.top/Article/details/64281703390.shtml)

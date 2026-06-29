@@ -1,48 +1,50 @@
-# 标普道琼斯指数：Cerebras将于周一被纳入符合条件的指数
+# 《给阿嬷的情书》何以戳中全民泪点？
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-根据标普道琼斯指数公司发给客户的电子邮件，Cerebras Systems满足IPO快速纳入条件，将被纳入相关指数。责任编辑：江学思
+发布时间：2026年05月15日 11:48 来源：国是直通车 潮汕方言电影《给阿嬷的情书》，无知名演员加持、无大规模宣发投入，却凭借质朴真挚的故事直抵人心，成为2026年五一档温情满满的现象级爆款。影片豆瓣开分高达9.1分，上映15天票房便突破2亿元，众多观众观影后直言几度落泪、泪湿纸巾。 这部小成本影片之所以能戳中亿万国人泪点、引发全民共情，不只在于影片讲述了跨越山海的至亲
 
 ## 正文
 
-根据标普道琼斯指数公司发给客户的电子邮件，Cerebras Systems满足IPO快速纳入条件，将被纳入相关指数。
+发布时间：2026年05月15日 11:48 来源：国是直通车 潮汕方言电影《给阿嬷的情书》，无知名演员加持、无大规模宣发投入，却凭借质朴真挚的故事直抵人心，成为2026年五一档温情满满的现象级爆款。
 
-责任编辑：江学思
+影片豆瓣开分高达9.1分，上映15天票房便突破2亿元，众多观众观影后直言几度落泪、泪湿纸巾。
+
+这部小成本影片之所以能戳中亿万国人泪点、引发全民共情，不只在于影片讲述了跨越山海的至亲情义，更因为故事深处，藏着中国人刻在骨血里的家国情怀。
+
+这一纸写给阿嬷的深情情书，实则也是写给全体中华儿女的家国情书，时刻提醒着世人：人间情义永不过时，民族根脉永续相连。
+
+责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 05:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 05:15 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 04:48 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 04:55 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 05:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 05:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 04:53 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 05:12 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 04:49 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 05:03 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 05:12 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 04:48 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 04:59 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 05:05 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 05:11 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 04:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 05:09 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 04:56 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 04:59 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 05:06 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 05:21 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 04:58 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 04:54 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/78896395.shtml)
-- 2026-06-30 04:54 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/06854188748.shtml)
-- 2026-06-30 05:07 - [扬名立万](https://www.share.kurohicncr.top/Article/details/70264574161.shtml)
-- 2026-06-30 04:49 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/09437144.shtml)
-- 2026-06-30 05:13 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/410658448.shtml)
-- 2026-06-30 05:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/40688.shtml)
-- 2026-06-30 05:02 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/4110711283.shtml)
-- 2026-06-30 05:09 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/5017181.shtml)
-- 2026-06-30 05:07 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/7510877663.shtml)
-- 2026-06-30 04:50 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/389079.shtml)
-- 2026-06-30 04:56 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/7015069394.shtml)
-- 2026-06-30 05:01 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/22907347.shtml)
-- 2026-06-30 04:51 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/343821976911.shtml)
-- 2026-06-30 05:05 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/16962583826.shtml)
-- 2026-06-30 05:14 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/463367579839.shtml)
+- 2026-06-30 05:20 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/013111.shtml)
+- 2026-06-30 05:06 - [日本 高位逼抢](http://www.share.minike.top/Article/details/7048147.shtml)
+- 2026-06-30 04:59 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/78723.shtml)
+- 2026-06-30 04:58 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/069091030.shtml)
+- 2026-06-30 05:19 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/842868.shtml)
+- 2026-06-30 04:57 - [起风了](https://www.blog.minike.top/Article/details/602335.shtml)
+- 2026-06-30 05:05 - [巴西扳平比分](http://www.share.minike.top/Article/details/4782451155.shtml)
+- 2026-06-30 05:10 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/95821.shtml)
+- 2026-06-30 05:00 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/61804453440.shtml)
+- 2026-06-30 05:07 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/7651587623.shtml)
+- 2026-06-30 04:58 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/3292745.shtml)
+- 2026-06-30 05:13 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/017136853.shtml)
+- 2026-06-30 05:08 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/934516.shtml)
+- 2026-06-30 04:57 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/695301.shtml)
+- 2026-06-30 05:10 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/35253.shtml)

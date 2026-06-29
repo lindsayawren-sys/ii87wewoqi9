@@ -1,57 +1,57 @@
-# 亚洲电视控股附属公司约6.9亿股被强制出售 公司称将查询并寻求法律意见
+# Fingerprint Cards一季度营收增长4%，合并推进导致净亏损扩大
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-亚洲电视控股（00707）发布公告，本公司得悉，本公司的间接附属公司（统称“本集团”）亚洲电视有限公司（亚洲电视）的约6.9亿股普通股已于2025年11月14日由接管人代表星铂以代价约2亿港元出售予Prestige Media Limited（一家于英属处女群岛注册成立的公司）（强制出售）。 于本公布日期，本公司董事会并无足够资料或文件以评估亚洲电视的资产状况以及强制出售对本集
+瑞典生物识别技术公司Fingerprint Cards AB周三公布2026年第一季度财报，营收实现温和增长，毛利率显著提升，但由于与Precise Biometrics合并相关的非经常性项目和一次性税务影响，净亏损大幅扩大。 营收与毛利率双双改善 财报显示，公司第一季度营收为1890万瑞典克朗，同比增长4%，毛利率从去年同期的56.6%大幅提升至62.3%，提升5.7个百分点
 
 ## 正文
 
-亚洲电视控股（00707）发布公告，本公司得悉，本公司的间接附属公司（统称“本集团”）亚洲电视有限公司（亚洲电视）的约6.9亿股普通股已于2025年11月14日由接管人代表星铂以代价约2亿港元出售予Prestige Media Limited（一家于英属处女群岛注册成立的公司）（强制出售）。
+瑞典生物识别技术公司Fingerprint Cards AB周三公布2026年第一季度财报，营收实现温和增长，毛利率显著提升，但由于与Precise Biometrics合并相关的非经常性项目和一次性税务影响，净亏损大幅扩大。
 
-于本公布日期，本公司董事会并无足够资料或文件以评估亚洲电视的资产状况以及强制出售对本集团的财务及营运影响。
+营收与毛利率双双改善 财报显示，公司第一季度营收为1890万瑞典克朗，同比增长4%，毛利率从去年同期的56.6%大幅提升至62.3%，提升5.7个百分点。
 
-本公司将继续进行查询并获取有关上述事宜的进一步资料及文件。
+公司首席执行官表示，毛利率的改善反映了公司从“数量驱动”向“价值驱动”业务模式转型的成效。
 
-本公司正就强制出售是否符合所有适用法律及相关协议条款寻求法律意见。
+合并相关成本拖累盈利 尽管营收和毛利率表现向好，公司运营层面仍面临压力。
 
-本公司将在适当及必要情况下，采取一切必要法律行动以保障本集团的利益。
+第一季度EBITDA为-1410万克朗，去年同期为1070万克朗；运营亏损为2290万克朗，去年同期为30万克朗。
 
-此外，公司股份继续停牌。
+运营亏损中包含约300万克朗的一次性成本，主要与和Precise Biometrics的合并交易相关。
 
-责任编辑：卢昱君
+净亏损更是达到7800万克朗，主要受一项5500万克朗的非现金税务调整影响。
+
+合并进展与未来规划 2026年4月30日，Fingerprint Cards与Precise Biometrics的股东已批准了合并计划。
 
 ## 相关推荐
 
-- 2026-06-30 05:11 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 04:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 05:10 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 05:05 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 05:02 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 05:08 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 04:55 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 05:10 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 04:54 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 04:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 04:59 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 04:55 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 05:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 04:57 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 05:01 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 05:04 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 05:03 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 05:14 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 05:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 05:05 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 05:08 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 05:16 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 05:14 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 05:08 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:48 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/40121442779.shtml)
-- 2026-06-30 04:50 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/244269.shtml)
-- 2026-06-30 05:07 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/653591810.shtml)
-- 2026-06-30 05:16 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/921901.shtml)
-- 2026-06-30 05:14 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/3109602391.shtml)
-- 2026-06-30 04:53 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/8130930874.shtml)
-- 2026-06-30 04:52 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/253313347.shtml)
-- 2026-06-30 05:03 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/33269.shtml)
-- 2026-06-30 05:06 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/1861692.shtml)
-- 2026-06-30 04:56 - [金刚川](http://www.blog.minike.top/Article/details/137162007.shtml)
-- 2026-06-30 05:04 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/511066762.shtml)
-- 2026-06-30 05:14 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/339869852637.shtml)
-- 2026-06-30 05:09 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/38280100538.shtml)
-- 2026-06-30 05:11 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/902634631.shtml)
-- 2026-06-30 05:09 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/5610462931.shtml)
+- 2026-06-30 05:06 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/01529.shtml)
+- 2026-06-30 05:01 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/187577341.shtml)
+- 2026-06-30 05:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/50665.shtml)
+- 2026-06-30 05:09 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/75343670.shtml)
+- 2026-06-30 05:21 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/80569.shtml)
+- 2026-06-30 04:57 - [巴西绝杀](http://www.blog.minike.top/Article/details/306999491223.shtml)
+- 2026-06-30 05:03 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/2082825272.shtml)
+- 2026-06-30 05:16 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/727153.shtml)
+- 2026-06-30 05:13 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/57860.shtml)
+- 2026-06-30 05:23 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/4688617.shtml)
+- 2026-06-30 05:01 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/18043095406.shtml)
+- 2026-06-30 04:59 - [我们的少年时代2](https://www.blog.minike.top/Article/details/84001067675.shtml)
+- 2026-06-30 05:08 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/49342689.shtml)
+- 2026-06-30 05:08 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/45307.shtml)
+- 2026-06-30 05:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/449438.shtml)

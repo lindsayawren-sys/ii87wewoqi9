@@ -1,61 +1,60 @@
-# 银行持债破百万亿，“债券+信贷”重塑融资新格局
+# 折扣零售商Action业绩放缓3i集团股价暴跌
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 余纪昕 “金市部在商业银行的含金量还在上升。”一位分管金融市场部的长三角农商行副行长对记者表示。 “曾经我们这部门是‘配菜’，现在也荣升‘主菜’了。”他笑谈道。在他麾下，几个交易员每年人均创利好几千万，金市部成为实打实的银行净利润“顶梁柱”部门。他还透露，有基金公司愿意支付百万年薪，挖角他们这个区域银行的债券交易员去上海工作。 这位副行长所言非虚，近年来债
+专题：聚焦美股2026年第一季度财报 欧股早盘该股最大跌幅达 25% 英国私募股权公司 3i 集团公布，其重仓资产折扣零售商Action销售增速放缓、盈利能力走弱。Action 占据 3i 集团资产组合价值的绝大部分，受此利空冲击，3i 集团股价大幅跳水。 周四欧洲早盘交易中，3i 集团股价一度暴跌25%。若跌幅维持至收盘，将创下该股有史以来最大单日百分比跌幅。该股本就持续走弱
 
 ## 正文
 
-21世纪经济报道记者 余纪昕 “金市部在商业银行的含金量还在上升。
+专题：聚焦美股2026年第一季度财报 欧股早盘该股最大跌幅达 25% 英国私募股权公司 3i 集团公布，其重仓资产折扣零售商Action销售增速放缓、盈利能力走弱。
 
-”一位分管金融市场部的长三角农商行副行长对记者表示。
+Action 占据 3i 集团资产组合价值的绝大部分，受此利空冲击，3i 集团股价大幅跳水。
 
-“曾经我们这部门是‘配菜’，现在也荣升‘主菜’了。
+周四欧洲早盘交易中，3i 集团股价一度暴跌25%。
 
-”他笑谈道。
+若跌幅维持至收盘，将创下该股有史以来最大单日百分比跌幅。
 
-在他麾下，几个交易员每年人均创利好几千万，金市部成为实打实的银行净利润“顶梁柱”部门。
+该股本就持续走弱，过去一年内市值已腰斩过半，此次大跌进一步加剧跌势。
 
-他还透露，有基金公司愿意支付百万年薪，挖角他们这个区域银行的债券交易员去上海工作。
+3i 集团表示，受中东局势、恶劣天气拖累部分市场消费者信心下滑影响，折扣零售商 Action 今年迄今同店销售额增速放缓至 2.4%。
 
-这位副行长所言非虚，近年来债券交易在银行的地位确实突飞猛进。
+对比来看，去年同期 Action 同店销售增速为 6.8%，2025 全年增速为 4.9%。
 
-根据央行《2026年第一季度货币政策执行报告》，截至2025年末，我国银行持有的债券规模历史性突破100万亿元大关，占银行总资产的25%，较2015年上升7个百分点；同时，债券与贷款的比例升至35%，较2015年上升6个百分点。
+公司同时披露，Action 2026 年第一季度息税折旧摊销前利润率降至 12.4%，低于 2025 年全年的 14.8%。
 
 ## 相关推荐
 
-- 2026-06-30 04:51 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 05:06 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 04:54 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 04:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 05:15 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 04:59 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 05:01 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-30 04:57 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-30 05:09 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 04:57 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 04:56 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 05:12 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 04:52 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 05:12 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 05:02 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 04:54 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 05:00 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 05:22 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 05:17 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 05:02 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 05:14 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-30 05:19 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 04:54 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 05:04 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 05:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 05:18 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 05:00 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 04:55 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 04:59 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:08 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/499973424185.shtml)
-- 2026-06-30 05:14 - [恋与深空 日服](http://www.share.minike.top/Article/details/2220281.shtml)
-- 2026-06-30 05:00 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/08489.shtml)
-- 2026-06-30 05:08 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/921997076.shtml)
-- 2026-06-30 05:00 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/729796726.shtml)
-- 2026-06-30 04:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/9552828562.shtml)
-- 2026-06-30 04:53 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/3016756963.shtml)
-- 2026-06-30 04:58 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/05179494.shtml)
-- 2026-06-30 05:08 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/475518.shtml)
-- 2026-06-30 04:55 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/33868.shtml)
-- 2026-06-30 05:10 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/29152892.shtml)
-- 2026-06-30 05:12 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/74270.shtml)
-- 2026-06-30 05:13 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/49292904.shtml)
-- 2026-06-30 05:02 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/032709.shtml)
-- 2026-06-30 05:14 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/320302.shtml)
+- 2026-06-30 05:02 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/4822946.shtml)
+- 2026-06-30 05:08 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/382962423898.shtml)
+- 2026-06-30 05:23 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/8239276.shtml)
+- 2026-06-30 05:14 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/51217125532.shtml)
+- 2026-06-30 05:15 - [一见倾心](http://www.share.kurohicncr.top/Article/details/1245072.shtml)
+- 2026-06-30 04:55 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/251194.shtml)
+- 2026-06-30 05:00 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/27796115832.shtml)
+- 2026-06-30 05:11 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/408140.shtml)
+- 2026-06-30 05:03 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/897486986324.shtml)
+- 2026-06-30 05:05 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/616658.shtml)
+- 2026-06-30 05:12 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/6142791.shtml)
+- 2026-06-30 05:17 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/65065.shtml)
+- 2026-06-30 05:00 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/42294.shtml)
+- 2026-06-30 05:15 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/08587.shtml)
+- 2026-06-30 05:07 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/00653.shtml)

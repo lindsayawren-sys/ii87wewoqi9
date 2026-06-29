@@ -1,61 +1,61 @@
-# 阿里、腾讯资本开支再提速，百亿港股互联网ETF华宝（513770）上探3.77%！创业板人工智能ETF六连阳后暂休整
+# 印度航空年度亏损突破 20 亿美元、创历史新高
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-今日（5月14日）市场震荡盘整，A股主要指数悉数飘绿，沪指失守4200点，全市场超4300只个股下跌。沪深京三市成交额33884亿元，较昨日放量1239亿元，连续第七个交易日突破3万亿元。 市场萎靡之际，银行奋起护盘，工农中建交携手收红，百亿银行ETF华宝（512800）场内价格逆市收涨0.51%，此前一日狂揽2.37亿元；政策密集托底，猪肉板块反弹，天邦食品、神农集团涨停，全
+股东新加坡航空年报显示，受伊朗战事冲击及巴基斯坦禁止印度航司使用其领空影响，印度第二大航空公司印度航空集团2025-26财年亏损突破20亿美元，创下历史新高。 新加坡航空持有印度航空25%股份。该航司周四发布的年报称，在截至3月底的过去12个月里，印度航空集团亏损达35.6亿新加坡元，按当前汇率折合28亿美元。 新航并未披露核算亏损所采用的新加坡元兑印度卢比汇率。媒体此前曾报道
 
 ## 正文
 
-今日（5月14日）市场震荡盘整，A股主要指数悉数飘绿，沪指失守4200点，全市场超4300只个股下跌。
+股东新加坡航空年报显示，受伊朗战事冲击及巴基斯坦禁止印度航司使用其领空影响，印度第二大航空公司印度航空集团2025-26财年亏损突破20亿美元，创下历史新高。
 
-沪深京三市成交额33884亿元，较昨日放量1239亿元，连续第七个交易日突破3万亿元。
+新加坡航空持有印度航空25%股份。
 
-市场萎靡之际，银行奋起护盘，工农中建交携手收红，百亿银行ETF华宝（512800）场内价格逆市收涨0.51%，此前一日狂揽2.37亿元；政策密集托底，猪肉板块反弹，天邦食品、神农集团涨停，全市场首只*农牧渔ETF华宝（159275）场内收红；吃喝板块上演“过山车行情”，食品饮料ETF华宝（515710）午后拉升翻红，场内价格一度上涨1.5%，近4日连续获资金净流入1523万元。
+该航司周四发布的年报称，在截至3月底的过去12个月里，印度航空集团亏损达35.6亿新加坡元，按当前汇率折合28亿美元。
 
-在AI需求强劲预期下，大厂AI资本开支再提速，腾讯、阿里绩后纷纷上调预期，港股AI核心工具——港股互联网ETF华宝（513770）场内价格最高上探3.77%；港股通创新药三连跌，出海与政策双线驱动，机构提示配置机遇，100%创新药研发标的——港股通创新药ETF华宝（520880）近10日吸金超4.3亿元。
+新航并未披露核算亏损所采用的新加坡元兑印度卢比汇率。
 
-热辣滚烫的光模块冲高回落，“易中天”股价盘中均创历史新高，光模块CPO占比超50%的创业板人工智能ETF华宝（159363）日线6连阳+刷新上市新高后，首度回调，资金获迎来逢跌布局机会。
+媒体此前曾报道，印度航空全年亏损预计将超过21.2亿美元。
 
-同样火热的芯片产业链传来大消息，台积电预计2030年全球芯片市场规模将超1.5万亿美元，比此前预测的高出50%，全“芯”布局芯片产业的科创芯片ETF华宝（589190）亦在3连涨+创新高后，随市盘整回调，中金公司认为，科创芯片上涨逻辑已从估值修复，转向业绩驱动。
+此次巨亏对印度航空又是一次重大打击。
 
-* 中金公司指出，A股“924行情”已延续近两年时间。
+近几个月来，该航司被迫削减大量国际航班，严重拖累塔塔集团旗下这家航司的扭亏为盈计划。
 
-中期视角下，坚定看好A股市场延续震荡上行趋势，当前A股市场整体估值仍处于合理水平。
+在新航披露的附属报告中，其审计机构毕马威表示，受经营环境艰难、地缘政治不确定性加剧影响，管理层认为对印度航空的投资存在减值迹象。
 
 ## 相关推荐
 
-- 2026-06-30 05:04 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 05:06 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 05:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 04:56 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-30 05:16 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 04:59 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 05:01 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 04:52 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-30 05:15 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 04:58 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 05:17 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 05:12 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 04:51 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 04:59 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 04:58 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 05:06 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 05:22 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 05:16 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 05:10 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 05:18 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 05:12 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 05:21 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 05:03 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 05:17 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 05:14 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 05:16 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 05:04 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 05:10 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 04:58 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 04:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:17 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/869703722.shtml)
-- 2026-06-30 05:06 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/1641363.shtml)
-- 2026-06-30 04:58 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/252029512606.shtml)
-- 2026-06-30 05:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/40217328459.shtml)
-- 2026-06-30 05:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/6988505.shtml)
-- 2026-06-30 05:06 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/6369153.shtml)
-- 2026-06-30 05:13 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/217140208208.shtml)
-- 2026-06-30 05:10 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/963307970767.shtml)
-- 2026-06-30 05:01 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/17540.shtml)
-- 2026-06-30 04:51 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/4815222.shtml)
-- 2026-06-30 05:07 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/4601943.shtml)
-- 2026-06-30 05:01 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/4743775.shtml)
-- 2026-06-30 05:06 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/81631697.shtml)
-- 2026-06-30 05:10 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/90406808514.shtml)
-- 2026-06-30 04:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/7858224491.shtml)
+- 2026-06-30 05:09 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/38907994.shtml)
+- 2026-06-30 04:55 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/4521698981.shtml)
+- 2026-06-30 04:58 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/23369427.shtml)
+- 2026-06-30 05:07 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/808768272715.shtml)
+- 2026-06-30 05:08 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/74964642005.shtml)
+- 2026-06-30 05:10 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/40791305724.shtml)
+- 2026-06-30 05:11 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/291271075551.shtml)
+- 2026-06-30 05:14 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/1676423127.shtml)
+- 2026-06-30 05:13 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/9906649568.shtml)
+- 2026-06-30 05:14 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/34813.shtml)
+- 2026-06-30 05:14 - [《共患难》](https://www.blog.minike.top/Article/details/7834223992.shtml)
+- 2026-06-30 05:15 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/864739.shtml)
+- 2026-06-30 05:20 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/37578.shtml)
+- 2026-06-30 05:03 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/820035.shtml)
+- 2026-06-30 05:09 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/897918.shtml)

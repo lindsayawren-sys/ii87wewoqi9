@@ -1,56 +1,50 @@
-# 澳大利亚国防科技初创企业完成新一轮融资，将进军美国市场扩张
+# 思科因AI订单大涨同时裁员
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-阿凯斯（Arkeus）拟利用新资金在美国建厂、研发新增技术能力 内容速览 澳大利亚初创企业阿凯斯（Arkeus）完成1800 万美元 A 轮融资，计划拓展美国客户群，并在美国新建生产制造基地。 这家澳大利亚科创企业主打无人机与航空器高清视觉探测技术，已从私募机构融资 1800 万美元。公司目前的美国客户已包含美国国防部，此次融资将进一步扩大北美市场布局。 阿凯斯依托人工智能打造
+思科系统公司股价大幅上涨，此前公司公布了强劲的季度业绩，上调了业绩指引，并给出了90亿美元的年度人工智能及超大规模客户订单预期。与此同时，公司宣布将裁减近4000个岗位，以便将投资重新分配至人工智能、芯片设计和网络安全等战略领域。这一“加减法”体现了传统科技巨头在AI浪潮中的转型思路：一方面抓住新技术带来的增长机遇，另一方面精简组织架构以提升运营效率。责任编辑：张俊 SF065
 
 ## 正文
 
-阿凯斯（Arkeus）拟利用新资金在美国建厂、研发新增技术能力 内容速览 澳大利亚初创企业阿凯斯（Arkeus）完成1800 万美元 A 轮融资，计划拓展美国客户群，并在美国新建生产制造基地。
+思科系统公司股价大幅上涨，此前公司公布了强劲的季度业绩，上调了业绩指引，并给出了90亿美元的年度人工智能及超大规模客户订单预期。
 
-这家澳大利亚科创企业主打无人机与航空器高清视觉探测技术，已从私募机构融资 1800 万美元。
+与此同时，公司宣布将裁减近4000个岗位，以便将投资重新分配至人工智能、芯片设计和网络安全等战略领域。
 
-公司目前的美国客户已包含美国国防部，此次融资将进一步扩大北美市场布局。
+这一“加减法”体现了传统科技巨头在AI浪潮中的转型思路：一方面抓住新技术带来的增长机遇，另一方面精简组织架构以提升运营效率。
 
-阿凯斯依托人工智能打造技术平台，通过自研传感器采集并解析光学数据，涵盖人眼不可见光谱。
-
-该技术可助力军用及民用设备在低能见度作战、GPS 信号盲区等复杂环境下稳定运行。
-
-传统雷达会发射可被侦测的信号，而阿凯斯表示，其基于高光谱光学成像的系统隐蔽性更强，还可同步采集多层视觉数据。
-
-设备搭载的机载人工智能可自主解析数据，即便安装在无远程网络连接的无人飞行器上，也能精准识别目标物体。
-
-公司自研 ARK 软件引擎可通过识别物体独有的光谱特征，完成精准甄别。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 05:05 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 04:50 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 05:10 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 05:02 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 05:14 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 04:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 04:58 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 05:06 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 05:01 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 05:11 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-30 05:13 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 05:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 04:57 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 04:58 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 05:20 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 05:02 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 05:22 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 04:56 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 05:21 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-30 05:01 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 05:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 05:03 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/542465.shtml)
-- 2026-06-30 05:02 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/25376501481.shtml)
-- 2026-06-30 05:02 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/2719595567.shtml)
-- 2026-06-30 05:04 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/292785160948.shtml)
-- 2026-06-30 05:12 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/04527.shtml)
-- 2026-06-30 05:02 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/167666.shtml)
-- 2026-06-30 04:57 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/660129130.shtml)
-- 2026-06-30 05:18 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/908283713.shtml)
-- 2026-06-30 05:13 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/3764531204.shtml)
-- 2026-06-30 05:00 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/90053673.shtml)
-- 2026-06-30 04:53 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/03029909.shtml)
-- 2026-06-30 04:59 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/983835988.shtml)
-- 2026-06-30 05:13 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/37154266993.shtml)
-- 2026-06-30 05:05 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/94006.shtml)
-- 2026-06-30 04:50 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/427888160.shtml)
+- 2026-06-30 04:56 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/219630740902.shtml)
+- 2026-06-30 05:20 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/157810902976.shtml)
+- 2026-06-30 05:02 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/573916951437.shtml)
+- 2026-06-30 05:18 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/174188475.shtml)
+- 2026-06-30 05:07 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/22510250144.shtml)
+- 2026-06-30 05:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/05783779662.shtml)
+- 2026-06-30 05:13 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/5295143.shtml)
+- 2026-06-30 05:14 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/9793490.shtml)
+- 2026-06-30 04:59 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/71510858.shtml)
+- 2026-06-30 05:18 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/6340117.shtml)
+- 2026-06-30 05:00 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/39279158.shtml)
+- 2026-06-30 04:55 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/6635355768.shtml)
+- 2026-06-30 05:11 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/350414.shtml)
+- 2026-06-30 04:58 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/160236.shtml)
+- 2026-06-30 05:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/716957134392.shtml)

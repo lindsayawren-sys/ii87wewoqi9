@@ -1,55 +1,58 @@
-# IEA警示创纪录库存下降 霍尔木兹海峡持续紧张
+# 营收及调整后盈利超预期 西班牙电信股价上涨
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-国际能源署在其月度报告中发出严厉警告。报告指出，受霍尔木兹海峡航运中断影响，3月至4月期间全球石油库存锐减约2.5亿桶，而同期全球日均供应中断量超过1400万桶。IEA将这一局面描述为“前所未有的供应冲击”，其严重程度远超历史上的任何一次飓风或地缘冲突事件。为弥补中东供应的缺口，美国、巴西、挪威等大西洋盆地产油国正全力增加出口，但短期内仍难以完全填补缺口。IEA警告，如果霍尔木
+专题：聚焦美股2026年第一季度财报 欧洲早盘股价涨幅达 5.1% 内容概要 西班牙电信一季度营收、调整后盈利均超出市场预期，带动股价上涨 5.1%。 西班牙电信（TEF）股价上涨 6.18%。公司一季度营收与调整后盈利双双超出市场预期，转型战略持续落地，股价应声走高。 早盘交易中，该股上涨 5.1%，报 4.01 欧元；年内累计涨幅略超 14%。 这家西班牙电信巨头周四公布，
 
 ## 正文
 
-国际能源署在其月度报告中发出严厉警告。
+专题：聚焦美股2026年第一季度财报 欧洲早盘股价涨幅达 5.1% 内容概要 西班牙电信一季度营收、调整后盈利均超出市场预期，带动股价上涨 5.1%。
 
-报告指出，受霍尔木兹海峡航运中断影响，3月至4月期间全球石油库存锐减约2.5亿桶，而同期全球日均供应中断量超过1400万桶。
+西班牙电信（TEF）股价上涨 6.18%。
 
-IEA将这一局面描述为“前所未有的供应冲击”，其严重程度远超历史上的任何一次飓风或地缘冲突事件。
+公司一季度营收与调整后盈利双双超出市场预期，转型战略持续落地，股价应声走高。
 
-为弥补中东供应的缺口，美国、巴西、挪威等大西洋盆地产油国正全力增加出口，但短期内仍难以完全填补缺口。
+早盘交易中，该股上涨 5.1%，报 4.01 欧元；年内累计涨幅略超 14%。
 
-IEA警告，如果霍尔木兹海峡的通行问题无法尽快解决，油价可能面临进一步上行压力，从而加剧全球通胀风险。
+这家西班牙电信巨头周四公布，一季度营收从去年同期的 80.9 亿欧元微增至81.3 亿欧元（约 95.3 亿美元），高于公司统计的市场一致预期 80.7 亿欧元。
 
-责任编辑：张俊 SF065
+按固定汇率计算，西班牙本土营收同比增长 2%：其中服务收入增长 1.7%，手机设备销售额增长 6.9%。
+
+巴西市场营收增长 7.4%，数字新业务、手机销售、移动服务收入等多个板块表现强劲。
+
+公司补充称，受移动服务收入短期承压、德国手机市场需求低迷拖累，德国市场营收下滑 8.6%。
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 04:57 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 05:17 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 04:54 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 05:17 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 04:51 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 04:59 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 05:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-30 05:09 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 05:17 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 05:01 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 05:03 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 05:02 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 05:08 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 04:55 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 05:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 04:56 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 05:21 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 04:54 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 05:00 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 04:57 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 05:09 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 05:09 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 05:10 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 05:22 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/76907.shtml)
-- 2026-06-30 04:50 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/82941939960.shtml)
-- 2026-06-30 05:00 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/165816.shtml)
-- 2026-06-30 05:14 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/982451861.shtml)
-- 2026-06-30 05:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/55733415822.shtml)
-- 2026-06-30 05:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/50841.shtml)
-- 2026-06-30 04:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/06330125226.shtml)
-- 2026-06-30 05:08 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/9400428538.shtml)
-- 2026-06-30 04:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/983402747000.shtml)
-- 2026-06-30 04:49 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/7222658.shtml)
-- 2026-06-30 05:07 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/19523.shtml)
-- 2026-06-30 05:03 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/73057625306.shtml)
-- 2026-06-30 05:05 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/830185807722.shtml)
-- 2026-06-30 04:56 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/10835.shtml)
-- 2026-06-30 05:16 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/04618860982.shtml)
+- 2026-06-30 05:04 - [一生一世](https://www.share.kurohicncr.top/Article/details/9411324.shtml)
+- 2026-06-30 05:00 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/511640986.shtml)
+- 2026-06-30 05:20 - [毒液2](http://www.share.minike.top/Article/details/80488052463.shtml)
+- 2026-06-30 04:55 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/85762.shtml)
+- 2026-06-30 05:05 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/14217051.shtml)
+- 2026-06-30 05:23 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/5011027.shtml)
+- 2026-06-30 04:54 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/24105682.shtml)
+- 2026-06-30 05:05 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/733446422030.shtml)
+- 2026-06-30 05:11 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/551279888.shtml)
+- 2026-06-30 05:00 - [沙丘](http://www.blog.minike.top/Article/details/266372.shtml)
+- 2026-06-30 05:00 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/561584669011.shtml)
+- 2026-06-30 04:59 - [《共患难》](https://www.blog.minike.top/Article/details/51224506.shtml)
+- 2026-06-30 05:09 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/712370.shtml)
+- 2026-06-30 05:21 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/11661667146.shtml)
+- 2026-06-30 05:03 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/86501404883.shtml)

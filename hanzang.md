@@ -1,61 +1,60 @@
-# 英国经济增速超过美国？
+# 海口海关缉私局情报中心空调采购项目比选公告
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-当地时间5月14日，英国国家统计局（ONS）公布数据显示，英国2026年一季度国内生产总值（GDP）环比增长0.6%，高于2025年四季度修正后的0.2%，创下近一年来最快季度增速。《华尔街日报》等国际媒体按照年化口径测算，英国一季度经济增速约为2.6%，略高于美国商务部公布的同期约2.0%的GDP折年率增幅。一时间，“英国经济增速阶段性超过美国”迅速成为国际财经市场关注的焦点
+一、采购条件 海口海关缉私局情报中心空调采购项目已获批准实施，项目业主为海口海关缉私局，项目资金来自财政资金，项目出资比例为100%，采购人为海口海关缉私局。项目已具备采购条件，现对该项目进行比选采购。 二、项目概况与采购范围 (一)项目名称：海口海关缉私局情报中心空调采购；(二)项目具体内容及需求详见《海口海关缉私局情报中心空调采购项目需求书》； (三)交货安装期：自设备进场
 
 ## 正文
 
-当地时间5月14日，英国国家统计局（ONS）公布数据显示，英国2026年一季度国内生产总值（GDP）环比增长0.6%，高于2025年四季度修正后的0.2%，创下近一年来最快季度增速。
+一、采购条件 海口海关缉私局情报中心空调采购项目已获批准实施，项目业主为海口海关缉私局，项目资金来自财政资金，项目出资比例为100%，采购人为海口海关缉私局。
 
-《华尔街日报》等国际媒体按照年化口径测算，英国一季度经济增速约为2.6%，略高于美国商务部公布的同期约2.0%的GDP折年率增幅。
+项目已具备采购条件，现对该项目进行比选采购。
 
-一时间，“英国经济增速阶段性超过美国”迅速成为国际财经市场关注的焦点。
+二、项目概况与采购范围 (一)项目名称：海口海关缉私局情报中心空调采购；(二)项目具体内容及需求详见《海口海关缉私局情报中心空调采购项目需求书》； (三)交货安装期：自设备进场起15天内完成新空调安装； (四)质保期：整机保修6年，按空调开机验收合格时间开始计算； (五)质量要求：达到国家及相关行业的合格标准，保证原厂原装； (六)最高限价：人民币99740.53元； (七)报价要求：该项目为固定总价包干，供应商报价费用包括但不限于安装、材料、人工、辅材、运输、税费、保险、安全防护、垃圾清运、成品保护以及合理利润等实施本项目所需的全部费用，除采购人书面提出的正式需求变更外，总价不作任何调整。
 
-服务业成核心驱动力过去几年，市场普遍认为，美国经济明显强于欧洲，而英国经济则长期处于“低增长、高通胀、弱复苏”的状态。
+(八)现场踏勘：采购人组织现场踏勘(海口海关缉私局，地址：海口市长滨东四街9号)，供应商可根据自身需要选择是否参加踏勘(联系人：黄警官，19989693010)。
 
-如今，英国却突然交出了一份阶段性“跑赢”美国的成绩单，自然让人颇感意外。
+采购人对踏勘现场的描述仅作参考，供应商需自行核实现场实际情况，踏勘结果视为供应商已充分了解项目实施条件。
 
-从数据结构来看，这一轮英国经济反弹，主要由服务业带动。
+供应商因未参加踏勘或踏勘不充分导致的报价偏差、施工冲突等风险，由供应商自行承担；但采购人不得因供应商未参与踏勘拒绝其参加比选。
 
-英国国家统计局数据显示，一季度服务业增长约0.8%，成为核心驱动力。
+三、比选申请人资格要求 (一)在中华人民共和国注册、具有独立承担民事责任的能力(企业需提供三证合一营业执照复印件、事业单位需提供事业单位法人证书复印件)。
 
-与此同时，居民消费和政府支出有所改善，同时部分企业出现提前备货现象。
+(二)具备能承办本项目的有效合法证照(证照中营业范围、业务范围须与本项目相关)。
 
 ## 相关推荐
 
-- 2026-06-30 04:58 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 05:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 04:58 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 05:11 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 04:56 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 04:52 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 05:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 05:14 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 04:57 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 05:08 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 05:14 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 04:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-30 04:53 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 05:05 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 05:12 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 04:57 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 05:18 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 04:58 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 04:59 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 05:20 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-30 05:07 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 05:05 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-30 04:58 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 05:11 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 05:22 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 05:18 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 04:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 04:55 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 05:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:15 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/266944.shtml)
-- 2026-06-30 05:08 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/51671208.shtml)
-- 2026-06-30 04:52 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/4838317.shtml)
-- 2026-06-30 05:03 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/974244.shtml)
-- 2026-06-30 04:59 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/26330959.shtml)
-- 2026-06-30 05:02 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/043435812349.shtml)
-- 2026-06-30 05:15 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/811324261.shtml)
-- 2026-06-30 05:00 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/5798915.shtml)
-- 2026-06-30 04:50 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/31945357514.shtml)
-- 2026-06-30 04:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/146101257.shtml)
-- 2026-06-30 05:05 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/9896576115.shtml)
-- 2026-06-30 05:10 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/2616159377.shtml)
-- 2026-06-30 04:57 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/10288813.shtml)
-- 2026-06-30 04:54 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/729252003218.shtml)
-- 2026-06-30 05:10 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/523262.shtml)
+- 2026-06-30 04:57 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/33075.shtml)
+- 2026-06-30 05:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/19655611952.shtml)
+- 2026-06-30 05:08 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/59512020582.shtml)
+- 2026-06-30 05:17 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/72317.shtml)
+- 2026-06-30 05:15 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/509529022751.shtml)
+- 2026-06-30 05:03 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/648322.shtml)
+- 2026-06-30 04:57 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/8422232535.shtml)
+- 2026-06-30 05:20 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/17964026459.shtml)
+- 2026-06-30 05:18 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/559103304.shtml)
+- 2026-06-30 05:03 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/32606879.shtml)
+- 2026-06-30 05:15 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/41232219.shtml)
+- 2026-06-30 04:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/2459238.shtml)
+- 2026-06-30 05:07 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/29481119.shtml)
+- 2026-06-30 05:22 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/951705.shtml)
+- 2026-06-30 05:05 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/65537.shtml)

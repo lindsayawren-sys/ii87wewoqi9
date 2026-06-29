@@ -1,60 +1,56 @@
-# 光大期货：5月15日矿钢煤焦日报
+# 聚焦中概 | 热门中概股集体大涨，世纪互联涨超33%，金山云涨超16%，京东涨超7%，百度涨超6%，阿里巴巴涨超5%
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面窄幅波动，截止日盘螺纹2610合约收盘价格为3255元/吨，较上一交易收盘价格下跌2元/吨，跌幅为0.06%，持仓减少5.21万手。现货价格稳中有跌，成交维持低位，唐山地区迁安普方坯价格持平于3100元/吨，杭州市场中天螺纹价格下跌10元/吨至3290元/ 吨，全国建材成交量9.2
+华盛资讯5月13日讯，热门中概股集体走高，世纪互联涨超33%，金山云涨超16%，京东涨超7%，百度涨超6%，阿里巴巴绩后涨超5%，此前一度跌超3%；蔚来涨超4%，理想汽车张超3%、哔哩哔哩、腾讯控股ADR涨超2%。世纪互联宣布，PJ Millennium I Limited与PJ Millennium II Limited将以每股普通股1.4486美元（每ADS 8.6914美
 
 ## 正文
 
-螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面窄幅波动，截止日盘螺纹2610合约收盘价格为3255元/吨，较上一交易收盘价格下跌2元/吨，跌幅为0.06%，持仓减少5.21万手。
+华盛资讯5月13日讯，热门中概股集体走高，世纪互联涨超33%，金山云涨超16%，京东涨超7%，百度涨超6%，阿里巴巴绩后涨超5%，此前一度跌超3%；蔚来涨超4%，理想汽车张超3%、哔哩哔哩、腾讯控股ADR涨超2%。
 
-现货价格稳中有跌，成交维持低位，唐山地区迁安普方坯价格持平于3100元/吨，杭州市场中天螺纹价格下跌10元/吨至3290元/ 吨，全国建材成交量9.29万吨。
+世纪互联宣布，PJ Millennium I Limited与PJ Millennium II Limited将以每股普通股1.4486美元（每ADS 8.6914美元）的现金对价，从山东高速控股集团有限公司实益拥有的两家主体处，合计收购最多6.5亿股A类普通股。
 
-据我的钢铁数据，本周全国螺纹产量增加4.75万吨至201.4万吨，社库减少28.82万吨至518.4万吨，厂库减少12.3万吨至167.54万吨，螺纹表需回升44.71万吨至242.52万吨。
+交易完成后，买方将合计持有公司约38.1%股份。
 
-产量小幅回升，库存降幅扩大，表需回升，数据表现中性偏强。
+买方均为PJ Millennium Limited Partnership的全资子公司。
 
-4月份社会融资规模增加6207亿元人民币，比上年同期少增5392亿元。
+该合伙企业的普通合伙人为Lochpine BG I GP Limited，系宁德时代的非控股、非合并关联方。
 
-金融机构人民币贷款减少100亿元人民币，比上年同期少增2900亿元。
+2026财年Q4营收2433.8亿元，上年同期2364.54亿元，同比增长3%；Q4净利润为254.76亿元，去年同期为123.82亿元。
 
-人民币贷款分项来看，住户贷款同比少增2653亿元，其中住户中长期贷款同比少增2177亿元，房地产相关贷款需求仍偏弱。
+公司表示，截至2026年3月31日止季度，云智能集团收入为人民币416.26亿元（60.35亿美元），同比增长38%，特别是外部商业化收入同比增长加速至40%。
 
-预计短期螺纹盘面仍将窄幅震荡运行。
+这一增长势头主要由公共云业务收入增长所驱动，其中包括AI相关产品采用量的提升。
 
 ## 相关推荐
 
-- 2026-06-30 05:13 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-30 04:53 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 05:13 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 04:59 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 04:55 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 05:02 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 05:08 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 04:49 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 05:10 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 05:00 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 05:05 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 05:16 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 04:53 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 05:04 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 05:14 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 05:07 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 05:19 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-30 05:04 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 04:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 05:00 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 05:07 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 05:08 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 05:12 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-30 05:19 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:54 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/4168612.shtml)
-- 2026-06-30 05:06 - [起风了](http://www.share.kurohicncr.top/Article/details/797078951.shtml)
-- 2026-06-30 05:16 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/769139572.shtml)
-- 2026-06-30 05:02 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/865797797.shtml)
-- 2026-06-30 05:05 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/12944686105.shtml)
-- 2026-06-30 05:10 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/84202992.shtml)
-- 2026-06-30 05:10 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/28942278.shtml)
-- 2026-06-30 04:53 - [月亮](https://www.share.kurohicncr.top/Article/details/9465749829.shtml)
-- 2026-06-30 05:13 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/88417903.shtml)
-- 2026-06-30 05:07 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/461457419008.shtml)
-- 2026-06-30 04:58 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/58282426.shtml)
-- 2026-06-30 05:10 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/32157173.shtml)
-- 2026-06-30 05:04 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/755310585.shtml)
-- 2026-06-30 05:17 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/062380538976.shtml)
-- 2026-06-30 05:10 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/013617163.shtml)
+- 2026-06-30 05:03 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/370060.shtml)
+- 2026-06-30 05:15 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/397313125075.shtml)
+- 2026-06-30 05:01 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/40361.shtml)
+- 2026-06-30 05:20 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/1395585283.shtml)
+- 2026-06-30 05:16 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/524431.shtml)
+- 2026-06-30 05:05 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/7053833925.shtml)
+- 2026-06-30 05:13 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/15413696571.shtml)
+- 2026-06-30 05:04 - [日本进球](https://www.blog.minike.top/Article/details/0882336.shtml)
+- 2026-06-30 05:05 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/45249420.shtml)
+- 2026-06-30 05:15 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/30130.shtml)
+- 2026-06-30 05:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/17756.shtml)
+- 2026-06-30 05:14 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/59032.shtml)
+- 2026-06-30 05:21 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/83141291.shtml)
+- 2026-06-30 04:58 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/488225278424.shtml)
+- 2026-06-30 05:20 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/9585081.shtml)

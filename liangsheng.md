@@ -1,59 +1,54 @@
-# 股价大跌因“谈价失败”？3000亿PCB龙头回应
+# 里昂：对香港奢侈品销售前景维持乐观 奢侈品零售板块首选九龙仓置业
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：21财经 近日，《21辟谣》注意到，有消息称“PCB大厂谈涨价失败”，并将其与胜宏科技昨日（5月14日）股价大跌相关联，引发市场关注。 对此，5月15日午间，21快讯记者以投资者身份致电胜宏科技，公司接线人员回应称：“那个（网传消息）是小作文，不实信息。影响股价波动的因素是很多的，你可以看到今天整体P
+里昂发布研报称，九龙仓置业（01997）管理层语气自2023年疫后重新开放以来首次转趋正面。该行相信，这反映了经营表现优于预期，为按营业额比例收租及绩租租金带来上行潜力。报告指，五一黄金周期间奢侈品销售势头强劲，亦显示人均消费有所改善，该行认为部分受港元贬值所带动。该行对香港奢侈品销售前景维持乐观，重申对九龙仓置业跑赢大市评级，目标价40港元，并继续视其为奢侈品零售板块首选。责
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+里昂发布研报称，九龙仓置业（01997）管理层语气自2023年疫后重新开放以来首次转趋正面。
 
-来源：21财经 近日，《21辟谣》注意到，有消息称“PCB大厂谈涨价失败”，并将其与胜宏科技昨日（5月14日）股价大跌相关联，引发市场关注。
+该行相信，这反映了经营表现优于预期，为按营业额比例收租及绩租租金带来上行潜力。
 
-对此，5月15日午间，21快讯记者以投资者身份致电胜宏科技，公司接线人员回应称：“那个（网传消息）是小作文，不实信息。
+报告指，五一黄金周期间奢侈品销售势头强劲，亦显示人均消费有所改善，该行认为部分受港元贬值所带动。
 
-影响股价波动的因素是很多的，你可以看到今天整体PCB都有一定幅度的回调。
+该行对香港奢侈品销售前景维持乐观，重申对九龙仓置业跑赢大市评级，目标价40港元，并继续视其为奢侈品零售板块首选。
 
-” 至于市场关心的上游原材料价格传导压力，前述工作人员表示，虽然上游铜箔、树脂、玻纤布等原材料价格有一定上调，但CCL本身高频高速材料的盈利能力是比较强的（能够较好地消化这部分成本压力），“到现在为止，我们整体成本端除了大宗原材料，像金、铜、锡这些会根据市场行情有一定的波动之外，CCL主材价格比较稳定，我们现有料号的价格也是比较稳定的。
-
-” 2025年年报显示，胜宏科技深耕PCB行业二十余年，系中国印制电路行业协会（CPCA）的副理事长单位，系行业标准的制定单位之一。
-
-根据Prismark数据，公司位列全球PCB供应商第6名、中国大陆内资PCB厂商第3名。
-
-2026年一季度，公司营收为55.19亿元，同比增长27.99%；归母净利润为12.88亿元，同比增长39.95%。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:16 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 05:16 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-30 05:02 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 04:57 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 05:01 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 04:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 05:06 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 05:11 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-30 04:58 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 04:53 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 05:09 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 05:11 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 05:10 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 05:21 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 05:20 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 05:18 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 05:00 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 04:54 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 05:02 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 05:15 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 05:10 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 05:20 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 04:56 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 05:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 05:06 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 04:55 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 05:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/479991210.shtml)
-- 2026-06-30 05:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/95937.shtml)
-- 2026-06-30 05:14 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/298881.shtml)
-- 2026-06-30 04:52 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/331501169.shtml)
-- 2026-06-30 05:11 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/640503155.shtml)
-- 2026-06-30 04:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/91267.shtml)
-- 2026-06-30 04:50 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/49130987542.shtml)
-- 2026-06-30 04:55 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/449325.shtml)
-- 2026-06-30 05:09 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/100300848.shtml)
-- 2026-06-30 05:15 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/427194482205.shtml)
-- 2026-06-30 05:11 - [巴西2-1绝杀日本](http://www.share.kurohicncr.top/Article/details/389962.shtml)
-- 2026-06-30 04:48 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/21051935.shtml)
-- 2026-06-30 05:07 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/809465.shtml)
-- 2026-06-30 05:00 - [美人鱼](https://www.share.kurohicncr.top/Article/details/88266688.shtml)
-- 2026-06-30 05:04 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/9938124.shtml)
+- 2026-06-30 05:04 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/3058382.shtml)
+- 2026-06-30 05:03 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/374904.shtml)
+- 2026-06-30 04:57 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/56992463.shtml)
+- 2026-06-30 05:17 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/23828.shtml)
+- 2026-06-30 05:10 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/918986555.shtml)
+- 2026-06-30 04:56 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/262567358667.shtml)
+- 2026-06-30 05:03 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/916644.shtml)
+- 2026-06-30 05:03 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/31146724264.shtml)
+- 2026-06-30 05:05 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/8742427.shtml)
+- 2026-06-30 05:10 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/01850.shtml)
+- 2026-06-30 05:15 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/23948.shtml)
+- 2026-06-30 05:10 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/09095965.shtml)
+- 2026-06-30 04:58 - [我和我的家乡](https://www.blog.minike.top/Article/details/5339981582.shtml)
+- 2026-06-30 05:05 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/2608453210.shtml)
+- 2026-06-30 05:23 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/27594367.shtml)

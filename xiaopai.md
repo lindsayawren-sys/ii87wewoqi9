@@ -1,51 +1,54 @@
-# 第二届香港演艺博览10月启幕 将呈现逾40个国际演出和项目推介
+# 卓正医疗采纳2026年股份奖励计划
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月15日 07:58 来源：中国新闻网 5月14日，香港艺术发展局举行发布会，介绍第二届香港演艺博览相关亮点。据悉，本届香港演艺博览将于10月9日至13日举行，汇聚来自全球五大洲的艺术家及艺团，呈献超过40个国际演出及项目推介，以及逾30场对话及交流活动，内容涵盖舞蹈、戏剧、音乐、戏曲及跨媒介艺术。并设立全新环节，聚焦本地独立艺术家及中小型艺团，在国际舞
+卓正医疗（02677）发布公告，2026年5月13日，公司已采纳该计划（即由计划规则构成的2026年股份奖励计划，以其现行格式或不时修订的版本为准）。该计划仅由现有股份提供资金，并不涉及发行任何新股份。该计划自采纳日期起计为期十年有效，根据该计划可授予的奖励上限为150万股股份。受托人将根据董事会的指示，按照《上市规则》及信托契据从二级市场购买股份，以满足奖励的行使。责任编辑：
 
 ## 正文
 
-发布时间：2026年05月15日 07:58 来源：中国新闻网 5月14日，香港艺术发展局举行发布会，介绍第二届香港演艺博览相关亮点。
+卓正医疗（02677）发布公告，2026年5月13日，公司已采纳该计划（即由计划规则构成的2026年股份奖励计划，以其现行格式或不时修订的版本为准）。
 
-据悉，本届香港演艺博览将于10月9日至13日举行，汇聚来自全球五大洲的艺术家及艺团，呈献超过40个国际演出及项目推介，以及逾30场对话及交流活动，内容涵盖舞蹈、戏剧、音乐、戏曲及跨媒介艺术。
+该计划仅由现有股份提供资金，并不涉及发行任何新股份。
 
-并设立全新环节，聚焦本地独立艺术家及中小型艺团，在国际舞台上彰显香港独特而多元的表演艺术面貌，同时为全球表演艺术从业者提供专业交流平台。
+该计划自采纳日期起计为期十年有效，根据该计划可授予的奖励上限为150万股股份。
 
-(记者 程宇） 责任编辑：【陈海峰】
+受托人将根据董事会的指示，按照《上市规则》及信托契据从二级市场购买股份，以满足奖励的行使。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:00 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 04:48 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 05:01 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 05:04 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 05:05 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-30 04:54 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 05:08 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 04:55 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 05:07 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 04:48 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 04:52 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 05:11 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-30 04:55 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 05:23 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 04:59 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 05:16 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 05:09 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-30 05:19 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 05:18 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 05:16 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 04:58 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 04:59 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 05:07 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 05:22 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 05:18 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 04:55 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 05:16 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:56 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/98689295.shtml)
-- 2026-06-30 04:58 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/390017229454.shtml)
-- 2026-06-30 04:50 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/04793311.shtml)
-- 2026-06-30 04:51 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/752258308.shtml)
-- 2026-06-30 05:03 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/53509999.shtml)
-- 2026-06-30 05:02 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/956292.shtml)
-- 2026-06-30 04:56 - [日本进球](http://www.share.minike.top/Article/details/01963.shtml)
-- 2026-06-30 04:54 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/53425.shtml)
-- 2026-06-30 05:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/396393067930.shtml)
-- 2026-06-30 05:02 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/528396.shtml)
-- 2026-06-30 04:59 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/5132943.shtml)
-- 2026-06-30 04:56 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/95141530154.shtml)
-- 2026-06-30 05:03 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/60276271723.shtml)
-- 2026-06-30 04:53 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/22863502842.shtml)
-- 2026-06-30 05:06 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/913511427.shtml)
+- 2026-06-30 05:01 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/02281704.shtml)
+- 2026-06-30 05:19 - [女心理师](https://www.share.minike.top/Article/details/91290368.shtml)
+- 2026-06-30 05:03 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/4778619424.shtml)
+- 2026-06-30 05:03 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/0720225.shtml)
+- 2026-06-30 04:54 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/39203.shtml)
+- 2026-06-30 05:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/505345904171.shtml)
+- 2026-06-30 05:18 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/37094834.shtml)
+- 2026-06-30 04:54 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/90964314.shtml)
+- 2026-06-30 05:18 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/50041.shtml)
+- 2026-06-30 05:05 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/71390801.shtml)
+- 2026-06-30 05:20 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/77520241.shtml)
+- 2026-06-30 05:19 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/81954904635.shtml)
+- 2026-06-30 05:15 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/5220813.shtml)
+- 2026-06-30 05:07 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/79873605.shtml)
+- 2026-06-30 05:12 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/3772300.shtml)

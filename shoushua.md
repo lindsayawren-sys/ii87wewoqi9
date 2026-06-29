@@ -1,58 +1,59 @@
-# Anthropic已敲定300亿美元融资条款 红杉资本等领投
+# 成都公安通报一起“暴力虚开”增值税发票案 涉案金额12亿余元
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-Anthropic已敲定300亿美元融资条款，投后估值达9000亿美元，预计最快本月完成交割。公司借今年爆发式增长，估值将超越竞争对手OpenAI。 据两位知情人士透露，投资方Dragoneer、Greenoaks、红杉资本及Altimeter Capital已同意联合领投此轮融资。不含新增资金，本轮将把这家AI实验室的估值推至9000亿美元，较此前增长近两倍。 知情人士称，每
+中新网成都5月14日电 (记者 安源)成都市公安局14日通报了一起金融领域“暴力虚开”增值税发票案件。警方捣毁虚开窝点6处，挡获犯罪嫌疑人10人，查获虚开企业145家，涉嫌虚开增值税专用发票2万余份，价税合计12亿余元，主要犯罪嫌疑人被判处有期徒刑5年。据了解，犯罪嫌疑人巫某某等人在成都等地成立近百家空壳公司，瞄准有贷款需求的企业，以签订虚假服务合同的方式，在没有真实业务的情况
 
 ## 正文
 
-Anthropic已敲定300亿美元融资条款，投后估值达9000亿美元，预计最快本月完成交割。
+中新网成都5月14日电 (记者 安源)成都市公安局14日通报了一起金融领域“暴力虚开”增值税发票案件。
 
-公司借今年爆发式增长，估值将超越竞争对手OpenAI。
+警方捣毁虚开窝点6处，挡获犯罪嫌疑人10人，查获虚开企业145家，涉嫌虚开增值税专用发票2万余份，价税合计12亿余元，主要犯罪嫌疑人被判处有期徒刑5年。
 
-据两位知情人士透露，投资方Dragoneer、Greenoaks、红杉资本及Altimeter Capital已同意联合领投此轮融资。
+据了解，犯罪嫌疑人巫某某等人在成都等地成立近百家空壳公司，瞄准有贷款需求的企业，以签订虚假服务合同的方式，在没有真实业务的情况下为其虚开增值税专用发票，帮助企业虚增业绩、提高贷款额度，并按票面金额的5%至6%收取“开票费”。
 
-不含新增资金，本轮将把这家AI实验室的估值推至9000亿美元，较此前增长近两倍。
+为达到偷逃税款的目的，巫某某又注册120余家空壳个体工商户，利用个体工商户部分免税政策，在没有真实业务的情况下向其实际控制的空壳公司虚开发票，冲抵企业成本以偷逃税款，造成国家税收损失巨大。
 
-知情人士称，每家领投方拟投资20亿美元及以上。
+2025年2月，成都公安经侦部门对盘踞在本市的虚开犯罪团伙开展集中收网行动，捣毁虚开窝点6处，挡获犯罪嫌疑人10人，查获虚开企业145家，涉嫌虚开增值税专用发票2万余份，价税合计12亿余元。
 
-Anthropic正与其他投资者洽谈，补足剩余融资额，正式官宣前条款仍可能调整。
+目前，该案主要犯罪嫌疑人已被判处有期徒刑5年。
 
-本轮融资推进速度极快：知情人士透露，上月投资方主动接洽Anthropic，首席财务官克里希纳・拉奥在过去两周启动与潜在投资方的正式谈判。
+据介绍，该案犯罪团伙区别于传统走逃式“暴力虚开”，在敏锐嗅到金融领域“开票经济”的商机后，借助地方税收优惠政策大量成立空壳企业，精心伪造虚假业务、设计虚开模式，精准匹配目标企业的实际需求。
 
-本轮融资距CEO达里奥・阿莫代伊带领公司上一轮300亿美元融资（估值3500亿美元）仅过去三个月。
+为偷逃税款、违规获益，犯罪团伙滥用个体工商户核定征收政策，大量注册空壳个体工商户，搭建层层虚开网络，实现“零”税点开票，形成“企业套利、国家受损”的不法经济秩序。
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 05:09 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 05:00 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 05:05 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 05:13 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 04:54 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 05:01 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 04:54 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 05:03 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 05:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 04:54 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-30 04:56 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 04:58 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 04:54 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 05:19 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 05:19 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 05:09 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 04:55 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 05:01 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 05:21 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 05:21 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 05:12 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 05:06 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 05:22 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 05:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:15 - [扬名立万](https://www.blog.minike.top/Article/details/019445995.shtml)
-- 2026-06-30 04:53 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/0831081.shtml)
-- 2026-06-30 05:03 - [毒液2](http://www.blog.minike.top/Article/details/862102984913.shtml)
-- 2026-06-30 05:13 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/4003161.shtml)
-- 2026-06-30 05:10 - [《共患难》](http://www.share.kurohicncr.top/Article/details/589833.shtml)
-- 2026-06-30 05:15 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/785531.shtml)
-- 2026-06-30 04:52 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/21677821248.shtml)
-- 2026-06-30 04:56 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/30975631.shtml)
-- 2026-06-30 05:14 - [扬名立万](https://www.share.kurohicncr.top/Article/details/9533105.shtml)
-- 2026-06-30 05:04 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/07467253906.shtml)
-- 2026-06-30 05:13 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/235389095.shtml)
-- 2026-06-30 05:11 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/1381536030.shtml)
-- 2026-06-30 05:17 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/79601.shtml)
-- 2026-06-30 05:16 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/8219928.shtml)
-- 2026-06-30 05:16 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/743855.shtml)
+- 2026-06-30 05:11 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/62676849.shtml)
+- 2026-06-30 05:15 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/185398116.shtml)
+- 2026-06-30 05:00 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/98876972319.shtml)
+- 2026-06-30 04:57 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/170454064108.shtml)
+- 2026-06-30 05:06 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/9529409.shtml)
+- 2026-06-30 05:23 - [刘念回应](http://www.share.kurohicncr.top/Article/details/65749857757.shtml)
+- 2026-06-30 05:17 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/458699767250.shtml)
+- 2026-06-30 05:16 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/41921.shtml)
+- 2026-06-30 05:01 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/112286906.shtml)
+- 2026-06-30 05:16 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/735510.shtml)
+- 2026-06-30 05:05 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/630410218.shtml)
+- 2026-06-30 04:54 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/896224276836.shtml)
+- 2026-06-30 05:06 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/396190233.shtml)
+- 2026-06-30 05:15 - [起风了](https://www.blog.minike.top/Article/details/0481775.shtml)
+- 2026-06-30 05:04 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/044158872.shtml)

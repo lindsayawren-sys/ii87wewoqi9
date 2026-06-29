@@ -1,58 +1,58 @@
-# 股海导航_2026年5月15日_沪深股市公告与交易提示
+# 红利类资产韧性突出！华泰柏瑞“红利全家桶”成为资金布局红利策略ETF的重要方向
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【停牌】 000430 ST张家界 【复牌】 688193 仁度生物 【品大事】 2连板金房能源：蓄冷储能业务处于发展阶段对公司收入及利润影响较小 金房能源公告称，公司拥有多年海量的运营数据，2025年度，在北京国际大数据交易所完成部分数据确权工作，并取得确权证明，为后续数据交易业务奠定基础
+近期，受AI概念热度回落及外部扰动因素影响，A股市场再度陷入调整，投资者对具备防御属性的高股息资产需求随之升温。Wind数据显示，5月以来，全市场红利类主题ETF合计获得资金净流入60.11亿元，其中华泰柏瑞旗下“红利全家桶”同期“吸金”27.80亿元，占比高达46%，成为资金布局红利策略ETF的重要方向。 具体来看，人气产品——红利ETF华泰柏瑞（510880）和红利低波ET
 
 ## 正文
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+近期，受AI概念热度回落及外部扰动因素影响，A股市场再度陷入调整，投资者对具备防御属性的高股息资产需求随之升温。
 
-【停牌】 000430 ST张家界 【复牌】 688193 仁度生物 【品大事】 2连板金房能源：蓄冷储能业务处于发展阶段对公司收入及利润影响较小 金房能源公告称，公司拥有多年海量的运营数据，2025年度，在北京国际大数据交易所完成部分数据确权工作，并取得确权证明，为后续数据交易业务奠定基础。
+Wind数据显示，5月以来，全市场红利类主题ETF合计获得资金净流入60.11亿元，其中华泰柏瑞旗下“红利全家桶”同期“吸金”27.80亿元，占比高达46%，成为资金布局红利策略ETF的重要方向。
 
-目前，已确权数据量较小，数据交易尚未开展，该事项对公司主营业务开展无实质影响，对公司的营业收入、净利润均无重大影响。
+具体来看，人气产品——红利ETF华泰柏瑞（510880）和红利低波ETF华泰柏瑞（512890）月内分别累计资金净流入14.56亿元、10.09亿元，双双位居全市场红利类主题ETF前列；港股通红利ETF华泰柏瑞（513530）、央企红利ETF华泰柏瑞（561580）也分别获1.77亿元、1.38亿元资金净流入，在各自细分品种中“吸金”能力较突出。
 
-2025年度，公司参股正道量子，持股比例10%，正道量子主营业务是利用量子加密技术解决数据安全问题、量子加密通讯，公司本次参股属于财务性投资，目前未对公司净利润产生影响。
+随着2026年一季报披露落下帷幕，作为市场长线资金“风向标”之一的社保基金，其最新持仓动向浮出水面。
 
-除此之外，公司目前不涉及其他与量子科技相关的业务。
+从持仓结构来看，社保基金前三大重仓标的均为高股息品种，合计持股规模接近三千亿元。
 
-公司主营业务收入中供热收入占比超90%，蓄冷储能业务处于发展阶段，对公司收入及利润影响较小。
+这一配置取向，充分体现出长线资金对高股息品种的持续青睐，也从侧面印证了红利策略在震荡市环境中的长期配置价值，进一步强化了红利板块的投资逻辑。
 
-在供能场景方面，目前公司积极推动业务版图的多元化拓展，顺利将供能服务延伸至锂矿冶炼、酿酒、航天产业园、医院等领域，相关供能场景相较居民供热收入占比较小，请投资者注意风险。
+当前正值银行年度分红集中落地窗口期。
 
-三连板可川科技：可川光子相关产品后续市场接受度、市场份额存在重大不确定性 可川科技发布股票交易风险提示公告，全资子公司可川光子相关产品后续市场接受度、市场份额存在重大不确定性，存在业务拓展受阻、无法取得预期市场占有率的风险，未来能否取得订单具有重大不确定性；技术研发进度存在不达预期，面临市场竞争加剧及技术迭代的风险；后续可能面临宏观经济、行业政策变化等不可预测因素或不可抗力的影响，未来经营情况、经营业绩均存在重大不确定性。
+2026年5月12日至13日，多家龙头银行相继完成2025年末期分红派息，合计派现金额超过千亿元。
 
 ## 相关推荐
 
-- 2026-06-30 05:12 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 04:48 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 04:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 05:00 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 04:55 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 05:02 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 05:12 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 05:09 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 04:48 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 04:58 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 04:51 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-30 05:14 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 05:15 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 05:00 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 04:55 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 05:01 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 05:07 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 05:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 05:01 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 05:07 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 05:19 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 05:03 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 05:21 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 05:01 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:50 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/2243186.shtml)
-- 2026-06-30 05:01 - [日本淘汰](https://www.blog.minike.top/Article/details/2671581571.shtml)
-- 2026-06-30 04:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/90188945.shtml)
-- 2026-06-30 05:05 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/60765797.shtml)
-- 2026-06-30 05:17 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/39523.shtml)
-- 2026-06-30 05:17 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/4826525.shtml)
-- 2026-06-30 04:55 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/6377806048.shtml)
-- 2026-06-30 05:01 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/19370831760.shtml)
-- 2026-06-30 05:00 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/154570593563.shtml)
-- 2026-06-30 04:52 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/742486340997.shtml)
-- 2026-06-30 05:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/116884606599.shtml)
-- 2026-06-30 04:56 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/16720643053.shtml)
-- 2026-06-30 05:11 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/191847.shtml)
-- 2026-06-30 05:16 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/133699938.shtml)
-- 2026-06-30 05:08 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/03957421467.shtml)
+- 2026-06-30 04:57 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/794095.shtml)
+- 2026-06-30 04:58 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/2426882.shtml)
+- 2026-06-30 05:09 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/1494295.shtml)
+- 2026-06-30 05:10 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/425544.shtml)
+- 2026-06-30 04:55 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/820758431.shtml)
+- 2026-06-30 05:13 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/32970720977.shtml)
+- 2026-06-30 05:14 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/042084.shtml)
+- 2026-06-30 05:01 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/3729917866.shtml)
+- 2026-06-30 05:04 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/07439432519.shtml)
+- 2026-06-30 05:05 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/9528435029.shtml)
+- 2026-06-30 05:10 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/70157.shtml)
+- 2026-06-30 05:05 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/5688668.shtml)
+- 2026-06-30 05:05 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/259303674.shtml)
+- 2026-06-30 05:05 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/6571726.shtml)
+- 2026-06-30 05:10 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/632849248979.shtml)

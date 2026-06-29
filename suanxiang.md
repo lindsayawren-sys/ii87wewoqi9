@@ -1,61 +1,57 @@
-# 第五届“香港潮州节”将于6月5日在港开幕
+# 一体推进整治形式主义为基层减负（树立和践行正确政绩观）
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新网香港5月15日电 (记者 戴小橦)香港潮属社团总会(简称“潮总”)15日介绍，第五届“香港潮州节”将于6月5日至9日在香港举行。本届活动以“潮味荟萃”为主题，将汇聚地道潮汕美食，同时设有潮汕文化展、节目表演等环节，让市民及游客从味觉、视觉、听觉多维度沉浸式领略潮汕文化的独特魅力。潮总主席胡定旭致辞表示，举办“香港潮州节”不仅是为了弘扬与传承中华优秀传统文化，亦是契合香港由
+各地结合开展树立和践行正确政绩观学习教育—— 一体推进整治形式主义为基层减负(树立和践行正确政绩观) 形式主义实质是主观主义、功利主义，根源是政绩观错位、责任心缺失。当前，各地以深化“六个纠治”为抓手，结合开展树立和践行正确政绩观学习教育，一体推进整治形式主义为基层减负，教育引导各级党组织和党员干部踏踏实实干事创业，努力创造经得起实践、人民、历史检验的实绩。 深挖思想根源校准政
 
 ## 正文
 
-中新网香港5月15日电 (记者 戴小橦)香港潮属社团总会(简称“潮总”)15日介绍，第五届“香港潮州节”将于6月5日至9日在香港举行。
+各地结合开展树立和践行正确政绩观学习教育—— 一体推进整治形式主义为基层减负(树立和践行正确政绩观) 形式主义实质是主观主义、功利主义，根源是政绩观错位、责任心缺失。
 
-本届活动以“潮味荟萃”为主题，将汇聚地道潮汕美食，同时设有潮汕文化展、节目表演等环节，让市民及游客从味觉、视觉、听觉多维度沉浸式领略潮汕文化的独特魅力。
+当前，各地以深化“六个纠治”为抓手，结合开展树立和践行正确政绩观学习教育，一体推进整治形式主义为基层减负，教育引导各级党组织和党员干部踏踏实实干事创业，努力创造经得起实践、人民、历史检验的实绩。
 
-潮总主席胡定旭致辞表示，举办“香港潮州节”不仅是为了弘扬与传承中华优秀传统文化，亦是契合香港由治及兴发展大局，助力提振香港本地消费，繁荣盛事经济，发展文旅产业。
+深挖思想根源校准政绩坐标 学习教育开展以来，各地结合中央层面通报的整治形式主义为基层减负典型问题，教育引导党员干部深挖形式主义背后的政绩观偏差问题，不断拧紧思想“总开关”。
 
-潮总监事会主席陈振彬表示，自2015年举办首届“香港潮州节”以来，活动规模不断扩大、口碑深入民心，让潮州文化在香港这座国际大都市中展现璀璨生命力。
+“违规建设景观小品，根本上是重显绩轻潜绩、重面子轻里子、重造景轻造福、重蛮干轻规矩的错误政绩观表现。
 
-他表示，潮总致力于弘扬与传承中华优秀传统文化，通过在传统文化保育中融入时代创新元素，吸引年轻一代积极参与，增进青年对国家优秀传统文化的认知与认同，培养民族自豪感。
+”山西省清徐县委常委会专题通报本县典型案例，班子成员逐一对照检视、交流研讨，深刻汲取教训，切实把思想和行动统一到为民造福上。
 
-香港特区政府入境事务处处长郭俊峯表示，潮汕文化博大精深，潮州木雕、潮剧、潮州工夫茶等，以及各式地道美食，尽显“潮人”对生活品质的追求与对艺术的执着。
+在决策机制上，加强“三重一大”事项决策和监管；在资金管控上，科学评估财政承受能力，严控违规举债；在监管问效上，加大未批先建、未招先建整改整治力度……清徐县打出一系列“组合拳”。
 
-本届活动通过展示汕头、潮州、揭阳、汕尾等地文化精髓，融传统底蕴与现代创意于一体，让广大市民一站式领略“潮文化”古今风貌。
+急功近利、盲目决策，归根到底是“政绩冲动”在作祟。
 
-潮总副主席兼筹委会主席杨玳诗介绍，本届活动演艺内容丰富且极具吸引力，每日均有不同主题，包括青年日、家庭日、潮剧日等主题场次，汇聚英歌舞、潮剧、铁枝木偶等非遗节目展演。
+在推进中央通报问题整改工作过程中，广西壮族自治区桂林市恭城瑶族自治县组织县级领导干部和关键岗位干部逐人对照检视，深刻反思政绩观偏差根源，细化整改措施。
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 04:48 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 05:17 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 05:13 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 05:14 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 04:50 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 04:58 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 04:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 05:12 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 05:00 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 04:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 04:53 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 04:50 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 05:03 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-30 05:08 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 05:22 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 05:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 05:09 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 04:56 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 05:22 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 05:21 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 05:09 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 04:57 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 04:55 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-30 04:57 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 04:58 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/3336066849.shtml)
-- 2026-06-30 04:53 - [世界杯](https://www.share.kurohicncr.top/Article/details/958046086.shtml)
-- 2026-06-30 05:12 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/0487061.shtml)
-- 2026-06-30 05:09 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/431884147351.shtml)
-- 2026-06-30 05:04 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/8589405404.shtml)
-- 2026-06-30 05:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/435515.shtml)
-- 2026-06-30 04:55 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/098485587681.shtml)
-- 2026-06-30 05:17 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/2484810.shtml)
-- 2026-06-30 05:17 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/14413.shtml)
-- 2026-06-30 04:49 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/52085537.shtml)
-- 2026-06-30 04:54 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/208692253559.shtml)
-- 2026-06-30 04:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/721043157124.shtml)
-- 2026-06-30 04:52 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/790782.shtml)
-- 2026-06-30 04:53 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/233083559359.shtml)
-- 2026-06-30 04:48 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/243669386535.shtml)
+- 2026-06-30 04:57 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/522463144144.shtml)
+- 2026-06-30 05:04 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/43836695.shtml)
+- 2026-06-30 05:02 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/544268046986.shtml)
+- 2026-06-30 05:17 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/39618924.shtml)
+- 2026-06-30 05:00 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/4670783.shtml)
+- 2026-06-30 05:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/63097.shtml)
+- 2026-06-30 05:00 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/5873563.shtml)
+- 2026-06-30 04:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/221131121.shtml)
+- 2026-06-30 05:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/2382913257.shtml)
+- 2026-06-30 05:10 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/1730005369.shtml)
+- 2026-06-30 05:07 - [恋与深空制作组回应近期争议](https://www.blog.kurohicncr.top/Article/details/465060630011.shtml)
+- 2026-06-30 04:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/00808164.shtml)
+- 2026-06-30 05:13 - [这一刀 会很帅](https://www.share.minike.top/Article/details/045808494.shtml)
+- 2026-06-30 05:10 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/158816667713.shtml)
+- 2026-06-30 05:10 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/500558208568.shtml)

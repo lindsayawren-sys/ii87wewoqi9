@@ -1,56 +1,58 @@
-# 思科CEO：科技行业正进入“网络超级周期”
+# 美国承诺向联合国提供新的人道主义援助，并称援助须符合特朗普政府的利益
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-人工智能需求强劲，股价暴涨 14% 核心要点 思科 CEO 查克・罗宾斯向美国消费者新闻与商业频道（CNBC）表示，人工智能需求激增，正推动行业迈入 “网络超级周期”。 这家网络设备企业全年订单大幅超出预期，同时宣布裁员计划，股价应声大涨。 此前思科在 AI 赛道落后于各大超大规模云厂商；但随着 AI 行情向全产业链扩散，其股价已突破互联网泡沫时期历史高点，充分受益于 AI 热
+美国国务院首席援助官员周四表示，美国将通过联合国提供18亿美元新增人道主义援助，这笔资金的使用将与特朗普政府的外交政策利益保持一致。 此次新增资金承诺，是美国去年12月宣布的20亿美元援助计划之外的追加款项。此前美国推出了一项新机制，旨在提高援助资金的拨付与执行效率，并强化问责——当前美国及其他发达国家正普遍削减援助开支。 杰里米・卢因曾任埃隆・马斯克领导的政府效率部职员，现担
 
 ## 正文
 
-人工智能需求强劲，股价暴涨 14% 核心要点 思科 CEO 查克・罗宾斯向美国消费者新闻与商业频道（CNBC）表示，人工智能需求激增，正推动行业迈入 “网络超级周期”。
+美国国务院首席援助官员周四表示，美国将通过联合国提供18亿美元新增人道主义援助，这笔资金的使用将与特朗普政府的外交政策利益保持一致。
 
-这家网络设备企业全年订单大幅超出预期，同时宣布裁员计划，股价应声大涨。
+此次新增资金承诺，是美国去年12月宣布的20亿美元援助计划之外的追加款项。
 
-此前思科在 AI 赛道落后于各大超大规模云厂商；但随着 AI 行情向全产业链扩散，其股价已突破互联网泡沫时期历史高点，充分受益于 AI 热潮。
+此前美国推出了一项新机制，旨在提高援助资金的拨付与执行效率，并强化问责——当前美国及其他发达国家正普遍削减援助开支。
 
-思科 CEO 查克・罗宾斯周四接受 CNBC 采访时表示，人工智能软硬件需求飙升，正在带动整个科技行业进入 “网络超级周期”。
+杰里米・卢因曾任埃隆・马斯克领导的政府效率部职员，现担任负责对外援助、人道主义事务及宗教自由的副国务卿。
 
-公司本财年 AI 基础设施及超大规模云客户订单大幅超出指引，并将相关业务营收预期从 50 亿美元上调至 90 亿美元，股价大涨 14%，创二十多年来最佳单日表现。
+他表示，通过该机制拨付的美国援助中，92%已“高度优先”用于救生援助，且这一比例将持续保持。
 
-这家总部位于加州的网络设备制造商同时宣布，将裁员约5%，把资源重新聚焦于AI 业务、自研芯片与光通信等高增长板块。
+他谈及美国总统唐纳德・特朗普时称：“高度优先、聚焦重点，只投向符合我们外交政策利益、契合总统关切的地区。
 
-罗宾斯表示：“市场变化速度极快，我们必须快速完成资源重新配置。
+” 卢因指出，这意味着作为联合国人道主义事务协调厅（OCHA）最大单一捐助国，美国的资金将不会流向那些与美国利益不符、且不符合OCHA优先事项的国家。
 
-顺带一提，不少受岗位调整影响的员工，反而能去到相关热门领域就职。
+他补充称，通过OCHA提供的资金，并非美国海外人道主义援助的全部。
 
 ## 相关推荐
 
-- 2026-06-30 04:48 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 05:08 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-30 05:16 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 05:11 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 05:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 05:17 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-30 05:09 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-30 05:01 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 05:05 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 05:08 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 05:11 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 05:17 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 04:55 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 05:13 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 05:08 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 04:55 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 04:54 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 05:12 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 05:07 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 05:23 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 05:18 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 05:07 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:56 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/57391970166.shtml)
-- 2026-06-30 05:15 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/551627543476.shtml)
-- 2026-06-30 05:04 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/9669897.shtml)
-- 2026-06-30 05:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/659597396273.shtml)
-- 2026-06-30 05:14 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/96262.shtml)
-- 2026-06-30 04:54 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/118402377.shtml)
-- 2026-06-30 05:03 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/784389904.shtml)
-- 2026-06-30 05:05 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/08356066050.shtml)
-- 2026-06-30 04:58 - [TOP Prada](http://www.blog.minike.top/Article/details/82625097081.shtml)
-- 2026-06-30 05:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/087808960270.shtml)
-- 2026-06-30 05:15 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/338096.shtml)
-- 2026-06-30 05:09 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/2966725.shtml)
-- 2026-06-30 04:51 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/4996619977.shtml)
-- 2026-06-30 04:58 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/454903461201.shtml)
-- 2026-06-30 05:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/950238867.shtml)
+- 2026-06-30 04:56 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/41810080764.shtml)
+- 2026-06-30 05:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/07575477059.shtml)
+- 2026-06-30 05:07 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/42113598483.shtml)
+- 2026-06-30 05:21 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/949536731.shtml)
+- 2026-06-30 05:02 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/86044215971.shtml)
+- 2026-06-30 05:20 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/34501.shtml)
+- 2026-06-30 05:18 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/54336356.shtml)
+- 2026-06-30 05:11 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/458782536031.shtml)
+- 2026-06-30 05:23 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/367859.shtml)
+- 2026-06-30 05:09 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/3052539182.shtml)
+- 2026-06-30 05:05 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/88708727747.shtml)
+- 2026-06-30 05:12 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/262968.shtml)
+- 2026-06-30 05:06 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/143704483877.shtml)
+- 2026-06-30 05:19 - [内马尔替补](http://www.share.minike.top/Article/details/77249.shtml)
+- 2026-06-30 05:13 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/6650118735.shtml)

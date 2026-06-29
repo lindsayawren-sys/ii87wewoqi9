@@ -1,58 +1,61 @@
-# 部分城市政策利好助推楼市升温
+# 美国4月进出口价格指数显示通胀压力持续升温
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-好房子满足居民购房需求 部分城市政策利好助推楼市升温 人民日报 本报记者 李心萍 田 泓 程远州 秦瑞杰国家统计局数据显示：3月，一线城市新建商品住宅和二手住宅销售价格环比均实现反弹，70个大中城市中，新房和二手房价格环比上涨城市个数均比2月增加，市场回暖范围扩大。记者日前走访上海、广东深圳、宁夏银川楼市一线，感受真实的市场温度。 上海：量升价稳步入复苏通道 上海楼市“小阳春”
+美国劳工统计局周四公布的数据显示，4月进出口价格涨幅双双远超市场预期，创下多年新高，进一步表明中东冲突引发的能源成本上涨正在持续向美国经济输入通胀压力。 进口价格飙升，能源成主因 4月进口价格环比上涨1.9%，远高于市场预期的1.0%，也较3月上修后的0.9%涨幅扩大整整1个百分点。从同比看，进口价格上涨4.2%，为2022年10月以来最大涨幅。 能源价格是此次上涨的主要推手：
 
 ## 正文
 
-好房子满足居民购房需求 部分城市政策利好助推楼市升温 人民日报 本报记者 李心萍 田 泓 程远州 秦瑞杰国家统计局数据显示：3月，一线城市新建商品住宅和二手住宅销售价格环比均实现反弹，70个大中城市中，新房和二手房价格环比上涨城市个数均比2月增加，市场回暖范围扩大。
+美国劳工统计局周四公布的数据显示，4月进出口价格涨幅双双远超市场预期，创下多年新高，进一步表明中东冲突引发的能源成本上涨正在持续向美国经济输入通胀压力。
 
-记者日前走访上海、广东深圳、宁夏银川楼市一线，感受真实的市场温度。
+进口价格飙升，能源成主因 4月进口价格环比上涨1.9%，远高于市场预期的1.0%，也较3月上修后的0.9%涨幅扩大整整1个百分点。
 
-上海：量升价稳步入复苏通道 上海楼市“小阳春”热度不减。
+从同比看，进口价格上涨4.2%，为2022年10月以来最大涨幅。
 
-今年3月，二手房市场以31215套的成交量创下近5年新高，价格结束长达33个月的下跌态势。
+能源价格是此次上涨的主要推手：燃料价格暴涨16.3%，创下四年多来最大涨幅；石油及石油产品价格飙升19%。
 
-4月成交量更是创下10年同期新高，达到28742套，同比上涨约22.3%。
+剔除燃料后，核心进口价格环比上涨0.7%，表明能源之外的更广泛价格压力同样存在。
 
-“这两个月，门店各项工作进度超额完成。
+分品类看，资本品价格上涨1.1%，非燃料供应品以及食品和饮料价格也有所上涨，消费品价格涨幅相对温和，汽车价格则小幅下跌。
 
-”链家徐汇乐山总店资深经纪人王涛说。
+出口价格创逾四年最大涨幅 出口方面涨幅更为惊人。
 
-今年2月上海发布优化楼市新“沪七条”以来，门店线上咨询量和线下带看量明显增多，单个经纪人平均每月接待的客户线上问询从之前的30至50人次左右，上升到100多人次。
+4月出口价格环比飙升3.3%，远高于市场预期的1.2%，创下2022年3月以来最大月度涨幅。
 
 ## 相关推荐
 
-- 2026-06-30 05:11 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 04:52 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 05:15 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 05:06 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 05:18 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 04:52 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 05:03 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 04:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 05:09 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 05:01 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 04:52 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 05:09 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 05:23 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 05:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 05:06 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 05:09 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 05:02 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 05:03 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 05:09 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 05:17 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 05:06 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 05:07 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 04:55 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 05:10 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 05:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 05:00 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 05:00 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:07 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/3045138.shtml)
-- 2026-06-30 05:01 - [逃狱兄弟](http://www.share.minike.top/Article/details/90467.shtml)
-- 2026-06-30 05:01 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/686856054.shtml)
-- 2026-06-30 05:03 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/03501631769.shtml)
-- 2026-06-30 05:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/51721186707.shtml)
-- 2026-06-30 05:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/646230547469.shtml)
-- 2026-06-30 05:07 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/857280981515.shtml)
-- 2026-06-30 04:58 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/87482358.shtml)
-- 2026-06-30 05:01 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/4849331950.shtml)
-- 2026-06-30 04:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/8289104.shtml)
-- 2026-06-30 05:17 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/4216509.shtml)
-- 2026-06-30 05:00 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/5173661.shtml)
-- 2026-06-30 05:17 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/166765011.shtml)
-- 2026-06-30 05:09 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/931897.shtml)
-- 2026-06-30 05:07 - [青春环游记第三季](https://www.share.minike.top/Article/details/66837932460.shtml)
+- 2026-06-30 05:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/20536357.shtml)
+- 2026-06-30 04:56 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/41254.shtml)
+- 2026-06-30 05:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/3467550033.shtml)
+- 2026-06-30 05:12 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/8165729.shtml)
+- 2026-06-30 04:55 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/7730344.shtml)
+- 2026-06-30 05:19 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/31865707.shtml)
+- 2026-06-30 05:17 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/187806017.shtml)
+- 2026-06-30 05:22 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/537006340.shtml)
+- 2026-06-30 05:17 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/32686.shtml)
+- 2026-06-30 05:08 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/557311007.shtml)
+- 2026-06-30 05:14 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/86638559632.shtml)
+- 2026-06-30 04:58 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/83771.shtml)
+- 2026-06-30 05:18 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/760553061511.shtml)
+- 2026-06-30 05:10 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/426029561.shtml)
+- 2026-06-30 04:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/37573944.shtml)

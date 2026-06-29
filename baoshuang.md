@@ -1,60 +1,57 @@
-# 博柏利转型步入正轨 美洲与中国市场拉动业绩强劲增长
+# 国际大行上调白银价格预期 但警告供需缺口收窄或限制未来涨势
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 核心要点 博柏利发布季度业绩，受益于核心美洲及中国市场强劲增长，品牌表示本财年迎来实质性转折拐点。 这家英国奢侈风衣及外套品牌公布，全年同店销售额增长 2%；在截至 3 月的季度里，美洲市场与中国市场同店销售均实现 10% 的增幅。 业绩出炉后，花旗分析师表示：各项指标全部达标，公司转型执行进度完全符合预期。 公司全年营收基本符合市场预期，
+财联社5月15日讯（编辑 刘蕊）本周四，汇丰银行上调了其白银价格预测，预计白银价格在2026年的平均价格为每盎司75美元，2027年为每盎司68美元，而此前的预测分别为每盎司68.25美元和57美元。 银价缺乏持续上涨可能性 今年1月下旬，白银价格一度创下每盎司121美元的名义新高，这是由创纪录的黄金价格、白银供应紧张状况以及受关税担忧和地缘政治紧张局势影响的避险买盘所推动的。
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 核心要点 博柏利发布季度业绩，受益于核心美洲及中国市场强劲增长，品牌表示本财年迎来实质性转折拐点。
+财联社5月15日讯（编辑 刘蕊）本周四，汇丰银行上调了其白银价格预测，预计白银价格在2026年的平均价格为每盎司75美元，2027年为每盎司68美元，而此前的预测分别为每盎司68.25美元和57美元。
 
-这家英国奢侈风衣及外套品牌公布，全年同店销售额增长 2%；在截至 3 月的季度里，美洲市场与中国市场同店销售均实现 10% 的增幅。
+银价缺乏持续上涨可能性 今年1月下旬，白银价格一度创下每盎司121美元的名义新高，这是由创纪录的黄金价格、白银供应紧张状况以及受关税担忧和地缘政治紧张局势影响的避险买盘所推动的。
 
-业绩出炉后，花旗分析师表示：各项指标全部达标，公司转型执行进度完全符合预期。
+但随后，在2月，由于中东冲突导致美元大幅升值以及黄金价格回落，白银价格大幅下跌至每盎司约64美元，之后又再次回升至当前的每盎司86美元以上。
 
-公司全年营收基本符合市场预期，达24 亿英镑（原文美元数值应为笔误：32.5 亿美元）；按固定汇率计算营收持平。
+在上调目标价格的同时，汇丰银行仍保持谨慎的中期展望，警告称白银供应缺口的缩小以及工业和珠宝需求的减弱，限制了白银价格持续上涨的可能性。
 
-博柏利首席执行官约书亚・舒尔曼在声明中表示： “我们已重回同店销售盈利增长轨道，大中华区与美洲市场势头强劲，推动第四季度业绩亮眼。
+该银行预计，全球白银市场缺口将在从去年的1.43亿盎司缩小至今年的7300万盎司，到2027年将进一步缩小至2500万盎司，因为矿山和回收渠道的供应将增加。
 
-公司战略已初见成效，未来仍有明确的进一步增长空间。
+汇丰银行首席贵金属分析师詹姆斯·斯蒂尔（James Steel）表示：“我们认为，温和的供需缺口并不足以使白银价格在较长时期内大幅上涨。
 
-” 博柏利伦敦早盘股价下跌 5%。
+” 他预计，到2026年下半年和2027年下半年，银价可能将有所回落。
 
-分析师表示，年末业绩稳健符合预期，公司转型改革已初见成效；同时奢侈户外品牌盟可睐也在 4 月交出强劲季度财报。
+供需缺口正在缩小 工业需求占白银总消费量的逾一半，2025年这一需求已经降至6.57亿盎司，而前一年为创纪录的6.79亿盎司。
 
 ## 相关推荐
 
-- 2026-06-30 05:04 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 05:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-30 05:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 05:15 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 05:08 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 05:03 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 04:55 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 04:54 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 04:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 05:05 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-30 04:53 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 04:51 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 05:04 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 04:57 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 05:14 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 05:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-30 05:23 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 04:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 05:18 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 05:20 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 05:01 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 05:13 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 04:57 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 05:20 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 04:55 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:14 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/124576147823.shtml)
-- 2026-06-30 05:02 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/09626.shtml)
-- 2026-06-30 05:01 - [沙丘](http://www.share.minike.top/Article/details/410775841012.shtml)
-- 2026-06-30 04:52 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/9656266420.shtml)
-- 2026-06-30 04:58 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/452317773.shtml)
-- 2026-06-30 04:50 - [扬名立万](https://www.share.kurohicncr.top/Article/details/231714518.shtml)
-- 2026-06-30 04:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/67922051.shtml)
-- 2026-06-30 05:14 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/74025222153.shtml)
-- 2026-06-30 05:11 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/6242897.shtml)
-- 2026-06-30 04:50 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/896508074423.shtml)
-- 2026-06-30 04:57 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/712276.shtml)
-- 2026-06-30 05:16 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/25518.shtml)
-- 2026-06-30 05:16 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/41211411.shtml)
-- 2026-06-30 05:06 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/90499.shtml)
-- 2026-06-30 05:09 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/325579657.shtml)
+- 2026-06-30 05:19 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/3143718928.shtml)
+- 2026-06-30 05:00 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/228416500743.shtml)
+- 2026-06-30 05:04 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/7054307.shtml)
+- 2026-06-30 05:23 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/9371937216.shtml)
+- 2026-06-30 05:01 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/249496949865.shtml)
+- 2026-06-30 05:08 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/01614046.shtml)
+- 2026-06-30 04:59 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/14600036.shtml)
+- 2026-06-30 05:10 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/7444510143.shtml)
+- 2026-06-30 05:21 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/73826745237.shtml)
+- 2026-06-30 04:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/46248191684.shtml)
+- 2026-06-30 05:18 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/598833.shtml)
+- 2026-06-30 05:22 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/802723873.shtml)
+- 2026-06-30 05:18 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/35787553.shtml)
+- 2026-06-30 04:55 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/57685.shtml)
+- 2026-06-30 05:22 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/858608.shtml)

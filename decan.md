@@ -1,55 +1,56 @@
-# 礼来口服GLP-1药物助力体重维持
+# 广东首次开展消防航空铁路联合投送演练
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-根据发表在《自然·医学》上的后期临床试验数据，礼来公司的口服药物orforglipron以及低剂量Zepbound帮助患者从高剂量注射剂转换后，成功维持了此前减重成果的大部分。这一发现为希望停止注射治疗的肥胖或超重人群提供了新的选择。口服给药的便利性有望提高患者的长期依从性，从而改善体重管理的整体效果。业内人士认为，若该口服方案获得监管批准，将极大拓展礼来在减肥药市场的竞争优势
+中新网广州5月14日电 (记者 王坚)时值全国防灾减灾周，广东省消防救援总队13日组织开展跨区域战力投送实战演练。本次演练首次联合中国南方航空、广州白云国际机场、国铁广州局开展消防救援力量航空、铁路投送作业，标志着广东消防立足全国范围救援任务，进一步完善“空运+铁路”立体化应急机动投送保障模式。 据介绍，本次演练坚持实战导向，全程模拟极端灾害事故下跨区域增援任务，摒弃传统单一公
 
 ## 正文
 
-根据发表在《自然·医学》上的后期临床试验数据，礼来公司的口服药物orforglipron以及低剂量Zepbound帮助患者从高剂量注射剂转换后，成功维持了此前减重成果的大部分。
+中新网广州5月14日电 (记者 王坚)时值全国防灾减灾周，广东省消防救援总队13日组织开展跨区域战力投送实战演练。
 
-这一发现为希望停止注射治疗的肥胖或超重人群提供了新的选择。
+本次演练首次联合中国南方航空、广州白云国际机场、国铁广州局开展消防救援力量航空、铁路投送作业，标志着广东消防立足全国范围救援任务，进一步完善“空运+铁路”立体化应急机动投送保障模式。
 
-口服给药的便利性有望提高患者的长期依从性，从而改善体重管理的整体效果。
+据介绍，本次演练坚持实战导向，全程模拟极端灾害事故下跨区域增援任务，摒弃传统单一公路输送方式，科学区分运力类型，精准匹配投送方式。
 
-业内人士认为，若该口服方案获得监管批准，将极大拓展礼来在减肥药市场的竞争优势。
+其中，航空转运通过广州白云国际机场和中国南方航空开通的应急绿色通道实施航空转运，完成人员快速集结、特种设备安检、一体化装机投送全流程作业，投送地震重型救援队100名救援人员、5000余种救援器材，磨合快速集结、高效空运全流程；铁路投送通过与国铁广州局联动，采用“普货列车加挂客车”模式实现人员、随身器材同步快速输送，最大限度压缩陆路通行时长，投送地震轻型救援队50名救援人员、13台救援车辆，1000余种救援器材，专攻长途机动、安全转运实战科目。
 
-责任编辑：张俊 SF065
+据了解，此次空铁联合演练重点检验极端天气、道路中断等恶劣条件下消防远程跨域增援实战能力，打通了制约消防力量远距离投送的空域、铁路通道壁垒，补齐了重特大灾害事故远距离快速输送短板。
+
+通过消企深度联动，明确了双方协同流程、装备装运标准、应急联动机制，进一步规范了航空、铁路运输消防救援人员和特种装备的作业流程。
+
+广东省消防救援总队相关负责人表示，下一步，广东消防将持续固化本次演练成果，深化与民航、铁路部门常态化联勤协作，完善多方式、立体化、全覆盖的应急投送保障体系，不断提升全省消防救援队伍全域机动、快速驰援、跨区作战实战能力，为跨区域抢险救援工作打下坚实的战勤保障基础。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:09 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 05:14 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 05:11 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 04:52 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 05:13 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 05:17 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-30 04:53 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 05:06 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 05:16 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 05:13 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 04:55 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 05:08 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 04:58 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 04:50 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 04:51 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 05:13 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 05:09 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 04:59 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 05:06 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 04:56 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 05:20 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 04:55 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 04:56 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-30 05:15 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 05:13 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:53 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/73222673751.shtml)
-- 2026-06-30 05:12 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/44236633.shtml)
-- 2026-06-30 05:11 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/774950395.shtml)
-- 2026-06-30 05:17 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/4360078.shtml)
-- 2026-06-30 05:13 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/27537857.shtml)
-- 2026-06-30 05:08 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/83029.shtml)
-- 2026-06-30 05:12 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/94936241.shtml)
-- 2026-06-30 05:15 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/495267.shtml)
-- 2026-06-30 05:10 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/86782094272.shtml)
-- 2026-06-30 05:00 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/43206613.shtml)
-- 2026-06-30 04:58 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/8188124.shtml)
-- 2026-06-30 05:00 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/29875.shtml)
-- 2026-06-30 05:04 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/496280855296.shtml)
-- 2026-06-30 05:16 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/670313991.shtml)
-- 2026-06-30 04:48 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/695266624566.shtml)
+- 2026-06-30 04:57 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/889823045.shtml)
+- 2026-06-30 05:10 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/1294942.shtml)
+- 2026-06-30 05:11 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/70661.shtml)
+- 2026-06-30 04:54 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/679669195270.shtml)
+- 2026-06-30 05:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/539265063701.shtml)
+- 2026-06-30 04:57 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/3637777186.shtml)
+- 2026-06-30 05:13 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/812627257.shtml)
+- 2026-06-30 05:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/04516883.shtml)
+- 2026-06-30 05:02 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/772665101.shtml)
+- 2026-06-30 05:03 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/1094924596.shtml)
+- 2026-06-30 04:56 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/3331984.shtml)
+- 2026-06-30 05:03 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/850591141.shtml)
+- 2026-06-30 04:55 - [房价什么时候能涨](http://www.share.minike.top/Article/details/176409963.shtml)
+- 2026-06-30 05:08 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/99492565.shtml)
+- 2026-06-30 05:23 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/3734786325.shtml)

@@ -1,58 +1,52 @@
-# 南宁综合保税区（二期）聚力打造对外开放高能级平台
+# 竣球控股：建议采纳2026年股份奖励计划
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-近日，记者在南宁综合保税区(二期)主卡口货运通道看到，跨境货运车辆有序驶入卡口，现场通关秩序规范高效，货物周转流转井然有序。自正式封关运营以来，园区运行平稳顺畅、通关效能持续提升。 作为南宁市对外开放的高层次平台，南宁综合保税区重点发展保税加工、保税物流和跨境电商等业态。一期规划面积0.897平方公里，已于2017年通过验收并封关运营；二期位于南宁国际铁路港，规划面积1.254
+竣球控股（01481）发布公告，公司建议采纳2026年股份奖励计划，向特定参与者授予股份奖励，作为留任鼓励或对其对集团贡献的回报，以吸引合适人才促进集团的发展，并使承授人的利益与股东的利益保持一致，从而促进集团的中长期发展。 据建议，2026股份奖励计划的计划授权限额为公司于2026股份奖励计划获股东批准及采纳当日已发行股本总额的10%，其中服务供应商分项限额为0.5%。202
 
 ## 正文
 
-近日，记者在南宁综合保税区(二期)主卡口货运通道看到，跨境货运车辆有序驶入卡口，现场通关秩序规范高效，货物周转流转井然有序。
+竣球控股（01481）发布公告，公司建议采纳2026年股份奖励计划，向特定参与者授予股份奖励，作为留任鼓励或对其对集团贡献的回报，以吸引合适人才促进集团的发展，并使承授人的利益与股东的利益保持一致，从而促进集团的中长期发展。
 
-自正式封关运营以来，园区运行平稳顺畅、通关效能持续提升。
+据建议，2026股份奖励计划的计划授权限额为公司于2026股份奖励计划获股东批准及采纳当日已发行股本总额的10%，其中服务供应商分项限额为0.5%。
 
-作为南宁市对外开放的高层次平台，南宁综合保税区重点发展保税加工、保税物流和跨境电商等业态。
+2026年股份奖励计划须在以下条件获达成后方告生效：（a）股东通过普通决议案，批准采纳2026年股份奖励计划及服务供应商分项限额；及（b）上市委员会批准公司根据2026年股份奖励计划所授奖励的归属而可予发行及配发的任何新股份上市及买卖。
 
-一期规划面积0.897平方公里，已于2017年通过验收并封关运营；二期位于南宁国际铁路港，规划面积1.254平方公里，距离南宁吴圩国际机场20公里、南宁牛湾港货运码头36公里，东侧毗邻南宁国际公路港，具备优越的多式联运条件。
-
-数据显示，今年一季度南宁综合保税区(一、二期)外贸进出口额29.37亿元 ，同比增长24.5%，其中保税物流进出口额完成超11亿元，同比增长超3倍。
-
-南宁综合保税区(二期)自2025年12月正式开展保税物流业务以来，以铁路运输出口方式发挥区港联动效应，持续释放红利，截至目前区港联动业务累计完成进出口额约1亿元。
-
-目前，南宁综合保税区(二期)不断完善查验监管体系，加快推进园区重点功能性查验配套设施建设。
-
-其中，3800平方米查验冷库建设正有序推进，建成后可常态化保障进口肉类、水产及热带果蔬冷链仓储需求；2200平方米跨境电商监管中心同步建设，主要承担跨境电商进出口商品查验工作；2600平方米危险品专用查验仓库加快建设，投用后可满足锂电池、化工原料等具有一般危险特性类货物查验需求。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 05:05 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 04:59 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 05:00 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 05:10 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 05:02 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 04:49 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 05:00 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-30 05:06 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 04:51 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 05:02 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 04:50 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 05:03 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-30 04:57 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 05:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 05:19 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 05:12 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 05:18 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 04:57 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 05:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 05:00 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 05:21 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 05:04 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-30 05:16 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 05:19 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 05:19 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:51 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/39109.shtml)
-- 2026-06-30 04:49 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/31637.shtml)
-- 2026-06-30 05:04 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/11111923.shtml)
-- 2026-06-30 04:58 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/03135898727.shtml)
-- 2026-06-30 04:53 - [刘念回应](http://www.share.minike.top/Article/details/684193589217.shtml)
-- 2026-06-30 04:53 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/69346.shtml)
-- 2026-06-30 04:51 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/8365978.shtml)
-- 2026-06-30 04:48 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/9702028858.shtml)
-- 2026-06-30 04:56 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/96937916.shtml)
-- 2026-06-30 05:12 - [一生一世](http://www.blog.minike.top/Article/details/12774510.shtml)
-- 2026-06-30 04:53 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/57713.shtml)
-- 2026-06-30 05:17 - [85花告别古偶](http://www.share.minike.top/Article/details/7310267.shtml)
-- 2026-06-30 05:16 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/97281.shtml)
-- 2026-06-30 04:53 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/022990766.shtml)
-- 2026-06-30 05:14 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/5624895962.shtml)
+- 2026-06-30 05:18 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/534859555254.shtml)
+- 2026-06-30 04:59 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/48288.shtml)
+- 2026-06-30 04:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/377021674896.shtml)
+- 2026-06-30 05:15 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/15583442446.shtml)
+- 2026-06-30 05:11 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/1307642867.shtml)
+- 2026-06-30 04:54 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/396125776696.shtml)
+- 2026-06-30 04:55 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/267890222126.shtml)
+- 2026-06-30 05:07 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/22020538774.shtml)
+- 2026-06-30 05:02 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/733109.shtml)
+- 2026-06-30 05:14 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/547911938.shtml)
+- 2026-06-30 05:21 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/6496313.shtml)
+- 2026-06-30 05:06 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/824303563.shtml)
+- 2026-06-30 05:15 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/251095908640.shtml)
+- 2026-06-30 05:02 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/8844767246.shtml)
+- 2026-06-30 05:11 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/8912863.shtml)

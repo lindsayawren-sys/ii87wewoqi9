@@ -1,57 +1,53 @@
-# “港股半导体”急跌！规模最大港股通信息技术ETF华宝（159131）大跌4%溢价明显，华虹半导体跌超9%
+# 云南牟定电商直播大赛启幕 特色好物“云端”出圈
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-5月15日午后，AH科技板块集体回调，港股硬科技持续下挫，华虹半导体大跌逾9%，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格大跌4%，盘中溢价明显，实时成交额超10亿元。 东吴证券认为，SK海力士业绩超市场预期，背后核心驱动因素为AI算力需求爆发、带来HBM+DRAM价格暴涨（ASP环比+60%）、SK海力士占据主导地位、26Q1HBM市占率近6
+发布时间：2026年05月15日 11:17 来源：中国新闻网 5月14日，2026牟定三月会第五届电商直播大赛，在云南省楚雄彝族自治州牟定县茅州古镇举行。活动现场，向直播间全球网友介绍非遗腐乳、高原蜂蜜、生态茶油等一众“牟定好物”。 本次大赛共吸引7个乡镇，35支电商直播团队齐聚，采用“以舞带货、以节促销”的特色模式，让文化流量赋能本地特色产品销售。(陆星羽） 责任编辑：【李
 
 ## 正文
 
-5月15日午后，AH科技板块集体回调，港股硬科技持续下挫，华虹半导体大跌逾9%，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格大跌4%，盘中溢价明显，实时成交额超10亿元。
+发布时间：2026年05月15日 11:17 来源：中国新闻网 5月14日，2026牟定三月会第五届电商直播大赛，在云南省楚雄彝族自治州牟定县茅州古镇举行。
 
-东吴证券认为，SK海力士业绩超市场预期，背后核心驱动因素为AI算力需求爆发、带来HBM+DRAM价格暴涨（ASP环比+60%）、SK海力士占据主导地位、26Q1HBM市占率近60%、绑定英伟达HBM3/3E/4。
+活动现场，向直播间全球网友介绍非遗腐乳、高原蜂蜜、生态茶油等一众“牟定好物”。
 
-建议关注（1）测试设备：关注AI芯片带来的国产存储、SoC测试机突破；（2）封装设备：国产AI芯片采用CoWoS和HBM先进封装，中国在封测环节具备较强全球竞争力，国内先进封装有望进入起量元年，关注国产封装设备新机遇。
+本次大赛共吸引7个乡镇，35支电商直播团队齐聚，采用“以舞带货、以节促销”的特色模式，让文化流量赋能本地特色产品销售。
 
-自3月31日触底反弹以来，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数累计涨幅28.04%，同期恒生科技、港股通科技的涨幅分别为8.23%、6.43%，锐度和弹性显著领先。
-
-统计区间：2026.3.31-2026.5.14。
-
-港股通信息C指数2021-2025年年度历史收益分别为：-9.54%、-34.47%、-0.25%、21.58%、39.30%。
-
-指数过往业绩不预示未来表现。
-
-支持T+0交易！
+(陆星羽） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 05:10 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 05:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 05:08 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 04:52 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 04:48 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 05:09 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 04:54 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 04:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 04:52 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 05:13 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 04:53 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-30 04:59 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-30 04:54 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 05:20 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 04:56 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 05:02 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 05:01 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 05:09 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 05:23 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 05:16 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 05:20 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 05:20 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 04:54 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 05:22 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 05:04 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 05:10 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:03 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/81261.shtml)
-- 2026-06-30 05:05 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/274803.shtml)
-- 2026-06-30 05:08 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/305148064183.shtml)
-- 2026-06-30 04:58 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/7793601.shtml)
-- 2026-06-30 05:15 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/8968359681.shtml)
-- 2026-06-30 05:04 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/94815230396.shtml)
-- 2026-06-30 04:49 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/54899495217.shtml)
-- 2026-06-30 05:05 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/972768.shtml)
-- 2026-06-30 04:59 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/702652229668.shtml)
-- 2026-06-30 04:55 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/952508532.shtml)
-- 2026-06-30 05:13 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/38934915.shtml)
-- 2026-06-30 05:14 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/850504.shtml)
-- 2026-06-30 04:48 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/17465065.shtml)
-- 2026-06-30 04:57 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/74283.shtml)
-- 2026-06-30 05:12 - [女心理师](https://www.share.kurohicncr.top/Article/details/7626089428.shtml)
+- 2026-06-30 05:07 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/31410427.shtml)
+- 2026-06-30 05:12 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/47937719243.shtml)
+- 2026-06-30 04:55 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/731845.shtml)
+- 2026-06-30 05:04 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/762635564.shtml)
+- 2026-06-30 05:13 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/244410.shtml)
+- 2026-06-30 05:02 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/12252263943.shtml)
+- 2026-06-30 04:57 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/35755193.shtml)
+- 2026-06-30 05:00 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/867216792.shtml)
+- 2026-06-30 05:00 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/865980.shtml)
+- 2026-06-30 04:56 - [世界杯](http://www.share.minike.top/Article/details/839525.shtml)
+- 2026-06-30 05:08 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/50563.shtml)
+- 2026-06-30 05:02 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/2647497.shtml)
+- 2026-06-30 05:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/861244546.shtml)
+- 2026-06-30 05:06 - [金牌调解](http://www.share.kurohicncr.top/Article/details/54603886691.shtml)
+- 2026-06-30 05:09 - [一生一世](http://www.share.minike.top/Article/details/14026289957.shtml)

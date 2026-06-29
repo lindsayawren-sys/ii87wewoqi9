@@ -1,52 +1,53 @@
-# 新华社权威快报|我国开展专项治理 严打中医医疗违法违规行为
+# 习近平：中美应该成为伙伴而不是对手
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-5月15日，国家中医药管理局等十部门联合召开中医医疗违法违规行为专项治理工作启动会。据悉，本次专项治理工作为期1年，将严厉打击打着中医养生保健治病“幌子”从事非法行医，借中医药名义虚假宣传、直播带货，违法违规使用医保基金等损害群众健康权益的违法违规行为。同时，加强中医医疗机构和中医医疗服务质量监督管理，完善行风治理长效机制，着力营造风清气正的行业环境。 记者：徐鹏航、田晓航 海
+视频：习近平：中美应该成为伙伴而不是对手来源：央视新闻客户端 5月14日晚，国家主席习近平在北京人民大会堂举行宴会，欢迎美国总统特朗普访华。 人民大会堂金色大厅华灯璀璨，两国元首先后发表致辞。 习近平强调，我们一致认为，中美关系是当今世界最重要的双边关系，只能搞好不能搞坏。两国合则两利、斗则俱伤，应该成为伙伴而不是对手。我们同意构建中美建设性战略稳定关系，推动中美关系稳定、健康
 
 ## 正文
 
-5月15日，国家中医药管理局等十部门联合召开中医医疗违法违规行为专项治理工作启动会。
+视频：习近平：中美应该成为伙伴而不是对手来源：央视新闻客户端 5月14日晚，国家主席习近平在北京人民大会堂举行宴会，欢迎美国总统特朗普访华。
 
-据悉，本次专项治理工作为期1年，将严厉打击打着中医养生保健治病“幌子”从事非法行医，借中医药名义虚假宣传、直播带货，违法违规使用医保基金等损害群众健康权益的违法违规行为。
+人民大会堂金色大厅华灯璀璨，两国元首先后发表致辞。
 
-同时，加强中医医疗机构和中医医疗服务质量监督管理，完善行风治理长效机制，着力营造风清气正的行业环境。
+习近平强调，我们一致认为，中美关系是当今世界最重要的双边关系，只能搞好不能搞坏。
 
-记者：徐鹏航、田晓航 海报制作：徐鹏航 新华社国内部出品
+两国合则两利、斗则俱伤，应该成为伙伴而不是对手。
+
+我们同意构建中美建设性战略稳定关系，推动中美关系稳定、健康、可持续发展，为世界带来更多和平、繁荣、进步。
+
+总监制丨申勇 监制丨龚雪辉 记者丨王鹏飞 邢彬 摄像丨李铮 马超 段德文 钟锐 程铖 郭鸿 李增仁 鄂介甫 王策 张宇 录音丨程爱华
 
 ## 相关推荐
 
-- 2026-06-30 05:16 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 05:06 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 04:48 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 04:57 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 04:57 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 05:03 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 05:13 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 04:52 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 05:06 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 05:16 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 04:57 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 04:54 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 05:10 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 05:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 05:19 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 05:23 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 05:07 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 05:20 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 05:18 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 05:08 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 04:57 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 05:22 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 05:15 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 05:12 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 05:01 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:00 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/171487.shtml)
-- 2026-06-30 04:49 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/523157.shtml)
-- 2026-06-30 04:57 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/582669418.shtml)
-- 2026-06-30 04:49 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/58720038.shtml)
-- 2026-06-30 04:55 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/190029.shtml)
-- 2026-06-30 04:49 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/70763461356.shtml)
-- 2026-06-30 04:50 - [恋与深空 巧合](http://www.share.minike.top/Article/details/142153668.shtml)
-- 2026-06-30 05:14 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/50606153.shtml)
-- 2026-06-30 05:14 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/3747865.shtml)
-- 2026-06-30 04:50 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/509391626664.shtml)
-- 2026-06-30 05:16 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/102521466264.shtml)
-- 2026-06-30 05:11 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/336288390874.shtml)
-- 2026-06-30 05:07 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/887675.shtml)
-- 2026-06-30 05:10 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/82310936.shtml)
-- 2026-06-30 05:03 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/310589.shtml)
+- 2026-06-30 05:19 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/37895130.shtml)
+- 2026-06-30 05:08 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/16613727.shtml)
+- 2026-06-30 05:19 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/56384.shtml)
+- 2026-06-30 05:05 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/426384951.shtml)
+- 2026-06-30 05:07 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/9180660.shtml)
+- 2026-06-30 05:23 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/2586936.shtml)
+- 2026-06-30 05:12 - [田曦薇没招了](http://www.share.minike.top/Article/details/836419238609.shtml)
+- 2026-06-30 05:07 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/11834277.shtml)
+- 2026-06-30 05:11 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/684926.shtml)
+- 2026-06-30 05:05 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/58165106251.shtml)
+- 2026-06-30 05:22 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/39456.shtml)
+- 2026-06-30 05:23 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/6507249120.shtml)
+- 2026-06-30 04:57 - [《共患难》](https://www.share.minike.top/Article/details/32015.shtml)
+- 2026-06-30 05:23 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/89720809974.shtml)
+- 2026-06-30 05:12 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/1692584871.shtml)

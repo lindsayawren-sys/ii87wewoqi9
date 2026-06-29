@@ -1,57 +1,61 @@
-# 全球媒体聚焦丨外媒：中美关系新定位 “为双边关系构建更稳定更可预期的框架”
+# Franco-Nevada宣布派发每股0.44美元季度股息
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-5月14日上午，中美元首在北京举行会晤，两国元首赞同将构建“中美建设性战略稳定关系”作为中美关系新定位。外媒对此高度关注。 路透社报道称，中美元首同意将构建“中美建设性战略稳定关系”作为中美关系新定位，为未来三年乃至更长时间的中美关系提供战略指引。报道称，“建设性战略稳定”这一表述释放出明确信号，即中国希望推动中美关系建立在更加稳固的基础之上。 报道援引分析人士的话称，这一新定
+黄金权益金巨头Franco-Nevada Corporation周三宣布，将向股东支付2026年第二季度每股0.44美元的现金股息，与此前季度派息水平保持一致。 股息详情与支付安排 根据公司公告，此次每股0.44美元的股息将于2026年6月25日支付，除息日和登记日均定于6月11日。此次派息延续了公司长达19年连续增加股息的纪录，体现了其长期现金流实力的稳健性。 一季度业绩创纪
 
 ## 正文
 
-5月14日上午，中美元首在北京举行会晤，两国元首赞同将构建“中美建设性战略稳定关系”作为中美关系新定位。
+黄金权益金巨头Franco-Nevada Corporation周三宣布，将向股东支付2026年第二季度每股0.44美元的现金股息，与此前季度派息水平保持一致。
 
-外媒对此高度关注。
+股息详情与支付安排 根据公司公告，此次每股0.44美元的股息将于2026年6月25日支付，除息日和登记日均定于6月11日。
 
-路透社报道称，中美元首同意将构建“中美建设性战略稳定关系”作为中美关系新定位，为未来三年乃至更长时间的中美关系提供战略指引。
+此次派息延续了公司长达19年连续增加股息的纪录，体现了其长期现金流实力的稳健性。
 
-报道称，“建设性战略稳定”这一表述释放出明确信号，即中国希望推动中美关系建立在更加稳固的基础之上。
+一季度业绩创纪录 股息公告紧随公司创纪录的一季度业绩发布。
 
-报道援引分析人士的话称，这一新定位强调的是一种积极的互动模式：以合作为主，同时保持竞争有度、分歧可控，并让和平前景可以预期。
+财报显示，Franco-Nevada第一季度营收达6.507亿美元，同比增长76.6%；净利润达4.686亿美元，合每股收益2.43美元，较去年同期的1.09美元增长超过一倍。
 
-英国《卫报》报道称，中美元首同意将构建“中美建设性战略稳定关系”作为双边关系新定位。
+业绩飙升主要受益于黄金和白银价格创下历史新高、新增生产资产贡献以及多元化商品组合的强劲表现。
 
-报道认为，这一新定位把“稳定”具体化为可操作的关系框架：既承认竞争存在，也强调竞争应有边界，分歧应能管控。
+独特的商业模式与财务优势 作为领先的黄金权益金公司，Franco-Nevada不直接运营矿山，而是通过向矿业公司提供融资换取长期生产权益。
 
-《海峡时报》同样关注到“中美关系建设性战略稳定”的新定位。
+这一资产轻型模式使公司免受运营成本上涨的影响。
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 05:15 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 04:50 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 05:08 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 04:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 05:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 05:03 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 04:48 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 05:01 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 05:08 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 04:57 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 05:04 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 05:08 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 04:56 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 05:14 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 05:06 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-30 05:16 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 05:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 05:08 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 05:23 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 05:03 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 05:12 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 04:54 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 05:12 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 05:17 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 05:06 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:09 - [扬名立万](https://www.share.kurohicncr.top/Article/details/3912240.shtml)
-- 2026-06-30 04:53 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/4248870310.shtml)
-- 2026-06-30 05:00 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/664514617600.shtml)
-- 2026-06-30 04:56 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/7237741012.shtml)
-- 2026-06-30 04:50 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/517081305.shtml)
-- 2026-06-30 05:10 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/962920995.shtml)
-- 2026-06-30 05:11 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/686152305.shtml)
-- 2026-06-30 04:52 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/80476.shtml)
-- 2026-06-30 05:06 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/0017482734.shtml)
-- 2026-06-30 05:03 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/77807.shtml)
-- 2026-06-30 04:49 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/7828629723.shtml)
-- 2026-06-30 05:07 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/750482055896.shtml)
-- 2026-06-30 04:50 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/4141504.shtml)
-- 2026-06-30 05:08 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/679550.shtml)
-- 2026-06-30 05:01 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/12198982.shtml)
+- 2026-06-30 05:01 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/629808.shtml)
+- 2026-06-30 04:55 - [周生如故](https://www.share.kurohicncr.top/Article/details/599304725167.shtml)
+- 2026-06-30 04:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/281477391.shtml)
+- 2026-06-30 04:57 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/4175011271.shtml)
+- 2026-06-30 05:02 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/0696771.shtml)
+- 2026-06-30 04:55 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/54677.shtml)
+- 2026-06-30 05:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/381571308.shtml)
+- 2026-06-30 05:05 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/408617749520.shtml)
+- 2026-06-30 04:57 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/90432852064.shtml)
+- 2026-06-30 05:03 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/8951985554.shtml)
+- 2026-06-30 05:17 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/45529498.shtml)
+- 2026-06-30 05:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/036682014.shtml)
+- 2026-06-30 05:16 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/6149131017.shtml)
+- 2026-06-30 04:57 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/9173676995.shtml)
+- 2026-06-30 05:11 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/09971.shtml)

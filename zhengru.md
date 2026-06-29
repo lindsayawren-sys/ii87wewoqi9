@@ -1,52 +1,58 @@
-# 商务部：中方愿同美方一道不断拉长合作清单
+# 所罗门群岛反对党领袖威尔当选总理 中方祝贺
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-【商务部：#中方愿同美方一道不断拉长合作清单#】商务部新闻发言人何咏前在14日举行的例行新闻发布会上表示，当地时间5月13日，中美经贸中方牵头人、国务院副总理何立峰与美方牵头人、美国财政部长贝森特在韩国举行经贸磋商。双方以两国元首重要共识为指引，秉持相互尊重、和平共处、合作共赢的原则，就解决彼此关注的经贸问题和进一步拓展务实合作进行了坦诚、深入、建设性交流。下一步，中方愿同美方
+中新网北京5月15日电 (记者 曾玥 黄钰钦)中国外交部发言人郭嘉昆15日主持例行记者会。 有记者提问：据报道，5月15日所罗门群岛反对党领袖威尔当选所新任总理。中方对此有何评论？对中所关系有何期待？ 郭嘉昆：中方祝贺威尔先生当选所罗门群岛总理。中方愿同所罗门群岛新一届政府携手拓展两国各领域务实合作，持续深化中所相互尊重、共同发展的全面战略伙伴关系，推动构建新时代中所命运共同体
 
 ## 正文
 
-【商务部：#中方愿同美方一道不断拉长合作清单#】商务部新闻发言人何咏前在14日举行的例行新闻发布会上表示，当地时间5月13日，中美经贸中方牵头人、国务院副总理何立峰与美方牵头人、美国财政部长贝森特在韩国举行经贸磋商。
+中新网北京5月15日电 (记者 曾玥 黄钰钦)中国外交部发言人郭嘉昆15日主持例行记者会。
 
-双方以两国元首重要共识为指引，秉持相互尊重、和平共处、合作共赢的原则，就解决彼此关注的经贸问题和进一步拓展务实合作进行了坦诚、深入、建设性交流。
+有记者提问：据报道，5月15日所罗门群岛反对党领袖威尔当选所新任总理。
 
-下一步，中方愿同美方一道，本着平等、尊重、互惠的原则，不断拉长合作清单，压缩问题清单，推动中美经贸关系健康、稳定、可持续发展。
+中方对此有何评论？
 
-（记者：谢希瑶 黄韬铭） 责任编辑：刘万里 SF014
+对中所关系有何期待？
+
+郭嘉昆：中方祝贺威尔先生当选所罗门群岛总理。
+
+中方愿同所罗门群岛新一届政府携手拓展两国各领域务实合作，持续深化中所相互尊重、共同发展的全面战略伙伴关系，推动构建新时代中所命运共同体取得新的进展。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:05 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 05:02 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 05:12 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-30 04:48 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 04:59 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 04:48 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-30 05:09 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 05:03 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 05:01 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 05:02 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 05:05 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-30 05:16 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 04:57 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 04:57 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 05:05 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 05:03 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 05:13 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 05:05 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 05:14 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 04:57 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 04:57 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 05:14 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 05:15 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 04:54 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 05:03 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 04:58 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 04:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 05:20 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:06 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/35548.shtml)
-- 2026-06-30 05:00 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/2749524590.shtml)
-- 2026-06-30 05:12 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/2142127.shtml)
-- 2026-06-30 04:48 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/23868797.shtml)
-- 2026-06-30 04:58 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/5901322.shtml)
-- 2026-06-30 05:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/19292.shtml)
-- 2026-06-30 05:13 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/8279725.shtml)
-- 2026-06-30 05:09 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/55512958727.shtml)
-- 2026-06-30 04:56 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/007988633081.shtml)
-- 2026-06-30 04:55 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/33027.shtml)
-- 2026-06-30 05:03 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/689509.shtml)
-- 2026-06-30 05:14 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/8796436188.shtml)
-- 2026-06-30 04:59 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/27765666.shtml)
-- 2026-06-30 05:01 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/030716760.shtml)
-- 2026-06-30 04:48 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/103121.shtml)
+- 2026-06-30 04:58 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/644732475.shtml)
+- 2026-06-30 05:01 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/697587.shtml)
+- 2026-06-30 05:13 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/7759962924.shtml)
+- 2026-06-30 04:54 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/3125060.shtml)
+- 2026-06-30 05:08 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/732951042.shtml)
+- 2026-06-30 05:08 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/7639558.shtml)
+- 2026-06-30 05:16 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/5409338141.shtml)
+- 2026-06-30 05:02 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/95585.shtml)
+- 2026-06-30 05:13 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/41775907.shtml)
+- 2026-06-30 05:09 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/75072.shtml)
+- 2026-06-30 05:12 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/7575553.shtml)
+- 2026-06-30 05:11 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/66207.shtml)
+- 2026-06-30 04:55 - [《共患难》](https://www.share.kurohicncr.top/Article/details/4900401219.shtml)
+- 2026-06-30 05:21 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/08276.shtml)
+- 2026-06-30 05:11 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/631905987718.shtml)

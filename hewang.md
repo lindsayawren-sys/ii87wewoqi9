@@ -1,49 +1,58 @@
-# 宁波银行董秘俞罡：目前尚无股份回购相关安排
+# 共话青年消费与创业 上海市政协跨界别活动凝聚发展共识
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-5月15日金融一线消息，宁波银行今日举行2025年度网上业绩说明会。谈及投资者关切的股份回购计划，董事会秘书俞罡表示，目前，公司尚无股份回购相关安排。责任编辑：李琳琳
+中新网上海5月14日电 (记者 许婧)上海市政协团青界别、经济界跨界别活动14日在上海市政协全过程人民民主实践点举行。 今年初，共青团上海市委员会(下称“上海团市委”)立足促进青年消费、扶持青年创新创业开展调查研究并推动形成相关提案。之后，上海团市委加强系统设计、开展政策研究，会同上海市相关部门持续推动提案落地见效。为进一步发挥全过程人民民主实效，引导青春经济健康有序蓬勃发展，
 
 ## 正文
 
-5月15日金融一线消息，宁波银行今日举行2025年度网上业绩说明会。
+中新网上海5月14日电 (记者 许婧)上海市政协团青界别、经济界跨界别活动14日在上海市政协全过程人民民主实践点举行。
 
-谈及投资者关切的股份回购计划，董事会秘书俞罡表示，目前，公司尚无股份回购相关安排。
+今年初，共青团上海市委员会(下称“上海团市委”)立足促进青年消费、扶持青年创新创业开展调查研究并推动形成相关提案。
 
-责任编辑：李琳琳
+之后，上海团市委加强系统设计、开展政策研究，会同上海市相关部门持续推动提案落地见效。
+
+为进一步发挥全过程人民民主实效，引导青春经济健康有序蓬勃发展，本次活动现场倾听委员建言，汇集各方智慧，共商发展举措。
+
+活动现场，上海青春经济白皮书正式发布。
+
+该白皮书由第一财经城市研究所立足商业财经与城市发展专业视角编制，聚焦当下蓬勃兴起的青年消费新趋势，围绕概念界定、业态分类、消费特征研判、典型场景集聚等维度开展系统性、深层次专题调研，全面梳理了上海青年消费现状与发展空间。
+
+据介绍，上海在促进青年消费、扶持青年创业方面优势突出，已形成全国领先的生态环境。
+
+例如，上海拥有覆盖时尚买手店各类形态的完整光谱，拥有11000余家咖啡馆，是全国咖啡馆数量唯一破万的城市。
 
 ## 相关推荐
 
-- 2026-06-30 04:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 05:03 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 05:02 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 04:49 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 04:53 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 05:17 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 05:07 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 04:56 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 04:48 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 05:07 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 05:10 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 05:05 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 05:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 05:07 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 04:59 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 05:02 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 05:07 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 05:10 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 05:14 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 04:56 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 05:19 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 05:02 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 05:06 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 05:02 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 04:54 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:01 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/15573339.shtml)
-- 2026-06-30 04:49 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/63880039.shtml)
-- 2026-06-30 04:52 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/6030044.shtml)
-- 2026-06-30 05:02 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/96450700927.shtml)
-- 2026-06-30 04:52 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/261767.shtml)
-- 2026-06-30 04:53 - [斛珠夫人](http://www.share.minike.top/Article/details/25693578931.shtml)
-- 2026-06-30 04:56 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/653265.shtml)
-- 2026-06-30 04:58 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/01745546504.shtml)
-- 2026-06-30 05:05 - [《共患难》](https://www.blog.minike.top/Article/details/32082970.shtml)
-- 2026-06-30 04:58 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/73523116589.shtml)
-- 2026-06-30 05:09 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/006386.shtml)
-- 2026-06-30 05:01 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/597072486256.shtml)
-- 2026-06-30 04:57 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/74498697786.shtml)
-- 2026-06-30 05:02 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/00936875.shtml)
-- 2026-06-30 04:57 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/852072430450.shtml)
+- 2026-06-30 05:09 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/4015067.shtml)
+- 2026-06-30 05:11 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/79962943.shtml)
+- 2026-06-30 05:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/660435316.shtml)
+- 2026-06-30 05:16 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/8622458946.shtml)
+- 2026-06-30 04:55 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/0070909015.shtml)
+- 2026-06-30 05:08 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/607796978.shtml)
+- 2026-06-30 05:08 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/081460477545.shtml)
+- 2026-06-30 04:56 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/835264766.shtml)
+- 2026-06-30 05:03 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/0364151.shtml)
+- 2026-06-30 05:05 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/36444.shtml)
+- 2026-06-30 04:56 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/571867969173.shtml)
+- 2026-06-30 05:05 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/48747887239.shtml)
+- 2026-06-30 05:15 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/4358269.shtml)
+- 2026-06-30 05:15 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/1717737648.shtml)
+- 2026-06-30 05:21 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/36980.shtml)

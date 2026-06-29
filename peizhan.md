@@ -1,61 +1,58 @@
-# 全球“观兽”第一人乔恩·霍尔两年三赴江苏——“能亲眼见到江豚，很幸福”
+# 法官正在审议民主党诉求，拟阻止特朗普签署的选举相关行政令生效
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-“南京是全球范围内，水生哺乳动物栖息地与人类聚集区距离最近的城市，能亲眼见到江豚，很幸福。”一身户外休闲装束的乔恩·霍尔走进会场，随手将包置于地上，便与大家亲切攀谈起来。5月14日，在华“观兽”近一个月、即将启程归国的前一天，联合国开发计划署人类发展报告办公室前政策专家、全球哺乳动物观察网创始人乔恩·霍尔，特意取道南京，带来一场自然探索分享会。两年来三赴江苏，这份跨越山海的执着
+美国唐纳德・特朗普总统收紧邮寄投票规则的行政令，周四迎来首次重大司法考验：联邦法官开庭审理民主党律师的诉求，后者认为该令会剥夺数百万合格选民的投票权新华网。 在华盛顿举行的两小时庭审中，联邦地区法官卡尔・尼科尔斯未当庭裁定民主党领袖提出的、阻止 3 月 31 日行政令生效的请求新华网。他表示将择期发布书面裁决，并补充称 “知悉本案时间紧迫”。 共和党人特朗普多年来一直宣扬202
 
 ## 正文
 
-“南京是全球范围内，水生哺乳动物栖息地与人类聚集区距离最近的城市，能亲眼见到江豚，很幸福。
+美国唐纳德・特朗普总统收紧邮寄投票规则的行政令，周四迎来首次重大司法考验：联邦法官开庭审理民主党律师的诉求，后者认为该令会剥夺数百万合格选民的投票权新华网。
 
-”一身户外休闲装束的乔恩·霍尔走进会场，随手将包置于地上，便与大家亲切攀谈起来。
+在华盛顿举行的两小时庭审中，联邦地区法官卡尔・尼科尔斯未当庭裁定民主党领袖提出的、阻止 3 月 31 日行政令生效的请求新华网。
 
-5月14日，在华“观兽”近一个月、即将启程归国的前一天，联合国开发计划署人类发展报告办公室前政策专家、全球哺乳动物观察网创始人乔恩·霍尔，特意取道南京，带来一场自然探索分享会。
+他表示将择期发布书面裁决，并补充称 “知悉本案时间紧迫”。
 
-两年来三赴江苏，这份跨越山海的执着背后，足够说明他对这片土地生态的喜爱，而长江江豚，是他在南京的重要牵挂。
+共和党人特朗普多年来一直宣扬2020 年大选败于大规模选民舞弊的不实说法，并在 11 月中期选举前呼吁收紧邮寄投票规则 —— 届时共和党将努力保住国会微弱多数席位新华网。
 
-去年年初，在南京下关滨江江豚城市公园，乔恩仅等候10余分钟，便幸运地目睹了江豚妈妈带着江豚宝宝在水中嬉戏的温情一幕。
+该行政令要求政府： 编制各州合格选民的美国公民确认名单； 利用联邦数据协助州选举官员核验选民资格。
 
-这份惊喜并未止步，同年，他走进盐城黄海湿地，成群奔跑的麋鹿，同样让这位见惯了全球珍奇兽类的专家感到惊喜。
+同时规定： 美国邮政仅可向各州核准的邮寄选票名单选民投递选票； 各州须将选举相关记录保存五年。
 
-他将南京江豚、盐城麋鹿的保护故事，分享至全球哺乳动物观察网，让中国生物多样性保护的扎实成效，跨越山海、走向世界。
+本案原告包括纽约州联邦参议员、参议院少数党领袖查克・舒默及民主党全国委员会。
 
-被誉为全球“观兽”第一人的乔恩，出生成长在英国、移居澳大利亚，后定居美国并在联合国开发计划署人类发展报告办公室工作，上个月退休。
+原告律师拉利・马杜里向尼科尔斯表示：“本案法理清晰，我们所质疑的行政令中各项指令，均无成文法授权。
 
 ## 相关推荐
 
-- 2026-06-30 05:00 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 04:57 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 04:53 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-30 05:13 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 05:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 05:02 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 04:56 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-30 05:03 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 05:16 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 04:57 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 04:55 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 05:14 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 05:01 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 04:55 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 05:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 05:13 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 05:23 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 04:56 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 05:03 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 05:22 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 05:17 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 05:08 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 04:54 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 05:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 05:04 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 05:10 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 05:16 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/857329927723.shtml)
-- 2026-06-30 05:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/133113834325.shtml)
-- 2026-06-30 04:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/12876206659.shtml)
-- 2026-06-30 05:13 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/19573821.shtml)
-- 2026-06-30 05:00 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/1695566.shtml)
-- 2026-06-30 05:03 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/905092.shtml)
-- 2026-06-30 05:16 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/60063344914.shtml)
-- 2026-06-30 05:06 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/47312.shtml)
-- 2026-06-30 05:04 - [金刚川](http://www.share.minike.top/Article/details/18633806684.shtml)
-- 2026-06-30 04:51 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/600118786.shtml)
-- 2026-06-30 05:14 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/6697773.shtml)
-- 2026-06-30 05:09 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/05520765093.shtml)
-- 2026-06-30 05:12 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/647256037.shtml)
-- 2026-06-30 04:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/8718081.shtml)
-- 2026-06-30 04:57 - [明星大侦探第四季](http://www.share.minike.top/Article/details/660262573868.shtml)
+- 2026-06-30 05:04 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/340039921.shtml)
+- 2026-06-30 04:54 - [世界杯](https://www.blog.kurohicncr.top/Article/details/480127351.shtml)
+- 2026-06-30 05:08 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/54555.shtml)
+- 2026-06-30 05:00 - [恋与深空 日服](http://www.blog.minike.top/Article/details/689903.shtml)
+- 2026-06-30 05:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/4447150.shtml)
+- 2026-06-30 04:58 - [电影后室值得看吗](http://www.share.minike.top/Article/details/5666163.shtml)
+- 2026-06-30 05:00 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/2986802429.shtml)
+- 2026-06-30 05:15 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/43611970.shtml)
+- 2026-06-30 05:04 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/89618853.shtml)
+- 2026-06-30 04:55 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/355778936773.shtml)
+- 2026-06-30 05:00 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/70900550.shtml)
+- 2026-06-30 05:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/897107895.shtml)
+- 2026-06-30 04:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/9660536408.shtml)
+- 2026-06-30 05:05 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/1840287.shtml)
+- 2026-06-30 04:58 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/793250.shtml)

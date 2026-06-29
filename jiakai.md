@@ -1,60 +1,59 @@
-# 云南累计建成水库7337座 总库容1193亿立方米
+# 长江有色：14日铝价上涨 下游刚需补货难弥贸易商退市缺口
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新网昆明5月15日电 (韩帅南 郑依然)记者15日从《云南省人民政府关于打造水利投融资改革升级版的指导意见》政策解读新闻发布会上获悉，截至目前，云南省已累计建成水库7337座、总库容1193亿立方米，其中水利部门管理的水库7096座(含大型15座、中型296座)，总库容155亿立方米。会上介绍，《云南省人民政府关于打造水利投融资改革升级版的指导意见》(以下简称《指导意见》)已
+CCMN国际市场：今日伦铝冲高回落，LME三个月北京时间15：05报于3638美元/吨，较上一交易日结算价跌13美元/吨，跌幅0.36%。 国内期货：今日沪铝主力月2606合约高开后震荡走弱，午后窄幅休整；开盘价报25010元/吨，盘中最高25100元/吨，最低24625元/吨，昨日结算24745元/吨，尾盘收至24670元/吨，跌75元，跌幅0.30%；沪铝主力月2606合约
 
 ## 正文
 
-中新网昆明5月15日电 (韩帅南 郑依然)记者15日从《云南省人民政府关于打造水利投融资改革升级版的指导意见》政策解读新闻发布会上获悉，截至目前，云南省已累计建成水库7337座、总库容1193亿立方米，其中水利部门管理的水库7096座(含大型15座、中型296座)，总库容155亿立方米。
+CCMN国际市场：今日伦铝冲高回落，LME三个月北京时间15：05报于3638美元/吨，较上一交易日结算价跌13美元/吨，跌幅0.36%。
 
-会上介绍，《云南省人民政府关于打造水利投融资改革升级版的指导意见》(以下简称《指导意见》)已于近日印发实施。
+国内期货：今日沪铝主力月2606合约高开后震荡走弱，午后窄幅休整；开盘价报25010元/吨，盘中最高25100元/吨，最低24625元/吨，昨日结算24745元/吨，尾盘收至24670元/吨，跌75元，跌幅0.30%；沪铝主力月2606合约全天成交量286106手增加9313手，持仓量274939手减少14854手。
 
-《指导意见》构建了“六项机制+五条路径+六大工程+六大重点”的完整闭环体系，形成一张系统集成、精准发力的“施工图”。
+CCMN现货市场评述：今日长江现货成交价格24590-24630元/吨，涨40元，贴水200-贴水160，跌25元；广东现货24485-24535元/吨，涨50元，贴水195-贴水145，跌25元；上海地区24580-245620元/吨，涨40元，贴水210-贴水170，跌25元。
 
-《指导意见》中提出要着力打造“六大工程”。
+宏观层面，受地缘冲突推动能源价格上涨及运输成本上升影响，美国4月生产者价格指数（PPI）同比飙升6%，环比升幅同样创下2022年以来最大，核心PPI亦录得三年多来的最大涨幅。
 
-其中，水源工程方面，“十五五”期间，云南计划基本建成黑滩河、桃源、南瓜坪等大型水库及一批中型新建、续建项目，加快推进清水河水利枢纽、小石门、黄草坝、暮底河改扩建等大中型重点项目前期工作。
+这一超预期数据进一步削弱了市场对美联储政策宽松的预期。
 
-引调水工程方面，云南已累计建成引调水工程12450件、设计年引水能力73.5亿立方米。
+不过，市场暂时淡化了强PPI带来的鹰派压力，焦点转向中美经贸磋商及特朗普访华带来的乐观情绪。
 
-“十五五”期间，云南计划基本建成滇中引水一期工程，加快实施滇中引水二期骨干工程，深化重大水资源配置工程前期论证，因地制宜推进中小型引调水工程建设，推动各层级水网互联互通、供需联调。
+美股整体偏强，芯片及AI相关科技股领涨，有效提振了风险资产偏好。
 
-灌区工程方面，目前云南省已建成各类灌区4388件、有效灌溉面积3393万亩。
+但美元整体维持强势，且市场对于美联储政策路径的判断已经发生明显变化。
 
 ## 相关推荐
 
-- 2026-06-30 05:10 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 05:14 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 05:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 04:59 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 05:05 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 04:51 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-30 04:55 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-30 04:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 05:13 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 04:51 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 05:17 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 05:14 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 04:58 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 04:49 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 05:15 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 05:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 04:58 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 05:18 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 05:09 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 05:19 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 05:17 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 04:59 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 05:14 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 05:19 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 05:01 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 05:11 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 05:06 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:49 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/62563536068.shtml)
-- 2026-06-30 05:05 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/1843514.shtml)
-- 2026-06-30 05:00 - [千与千寻](http://www.blog.minike.top/Article/details/49672.shtml)
-- 2026-06-30 04:56 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/7323130.shtml)
-- 2026-06-30 04:51 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/509306854.shtml)
-- 2026-06-30 04:56 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/5957139276.shtml)
-- 2026-06-30 05:14 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/8586232393.shtml)
-- 2026-06-30 04:50 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/172704091733.shtml)
-- 2026-06-30 05:09 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/936504035.shtml)
-- 2026-06-30 05:12 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/489069585.shtml)
-- 2026-06-30 05:17 - [逃狱兄弟](http://www.blog.minike.top/Article/details/116385225254.shtml)
-- 2026-06-30 05:13 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/765486983817.shtml)
-- 2026-06-30 05:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/1031950.shtml)
-- 2026-06-30 05:09 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/3560492.shtml)
-- 2026-06-30 05:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/283556906231.shtml)
+- 2026-06-30 05:07 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/41241950.shtml)
+- 2026-06-30 05:11 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/795956.shtml)
+- 2026-06-30 05:14 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/5923067.shtml)
+- 2026-06-30 05:14 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/8192984.shtml)
+- 2026-06-30 05:15 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/4987215.shtml)
+- 2026-06-30 05:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/477644363.shtml)
+- 2026-06-30 04:54 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/75605038.shtml)
+- 2026-06-30 04:59 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/9748754473.shtml)
+- 2026-06-30 04:58 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/167810081.shtml)
+- 2026-06-30 05:19 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/1607941.shtml)
+- 2026-06-30 04:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/692699642.shtml)
+- 2026-06-30 05:21 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/362252037.shtml)
+- 2026-06-30 05:12 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/198722.shtml)
+- 2026-06-30 04:57 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/129423288656.shtml)
+- 2026-06-30 05:12 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/04918.shtml)

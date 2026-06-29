@@ -1,54 +1,56 @@
-# 江苏生态环境多项指标达监测以来最佳
+# 泸州老窖集团（股份）公司党委书记、董事长刘淼一行赴企业考察交流 深化跨界合作共谋高质量发展
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新网南京5月15日电 (记者 徐珊珊)14日，江苏省人民政府副省长沈剑荣在“开局起步‘十五五’”江苏省专题新闻发布会上表示，2025年江苏PM2.5年均浓度较“十三五”末下降16.5%，优良天数比率提升至83.8%，均创有监测记录以来最好水平。长江干流江苏段水质连续8年稳定在Ⅱ类，太湖水质连续两年保持Ⅲ类，总磷、总氮浓度创监测以来最优。沈剑荣以几个例子描绘生态之变：扬州、镇江
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 （来源：泸州老窖集团有限责任公司） 5月12日至14日，泸州老窖集团（股份）公司党委书记、董事长刘淼，泸州老窖集团党委副书记、副董事长、总裁廖俊，泸州老窖集团副总裁李蜀博一行，先后赴南山控股集团、万华化学集团、信发集团三家中国500强及世界500强企业考察交流。此行围绕产业协同、党建共建、智能制造、品牌塑造等主题展开深入
 
 ## 正文
 
-中新网南京5月15日电 (记者 徐珊珊)14日，江苏省人民政府副省长沈剑荣在“开局起步‘十五五’”江苏省专题新闻发布会上表示，2025年江苏PM2.5年均浓度较“十三五”末下降16.5%，优良天数比率提升至83.8%，均创有监测记录以来最好水平。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 （来源：泸州老窖集团有限责任公司） 5月12日至14日，泸州老窖集团（股份）公司党委书记、董事长刘淼，泸州老窖集团党委副书记、副董事长、总裁廖俊，泸州老窖集团副总裁李蜀博一行，先后赴南山控股集团、万华化学集团、信发集团三家中国500强及世界500强企业考察交流。
 
-长江干流江苏段水质连续8年稳定在Ⅱ类，太湖水质连续两年保持Ⅲ类，总磷、总氮浓度创监测以来最优。
+此行围绕产业协同、党建共建、智能制造、品牌塑造等主题展开深入探讨，旨在拓展跨界合作，推动产业融合，构建更加开放、协同的产业生态体系。
 
-沈剑荣以几个例子描绘生态之变：扬州、镇江等地的市民常常能看到几十公里外的南京紫峰大厦，“水晶天”成为常态；江豚活动范围已拓展至整个长江江苏段，单日单程监测峰值达35头；盐城沿海越冬丹顶鹤突破600只；江苏全省生物多样性本底调查记录生物物种增加2363种，总数达9266种。
+5月12日，刘淼一行首站到访南山控股集团。
 
-进入“十五五”，江苏将实施空气质量持续改善行动，推动长江干流江苏段水质保持Ⅱ类，太湖水质保持Ⅲ类；加快新型能源体系建设，大力实施“绿电进江苏、绿电进园区、绿电进企业”工程，到2030年可再生能源发电装机达1.75亿千瓦以上；全面升级“感知太湖”数字平台，实现“随时随地监管、按需精准研判”，推动太湖治理从“人工排查”向“智能预警”转型；深入开展“人工智能+”生态环境行动，深化AI、大数据在溯源预警中的应用，以更智慧、更高效的环境服务，为经济高质量发展保驾护航。
+南山控股总经理、南山铝业董事长吕正风热情接待，并陪同参观南山产业园、东海产业园。
 
-(完)
+双方围绕铝业、酒业、贸易、品牌等多个领域进行了全方位交流，重点就白酒产业上下游产业链的协同发展展开深入研讨。
+
+双方一致表示，未来将保持密切沟通，共同推动产业生态建设，为企业高质量发展注入新动能。
+
+5月13日，刘淼一行走进万华化学集团。
+
+万华化学集团党委副书记、工会主席丛浩陪同参观并主持座谈。
 
 ## 相关推荐
 
-- 2026-06-30 05:07 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 05:10 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 05:02 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 05:07 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 04:59 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 04:52 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 05:00 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 04:50 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 05:05 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 04:54 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 05:14 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 05:15 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 05:17 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 05:09 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 05:02 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 05:12 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 05:09 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 05:22 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 05:06 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 04:55 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 05:16 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 04:59 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 05:20 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 05:21 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:51 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/71414.shtml)
-- 2026-06-30 04:49 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/5440983733.shtml)
-- 2026-06-30 04:56 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/137290.shtml)
-- 2026-06-30 04:59 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/49620.shtml)
-- 2026-06-30 05:04 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/7231192.shtml)
-- 2026-06-30 04:56 - [小娘惹](http://www.share.kurohicncr.top/Article/details/1402148799.shtml)
-- 2026-06-30 04:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/7630047103.shtml)
-- 2026-06-30 04:58 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/8270727.shtml)
-- 2026-06-30 05:14 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/016291870.shtml)
-- 2026-06-30 05:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/259045.shtml)
-- 2026-06-30 04:49 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/153819677.shtml)
-- 2026-06-30 05:06 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/4681955.shtml)
-- 2026-06-30 05:06 - [一见倾心](http://www.blog.minike.top/Article/details/82196.shtml)
-- 2026-06-30 05:14 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/7918988013.shtml)
-- 2026-06-30 05:07 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/91214.shtml)
+- 2026-06-30 04:55 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/737733020962.shtml)
+- 2026-06-30 05:18 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/25927186.shtml)
+- 2026-06-30 05:08 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/30523.shtml)
+- 2026-06-30 05:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/875839039.shtml)
+- 2026-06-30 05:10 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/622561.shtml)
+- 2026-06-30 05:07 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/019093.shtml)
+- 2026-06-30 04:59 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/45968411.shtml)
+- 2026-06-30 05:13 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/759105306887.shtml)
+- 2026-06-30 05:20 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/6167147.shtml)
+- 2026-06-30 05:15 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/18490446.shtml)
+- 2026-06-30 05:10 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/8453017206.shtml)
+- 2026-06-30 05:02 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/243971051759.shtml)
+- 2026-06-30 05:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/363749.shtml)
+- 2026-06-30 05:21 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/58704875447.shtml)
+- 2026-06-30 05:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/94476134400.shtml)

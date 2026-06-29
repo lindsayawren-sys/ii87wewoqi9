@@ -1,60 +1,60 @@
-# 广州“百企强百村”研训开班 197名“新班长”学“造血”
+# 甘肃民勤为农田装“智能水杯” 双源共济“润泽”绿洲农业
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新网广州5月14日电 (记者 方伟彬)广州市委统战部、市农业农村局、市工商联14日联合举办“百企强百村”集体经济发展专题研训活动。该市197个集体经济相对薄弱村的党组织书记集中“充电”，学习产业规划、电商运营及村企对接新模式，旨在贯彻落实广东“百千万工程”推进会精神，为乡村振兴蓄力。 针对换届后近半数村支书履新、基层经验不足的现状，本次研训将85名新任书记列为重点对象，实行导
+中新网兰州5月14日电 (马爱彬)初夏时节，甘肃省武威市民勤县苏武镇苏山村浅埋式滴灌小麦示范点，直径2米的智能泵池高效运转。斗渠汇流的地表水经三级滤网过滤后，由潜水泵并入原有机井管网二次净化，再通过滴灌带精准输水至作物根系。这套智慧灌溉新模式，以巧调水源、精准节水的方式，有效破解了民勤绿洲长期面临的水资源短缺困局。 “别看这座‘双源互济’智能滴灌泵池容积不到10立方米，它可是破
 
 ## 正文
 
-中新网广州5月14日电 (记者 方伟彬)广州市委统战部、市农业农村局、市工商联14日联合举办“百企强百村”集体经济发展专题研训活动。
+中新网兰州5月14日电 (马爱彬)初夏时节，甘肃省武威市民勤县苏武镇苏山村浅埋式滴灌小麦示范点，直径2米的智能泵池高效运转。
 
-该市197个集体经济相对薄弱村的党组织书记集中“充电”，学习产业规划、电商运营及村企对接新模式，旨在贯彻落实广东“百千万工程”推进会精神，为乡村振兴蓄力。
+斗渠汇流的地表水经三级滤网过滤后，由潜水泵并入原有机井管网二次净化，再通过滴灌带精准输水至作物根系。
 
-针对换届后近半数村支书履新、基层经验不足的现状，本次研训将85名新任书记列为重点对象，实行导师结对辅导。
+这套智慧灌溉新模式，以巧调水源、精准节水的方式，有效破解了民勤绿洲长期面临的水资源短缺困局。
 
-老书记则自愿参训。
+“别看这座‘双源互济’智能滴灌泵池容积不到10立方米，它可是破解水困的‘智慧心脏’。
 
-广州市委统战部相关负责人表示，研训不仅是落实“五年显著变化”目标的关键举措，更是为了将“投资于物”与“投资于人”结合，建强基层“头雁方阵”。
+”苏武镇副镇长尹鹏介绍说，一座泵池能辐射300亩耕地，就像给每片农田都装上了“智能水杯”，喝多少、怎么喝，全凭系统来“算账”。
 
-自去年起，广州创新推行“行政专班+专业运营”双轮驱动模式。
+这套模式既“用活”了季节性地表径流，又有效压减了地下水开采，让“靠天等水”真正变成了“智能控水”。
 
-通过引入农业农村部专家及专业机构，以“理论+实操+陪跑”方式，指导197个村定制“一村一策”发展计划，成功导入淡水蓝龙虾等优质项目。
+已建成的项目初见成效，新建的双源互济灌溉系统也正从图纸走向地头、加速铺开，推动这一模式从“试验田”迈向“连片田”。
 
-农业农村部专家顾益康评价称，该模式既强化了政策统筹，又激活了市场效能。
+近日，民勤县薛百镇宋和村新建的37座“双源互济”智能滴灌泵池正式试水投运。
 
 ## 相关推荐
 
-- 2026-06-30 05:03 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 04:50 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-30 04:55 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-30 04:57 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 04:48 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 05:07 - [苗族银饰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 05:12 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 04:56 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 05:17 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 05:12 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 05:08 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 04:56 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 04:51 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 05:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 05:11 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 05:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 05:11 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 05:20 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 05:12 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 05:09 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 05:08 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 05:19 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 04:56 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 04:54 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 04:57 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 05:22 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 05:15 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 05:10 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:49 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/801760253.shtml)
-- 2026-06-30 04:49 - [孙兴慜道歉](https://www.share.minike.top/Article/details/67705205.shtml)
-- 2026-06-30 05:04 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/98877679.shtml)
-- 2026-06-30 05:05 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/8265332031.shtml)
-- 2026-06-30 04:52 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/17641571685.shtml)
-- 2026-06-30 05:05 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/073270479246.shtml)
-- 2026-06-30 04:59 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/08126487.shtml)
-- 2026-06-30 05:15 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/0153374421.shtml)
-- 2026-06-30 04:48 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/029039.shtml)
-- 2026-06-30 04:58 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/814777.shtml)
-- 2026-06-30 05:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/6776010.shtml)
-- 2026-06-30 04:53 - [一见倾心](http://www.share.minike.top/Article/details/97337289157.shtml)
-- 2026-06-30 05:11 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/79110004.shtml)
-- 2026-06-30 04:57 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/24030.shtml)
-- 2026-06-30 05:04 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/72611816.shtml)
+- 2026-06-30 05:05 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/602318112097.shtml)
+- 2026-06-30 05:17 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/220873827.shtml)
+- 2026-06-30 05:03 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/138456671541.shtml)
+- 2026-06-30 05:13 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/9753187.shtml)
+- 2026-06-30 05:18 - [刘念回应](https://www.blog.minike.top/Article/details/683583930439.shtml)
+- 2026-06-30 05:10 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/153056.shtml)
+- 2026-06-30 05:19 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/966049416638.shtml)
+- 2026-06-30 05:05 - [请回答王牌2019](http://www.blog.minike.top/Article/details/9186382.shtml)
+- 2026-06-30 05:17 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/79956072633.shtml)
+- 2026-06-30 05:07 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/0125082790.shtml)
+- 2026-06-30 05:22 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/619348463866.shtml)
+- 2026-06-30 05:22 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/52533560.shtml)
+- 2026-06-30 05:04 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/93895624.shtml)
+- 2026-06-30 05:15 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/4675720608.shtml)
+- 2026-06-30 05:06 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/47660.shtml)

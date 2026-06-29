@@ -1,52 +1,56 @@
-# 专家解读：中美关系新定位新在哪儿？
+# 习近平会见随同美国总统特朗普访华的美国企业家
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月15日 19:49 来源：中国新闻网 5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。当天在会谈中，两国元首赞同将构建“中美建设性战略稳定关系”作为中美关系新定位。受访专家表示，这一新定位是两国对双边关系本质的重新认知，更承载着世界对大国和平共处的殷切期待。(记者 刘世炯 北京报道) 责任编辑：【刘湃】
+新华社北京5月14日电 5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈期间，会见随同特朗普访华的美国企业家。 特朗普表示，我此访带来了美国工商界杰出代表，他们都尊重和重视中国，我鼓励他们拓展对华合作。特朗普逐一向习近平介绍随访企业家。 美国企业家表示，高度重视中国市场，希望深耕中国业务，加强对华合作。 习近平表示，美国企业正在深度参与中
 
 ## 正文
 
-发布时间：2026年05月15日 19:49 来源：中国新闻网 5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。
+新华社北京5月14日电 5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈期间，会见随同特朗普访华的美国企业家。
 
-当天在会谈中，两国元首赞同将构建“中美建设性战略稳定关系”作为中美关系新定位。
+特朗普表示，我此访带来了美国工商界杰出代表，他们都尊重和重视中国，我鼓励他们拓展对华合作。
 
-受访专家表示，这一新定位是两国对双边关系本质的重新认知，更承载着世界对大国和平共处的殷切期待。
+特朗普逐一向习近平介绍随访企业家。
 
-(记者 刘世炯 北京报道) 责任编辑：【刘湃】
+美国企业家表示，高度重视中国市场，希望深耕中国业务，加强对华合作。
+
+习近平表示，美国企业正在深度参与中国改革开放，双方都从中获益。
+
+中国开放的大门只会越开越大，中方欢迎美国对华加强互利合作，相信美国企业在华将拥有更广阔前景。
 
 ## 相关推荐
 
-- 2026-06-30 05:10 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-30 04:50 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 05:03 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 04:54 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 05:11 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 04:50 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 05:05 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 05:01 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 04:59 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-30 05:08 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 05:08 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 05:15 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 05:03 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 05:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 05:06 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 05:08 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 05:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 05:02 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-30 05:08 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 04:55 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 05:21 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-30 05:02 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 05:16 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 05:06 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 05:00 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 05:21 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 05:15 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 05:00 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/96750323.shtml)
-- 2026-06-30 05:01 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/856629617361.shtml)
-- 2026-06-30 04:55 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/84218862.shtml)
-- 2026-06-30 05:09 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/87231715.shtml)
-- 2026-06-30 05:04 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/80145309025.shtml)
-- 2026-06-30 05:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/95743.shtml)
-- 2026-06-30 05:05 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/53949.shtml)
-- 2026-06-30 05:04 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/745357.shtml)
-- 2026-06-30 05:08 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/840122384.shtml)
-- 2026-06-30 05:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/0685467.shtml)
-- 2026-06-30 05:15 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/55528894397.shtml)
-- 2026-06-30 05:17 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/524379207.shtml)
-- 2026-06-30 04:53 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/10296230.shtml)
-- 2026-06-30 04:58 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/0066235341.shtml)
-- 2026-06-30 05:12 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/316678878.shtml)
+- 2026-06-30 05:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/3601446.shtml)
+- 2026-06-30 05:04 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/28542435.shtml)
+- 2026-06-30 05:13 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/88346563.shtml)
+- 2026-06-30 05:23 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/050830.shtml)
+- 2026-06-30 05:14 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/65843228.shtml)
+- 2026-06-30 05:22 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/92723282.shtml)
+- 2026-06-30 04:57 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/2214399.shtml)
+- 2026-06-30 05:04 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/114271.shtml)
+- 2026-06-30 04:58 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/3107281773.shtml)
+- 2026-06-30 04:56 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/829875438.shtml)
+- 2026-06-30 05:08 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/158079.shtml)
+- 2026-06-30 05:16 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/785074086805.shtml)
+- 2026-06-30 05:07 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/31412931344.shtml)
+- 2026-06-30 05:12 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/303725638.shtml)
+- 2026-06-30 05:18 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/29906638295.shtml)

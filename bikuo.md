@@ -1,59 +1,49 @@
-# 司法部新闻发言人就欧盟外国补贴调查相关做法构成不当域外管辖答记者问
+# 锚定“人工智能+” 四川“一号创新工程”以科创发力激活新质生产力｜热点即阅
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新网5月15日电 据司法部微信公众号消息，司法部新闻发言人就欧盟外国补贴调查相关做法构成不当域外管辖答记者问。 问：2026年5月15日，司法部发布公告，认定欧盟利用其《外国补贴条例》在对同方威视调查中对中国实体采取的相关跨境调查做法构成不当域外管辖。请问有何考虑？ 答：欧盟利用其《外国补贴条例》对同方威视进行调查，肆意向中国实体跨境索取广泛的、非必要的中国境内信息，是对相关
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：封面新闻）5月11日，“开局起步‘十五五’”四川专场发布会顺利落幕。会上明确提出，要将“人工智能+”列为全省“一号创新工程”。
 
 ## 正文
 
-中新网5月15日电 据司法部微信公众号消息，司法部新闻发言人就欧盟外国补贴调查相关做法构成不当域外管辖答记者问。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-问：2026年5月15日，司法部发布公告，认定欧盟利用其《外国补贴条例》在对同方威视调查中对中国实体采取的相关跨境调查做法构成不当域外管辖。
+（来源：封面新闻）5月11日，“开局起步‘十五五’”四川专场发布会顺利落幕。
 
-请问有何考虑？
-
-答：欧盟利用其《外国补贴条例》对同方威视进行调查，肆意向中国实体跨境索取广泛的、非必要的中国境内信息，是对相关实体施加的不当要求，明显违反国际法与国际关系基本准则。
-
-为维护国家主权、安全和发展利益，保护中国公民、法人或其他组织的合法权益，司法部根据《中华人民共和国反外国不当域外管辖条例》，会同商务部等有关部门依法识别，认定欧盟上述做法构成不当域外管辖措施。
-
-任何组织、个人不得执行或者协助执行该不当域外管辖措施。
-
-欧盟《外国补贴条例》是其自行创设的单边工具。
-
-自实施以来，欧盟频繁利用《外国补贴条例》对中国企业进行调查，具有明显针对性和歧视性，是典型的以“公平竞争”之名行“保护主义”之实。
+会上明确提出，要将“人工智能+”列为全省“一号创新工程”。
 
 ## 相关推荐
 
-- 2026-06-30 04:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 04:52 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 05:11 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 05:03 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 04:55 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 05:13 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 05:09 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 04:57 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 04:50 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 04:49 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 05:15 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 05:06 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 05:15 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 05:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 05:09 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 05:16 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 05:16 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-30 05:16 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-30 05:13 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 04:55 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 05:16 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 05:21 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 04:57 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-30 05:02 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 05:02 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 05:17 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:53 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/01170187111.shtml)
-- 2026-06-30 05:04 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/7996078.shtml)
-- 2026-06-30 05:07 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/5839703.shtml)
-- 2026-06-30 04:59 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/56631095942.shtml)
-- 2026-06-30 05:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/481687945290.shtml)
-- 2026-06-30 04:59 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/91769254173.shtml)
-- 2026-06-30 05:09 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/3618361510.shtml)
-- 2026-06-30 04:52 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/835917367.shtml)
-- 2026-06-30 05:02 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/187897268441.shtml)
-- 2026-06-30 04:56 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/80237.shtml)
-- 2026-06-30 04:59 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/59241110.shtml)
-- 2026-06-30 05:13 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/4605085911.shtml)
-- 2026-06-30 05:12 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/669062475192.shtml)
-- 2026-06-30 05:15 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/2024186347.shtml)
-- 2026-06-30 05:06 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/902598737.shtml)
+- 2026-06-30 05:01 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/688840904.shtml)
+- 2026-06-30 04:59 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/2538599578.shtml)
+- 2026-06-30 05:00 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/98986.shtml)
+- 2026-06-30 05:20 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/804755074413.shtml)
+- 2026-06-30 05:23 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/2622118.shtml)
+- 2026-06-30 05:22 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/1123355.shtml)
+- 2026-06-30 05:20 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/089894612666.shtml)
+- 2026-06-30 04:55 - [巴西绝杀](http://www.share.minike.top/Article/details/15804757.shtml)
+- 2026-06-30 05:03 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/40610564.shtml)
+- 2026-06-30 05:23 - [勇敢的心第二部](https://www.share.minike.top/Article/details/6990980771.shtml)
+- 2026-06-30 05:16 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/70788715.shtml)
+- 2026-06-30 04:59 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/058535832013.shtml)
+- 2026-06-30 05:16 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/58757804222.shtml)
+- 2026-06-30 05:20 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/9710542661.shtml)
+- 2026-06-30 05:08 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/1414562.shtml)

@@ -1,53 +1,52 @@
-# 韦斯·斯特里廷辞去卫生大臣职务 铺路挑战斯塔默领导地位
+# 中方是否同意未来购买美国石油？外交部回应
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-韦斯·斯特里廷已辞去卫生大臣职务，为其挑战英国首相斯塔默铺平道路。 斯特里廷在社交平台X上发表声明称，“现在已经很清楚，你将不会带领工党进入下一次大选，工党议员和工会都希望就下一步走向展开讨论。”他还表示，希望看到“尽可能优秀的候选人阵容”来竞争这一最高职位。 斯特里廷的辞任提升了领导层竞选即将展开的可能性，届时斯塔默将不得不应对包括这位43岁的伊尔福德北选区议员在内的竞争对手
+#外交部回应是否同意购买美国石油#【#中方是否同意未来购买美国石油#？外交部回应】5月15日，外交部发言人郭嘉昆主持例行记者会。 法新社记者提问，中方是否同意在未来购买美国石油？ 郭嘉昆表示，中方愿同各方共同维护全球能源安全和产供链稳定，当务之急是推动海湾和中东地区恢复和平稳定。（@北京日报 记者 刘晓琰） 责任编辑：刘万里 SF014
 
 ## 正文
 
-韦斯·斯特里廷已辞去卫生大臣职务，为其挑战英国首相斯塔默铺平道路。
+#外交部回应是否同意购买美国石油#【#中方是否同意未来购买美国石油#？
 
-斯特里廷在社交平台X上发表声明称，“现在已经很清楚，你将不会带领工党进入下一次大选，工党议员和工会都希望就下一步走向展开讨论。
+外交部回应】5月15日，外交部发言人郭嘉昆主持例行记者会。
 
-”他还表示，希望看到“尽可能优秀的候选人阵容”来竞争这一最高职位。
+法新社记者提问，中方是否同意在未来购买美国石油？
 
-斯特里廷的辞任提升了领导层竞选即将展开的可能性，届时斯塔默将不得不应对包括这位43岁的伊尔福德北选区议员在内的竞争对手，以及其他潜在挑战者。
+郭嘉昆表示，中方愿同各方共同维护全球能源安全和产供链稳定，当务之急是推动海湾和中东地区恢复和平稳定。
 
-责任编辑：何云
+（@北京日报 记者 刘晓琰） 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 05:01 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 04:50 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 05:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 05:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 05:11 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 05:12 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 04:55 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 05:02 - [内马尔替补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 05:17 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 05:00 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 05:11 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 04:55 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 05:17 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 05:05 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 05:16 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 05:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 05:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 05:16 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 05:12 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 05:03 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 04:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 04:54 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 05:07 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 05:05 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 05:01 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:07 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/5040663311.shtml)
-- 2026-06-30 04:50 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/672190237934.shtml)
-- 2026-06-30 05:02 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/4667231629.shtml)
-- 2026-06-30 04:55 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/11739489144.shtml)
-- 2026-06-30 05:13 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/740453117606.shtml)
-- 2026-06-30 05:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/461954.shtml)
-- 2026-06-30 04:52 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/760241.shtml)
-- 2026-06-30 05:07 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/979967411.shtml)
-- 2026-06-30 04:49 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/90998.shtml)
-- 2026-06-30 05:11 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/356087218.shtml)
-- 2026-06-30 05:02 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/03052857238.shtml)
-- 2026-06-30 04:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/462512275217.shtml)
-- 2026-06-30 05:16 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/64619.shtml)
-- 2026-06-30 05:03 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/9820841.shtml)
-- 2026-06-30 04:54 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/689290375296.shtml)
+- 2026-06-30 05:13 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/61966049.shtml)
+- 2026-06-30 05:14 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/320029715.shtml)
+- 2026-06-30 05:09 - [恋与深空制作组回应近期争议](https://www.blog.kurohicncr.top/Article/details/971069902293.shtml)
+- 2026-06-30 05:06 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/82057538141.shtml)
+- 2026-06-30 05:03 - [流金岁月](http://www.blog.minike.top/Article/details/55746.shtml)
+- 2026-06-30 05:09 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/528280.shtml)
+- 2026-06-30 05:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/82556060.shtml)
+- 2026-06-30 05:03 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/394150.shtml)
+- 2026-06-30 05:12 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/962193530795.shtml)
+- 2026-06-30 05:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/481886.shtml)
+- 2026-06-30 05:02 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/994673654.shtml)
+- 2026-06-30 05:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/957348498448.shtml)
+- 2026-06-30 05:21 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/125637052.shtml)
+- 2026-06-30 05:06 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/306053794.shtml)
+- 2026-06-30 05:16 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/7162097059.shtml)

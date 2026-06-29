@@ -1,61 +1,60 @@
-# 英国资深大臣辞职，呼吁举行党首选举以罢免首相斯塔默
+# 吉利国际陈家党：2026年努力实现海外销量75万辆，明年冲刺更高目标
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-工党议员韦斯・斯特里廷于周四辞去卫生大臣一职，呼吁举行党魁选举以罢免基尔・斯塔默。他指责英国首相执政方向迷失，还让他人为政府施政失利背锅。 执政党工党在上周地方选举中遭遇惨败，令英国再度陷入政治危机。而距离斯塔默当初以营造稳定、终结十年政治乱局的承诺赢得议会绝对多数席位，尚不足两年。 连日来，越来越多工党议员纷纷要求斯塔默辞职或明确下台时间表。斯特里廷成为首位公开倒戈的资深内阁
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。吉利国际副总经理陈家党在演讲中表示，吉利汽车从2026年开始，布局了未来五年的国际化目标。大吉利提出“全面领先”的愿景，计划到2030年实现汽车集团年销量650万辆的目标，其中海外销量占比达到1/3，品牌跻身全球前五。 他指出，基于这一战略规划，我们明确了近期国际
 
 ## 正文
 
-工党议员韦斯・斯特里廷于周四辞去卫生大臣一职，呼吁举行党魁选举以罢免基尔・斯塔默。
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
 
-他指责英国首相执政方向迷失，还让他人为政府施政失利背锅。
+吉利国际副总经理陈家党在演讲中表示，吉利汽车从2026年开始，布局了未来五年的国际化目标。
 
-执政党工党在上周地方选举中遭遇惨败，令英国再度陷入政治危机。
+大吉利提出“全面领先”的愿景，计划到2030年实现汽车集团年销量650万辆的目标，其中海外销量占比达到1/3，品牌跻身全球前五。
 
-而距离斯塔默当初以营造稳定、终结十年政治乱局的承诺赢得议会绝对多数席位，尚不足两年。
+他指出，基于这一战略规划，我们明确了近期国际化目标：2026年努力实现海外销量75万辆，明年冲刺更高目标。
 
-连日来，越来越多工党议员纷纷要求斯塔默辞职或明确下台时间表。
+他谈到，过去，中国汽车品牌出海主要以燃油车为主，未来我们将实现“油电并举”：燃油车领域向节能化、智能化升级，我们在上个月发布了相关技术品牌；新能源领域出口增长迅速，今年一到四月，新能源汽车出口贡献达17.4万辆，成绩亮眼。
 
-斯特里廷成为首位公开倒戈的资深内阁大臣，他宣布辞职并表示：“如今事实已经清楚，你无法带领工党参加下一届大选。
+“更重要的是，我们将坚持品牌高端化，依托吉利、领克、极氪等多品牌矩阵，其中极氪品牌定位品牌向上突围，以技术实力重塑中国品牌的全球价值。
 
-” 不过他并未正式启动党魁竞选程序，其他内阁资深大臣均表态支持斯塔默。
+”他说。
 
-斯特里廷在辞职信中表示，工党议员与工会希望，未来走向的讨论应聚焦政策理念，而非个人恩怨或派系斗争。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
 ## 相关推荐
 
-- 2026-06-30 05:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 05:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-30 05:10 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 05:04 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 05:10 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 05:02 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 05:03 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 04:53 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 04:56 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 05:14 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 04:59 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 05:08 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 05:10 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 04:55 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 05:16 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 05:16 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 04:54 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 05:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 05:17 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 04:55 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 05:08 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 05:21 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 05:16 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 05:03 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 05:21 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 05:06 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 04:59 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 05:04 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 05:07 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:04 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/991900683.shtml)
-- 2026-06-30 04:54 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/57773.shtml)
-- 2026-06-30 05:03 - [时光音乐会](http://www.share.minike.top/Article/details/489976132.shtml)
-- 2026-06-30 05:06 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/180911579.shtml)
-- 2026-06-30 05:06 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/061374.shtml)
-- 2026-06-30 05:00 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/046981291663.shtml)
-- 2026-06-30 05:14 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/187288.shtml)
-- 2026-06-30 04:50 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/110184561830.shtml)
-- 2026-06-30 05:03 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/582706417798.shtml)
-- 2026-06-30 05:05 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/67334.shtml)
-- 2026-06-30 05:12 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/6794510.shtml)
-- 2026-06-30 05:09 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/650564.shtml)
-- 2026-06-30 04:56 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/7299380.shtml)
-- 2026-06-30 04:54 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/19659920.shtml)
-- 2026-06-30 05:01 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/23935.shtml)
+- 2026-06-30 05:06 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/285419341.shtml)
+- 2026-06-30 04:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/54309809150.shtml)
+- 2026-06-30 04:54 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/5941967903.shtml)
+- 2026-06-30 05:04 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/090053913.shtml)
+- 2026-06-30 05:02 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/74156556865.shtml)
+- 2026-06-30 05:17 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/6341219.shtml)
+- 2026-06-30 05:09 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/67906079859.shtml)
+- 2026-06-30 05:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/89114842.shtml)
+- 2026-06-30 05:06 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/688634.shtml)
+- 2026-06-30 05:13 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/83556.shtml)
+- 2026-06-30 05:00 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/7181845806.shtml)
+- 2026-06-30 04:59 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/20141.shtml)
+- 2026-06-30 05:00 - [二次元提前预演明日巴西对日本](http://www.blog.kurohicncr.top/Article/details/324793869.shtml)
+- 2026-06-30 05:22 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/245247900329.shtml)
+- 2026-06-30 04:57 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/1259715270.shtml)

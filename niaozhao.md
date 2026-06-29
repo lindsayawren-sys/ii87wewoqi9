@@ -1,52 +1,61 @@
-# 沃什获确认出任美联储主席
+# 安徽“十五五”计划新增城镇就业340万人左右
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-美国参议院以微弱优势批准凯文·沃什接替杰罗姆·鲍威尔担任美联储主席，但由于当前通胀水平仍然偏高，短期内降息的空间可能十分有限。沃什曾在金融危机期间担任美联储理事，拥有丰富的货币政策经验，其提名获得通过标志着美国央行可能迎来政策风格的重要转变。市场普遍关注沃什上任后将如何平衡抑制通胀与维护经济增长之间的关系，尤其是在能源价格和工资水平持续上升的背景下。责任编辑：张俊 SF065
+中新网合肥5月15日电 (记者 张俊)记者15日从开局起步“十五五”安徽专场新闻发布会上获悉，安徽坚持“政府过紧日子，百姓过好日子”，“十五五”期间，计划新增城镇就业340万人左右，构建就业友好型发展方式。 “十五五”时期，安徽将制定务实管用、有力有效的城乡居民增收实施方案，分城乡、区域、群体提出针对性举措，提高居民工资性、经营性、财产性、转移性“四项收入”。 在保障困难群体生
 
 ## 正文
 
-美国参议院以微弱优势批准凯文·沃什接替杰罗姆·鲍威尔担任美联储主席，但由于当前通胀水平仍然偏高，短期内降息的空间可能十分有限。
+中新网合肥5月15日电 (记者 张俊)记者15日从开局起步“十五五”安徽专场新闻发布会上获悉，安徽坚持“政府过紧日子，百姓过好日子”，“十五五”期间，计划新增城镇就业340万人左右，构建就业友好型发展方式。
 
-沃什曾在金融危机期间担任美联储理事，拥有丰富的货币政策经验，其提名获得通过标志着美国央行可能迎来政策风格的重要转变。
+“十五五”时期，安徽将制定务实管用、有力有效的城乡居民增收实施方案，分城乡、区域、群体提出针对性举措，提高居民工资性、经营性、财产性、转移性“四项收入”。
 
-市场普遍关注沃什上任后将如何平衡抑制通胀与维护经济增长之间的关系，尤其是在能源价格和工资水平持续上升的背景下。
+在保障困难群体生活方面，安徽将精准分类、分步实施，提高孤儿基本生活保障、“残独”“失独”家庭扶助金，加大残疾人“两项补贴”财政投入，提升兜底保障水平。
 
-责任编辑：张俊 SF065
+就业是最基本的民生。
+
+安徽将推动产业、创业、就业“三业联动”，实施稳岗扩容提质、“家门口”就业等专项行动。
+
+“十五五”期间，安徽计划开展职业技能培训450万人次。
+
+在改善人居环境上，安徽将推进生态环境治理攻坚，实施空气质量改善行动，全省域推进“无废城市”建设，提升污水收集处理效能，整治“家门口”环境问题。
+
+今年将重点推进生活垃圾分类提质增效，完善“投、收、运、处”全链条管理，力争年底基本完成地级市分类设施提标改造、县城住宅小区分类投放设施的全覆盖。
 
 ## 相关推荐
 
-- 2026-06-30 05:16 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 04:48 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 05:11 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 04:59 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 04:50 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 05:02 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 05:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 04:51 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 05:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 04:48 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-30 04:58 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 05:08 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 05:12 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 05:11 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 05:12 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 04:54 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 05:03 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 05:10 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 05:08 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 05:16 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 04:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 05:04 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 05:20 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 05:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 05:23 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 05:21 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 05:22 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-30 04:59 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 05:10 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:59 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/975125871142.shtml)
-- 2026-06-30 04:54 - [美人鱼](https://www.share.kurohicncr.top/Article/details/9662781.shtml)
-- 2026-06-30 05:04 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/31963455.shtml)
-- 2026-06-30 05:09 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/64483.shtml)
-- 2026-06-30 05:12 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/41497.shtml)
-- 2026-06-30 05:18 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/85328.shtml)
-- 2026-06-30 05:10 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/8497499557.shtml)
-- 2026-06-30 05:03 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/25388135.shtml)
-- 2026-06-30 04:54 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/8210922580.shtml)
-- 2026-06-30 04:48 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/30184574592.shtml)
-- 2026-06-30 05:05 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/145034.shtml)
-- 2026-06-30 04:52 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/7257935522.shtml)
-- 2026-06-30 04:55 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/94344874750.shtml)
-- 2026-06-30 05:04 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/266629.shtml)
-- 2026-06-30 04:48 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/3598640702.shtml)
+- 2026-06-30 05:21 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/3357190.shtml)
+- 2026-06-30 05:19 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/392475506.shtml)
+- 2026-06-30 05:10 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/697817.shtml)
+- 2026-06-30 05:11 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/128418.shtml)
+- 2026-06-30 05:18 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/387074416845.shtml)
+- 2026-06-30 04:59 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/5783199367.shtml)
+- 2026-06-30 04:55 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/800338377335.shtml)
+- 2026-06-30 05:01 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/672989098405.shtml)
+- 2026-06-30 05:21 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/25443258.shtml)
+- 2026-06-30 04:57 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/04726410.shtml)
+- 2026-06-30 05:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/3619706.shtml)
+- 2026-06-30 05:08 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/096605019858.shtml)
+- 2026-06-30 05:11 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/5138091328.shtml)
+- 2026-06-30 04:56 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/3548835241.shtml)
+- 2026-06-30 05:14 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/337873.shtml)

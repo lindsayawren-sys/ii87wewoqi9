@@ -1,57 +1,61 @@
-# 台商“登陆”拓文旅：茶韵香飘两岸情
+# 【建投有色】锌：秘鲁炼厂突发事故，利多因素正在累积
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新网广东清远5月15日电 题：台商“登陆”拓文旅：茶韵香飘两岸情 中新网记者 张璐 时下，走进广东清远英德市黄花镇的一家3000亩有机茶园(简称“茶园”)，满目青翠，茶香四溢。台商张嘉伦穿梭在茶垄间，手把手指导游客辨别茶芽、演示采摘技巧、讲述茶道故事，举手投足间透着他对这片土地的眷恋。 “我非常喜欢英德红茶，希望借助两岸茶文化的交流互鉴，将这片茶园打造成为集观光游览、茶品品鉴
+CFC金属研究 分析师 | 王贤伟 中信建投期货研究发展部 研究助理 | 刘城鑫 中信建投期货研究发展部 期货交易咨询业务资格：证监许可〔2011〕1461号 本报告完成时间 | 2026年5月14日 一、行情回顾 据路透报道，当地时间5月13日上午7点，秘鲁锌炼厂Cajamarquilla突发火灾事故，变电站受损，目前火势已得到控制，但产线仍处于停运状态。伦锌夜盘触及新高，后
 
 ## 正文
 
-中新网广东清远5月15日电 题：台商“登陆”拓文旅：茶韵香飘两岸情 中新网记者 张璐 时下，走进广东清远英德市黄花镇的一家3000亩有机茶园(简称“茶园”)，满目青翠，茶香四溢。
+CFC金属研究 分析师 | 王贤伟 中信建投期货研究发展部 研究助理 | 刘城鑫 中信建投期货研究发展部 期货交易咨询业务资格：证监许可〔2011〕1461号 本报告完成时间 | 2026年5月14日 一、行情回顾 据路透报道，当地时间5月13日上午7点，秘鲁锌炼厂Cajamarquilla突发火灾事故，变电站受损，目前火势已得到控制，但产线仍处于停运状态。
 
-台商张嘉伦穿梭在茶垄间，手把手指导游客辨别茶芽、演示采摘技巧、讲述茶道故事，举手投足间透着他对这片土地的眷恋。
+伦锌夜盘触及新高，后收长上影线。
 
-“我非常喜欢英德红茶，希望借助两岸茶文化的交流互鉴，将这片茶园打造成为集观光游览、茶品品鉴和制茶体验于一体的文旅项目。
+二、主要逻辑 事故炼厂广义产能34.4万吨，25年产量达到34.5万吨。
 
-”日前，张嘉伦接受中新网采访，讲述了他扎根大陆，在英德打造茶文旅项目的心路历程。
+本轮事故地点虽然在秘鲁，实际事故原因与前段时间出台的秘鲁能源危机法令并无联系。
 
-张嘉伦出生于台湾台北市，毕业于台湾南华大学资讯工程学系。
+我们认为事故影响与此前的Kazzinc类似，影响产量在月度级别，更多在于情绪面助推，Kazzinc也在本周宣布进入低负荷运行状态。
 
-从2009年开始，他作为演唱会导演，常年跟随台湾艺人到大陆各地举办演唱会。
+近期因海外科技股新高，秘鲁能源法令以及特朗普访华等利多因素交集，有色情绪整体偏乐观，4月美国超预期CPI与PPI反倒未有计价，宏观面在利多累积的同时亦蕴含风险。
 
-“在大陆工作的过程中，我发现这里生活便利、市场广阔，于是萌生了‘登陆’创业发展的想法。
+不过从基本面看，叠加海外两家炼厂事故助推，本轮情绪溢价主要将伦锌推动至高位，沪锌则因累库相对滞涨，内外价差正在向出口窗口打开的方向变动。
 
-”张嘉伦说。
+在此背景下，我们继续强调基本面两个积极信号，一是上述出口窗口打开契机，上周末伦锌仓单当日增加超万吨，市场担忧出口窗口打开时点将进一步延后。
 
 ## 相关推荐
 
-- 2026-06-30 05:04 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 05:13 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 05:06 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-30 05:08 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-30 04:51 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 04:54 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 05:03 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 05:05 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 04:50 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 05:08 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 04:54 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 05:01 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 05:04 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 05:13 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 05:15 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 04:57 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 05:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 05:07 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 05:09 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 05:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 05:10 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 05:04 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 04:59 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 04:59 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 05:20 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 05:10 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:53 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/6151943917.shtml)
-- 2026-06-30 04:53 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/56845339139.shtml)
-- 2026-06-30 04:59 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/18833438116.shtml)
-- 2026-06-30 05:14 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/35154951.shtml)
-- 2026-06-30 05:11 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/831206264.shtml)
-- 2026-06-30 05:00 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/36942.shtml)
-- 2026-06-30 04:55 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/08693.shtml)
-- 2026-06-30 04:49 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/142967383.shtml)
-- 2026-06-30 05:03 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/95941685.shtml)
-- 2026-06-30 05:00 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/863292277.shtml)
-- 2026-06-30 05:01 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/59337102011.shtml)
-- 2026-06-30 04:49 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/720260.shtml)
-- 2026-06-30 05:15 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/9745816.shtml)
-- 2026-06-30 05:13 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/136424.shtml)
-- 2026-06-30 05:08 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/8574108175.shtml)
+- 2026-06-30 05:22 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/097112.shtml)
+- 2026-06-30 04:56 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/3556836037.shtml)
+- 2026-06-30 05:09 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/67911.shtml)
+- 2026-06-30 04:57 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/81546761154.shtml)
+- 2026-06-30 05:16 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/51380.shtml)
+- 2026-06-30 05:15 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/922973.shtml)
+- 2026-06-30 05:13 - [美人鱼](http://www.share.kurohicncr.top/Article/details/62033397.shtml)
+- 2026-06-30 05:10 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/64151487553.shtml)
+- 2026-06-30 05:13 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/50260.shtml)
+- 2026-06-30 05:04 - [苗族银饰](http://www.blog.minike.top/Article/details/2474029.shtml)
+- 2026-06-30 05:16 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/2020591650.shtml)
+- 2026-06-30 05:12 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/6356802714.shtml)
+- 2026-06-30 04:57 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/092705.shtml)
+- 2026-06-30 05:06 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/14048440.shtml)
+- 2026-06-30 05:13 - [我觉得你是在无中生友](https://www.share.minike.top/Article/details/42734511988.shtml)

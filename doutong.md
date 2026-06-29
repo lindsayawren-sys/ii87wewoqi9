@@ -1,56 +1,55 @@
-# “特朗普总统邀请我一同访华” 黄仁勋回应为何最后一刻才上飞机
+# 江苏生态环境多项指标达监测以来最佳
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-黄仁勋回应最后一刻登上“空军一号”：特朗普总统让我这么做，因为这是一个绝好的机会“这是我们建立更好伙伴关系的绝佳机会。”5月14日，英伟达首席执行官黄仁勋在北京回应了为何最后一刻登上“空军一号”。 黄仁勋说，特朗普总统让他这么做，因为这是一个绝好的机会。 视频：“特朗普总统邀请我一同访华” 黄仁勋回应为何最后一刻才上飞机来源：中国新闻网 当日，黄仁勋与特斯拉首席执行官马斯克、苹
+中新网南京5月15日电 (记者 徐珊珊)14日，江苏省人民政府副省长沈剑荣在“开局起步‘十五五’”江苏省专题新闻发布会上表示，2025年江苏PM2.5年均浓度较“十三五”末下降16.5%，优良天数比率提升至83.8%，均创有监测记录以来最好水平。长江干流江苏段水质连续8年稳定在Ⅱ类，太湖水质连续两年保持Ⅲ类，总磷、总氮浓度创监测以来最优。沈剑荣以几个例子描绘生态之变：扬州、镇江
 
 ## 正文
 
-黄仁勋回应最后一刻登上“空军一号”：特朗普总统让我这么做，因为这是一个绝好的机会“这是我们建立更好伙伴关系的绝佳机会。
+中新网南京5月15日电 (记者 徐珊珊)14日，江苏省人民政府副省长沈剑荣在“开局起步‘十五五’”江苏省专题新闻发布会上表示，2025年江苏PM2.5年均浓度较“十三五”末下降16.5%，优良天数比率提升至83.8%，均创有监测记录以来最好水平。
 
-”5月14日，英伟达首席执行官黄仁勋在北京回应了为何最后一刻登上“空军一号”。
+长江干流江苏段水质连续8年稳定在Ⅱ类，太湖水质连续两年保持Ⅲ类，总磷、总氮浓度创监测以来最优。
 
-黄仁勋说，特朗普总统让他这么做，因为这是一个绝好的机会。
+沈剑荣以几个例子描绘生态之变：扬州、镇江等地的市民常常能看到几十公里外的南京紫峰大厦，“水晶天”成为常态；江豚活动范围已拓展至整个长江江苏段，单日单程监测峰值达35头；盐城沿海越冬丹顶鹤突破600只；江苏全省生物多样性本底调查记录生物物种增加2363种，总数达9266种。
 
-视频：“特朗普总统邀请我一同访华” 黄仁勋回应为何最后一刻才上飞机来源：中国新闻网 当日，黄仁勋与特斯拉首席执行官马斯克、苹果首席执行官库克等十余名美方商界代表来到中美元首会谈现场。
+进入“十五五”，江苏将实施空气质量持续改善行动，推动长江干流江苏段水质保持Ⅱ类，太湖水质保持Ⅲ类；加快新型能源体系建设，大力实施“绿电进江苏、绿电进园区、绿电进企业”工程，到2030年可再生能源发电装机达1.75亿千瓦以上；全面升级“感知太湖”数字平台，实现“随时随地监管、按需精准研判”，推动太湖治理从“人工排查”向“智能预警”转型；深入开展“人工智能+”生态环境行动，深化AI、大数据在溯源预警中的应用，以更智慧、更高效的环境服务，为经济高质量发展保驾护航。
 
-在美国白宫最早公布的随特朗普一同访华的商界代表名单中，全球市值最高的科技公司掌舵人黄仁勋并未出现。
-
-当地时间5月13日，美国总统专机“空军一号”在阿拉斯加安克雷奇停留加油。
-
-黄仁勋作为临时新增成员，背着双肩包、身穿标志性黑色皮衣登上“空军一号”。
-
-特朗普表示，他看到媒体关于黄仁勋缺席的大量报道后，亲自致电邀请。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:16 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 05:08 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 04:59 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 05:05 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 04:55 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 05:09 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 05:11 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 05:09 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 05:04 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 05:12 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 05:08 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 05:22 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 04:54 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 04:59 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 05:01 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 05:10 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 04:54 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 04:55 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 05:12 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 05:05 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 05:03 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 04:56 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 05:04 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 05:00 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 04:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/52455860683.shtml)
-- 2026-06-30 04:58 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/26329498805.shtml)
-- 2026-06-30 05:15 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/8877556.shtml)
-- 2026-06-30 05:02 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/86833.shtml)
-- 2026-06-30 04:53 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/45716852.shtml)
-- 2026-06-30 04:56 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/14776.shtml)
-- 2026-06-30 04:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/0510274105.shtml)
-- 2026-06-30 05:10 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/664096303492.shtml)
-- 2026-06-30 05:10 - [金刚川](http://www.share.minike.top/Article/details/70818530397.shtml)
-- 2026-06-30 05:13 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/9640361.shtml)
-- 2026-06-30 04:54 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/1400950.shtml)
-- 2026-06-30 04:53 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/522837115.shtml)
-- 2026-06-30 04:51 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/237233625647.shtml)
-- 2026-06-30 04:49 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/9330377.shtml)
-- 2026-06-30 05:13 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/30204887.shtml)
+- 2026-06-30 05:03 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/864151454.shtml)
+- 2026-06-30 05:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/1623154.shtml)
+- 2026-06-30 05:01 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/6258215278.shtml)
+- 2026-06-30 05:10 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/641274810.shtml)
+- 2026-06-30 05:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/566367778464.shtml)
+- 2026-06-30 05:05 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/544325.shtml)
+- 2026-06-30 05:22 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/719860722.shtml)
+- 2026-06-30 05:11 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/582730619.shtml)
+- 2026-06-30 05:10 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/58546789636.shtml)
+- 2026-06-30 05:21 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/70157367.shtml)
+- 2026-06-30 05:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/1148935.shtml)
+- 2026-06-30 05:03 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/30089.shtml)
+- 2026-06-30 05:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/785541568.shtml)
+- 2026-06-30 05:08 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/832090.shtml)
+- 2026-06-30 05:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/231215.shtml)

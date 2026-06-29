@@ -1,48 +1,48 @@
-# 官宣：这类人群可享淡季火车票优惠，5月15日开始发售
+# Versant首份独立季度报告
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-为更好服务老年旅客出行需求，铁路部门近期将推出老年旅客淡季周中购票优惠服务，相关优惠车票将于5月15日开始发售。 国铁集团客运中心相关负责人介绍，此次优惠服务面向年满60周岁及以上且使用中华人民共和国居民身份证、港澳居民居住证、台湾居民居住证、港澳居民来往内地通行证、台湾居民来往大陆通行证、外国人永久居留身份证、临时身份证明及居民户口簿购票的老年旅客，线上或线下购买开车时间在5
+Versant媒体集团公布的第一季度财报显示，营收同比下降1%至16.9亿美元，传统线性电视和广告收入的下滑抵消了平台业务及内容授权方面的强劲增长。与此同时，公司宣布了一项1亿美元的加速股票回购计划，旨在提振投资者信心并优化资本结构。作为一家刚刚独立运营的传媒企业，Versant正面临行业结构性转型的挑战，如何在保持内容竞争力的同时加速数字化布局，将是其未来发展的关键。责任编辑
 
 ## 正文
 
-为更好服务老年旅客出行需求，铁路部门近期将推出老年旅客淡季周中购票优惠服务，相关优惠车票将于5月15日开始发售。
+Versant媒体集团公布的第一季度财报显示，营收同比下降1%至16.9亿美元，传统线性电视和广告收入的下滑抵消了平台业务及内容授权方面的强劲增长。
 
-国铁集团客运中心相关负责人介绍，此次优惠服务面向年满60周岁及以上且使用中华人民共和国居民身份证、港澳居民居住证、台湾居民居住证、港澳居民来往内地通行证、台湾居民来往大陆通行证、外国人永久居留身份证、临时身份证明及居民户口簿购票的老年旅客，线上或线下购买开车时间在5月29日至6月30日期间的周中时段(周一12:00至周五12:00，6月18日至22日端午假期运输除外)，部分动车组列车车票可享受执行票价9折优惠，实行“折上折”。
+与此同时，公司宣布了一项1亿美元的加速股票回购计划，旨在提振投资者信心并优化资本结构。
 
-铁路12306在相关优惠车次后标注“敬”字，享受优惠的车票在订单详情和本人车票页面标识“长者优惠”字样；年满60周岁及以上的持有残疾军人证、伤残人民警察证、国家综合性消防救援队伍残疾人员证的中国公民，在享受原有优待票价的基础上，可再享受9折优惠。
+作为一家刚刚独立运营的传媒企业，Versant正面临行业结构性转型的挑战，如何在保持内容竞争力的同时加速数字化布局，将是其未来发展的关键。
 
-成功购票出行的老年会员旅客，同时享受普通常旅客会员的3倍积分优惠，积分可用于兑换火车票或办理座位升席业务。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 04:49 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 05:03 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 04:53 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 05:04 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 05:12 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 05:17 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 05:12 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 05:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 05:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 05:09 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 05:04 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 05:01 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 05:13 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 04:56 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 05:07 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 05:09 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 04:54 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 05:15 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 05:19 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 05:19 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:55 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/919527612.shtml)
-- 2026-06-30 04:50 - [日本淘汰](https://www.blog.minike.top/Article/details/095329700750.shtml)
-- 2026-06-30 04:57 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/63916178114.shtml)
-- 2026-06-30 04:49 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/04819986.shtml)
-- 2026-06-30 04:52 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/87735.shtml)
-- 2026-06-30 05:09 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/02439875.shtml)
-- 2026-06-30 05:15 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/89926946976.shtml)
-- 2026-06-30 04:57 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/574514120540.shtml)
-- 2026-06-30 05:02 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/9003429043.shtml)
-- 2026-06-30 05:05 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/8109637.shtml)
-- 2026-06-30 04:50 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/04328.shtml)
-- 2026-06-30 05:17 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/1690938.shtml)
-- 2026-06-30 05:18 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/2646978829.shtml)
-- 2026-06-30 05:03 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/728705729036.shtml)
-- 2026-06-30 05:12 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/973379057.shtml)
+- 2026-06-30 04:56 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/217389766.shtml)
+- 2026-06-30 05:00 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/25028.shtml)
+- 2026-06-30 05:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/224893516.shtml)
+- 2026-06-30 04:55 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/497502.shtml)
+- 2026-06-30 05:05 - [时光音乐会](http://www.blog.minike.top/Article/details/729921276770.shtml)
+- 2026-06-30 05:15 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/314620.shtml)
+- 2026-06-30 04:55 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/1030553.shtml)
+- 2026-06-30 05:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/07183.shtml)
+- 2026-06-30 04:58 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/68740782864.shtml)
+- 2026-06-30 04:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/752844.shtml)
+- 2026-06-30 05:10 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/629559.shtml)
+- 2026-06-30 05:16 - [金牌调解](http://www.share.minike.top/Article/details/12001.shtml)
+- 2026-06-30 05:13 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/4386871355.shtml)
+- 2026-06-30 05:11 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/8431415913.shtml)
+- 2026-06-30 05:22 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/6261772.shtml)

@@ -1,51 +1,45 @@
-# 外国影迷眼中的北京国际电影节：让世界电影在中国相遇
+# 拉脱维亚总理宣布决定辞职
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月14日 17:08 来源：中国新闻网 他们来自多米尼加、俄罗斯、南非、加拿大等国，在北京国际电影节上，诉说各自与中国、与电影的故事。他们之中，有深耕影视专业的在华留学生，也有携佳作远道而来、参与展映与交流的专业电影人。 在他们眼中，北京是一座“处于传统文化与国际化交汇点”的魅力之城——开放、多元、充满活力。电影让不同文化在此相遇，而北京，正成为激发灵感
+中新网5月14日电 据彭博社及路透社报道，当地时间14日，拉脱维亚总理埃维卡·希莉娜宣布决定辞职，其内阁将作为看守政府继续履职。
 
 ## 正文
 
-发布时间：2026年05月14日 17:08 来源：中国新闻网 他们来自多米尼加、俄罗斯、南非、加拿大等国，在北京国际电影节上，诉说各自与中国、与电影的故事。
-
-他们之中，有深耕影视专业的在华留学生，也有携佳作远道而来、参与展映与交流的专业电影人。
-
-在他们眼中，北京是一座“处于传统文化与国际化交汇点”的魅力之城——开放、多元、充满活力。
-
-电影让不同文化在此相遇，而北京，正成为激发灵感、交流思想、连接世界的光影舞台。
-
-(冯小妍) 责任编辑：【孟湘君】
+中新网5月14日电 据彭博社及路透社报道，当地时间14日，拉脱维亚总理埃维卡·希莉娜宣布决定辞职，其内阁将作为看守政府继续履职。
 
 ## 相关推荐
 
-- 2026-06-30 05:05 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 04:54 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 04:53 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 05:00 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 04:59 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 05:16 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-30 04:49 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 05:10 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 05:04 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 05:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 04:48 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 05:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 05:18 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 05:14 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 05:16 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 05:15 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 05:01 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 04:59 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 05:22 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 05:07 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 05:23 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 05:10 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 05:02 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 05:02 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:09 - [月亮](http://www.share.kurohicncr.top/Article/details/83487951752.shtml)
-- 2026-06-30 04:56 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/784991791658.shtml)
-- 2026-06-30 04:56 - [急先锋](https://www.blog.minike.top/Article/details/4990638598.shtml)
-- 2026-06-30 04:52 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/499414735755.shtml)
-- 2026-06-30 05:15 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/344882963.shtml)
-- 2026-06-30 05:10 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/0416371333.shtml)
-- 2026-06-30 04:51 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/21235931216.shtml)
-- 2026-06-30 05:12 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/30297.shtml)
-- 2026-06-30 05:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/3760527.shtml)
-- 2026-06-30 04:57 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/451227554108.shtml)
-- 2026-06-30 05:07 - [德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/2179572026.shtml)
-- 2026-06-30 05:02 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/7381600.shtml)
-- 2026-06-30 05:12 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/4836781344.shtml)
-- 2026-06-30 05:14 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/254853038.shtml)
-- 2026-06-30 04:52 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/40407924.shtml)
+- 2026-06-30 05:18 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/0392453894.shtml)
+- 2026-06-30 05:14 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/216816775.shtml)
+- 2026-06-30 04:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/533551.shtml)
+- 2026-06-30 05:12 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/34629207416.shtml)
+- 2026-06-30 04:56 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/84365333854.shtml)
+- 2026-06-30 05:21 - [小娘惹](https://www.blog.minike.top/Article/details/812542.shtml)
+- 2026-06-30 05:23 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/791557958.shtml)
+- 2026-06-30 04:56 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/454391601722.shtml)
+- 2026-06-30 05:15 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/16561.shtml)
+- 2026-06-30 04:57 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/044407954.shtml)
+- 2026-06-30 04:56 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/537203466091.shtml)
+- 2026-06-30 05:17 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/191579760.shtml)
+- 2026-06-30 05:15 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/87713596369.shtml)
+- 2026-06-30 05:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/3742669.shtml)
+- 2026-06-30 05:20 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/255480.shtml)

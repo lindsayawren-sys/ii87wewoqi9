@@ -1,61 +1,61 @@
-# 泰兰尼斯客服回应“广告被指诱导行贿”：品牌被网络账号恶意抹黑
+# 里昂：壁仞科技维持“跑赢大市”评级 目标价升至67.4港元
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新网5月15日电(记者 吴家驹)近日，童鞋品牌泰兰尼斯广告被指诱导行贿，引发争议。据媒体报道，在泰兰尼斯的一则广告中，一名女职员将一张泰兰尼斯鞋卡递给了被称为“王姐”的女上司，并配以“工作上承蒙您照顾，宝宝小脚我来照顾”的台词。 不少网友反映，曾在电梯里看到过该广告。5月15日，记者发现，目前，在泰兰尼斯官方视频号、抖音号、小红书号等账号，无法看到该广告。 同日，抖音“TAR
+里昂发布研报称，看好壁仞科技（06082）的产品线及强大交付能力。该行认为，中国的算力短缺将至少持续至2027年，而壁仞科技有望受惠于供需失衡及国产化趋势，凭借其强大的交付能力脱颖而出。该行将目标价由46.3港元上调至67.4港元，维持“跑赢大市”评级。 报告提及，壁仞科技的首代产品BR10X已在政府主导的场景中实现规模部署，而下一代BR20X系列预计于2026年第三季完成流片
 
 ## 正文
 
-中新网5月15日电(记者 吴家驹)近日，童鞋品牌泰兰尼斯广告被指诱导行贿，引发争议。
+里昂发布研报称，看好壁仞科技（06082）的产品线及强大交付能力。
 
-据媒体报道，在泰兰尼斯的一则广告中，一名女职员将一张泰兰尼斯鞋卡递给了被称为“王姐”的女上司，并配以“工作上承蒙您照顾，宝宝小脚我来照顾”的台词。
+该行认为，中国的算力短缺将至少持续至2027年，而壁仞科技有望受惠于供需失衡及国产化趋势，凭借其强大的交付能力脱颖而出。
 
-不少网友反映，曾在电梯里看到过该广告。
+该行将目标价由46.3港元上调至67.4港元，维持“跑赢大市”评级。
 
-5月15日，记者发现，目前，在泰兰尼斯官方视频号、抖音号、小红书号等账号，无法看到该广告。
+报告提及，壁仞科技的首代产品BR10X已在政府主导的场景中实现规模部署，而下一代BR20X系列预计于2026年第三季完成流片（tape-out），目标客户为一线超大规模数据中心营运商（hyperscalers），将具备更高的计算密度、更大的内存容量与带宽及互联能力。
 
-同日，抖音“TARANIS泰兰尼斯官方旗舰店”客服向记者表示，近日，公司关注到网络个别账号发布不实内容，通过断章取义、以偏概全的方式，杜撰虚假信息，歪曲客观事实，恶意抹黑公司品牌声誉，误导网友传播负面舆论，已对品牌造成不良影响。
+公司长远目标是在中国AI芯片市场夺取10%的市场份额。
 
-该客服称，针对此次蓄意造谣、恶意诋毁品牌的行为，公司已完整固定相关证据，将依法追究造谣者全部法律责任；同时恳请平台及时核查处理，下架不实博文，管控造谣内容传播，维护企业合法权益与清朗网络环境。
+该行上调对公司2026及2027财年的收入预测10%及32%，以反映更强劲的国内AI需求及BR20X出货加速。
 
-此外，记者致电泰兰尼斯官网公开的咨询电话以及天眼查网站公开的泰兰尼斯关联公司杭州泰潼商贸有限公司的电话，均无人接听。
+基于更高的28倍2026/27年平均预测市销率（此前为25倍），因此调升目标价。
 
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:02 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 05:03 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 05:12 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 05:11 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 04:57 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 04:53 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 04:58 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 05:05 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 05:12 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 04:53 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-30 05:17 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 04:54 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 05:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 04:57 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 05:01 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 05:19 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 05:06 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 05:07 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 05:22 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-30 04:57 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 05:11 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 05:05 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 05:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 05:14 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 05:09 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 05:06 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 05:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 05:14 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 04:59 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 05:11 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/5952584.shtml)
-- 2026-06-30 05:12 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/550815.shtml)
-- 2026-06-30 05:03 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/3533519273.shtml)
-- 2026-06-30 04:50 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/74162015.shtml)
-- 2026-06-30 05:00 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/10484995.shtml)
-- 2026-06-30 05:08 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/06651063801.shtml)
-- 2026-06-30 05:08 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/975097582.shtml)
-- 2026-06-30 05:03 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/9423741.shtml)
-- 2026-06-30 04:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/64058066.shtml)
-- 2026-06-30 04:55 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/7977658217.shtml)
-- 2026-06-30 05:01 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/145468.shtml)
-- 2026-06-30 04:49 - [《贺子珍》](https://www.blog.minike.top/Article/details/4376174.shtml)
-- 2026-06-30 04:50 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/518708.shtml)
-- 2026-06-30 05:14 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/45196.shtml)
-- 2026-06-30 04:52 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/41699506.shtml)
+- 2026-06-30 05:07 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/948309286483.shtml)
+- 2026-06-30 05:21 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/867822476597.shtml)
+- 2026-06-30 05:12 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/852583396529.shtml)
+- 2026-06-30 04:55 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/96740.shtml)
+- 2026-06-30 05:15 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/225058605.shtml)
+- 2026-06-30 05:22 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/7182287.shtml)
+- 2026-06-30 04:54 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/58066734800.shtml)
+- 2026-06-30 05:08 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/99527860758.shtml)
+- 2026-06-30 04:59 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/8412250565.shtml)
+- 2026-06-30 04:54 - [日本领先巴西](http://www.share.minike.top/Article/details/044018.shtml)
+- 2026-06-30 05:16 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/288271160.shtml)
+- 2026-06-30 05:16 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/0468683.shtml)
+- 2026-06-30 04:59 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/477464342827.shtml)
+- 2026-06-30 05:11 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/17962.shtml)
+- 2026-06-30 05:04 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/562959840.shtml)

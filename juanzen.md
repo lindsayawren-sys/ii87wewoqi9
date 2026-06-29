@@ -1,59 +1,56 @@
-# 台湾少数民族同胞参访良渚：从史前文明看见共同根脉
+# 中国红基会：以扎实的公益行动为高原地区高质量发展贡献力量
 
-> 更新时间：2026-06-30 05:18:02 UTC+8
+> 更新时间：2026-06-30 05:24:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月15日电 题：台湾少数民族同胞参访良渚：从史前文明看见共同根脉 作者 李百加 “良渚文明中的祭仪观念、图腾符号，和台湾少数民族的许多传统相通。站在遗址遗迹前，故事跨海相连。”台湾泰雅人许玉珍14日在杭州对中新网记者说。 5月13日至17日，由台盟中央主办的“同心筑梦·南岛溯源”浙台共探南岛语族文明根脉活动在浙江举行。14日，30余名台湾少数民族同胞走进良渚博物院、
+中新网北京5月15日电 (记者 张素)中国红十字基金会理事长贝晓超近日在一场活动上表示，捐赠应急餐饮保障车将助力提升基层应急保障的硬实力，捐赠营养物资为孩子们的成长保驾护航，点亮他们的梦想之光。 贝晓超还说，中国红基会将继续携手爱心伙伴，以扎实的公益行动为高原地区高质量发展贡献红十字力量。 记者采访获悉，由中国红十字基金会与内蒙古伊利公益基金会共同发起的项目，通过开展营养物资捐
 
 ## 正文
 
-中新网杭州5月15日电 题：台湾少数民族同胞参访良渚：从史前文明看见共同根脉 作者 李百加 “良渚文明中的祭仪观念、图腾符号，和台湾少数民族的许多传统相通。
+中新网北京5月15日电 (记者 张素)中国红十字基金会理事长贝晓超近日在一场活动上表示，捐赠应急餐饮保障车将助力提升基层应急保障的硬实力，捐赠营养物资为孩子们的成长保驾护航，点亮他们的梦想之光。
 
-站在遗址遗迹前，故事跨海相连。
+贝晓超还说，中国红基会将继续携手爱心伙伴，以扎实的公益行动为高原地区高质量发展贡献红十字力量。
 
-”台湾泰雅人许玉珍14日在杭州对中新网记者说。
+记者采访获悉，由中国红十字基金会与内蒙古伊利公益基金会共同发起的项目，通过开展营养物资捐赠、健康知识科普、梦想关爱守护等公益行动，持续关爱欠发达地区儿童和青少年的营养健康，帮助更多孩子实现梦想。
 
-5月13日至17日，由台盟中央主办的“同心筑梦·南岛溯源”浙台共探南岛语族文明根脉活动在浙江举行。
+截至2025年底，该公益项目已走进全国28个省(区、市)，累计投入超1.1亿元人民币，近90万儿童从中受益。
 
-14日，30余名台湾少数民族同胞走进良渚博物院、良渚古城遗址公园，实地探寻南岛语族的文明源流与历史根脉。
+今年5月12日，第18个全国防灾减灾日，应急餐饮保障车捐赠活动在西藏自治区日喀则市桑珠孜区第二中学举行。
 
-良渚博物院内，玉琮、玉璧、石器等文物有序陈列，稻作遗存复原模型及古城聚落沙盘吸引参访团成员驻足细看。
+据介绍，应急餐饮保障车具有安全性高、机动性强的特点，能够在自然灾害发生后快速响应、奔赴一线，保障受灾群众和救援人员饮食饮水供应，也可常态化用于防灾减灾演练、大型活动保障及基层人道服务保障等场景，实现平急两用、一专多能。
 
-近10公里外的良渚古城遗址公园内，河道纵横，湿地、稻田相接，勾勒出数千年前先民依水而居的生活图景。
+捐赠方表示，此次向日喀则捐赠应急餐饮保障车是一份长久的守护，作为移动的营养补给站和应急指挥点，让救援人员和受灾群众能第一时间喝上热牛奶。
 
-许玉珍对博物院内纺织器具印象尤深。
+西藏自治区红十字会代表说，本次捐赠的应急餐饮保障车，将进一步充实当地人道应急救援装备储备，有效补齐高原突发情况下的热食保障短板，同时可纳入红十字应急救援协作机制应急物资联动调配体系，打破以往单向援藏的格局，实现西藏应急装备向外辐射、跨区域协同支援，健全灾后长效保障与持续帮扶体系，切实提升西藏防灾减灾、应急处置和区域人道协同服务能力。
 
 ## 相关推荐
 
-- 2026-06-30 05:07 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 05:01 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 05:00 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 04:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 05:05 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 04:53 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 04:58 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 05:00 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 05:04 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 05:00 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 05:11 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 04:50 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 05:11 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 05:17 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 05:22 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 05:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 05:23 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 05:01 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 05:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 05:11 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 04:57 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 05:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 04:59 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:55 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/5998186391.shtml)
-- 2026-06-30 05:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/007733.shtml)
-- 2026-06-30 04:49 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/28353.shtml)
-- 2026-06-30 04:54 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/51160921.shtml)
-- 2026-06-30 04:57 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/494313566.shtml)
-- 2026-06-30 04:56 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/96650665.shtml)
-- 2026-06-30 05:12 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/849664.shtml)
-- 2026-06-30 05:10 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/3752790.shtml)
-- 2026-06-30 04:49 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/14702.shtml)
-- 2026-06-30 04:52 - [月亮](https://www.blog.minike.top/Article/details/0051841.shtml)
-- 2026-06-30 04:50 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/76844575648.shtml)
-- 2026-06-30 05:02 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/9885344.shtml)
-- 2026-06-30 05:03 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/662058705051.shtml)
-- 2026-06-30 05:14 - [女心理师](https://www.share.minike.top/Article/details/06374311.shtml)
-- 2026-06-30 05:04 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/76190912.shtml)
+- 2026-06-30 05:14 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/331810726122.shtml)
+- 2026-06-30 05:23 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/120242444.shtml)
+- 2026-06-30 05:21 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/5402666.shtml)
+- 2026-06-30 05:03 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/0128700200.shtml)
+- 2026-06-30 05:15 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/3540834.shtml)
+- 2026-06-30 05:15 - [乔家的儿女](http://www.blog.minike.top/Article/details/356457108761.shtml)
+- 2026-06-30 05:11 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/776413211.shtml)
+- 2026-06-30 04:59 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/297043155473.shtml)
+- 2026-06-30 05:15 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/36384690.shtml)
+- 2026-06-30 04:55 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/212439.shtml)
+- 2026-06-30 04:58 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/5408173.shtml)
+- 2026-06-30 05:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/944442342.shtml)
+- 2026-06-30 05:19 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/04547.shtml)
+- 2026-06-30 05:15 - [沙丘](https://www.share.kurohicncr.top/Article/details/887458034434.shtml)
+- 2026-06-30 05:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/70549.shtml)
