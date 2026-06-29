@@ -1,61 +1,61 @@
-# 美伊据悉商定延长休战等待特朗普批准 两国早前互指违反停火
+# 重大进展！中金公司并购东兴、信达，换股价公布
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-一位美国知情人士透露，伊朗和美国已达成一项临时协议，将延长停火并推动达成结束战争的最终协议。这提升了市场对这场持续三个月的冲突可能接近解决的希望。 这名因涉及私下谈判而要求匿名的消息人士证实了Axios稍早的报道。Axios周四早些时候援引两名未具名美国官员的话报道称，相关协议内容包括将自4月初实施的停火延长60天，并重启围绕伊朗核计划的谈判。 报道称，美国总统唐纳德·特朗普仍
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者|王砚丹 编辑|叶峰 中金公司合并东兴证券、信达证券有了最新进展。 5月18日，中金公司发布换股合并草案报告书，宣布公司拟通过向东兴证券、信达证券全体A股换股股东发行A股股票的方式换股吸收合并东兴证券、信达证券，中金公司A股股票换股价格为36.68元/股，东兴证券换股价为16.05元/股，换股比例1：0
 
 ## 正文
 
-一位美国知情人士透露，伊朗和美国已达成一项临时协议，将延长停火并推动达成结束战争的最终协议。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这提升了市场对这场持续三个月的冲突可能接近解决的希望。
+记者|王砚丹 编辑|叶峰 中金公司合并东兴证券、信达证券有了最新进展。
 
-这名因涉及私下谈判而要求匿名的消息人士证实了Axios稍早的报道。
+5月18日，中金公司发布换股合并草案报告书，宣布公司拟通过向东兴证券、信达证券全体A股换股股东发行A股股票的方式换股吸收合并东兴证券、信达证券，中金公司A股股票换股价格为36.68元/股，东兴证券换股价为16.05元/股，换股比例1：0.4376；信达证券换股价为19.11元/股，换股比例1：0.5210。
 
-Axios周四早些时候援引两名未具名美国官员的话报道称，相关协议内容包括将自4月初实施的停火延长60天，并重启围绕伊朗核计划的谈判。
+5月18日收盘，中金公司最新市价为33.56元/股，东兴证券、信达证券最新市价为12.80元/股、16.68元/股，也就是说上述二级市场价格较换股价有所折价。
 
-报道称，美国总统唐纳德·特朗普仍需批准相关条款。
+此外，由于上述三家券商2025年年报及2026年一季报已经发布，合并后备考财务数据也一并在草案中披露。
 
-Axios称，特朗普已要求“几天时间”考虑这项协议。
+根据草案披露的备考合并财务数据，三家合并后的新主体2025年营收约372亿元，排名行业第三；归母净利润约138亿元，排名行业第四。
 
-此前，双方也曾多次称谈判取得进展，特朗普也多次表示相信美国接近达成协议，但僵局随后仍一再延续。
+中金公司并购东兴、信达证券，换股价公布 去年11月19日晚，中金公司、东兴证券、信达证券发布《关于筹划重大资产重组的停牌公告》，三家公司整合成为券商行业关注焦点。
 
-据半官方的伊朗学生通讯社报道，伊朗议员、议会国家安全委员会成员Fada-Hossein Maleki表示，谈判已取得“重大进展”，美方已接受伊朗提出的大部分要求。
+今日晚间发布的草案显示，并购方中金公司的换股价格为36.68元/股，被并购方东兴证券、信达证券的换股价格分别为16.05元/股、19.11元/股；东兴证券、信达证券与中金公司的换股比例分别为1：0.4376、1：0.5210。
 
 ## 相关推荐
 
-- 2026-06-29 16:38 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 16:56 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 16:50 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 16:58 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 16:37 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 16:56 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 16:43 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 16:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 16:53 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 16:39 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 16:31 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 16:35 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 16:38 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 16:45 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 16:48 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 16:50 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 17:04 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 17:05 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 16:38 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 17:02 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 16:55 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 16:55 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 17:01 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 16:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 16:59 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 16:49 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 16:47 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 16:45 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 17:02 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 16:52 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:57 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/30867.shtml)
-- 2026-06-29 16:55 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/72110127.shtml)
-- 2026-06-29 16:57 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/80464395.shtml)
-- 2026-06-29 16:39 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/985422275.shtml)
-- 2026-06-29 16:55 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.minike.top/Article/details/48211695453.shtml)
-- 2026-06-29 16:33 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/7574857235.shtml)
-- 2026-06-29 16:48 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/6673356954.shtml)
-- 2026-06-29 16:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/6542276824.shtml)
-- 2026-06-29 16:42 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/6713512.shtml)
-- 2026-06-29 16:43 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/59127942461.shtml)
-- 2026-06-29 16:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/877829924.shtml)
-- 2026-06-29 16:55 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/322819.shtml)
-- 2026-06-29 16:30 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/045684765.shtml)
-- 2026-06-29 16:37 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.kurohicncr.top/Article/details/248167.shtml)
-- 2026-06-29 16:44 - [葛军谈AI时代理科生出路](http://www.share.kurohicncr.top/Article/details/136550.shtml)
+- 2026-06-29 16:38 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/30028087.shtml)
+- 2026-06-29 16:50 - [上海一小区水池内出现一条鳄鱼](http://www.share.kurohicncr.top/Article/details/632811679750.shtml)
+- 2026-06-29 16:59 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/08459001.shtml)
+- 2026-06-29 17:03 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/47761.shtml)
+- 2026-06-29 17:03 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/22623227.shtml)
+- 2026-06-29 16:54 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/5945865.shtml)
+- 2026-06-29 17:01 - [爱很美味](https://www.blog.minike.top/Article/details/159902456148.shtml)
+- 2026-06-29 16:57 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/830315921425.shtml)
+- 2026-06-29 16:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/732434299517.shtml)
+- 2026-06-29 16:49 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/41862765753.shtml)
+- 2026-06-29 16:56 - [斗破苍穹](https://www.blog.minike.top/Article/details/374896.shtml)
+- 2026-06-29 16:48 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/269007748.shtml)
+- 2026-06-29 16:39 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/052938450530.shtml)
+- 2026-06-29 16:39 - [上海小区惊现鳄鱼](http://www.blog.minike.top/Article/details/0245574848.shtml)
+- 2026-06-29 16:56 - [女心理师](https://www.blog.minike.top/Article/details/76303.shtml)

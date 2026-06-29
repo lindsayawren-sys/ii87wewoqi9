@@ -1,59 +1,56 @@
-# 美国对伊朗发动新一轮打击
+# 宁波口岸单位发布联合通告 出台便利船员下地举措
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-据一名美国官员透露，美军击落四架伊朗攻击无人机，并袭击了伊朗南部地区。该官员称，美伊之间本已日趋紧张的停火协议目前仍在维持。 这名官员表示，负责对伊朗行动的美国中央司令部部队击落了四架伊朗单向攻击无人机，并袭击了伊朗南部阿巴斯港的一个地面控制站。美方称，当时该控制站正准备发射第五架无人机。 这位美国官员于美国当地时间周三晚间表示：“这些行动是有分寸的、纯粹防御性的，目的是维护停
+中新网宁波5月18日电(王逸飞 张斌 陈雨寒)5月18日，宁波海事局与宁波海关、宁波边检联合发布《关于宁波港口落实船员下地及进出港便利服务的通告》(下称《通告》)，这是全国首个由多部门共同推出的船员下地便利化通告。其中明确，即日起，宁波所有口岸开放码头及较大规模其他码头全面实行统一服务标准，全市145个泊位率先落地全流程规范透明的服务要求，成为全国首批实现船员下地服务标准化、透
 
 ## 正文
 
-据一名美国官员透露，美军击落四架伊朗攻击无人机，并袭击了伊朗南部地区。
+中新网宁波5月18日电(王逸飞 张斌 陈雨寒)5月18日，宁波海事局与宁波海关、宁波边检联合发布《关于宁波港口落实船员下地及进出港便利服务的通告》(下称《通告》)，这是全国首个由多部门共同推出的船员下地便利化通告。
 
-该官员称，美伊之间本已日趋紧张的停火协议目前仍在维持。
+其中明确，即日起，宁波所有口岸开放码头及较大规模其他码头全面实行统一服务标准，全市145个泊位率先落地全流程规范透明的服务要求，成为全国首批实现船员下地服务标准化、透明化的泊位。
 
-这名官员表示，负责对伊朗行动的美国中央司令部部队击落了四架伊朗单向攻击无人机，并袭击了伊朗南部阿巴斯港的一个地面控制站。
+宁波舟山港是连续17年全球货物吞吐量第一的超级大港，2025年船舶靠离泊达百万艘次。
 
-美方称，当时该控制站正准备发射第五架无人机。
+今年3月，宁波大榭实华原油码头推出的“外卖上船”服务，得到社会广泛关注。
 
-这位美国官员于美国当地时间周三晚间表示：“这些行动是有分寸的、纯粹防御性的，目的是维护停火协议。
+在此基础上，更自由、便捷下地成为船员群体的普遍诉求。
 
-” 伊朗伊斯兰革命卫队称，已对此次袭击做出回应，攻击了一处美军基地。
+此前，宁波海事局开展了大范围调研，与数百名船员、码头单位面对面沟通，进一步摸清船员实际需求，理顺船员下船、出港、进城等相关环节。
 
-革命卫队未具体说明遭袭的美军基地位置，但邻近的科威特表示，其军队正在应对“敌方导弹和无人机袭击”。
+海事、海关、边检部门协同前述145个泊位在显眼处张贴《通告》，并将相关内容纳入《码头告船舶安全书》，确保每一位到港船员第一时间知晓。
 
-受袭击消息影响，油价上涨。
+当地推出的便利船员下地举措中最大的亮点是身份核验环节——在全国范围内首次将“海事通”APP电子证照作为船员进出港身份证明，船员只需打开“海事通”APP，亮出电子证照，1分钟即可完成身份核验。
 
 ## 相关推荐
 
-- 2026-06-29 16:56 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 16:30 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 16:37 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 16:49 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 16:39 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 16:38 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 16:58 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 16:38 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 16:59 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 16:51 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 16:41 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 16:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 16:50 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 16:46 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 16:43 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 16:46 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 16:43 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 16:57 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 16:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 17:00 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 16:56 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 16:59 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 17:00 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/73111714.shtml)
-- 2026-06-29 16:42 - [媒体：高考后消费应量力而行适度有度](http://www.share.minike.top/Article/details/9655088076.shtml)
-- 2026-06-29 16:37 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/1542704.shtml)
-- 2026-06-29 16:55 - [速度与激情9](https://www.share.minike.top/Article/details/9537746285.shtml)
-- 2026-06-29 16:59 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/0494452.shtml)
-- 2026-06-29 16:32 - [驻日美军航母沦为“毒窝”](http://www.share.minike.top/Article/details/10451.shtml)
-- 2026-06-29 16:46 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/9132581520.shtml)
-- 2026-06-29 16:56 - [女生雨天开车发现雨刮条被掰走](http://www.blog.minike.top/Article/details/510350499762.shtml)
-- 2026-06-29 16:42 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/0077658.shtml)
-- 2026-06-29 16:53 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/818526.shtml)
-- 2026-06-29 16:39 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/459925087292.shtml)
-- 2026-06-29 16:41 - [爱很美味](http://www.share.kurohicncr.top/Article/details/210418.shtml)
-- 2026-06-29 16:59 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/64061786.shtml)
-- 2026-06-29 16:43 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/86461896949.shtml)
-- 2026-06-29 16:56 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/85460098.shtml)
+- 2026-06-29 16:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/66199094592.shtml)
+- 2026-06-29 16:55 - [龟梨和也田中美奈实结婚](https://www.blog.kurohicncr.top/Article/details/217694375658.shtml)
+- 2026-06-29 16:59 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/79563739876.shtml)
+- 2026-06-29 17:03 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/70964180.shtml)
+- 2026-06-29 17:04 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/5080586.shtml)
+- 2026-06-29 16:58 - [存储三巨头被告了](http://www.share.minike.top/Article/details/8163459.shtml)
+- 2026-06-29 16:39 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.minike.top/Article/details/456532.shtml)
+- 2026-06-29 16:42 - [把古诗里的动作换成加班](http://www.blog.minike.top/Article/details/06703187.shtml)
+- 2026-06-29 16:47 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/031726373040.shtml)
+- 2026-06-29 16:57 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/81729501389.shtml)
+- 2026-06-29 17:03 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/87073.shtml)
+- 2026-06-29 16:36 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/771646387579.shtml)
+- 2026-06-29 16:57 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/035863776397.shtml)
+- 2026-06-29 16:38 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/43830.shtml)
+- 2026-06-29 16:59 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/627694.shtml)

@@ -1,58 +1,56 @@
-# 河北提供数字化涉外商法服务 千余企业享AI“随身助手”
+# 中国银联董俊峰：以技术创新提升区域金融服务效率与韧性
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-中新社石家庄5月28日电(赵丹媚)记者从河北省政府新闻办28日召开的新闻发布会上获悉，中国国际贸易促进委员会河北省委员会(简称“河北省贸促会”)设计搭建的“贸促商法e点通”AI服务平台，努力实现“线上智能问答+线下专业对接”的双轨服务新模式。启用半年来，已有千余家企业通过该平台查询自贸协定优惠税率等相关内容3500余次。据河北省贸促会法律事务部一级调研员夏燕介绍，当前河北到境外
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。 “‘一带一路’金融服务创新与西部金融中心建设”主题论坛上，中国银联党委书记、董事长董俊峰表示，技术创新是提升金融服务效率和韧性的关键。人工智能等新兴技术正在加
 
 ## 正文
 
-中新社石家庄5月28日电(赵丹媚)记者从河北省政府新闻办28日召开的新闻发布会上获悉，中国国际贸易促进委员会河北省委员会(简称“河北省贸促会”)设计搭建的“贸促商法e点通”AI服务平台，努力实现“线上智能问答+线下专业对接”的双轨服务新模式。
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。
 
-启用半年来，已有千余家企业通过该平台查询自贸协定优惠税率等相关内容3500余次。
+本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。
 
-据河北省贸促会法律事务部一级调研员夏燕介绍，当前河北到境外投资设厂、承包工程、参展的企业越来越多，由于各国投资环境、法律政策等都存在较大差异，企业对跨境法律服务的需求也越来越多。
+“‘一带一路’金融服务创新与西部金融中心建设”主题论坛上，中国银联党委书记、董事长董俊峰表示，技术创新是提升金融服务效率和韧性的关键。
 
-河北省贸促会制定实施《提升企业出海法律服务实效三年行动方案(2026-2028年)》，积极开展“助企出海”商法服务，努力构建“全链条、一站式、数字化”涉外商法服务体系。
+人工智能等新兴技术正在加速释放新质生产力，随着“一带一路”区域合作不断深化，对金融服务的广度和深度提出更高要求，亟需运用AI等新技术提升区域金融合作的韧性与效率。
 
-夏燕表示，河北省贸促会为企业提供贯穿企业出海事前事中事后的“全链条”涉外商法服务。
+董俊峰指出，大语言模型、多模态技术与智能体快速发展，有望高效解决跨市场支付中金融需求匹配的差异化、个性化难题。
 
-2025年以来，已先后为赴法国、意大利、马来西亚、波兰、墨西哥等多国参展的百余家企业提供了知识产权、风险防范等方面的服务。
+支付将从被动执行转向主动响应需求，突破传统资金结算定位，成为强化经济活动的智能化底座。
 
-同时，聚焦河北企业走出去重点区域，先后举办了“助企出海商法服务”欧盟专场、中亚专场等系列活动，邀请境外知名法律专家云端解答企业关切的问题。
+在董俊峰看来，深度应用区块链、人工智能等技术，可推动跨境支付流程更清晰、响应更智能、渠道更多元，结合具体场景打造更灵活、更合规的跨境结算解决方案。
 
-目前，河北省贸促会已与39个国家和地区的85个国际商协会建立友好合作关系，建有中德、中韩等商务理事会河北联络办公室。
+董俊峰强调，新技术应用必须坚持底线思维、守正创新，做到稳妥合规、适配沿线国家市场监管框架。
 
 ## 相关推荐
 
-- 2026-06-29 16:43 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 16:52 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 16:50 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 16:57 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 16:47 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 16:37 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 16:35 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 16:34 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 16:38 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 16:42 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 16:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 16:31 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 16:44 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 17:04 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 16:49 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 16:43 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 16:46 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 16:57 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 16:51 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 16:53 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 16:37 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 16:54 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:36 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/41849.shtml)
-- 2026-06-29 16:46 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/419196614.shtml)
-- 2026-06-29 16:42 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/521264703.shtml)
-- 2026-06-29 16:33 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/4173640.shtml)
-- 2026-06-29 16:35 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/55100687296.shtml)
-- 2026-06-29 16:35 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/491221.shtml)
-- 2026-06-29 16:34 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/993044573221.shtml)
-- 2026-06-29 16:35 - [王俊凯命名方式](https://www.share.minike.top/Article/details/7876420900.shtml)
-- 2026-06-29 16:37 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/2938369.shtml)
-- 2026-06-29 16:35 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/27410.shtml)
-- 2026-06-29 16:41 - [未成年少女长期吸毒导致卧床不起](http://www.share.kurohicncr.top/Article/details/40308026408.shtml)
-- 2026-06-29 16:50 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/0629718250.shtml)
-- 2026-06-29 16:48 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/679499308.shtml)
-- 2026-06-29 16:42 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/03511383003.shtml)
-- 2026-06-29 16:34 - [我和我的家乡](http://www.share.minike.top/Article/details/938272896869.shtml)
+- 2026-06-29 17:01 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/485368322.shtml)
+- 2026-06-29 16:56 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/862303.shtml)
+- 2026-06-29 16:45 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/26006470.shtml)
+- 2026-06-29 16:53 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/0695427.shtml)
+- 2026-06-29 16:36 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/01006.shtml)
+- 2026-06-29 16:46 - [起风了](http://www.share.kurohicncr.top/Article/details/712663.shtml)
+- 2026-06-29 17:05 - [韩国国脚无缘上亿韩元奖金](https://www.blog.kurohicncr.top/Article/details/934580404.shtml)
+- 2026-06-29 16:48 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/16184056.shtml)
+- 2026-06-29 16:46 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/044006794.shtml)
+- 2026-06-29 16:56 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/266430954.shtml)
+- 2026-06-29 16:54 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/285747663108.shtml)
+- 2026-06-29 16:37 - [众星恭喜吴建豪](http://www.blog.minike.top/Article/details/5928081.shtml)
+- 2026-06-29 16:51 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/60746.shtml)
+- 2026-06-29 16:45 - [沙丘](https://www.share.minike.top/Article/details/02334.shtml)
+- 2026-06-29 16:39 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/20583.shtml)

@@ -1,61 +1,58 @@
-# 2026沁水半程马拉松6月14日开跑 再创报名最快纪录
+# 光大期货：5月19日农产品日报
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-中新网太原5月27日电 (记者 胡健)2026沁水半程马拉松赛新闻发布会27日在山西太原举行，本届赛事将于6月14日7时30分鸣枪开跑，赛事奖牌和服装也全新亮相。 自2017年起，沁水半程马拉松赛事已连续成功举办七届，是山西省唯一常态化举办的六月马拉松赛事，每年吸引全国20多个省市的跑友参加。如今，“沁马”已经成为山西省内品牌赛事，是沁水激活县域消费、集聚文旅人气、擦亮城市品牌
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周一，CBOT大豆上涨，重合12美元，因美豆需求升高及周边市场上涨。美豆出口检验数据基本符合预期。之前发布的4月大豆压榨量表现好于预期。盘后发布的美豆作物报告显示，美豆播种67%，遥遥领先。国内方面，蛋白粕跟随走高，维持震荡偏强走势。5月国内大豆到港压力大，以及养殖端亏损严重，现货滞涨期货，基
 
 ## 正文
 
-中新网太原5月27日电 (记者 胡健)2026沁水半程马拉松赛新闻发布会27日在山西太原举行，本届赛事将于6月14日7时30分鸣枪开跑，赛事奖牌和服装也全新亮相。
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周一，CBOT大豆上涨，重合12美元，因美豆需求升高及周边市场上涨。
 
-自2017年起，沁水半程马拉松赛事已连续成功举办七届，是山西省唯一常态化举办的六月马拉松赛事，每年吸引全国20多个省市的跑友参加。
+美豆出口检验数据基本符合预期。
 
-如今，“沁马”已经成为山西省内品牌赛事，是沁水激活县域消费、集聚文旅人气、擦亮城市品牌的“金字名片”。
+之前发布的4月大豆压榨量表现好于预期。
 
-本届赛事设3500个参赛名额，报名通道自5月21日开启后，仅25分钟便全线告罄，再创历届“沁马”报名最快满额纪录。
+盘后发布的美豆作物报告显示，美豆播种67%，遥遥领先。
 
-本届赛事与文旅地标、自然景观深度融合，让广大跑友在奔跑途中，既可饱览“一城山水半城园”的生态风光，又能沉浸式感受赵树理文学文化、古堡建筑文化和太行生态文化，邂逅千年古县的独特气韵。
+国内方面，蛋白粕跟随走高，维持震荡偏强走势。
 
-发布会上，本届赛事的奖牌和服装正式亮相。
+5月国内大豆到港压力大，以及养殖端亏损严重，现货滞涨期货，基差市场依然偏弱。
 
-奖牌采用多层立体设计，正面以沁水浪花图案为主，背面则设计了湘峪古堡、彩虹桥等图案。
+国内豆粕无供应担忧，成本上涨。
 
-沁水县卫生健康和体育局局长王军明表示，近年来，沁水始终以赛事为纽带，深耕“体育+文旅+乡村振兴”融合发展新模式，携手沁水半程马拉松赛事、自行车公开赛、传统武术公开赛、乡村篮球赛等多元文体活动，让竞技赛道变身山水风景线、文化展示台、经济助推器。
+操作上，短多参与。
 
 ## 相关推荐
 
-- 2026-06-29 16:55 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 16:38 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 16:31 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 16:33 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 16:35 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 16:32 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 16:32 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 16:44 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 16:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 16:58 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 16:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 16:52 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 16:51 - [驻日美军航母沦为“毒窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 16:52 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 16:33 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 16:47 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 16:38 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 17:05 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 16:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 16:59 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 16:36 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 16:42 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 16:37 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 16:48 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 17:03 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 16:45 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 16:37 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:40 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/06170.shtml)
-- 2026-06-29 16:33 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/15968887.shtml)
-- 2026-06-29 16:35 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/4772156.shtml)
-- 2026-06-29 16:33 - [业内：全球市场迎来结构性投资窗口](http://www.blog.kurohicncr.top/Article/details/542741.shtml)
-- 2026-06-29 16:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/50162.shtml)
-- 2026-06-29 16:53 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/367196339495.shtml)
-- 2026-06-29 16:40 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/44212184.shtml)
-- 2026-06-29 16:43 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/00004.shtml)
-- 2026-06-29 16:50 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/55673434.shtml)
-- 2026-06-29 16:38 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/952311538.shtml)
-- 2026-06-29 16:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/0807012206.shtml)
-- 2026-06-29 16:54 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/799618208.shtml)
-- 2026-06-29 16:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/9080508.shtml)
-- 2026-06-29 16:34 - [逆天祖国人](http://www.share.minike.top/Article/details/8427153994.shtml)
-- 2026-06-29 16:51 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/77298.shtml)
+- 2026-06-29 17:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/88870280933.shtml)
+- 2026-06-29 16:52 - [千与千寻](http://www.share.kurohicncr.top/Article/details/3677097524.shtml)
+- 2026-06-29 16:49 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.kurohicncr.top/Article/details/8403289.shtml)
+- 2026-06-29 16:36 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/6757935024.shtml)
+- 2026-06-29 16:52 - [沙丘](http://www.blog.kurohicncr.top/Article/details/9268125633.shtml)
+- 2026-06-29 16:57 - [金刚川](https://www.share.kurohicncr.top/Article/details/691591867727.shtml)
+- 2026-06-29 16:40 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/372085397.shtml)
+- 2026-06-29 17:01 - [啊啊啊](http://www.blog.minike.top/Article/details/60453536.shtml)
+- 2026-06-29 16:55 - [爱很美味](https://www.blog.minike.top/Article/details/69083.shtml)
+- 2026-06-29 16:39 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/540316.shtml)
+- 2026-06-29 16:45 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/31706493.shtml)
+- 2026-06-29 16:43 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/53058108.shtml)
+- 2026-06-29 16:47 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/75790592.shtml)
+- 2026-06-29 16:45 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/8132574.shtml)
+- 2026-06-29 16:56 - [苹果ultra2阔折叠已开模测试](https://www.blog.kurohicncr.top/Article/details/28502975.shtml)

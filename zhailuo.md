@@ -1,59 +1,59 @@
-# 5月29日美股成交额前20：微软将于下周推出多款自研AI模型
+# 这场越野跑比赛，助力莫干山体育产业发展
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-周四美股成交额第1名美光科技收跌0.53%，成交454.75亿美元。在过去一年暴涨684%后，美光科技凭借AI芯片需求与存储周期回暖，股价仍有巨大上涨潜力。 分析师指出，其第二财季营收与每股收益均远超预期，并给出极为强劲的第三财季指引，推动股价飙升至万亿市值。高带宽内存（HBM）技术正在从根本上改变存储行业的商业模式，使美光从周期性大宗商品供应商转型为准基础设施企业。通过签署五
+中新网5月18日电 5月17日，2026传奇首野莫干山越野赛在浙江省德清县莫干山镇庾村广场鸣枪起跑。本届赛事以“首野启程，传奇新生”为主题，设置25km、10km、5km组别，吸引了来自全国各地的1000名跑者参赛。 经过角逐，吴勇以2小时29分44秒的成绩夺得25km男子组冠军，女子组冠军则由杨世芹以3小时28分42秒收入囊中。10km“趣野新势力”组男女冠军分别被俞平国和胡
 
 ## 正文
 
-周四美股成交额第1名美光科技收跌0.53%，成交454.75亿美元。
+中新网5月18日电 5月17日，2026传奇首野莫干山越野赛在浙江省德清县莫干山镇庾村广场鸣枪起跑。
 
-在过去一年暴涨684%后，美光科技凭借AI芯片需求与存储周期回暖，股价仍有巨大上涨潜力。
+本届赛事以“首野启程，传奇新生”为主题，设置25km、10km、5km组别，吸引了来自全国各地的1000名跑者参赛。
 
-分析师指出，其第二财季营收与每股收益均远超预期，并给出极为强劲的第三财季指引，推动股价飙升至万亿市值。
+经过角逐，吴勇以2小时29分44秒的成绩夺得25km男子组冠军，女子组冠军则由杨世芹以3小时28分42秒收入囊中。
 
-高带宽内存（HBM）技术正在从根本上改变存储行业的商业模式，使美光从周期性大宗商品供应商转型为准基础设施企业。
+10km“趣野新势力”组男女冠军分别被俞平国和胡索获得。
 
-通过签署五年期战略客户协议（SCA），美光锁定了长期定价与出货量，显著增强了未来盈利的稳定性和可预见性。
+5km“山野轻体验”组不计排名，所有完赛选手均获得专属完赛奖牌。
 
-第2名英伟达收高0.78%，成交296.8亿美元。
+据了解，本次赛事完赛奖牌贴合莫干山竹、山、石特色，以本地温润山石、粗犷山岩及连绵起伏山峦轮廓为基底，镌刻苍劲竹纹，将江南隐逸诗意、跑者逐野勇气与“传奇首野”金芒荣耀相融。
 
-周四之前，英伟达股价已经连续四个交易日下跌。
+作为专为“首次出发”打造的赛事，本次莫干山越野赛推出了精英跑者领衔的“导师阵营”机制，打破新手跑者“独自越野”的壁垒。
 
-据报道，英伟达CEO黄仁勋将于下周访问韩国。
+导师是跑者身边的“陪跑者”与“引路人”，解决了新手技术不足、经验欠缺的难题，也搭建起选手间的交流桥梁，让选手的首野之旅在精英导师的专业指导下，科学备战、从容参赛、安全完赛、快乐“玩”赛。
 
 ## 相关推荐
 
-- 2026-06-29 16:44 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 16:57 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 16:38 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 16:37 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 16:56 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 16:32 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 16:59 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 16:47 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 16:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 16:49 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 16:39 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 16:37 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 16:36 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 17:00 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 16:36 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 16:56 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 17:00 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 16:45 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 16:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 16:36 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 17:04 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 17:01 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 16:47 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 16:37 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 17:00 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 16:55 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:35 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/840772291006.shtml)
-- 2026-06-29 16:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/833822312734.shtml)
-- 2026-06-29 16:49 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/048181.shtml)
-- 2026-06-29 16:49 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/95620.shtml)
-- 2026-06-29 16:41 - [和周杰伦在演唱会合唱了](http://www.share.minike.top/Article/details/735773.shtml)
-- 2026-06-29 16:58 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.minike.top/Article/details/022545.shtml)
-- 2026-06-29 16:55 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/460724.shtml)
-- 2026-06-29 16:47 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.kurohicncr.top/Article/details/01681454.shtml)
-- 2026-06-29 16:44 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/16233.shtml)
-- 2026-06-29 16:57 - [T1 KC](http://www.share.minike.top/Article/details/490485307049.shtml)
-- 2026-06-29 16:43 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/794830.shtml)
-- 2026-06-29 16:34 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/171073221.shtml)
-- 2026-06-29 16:31 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/20156999375.shtml)
-- 2026-06-29 16:42 - [新能源车能当外接空调用吗](http://www.share.minike.top/Article/details/3470762915.shtml)
-- 2026-06-29 16:46 - [世界杯上那些封神的门将](http://www.share.minike.top/Article/details/30189322579.shtml)
+- 2026-06-29 17:03 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.kurohicncr.top/Article/details/18552715.shtml)
+- 2026-06-29 16:53 - [papi酱回应毕业4年零收入](http://www.share.minike.top/Article/details/64593266.shtml)
+- 2026-06-29 16:45 - [扫黑风暴](http://www.share.minike.top/Article/details/985341298604.shtml)
+- 2026-06-29 16:45 - [博主：美航母沦为毒品集散窝点](http://www.blog.kurohicncr.top/Article/details/2081690.shtml)
+- 2026-06-29 16:50 - [送你一朵小红花](https://www.share.minike.top/Article/details/0983995.shtml)
+- 2026-06-29 17:03 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/654645.shtml)
+- 2026-06-29 17:02 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.kurohicncr.top/Article/details/422161329.shtml)
+- 2026-06-29 16:43 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/44262475.shtml)
+- 2026-06-29 17:04 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/33809.shtml)
+- 2026-06-29 17:05 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/555340721.shtml)
+- 2026-06-29 16:38 - [南部战区位南海海域进行例行巡航](https://www.blog.kurohicncr.top/Article/details/899680655.shtml)
+- 2026-06-29 17:03 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/18843.shtml)
+- 2026-06-29 16:44 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/173558841979.shtml)
+- 2026-06-29 17:01 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/26887513689.shtml)
+- 2026-06-29 16:46 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/25439303353.shtml)

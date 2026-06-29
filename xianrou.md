@@ -1,57 +1,61 @@
-# COPOLCO第47次全体会议在海口举行
+# 特朗普政府推出短期培训助学金，加速培养高需求岗位人才
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-中新网海口5月27日电 (汪俐辰)5月26日，ISO消费者政策委员会(COPOLCO)第47次全体会议开幕式在海南省海口市举行。这是中国继1995年承办COPOLCO第17次全体会议后，时隔31年再次承办COPOLCO全体会议。 市场监管总局副局长、国家标准委主任邓志勇，海南省人民政府副省长李锋，COPOLCO主席文恩淑出席开幕式并致辞。中国标准化研究院(以下简称标准院)党委书
+特朗普政府正式推出“劳动力佩尔助学金（Workforce Pell Grants）”计划，旨在帮助美国人快速进入高技能、高工资、高需求职业。该计划将于2026年7月1日生效，学生可使用联邦佩尔助学金参加时长8至15周的短期培训项目。 美国教育部长琳达·麦克马洪表示：“美国人不应该为了进入职场而花数年时间上大学并背负可能永远无法偿还的债务。在特朗普总统的领导下，美国学生很快就能以
 
 ## 正文
 
-中新网海口5月27日电 (汪俐辰)5月26日，ISO消费者政策委员会(COPOLCO)第47次全体会议开幕式在海南省海口市举行。
+特朗普政府正式推出“劳动力佩尔助学金（Workforce Pell Grants）”计划，旨在帮助美国人快速进入高技能、高工资、高需求职业。
 
-这是中国继1995年承办COPOLCO第17次全体会议后，时隔31年再次承办COPOLCO全体会议。
+该计划将于2026年7月1日生效，学生可使用联邦佩尔助学金参加时长8至15周的短期培训项目。
 
-市场监管总局副局长、国家标准委主任邓志勇，海南省人民政府副省长李锋，COPOLCO主席文恩淑出席开幕式并致辞。
+美国教育部长琳达·麦克马洪表示：“美国人不应该为了进入职场而花数年时间上大学并背负可能永远无法偿还的债务。
 
-中国标准化研究院(以下简称标准院)党委书记、院长王昆主持开幕式。
+在特朗普总统的领导下，美国学生很快就能以极少甚至零债务毕业，并在数周内为开始从事当今需求旺盛的工作做好充分准备。
 
-开幕式上，邓志勇指出，中国高度重视消费者保护和消费领域标准化工作，积极支持COPOLCO各项工作，愿与COPOLCO及各成员进一步深化务实合作，共同提升全球消费者保护水平。
+” 州长主导资格认定，确保与就业市场需求匹配 根据新规，各州州长需与州劳动力委员会协商，确定符合资格的高需求行业和职业领域。
 
-李锋表示，本次会议在海口举办，将为海南加强消费者保护标准化交流、优化自贸港消费环境提供重要平台。
+爱荷华州已率先启动全美首个申请程序，涵盖医疗保健、制造业、建筑业、信息技术等领域。
 
-文恩淑表示，期待各方依托此次会议进一步深化合作，共同推动消费者权益保护国际标准化事业发展。
+符合条件的职业包括：紧急医疗技术员、护理助理、焊接工、电工、卡车司机、暖通空调安装工等。
 
-据了解，COPOLCO第47次全体会议及系列活动由标准院联合海南省检验检测研究院共同承办，会期持续至5月29日。
+严格问责制保障学生回报 入选项目必须达到以下标准：课程需在8至15周内完成；毕业生就业率不低于70%；学生完成率不低于70%；毕业生的中位数收入需证明项目的“增值”回报。
 
 ## 相关推荐
 
-- 2026-06-29 16:56 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 16:55 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 16:57 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 16:42 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 16:32 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 16:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 16:40 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 16:39 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 16:38 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 16:54 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 16:47 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 17:00 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 16:55 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 17:03 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 17:05 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 16:58 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 17:03 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 16:54 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 16:58 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 16:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 17:05 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 17:00 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 16:58 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 16:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 16:41 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 17:03 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:47 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/1993418871.shtml)
-- 2026-06-29 16:40 - [工作靠AI算不算职场作弊](http://www.share.minike.top/Article/details/54225.shtml)
-- 2026-06-29 16:51 - [海口塔吊事故处罚结果公布](http://www.blog.kurohicncr.top/Article/details/25715977281.shtml)
-- 2026-06-29 16:46 - [小众羞耻点是吃麻辣烫](http://www.blog.kurohicncr.top/Article/details/31248710.shtml)
-- 2026-06-29 16:37 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/392958.shtml)
-- 2026-06-29 16:46 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/6041123050.shtml)
-- 2026-06-29 16:52 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/3578297.shtml)
-- 2026-06-29 16:36 - [欧盟为什么越来越倾向贸易保护](https://www.share.kurohicncr.top/Article/details/069776.shtml)
-- 2026-06-29 16:57 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/706926642.shtml)
-- 2026-06-29 16:41 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/877674011.shtml)
-- 2026-06-29 16:47 - [把古诗里的动作换成加班](http://www.blog.kurohicncr.top/Article/details/944964614.shtml)
-- 2026-06-29 16:57 - [博主：全球股市进入“AI极端共振”](https://www.blog.kurohicncr.top/Article/details/59760371.shtml)
-- 2026-06-29 16:35 - [网友飞机上偶遇肖战](http://www.share.kurohicncr.top/Article/details/070390215379.shtml)
-- 2026-06-29 16:55 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/32425701502.shtml)
-- 2026-06-29 16:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/376706.shtml)
+- 2026-06-29 16:41 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/5367495.shtml)
+- 2026-06-29 16:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/581557390146.shtml)
+- 2026-06-29 17:05 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/160365.shtml)
+- 2026-06-29 17:03 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/807802731.shtml)
+- 2026-06-29 16:37 - [斗破苍穹](https://www.share.minike.top/Article/details/5984315.shtml)
+- 2026-06-29 16:57 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/257005603991.shtml)
+- 2026-06-29 17:01 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/54800778.shtml)
+- 2026-06-29 16:44 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/47448258429.shtml)
+- 2026-06-29 17:00 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/877932.shtml)
+- 2026-06-29 16:48 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/739740.shtml)
+- 2026-06-29 16:36 - [机器人学校开学了](https://www.share.minike.top/Article/details/888239472.shtml)
+- 2026-06-29 16:59 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/340571999.shtml)
+- 2026-06-29 16:59 - [扬名立万](http://www.blog.minike.top/Article/details/639425317.shtml)
+- 2026-06-29 17:00 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/743679261.shtml)
+- 2026-06-29 16:54 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/1387897567.shtml)

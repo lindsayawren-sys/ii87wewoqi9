@@ -1,60 +1,59 @@
-# 特朗普过去24小时都忙了什么？（2026-05-27）
+# 不是“拉肚子”那么简单：专家解读炎症性肠病防治
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十数据 1． 完成体检，结果完美——美国总统特朗普：刚刚在沃尔特·里德军事医疗中心完成了体检，所有检查结果都非常完美。 2． 嘲讽媒体——美国总统特朗普嘲讽媒体对伊朗冲突的报道，表示即使德黑兰“完全投降”，媒体仍会声称其在对美斗争中取得了“辉煌的胜利” 。 3． 与内塔尼亚胡通话——当地时间5月26
+中新网沈阳5月19日电 (王涵 禹瑞斋)5月19日是“世界炎症性肠病日”。近年来，炎症性肠病(IBD)在国内发病率持续攀升。近日，中国医科大学附属盛京医院第一消化内科主任田丰接受采访，就IBD的认知与防治进行专业解读，呼吁公众打破“拉肚子”的认知误区，做到早诊早治。田丰表示，IBD不是普通的肠胃炎，而是包括溃疡性结肠炎和克罗恩病在内的严重肠道毁损性疾病。其中，克罗恩病对青少年影
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网沈阳5月19日电 (王涵 禹瑞斋)5月19日是“世界炎症性肠病日”。
 
-来源：金十数据 1． 完成体检，结果完美——美国总统特朗普：刚刚在沃尔特·里德军事医疗中心完成了体检，所有检查结果都非常完美。
+近年来，炎症性肠病(IBD)在国内发病率持续攀升。
 
-2． 嘲讽媒体——美国总统特朗普嘲讽媒体对伊朗冲突的报道，表示即使德黑兰“完全投降”，媒体仍会声称其在对美斗争中取得了“辉煌的胜利” 。
+近日，中国医科大学附属盛京医院第一消化内科主任田丰接受采访，就IBD的认知与防治进行专业解读，呼吁公众打破“拉肚子”的认知误区，做到早诊早治。
 
-3． 与内塔尼亚胡通话——当地时间5月26日，美国总统特朗普与以色列总理内塔尼亚胡通电话。
+田丰表示，IBD不是普通的肠胃炎，而是包括溃疡性结肠炎和克罗恩病在内的严重肠道毁损性疾病。
 
-一名知情人士表示，在地区局势紧张及美伊外交谈判进入关键阶段之际，双方就相关局势进行了沟通。
+其中，克罗恩病对青少年影响尤甚，患者常面临着腹痛、腹泻、消瘦、贫血，严重的营养不良等困境，对工作和生活造成极大困扰。
 
-4． 将在白宫举行内阁会议——美国总统特朗普26日在社交媒体发文称，出于天气原因，原定27日在马里兰州总统度假地戴维营举行的全体内阁会议将改在白宫举行。
+针对IBD发病率攀升的原因，田丰指出，这与国人生活方式变迁密切相关。
 
-当天稍早时候，美国多家媒体报道，在美国同伊朗谈判进入关键时刻之际，特朗普27日将罕见地在戴维营举行全体内阁会议。
+油炸等过加工食品的普及，都与发病率呈正相关。
 
-包括即将卸任的国家情报总监加巴德在内，所有内阁成员将参会。
+此外，现代人生活“过度洁净”使儿童肠道免疫系统在发育过程中缺乏必要的病原微生物和寄生虫的刺激从而导致发育异常，是IBD的发生率明显升高的重要原因。
 
 ## 相关推荐
 
-- 2026-06-29 16:31 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 16:58 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 16:33 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 16:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 16:45 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 16:39 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 16:32 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 16:39 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 16:46 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 16:59 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 16:52 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 16:49 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 16:43 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 16:56 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 16:49 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 16:54 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 17:04 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 17:01 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 17:04 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 17:05 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 16:58 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 16:59 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 17:05 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 16:37 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 16:55 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 16:46 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 17:05 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:56 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/68176560.shtml)
-- 2026-06-29 16:35 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/2477708846.shtml)
-- 2026-06-29 16:54 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/2371355460.shtml)
-- 2026-06-29 16:59 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/030716029471.shtml)
-- 2026-06-29 16:55 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/7181118291.shtml)
-- 2026-06-29 16:42 - [高市早苗口齿不清被质疑醉酒](http://www.blog.kurohicncr.top/Article/details/521307544.shtml)
-- 2026-06-29 16:50 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/811060219.shtml)
-- 2026-06-29 16:37 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/071869670.shtml)
-- 2026-06-29 16:37 - [人类对空调和其他家电有多双标](http://www.blog.minike.top/Article/details/74867317.shtml)
-- 2026-06-29 16:51 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/2226497581.shtml)
-- 2026-06-29 16:54 - [业内：全球市场迎来结构性投资窗口](https://www.share.kurohicncr.top/Article/details/7014269018.shtml)
-- 2026-06-29 16:51 - [逃狱兄弟](https://www.share.minike.top/Article/details/26062.shtml)
-- 2026-06-29 16:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/237044286.shtml)
-- 2026-06-29 16:36 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.kurohicncr.top/Article/details/46117243.shtml)
-- 2026-06-29 16:33 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/78377412.shtml)
+- 2026-06-29 16:46 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/0441610875.shtml)
+- 2026-06-29 16:41 - [众星恭喜吴建豪](https://www.share.kurohicncr.top/Article/details/616682578180.shtml)
+- 2026-06-29 16:56 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/324403561187.shtml)
+- 2026-06-29 16:54 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/276570041501.shtml)
+- 2026-06-29 16:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/939822601909.shtml)
+- 2026-06-29 17:03 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/64898218.shtml)
+- 2026-06-29 16:43 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/12003.shtml)
+- 2026-06-29 16:38 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/17377.shtml)
+- 2026-06-29 17:02 - [AG 宫斗](http://www.share.minike.top/Article/details/387197471743.shtml)
+- 2026-06-29 16:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/440322.shtml)
+- 2026-06-29 16:58 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/277636.shtml)
+- 2026-06-29 16:40 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/4976639.shtml)
+- 2026-06-29 16:50 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.minike.top/Article/details/938909.shtml)
+- 2026-06-29 16:59 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/4194635281.shtml)
+- 2026-06-29 16:56 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/0767154.shtml)

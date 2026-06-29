@@ -1,52 +1,59 @@
-# 野村上调2030至2031财年利润目标至7500亿日元
+# “侨瞧哈尔滨”启动 马来西亚侨商走进五常看“稻”机遇
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-日本最大投行及券商野村控股在连续两年实现创纪录年度净利润后，上调了盈利及盈利能力目标。 野村在周五投资者活动前发布的演示材料中表示，截至2031年3月的财年，目标为税前利润至少达到7500亿日元（约47.0亿美元），股本回报率（衡量盈利能力的指标）达到10%至12%及以上。 此次目标上调，彰显野村在历经多年业绩随市场行情波动后，对实现可持续盈利充满信心。责任编辑：何云
+中新网哈尔滨5月19日电 (记者 刘锡菊)18日，由哈尔滨市委统战部主办、五常市委统战部承办的“侨瞧哈尔滨·溯源稻香五常”活动启动，以“相聚龙江，共谋发展”为主题，吸引了来自马来西亚的近40名华侨华商参加，从农业、文化等方面深度解读哈尔滨的发展新优势和投资新机遇。 五常市地处北纬45度，位于世界三大黑土带之一，被誉为“中国优质稻米之乡”。五常市现有耕地443.8万亩，年产优质成
 
 ## 正文
 
-日本最大投行及券商野村控股在连续两年实现创纪录年度净利润后，上调了盈利及盈利能力目标。
+中新网哈尔滨5月19日电 (记者 刘锡菊)18日，由哈尔滨市委统战部主办、五常市委统战部承办的“侨瞧哈尔滨·溯源稻香五常”活动启动，以“相聚龙江，共谋发展”为主题，吸引了来自马来西亚的近40名华侨华商参加，从农业、文化等方面深度解读哈尔滨的发展新优势和投资新机遇。
 
-野村在周五投资者活动前发布的演示材料中表示，截至2031年3月的财年，目标为税前利润至少达到7500亿日元（约47.0亿美元），股本回报率（衡量盈利能力的指标）达到10%至12%及以上。
+五常市地处北纬45度，位于世界三大黑土带之一，被誉为“中国优质稻米之乡”。
 
-此次目标上调，彰显野村在历经多年业绩随市场行情波动后，对实现可持续盈利充满信心。
+五常市现有耕地443.8万亩，年产优质成品五常大米约85万吨，品牌价值高达720.12亿元(人民币)，连续11年蝉联地标产品大米类中国第一，在2024国际稻香米品牌大会上位列地理标志品牌榜稻米类第一名。
 
-责任编辑：何云
+“五常正处在高质量发展、可持续振兴的关键时期，比以往任何时候都更需要凝聚侨心、汇聚侨力、发挥侨智，也比以往任何时候都更有条件、更有平台、更有前景，让各位侨胞来此投资兴业、成就梦想。
+
+”五常市招商服务中心主任张严表示，该市作为黑龙江县域经济高质量发展的排头兵，拥有独特的资源禀赋、扎实的产业基础、明显的区位优势和良好的营商环境。
+
+活动中，侨商们参观了五常市博物馆，欣赏了东北大鼓、朝鲜族民俗舞等表演。
+
+当日举办的“五常臻品侨连世界”农产品大集，则通过美食体验、非遗展示、互动体验等多元形式，让侨商们看到了五常市的优势、诚意和机遇。
+
+马来西亚中华总商会中央理事、吉打中华总商会会长、拿督洪锡倡表示，通过此次活动，他感受到了五常市的独特风情，也对哈尔滨市的资源禀赋、产业优势和政策环境有了更深入的了解。
 
 ## 相关推荐
 
-- 2026-06-29 16:42 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 16:52 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 16:43 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 16:34 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 16:53 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 16:48 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 16:58 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 16:54 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 16:39 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 16:39 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 16:50 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 16:37 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 16:30 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 16:48 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 16:43 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 16:49 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 16:57 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 16:57 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 16:40 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 16:57 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 16:42 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 16:53 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 16:57 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 16:40 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 16:42 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 16:50 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 16:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:58 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/07019407.shtml)
-- 2026-06-29 16:46 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/72988.shtml)
-- 2026-06-29 16:39 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/634114.shtml)
-- 2026-06-29 16:50 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/40483.shtml)
-- 2026-06-29 16:55 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/275594242.shtml)
-- 2026-06-29 16:56 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/42603677.shtml)
-- 2026-06-29 16:51 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/247992.shtml)
-- 2026-06-29 16:30 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/694104986559.shtml)
-- 2026-06-29 16:44 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/7925367870.shtml)
-- 2026-06-29 16:59 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/496153530.shtml)
-- 2026-06-29 16:49 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/8036213.shtml)
-- 2026-06-29 16:37 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/231298789.shtml)
-- 2026-06-29 16:31 - [省市招考专家解读山西高考志愿政策](http://www.blog.kurohicncr.top/Article/details/38833032.shtml)
-- 2026-06-29 16:47 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/6002677.shtml)
-- 2026-06-29 16:47 - [金刚川](http://www.share.kurohicncr.top/Article/details/0000341.shtml)
+- 2026-06-29 16:41 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/53603885568.shtml)
+- 2026-06-29 16:50 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/1516406.shtml)
+- 2026-06-29 17:00 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/8533111.shtml)
+- 2026-06-29 16:42 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/18128.shtml)
+- 2026-06-29 16:58 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/25018880265.shtml)
+- 2026-06-29 16:50 - [广东一地发现极危植物新物种](https://www.share.kurohicncr.top/Article/details/671695616.shtml)
+- 2026-06-29 17:01 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/1300765040.shtml)
+- 2026-06-29 17:03 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/11344663.shtml)
+- 2026-06-29 17:02 - [《贺子珍》](http://www.share.minike.top/Article/details/593597308505.shtml)
+- 2026-06-29 16:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/19003328.shtml)
+- 2026-06-29 16:42 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/39211024.shtml)
+- 2026-06-29 16:55 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/864838911214.shtml)
+- 2026-06-29 17:01 - [徐昕暂不参加NBA夏季联赛](http://www.blog.minike.top/Article/details/194807696498.shtml)
+- 2026-06-29 16:44 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/70369765454.shtml)
+- 2026-06-29 16:56 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/528562.shtml)

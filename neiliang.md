@@ -1,54 +1,59 @@
-# 【讲习所·中国与世界】“携手走出一条命运与共、共同繁荣的光明大道”
+# 泰国一季度经济增速回升，官方预警中东冲突推高全年通胀风险
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-【本期导读】 5月25日下午，中国国家主席习近平在北京同来华进行国事访问的塞尔维亚总统武契奇举行会谈。习近平指出，中塞两个民族都经历过苦难辉煌，都具有坚韧不拔、百折不挠的精神品质，都坚定追求独立自主、捍卫民族尊严，都对坚持和平发展、坚守公理正义有着深刻理解。双方要加强交往、巩固互信、深化合作、相互支持，携手走出一条命运与共、共同繁荣的光明大道，推动中塞全面战略伙伴关系迈向新高度
+泰国国家经济和社会发展委员会（NESDC）周一发布数据，显示泰国今年第一季度经济实现加速增长。然而，受中东冲突持续发酵影响，泰国官方大幅上调全年通货膨胀预期，并警告地缘政治外溢效应将持续拖累该国经济前景。 数据显示，泰国第一季度国内生产总值（GDP）同比增长2.8%，不仅高于去年第四季度2.5%的增速，亦超出市场此前预期的2.35%。经季节性调整后，一季度GDP环比增长0.7%
 
 ## 正文
 
-【本期导读】 5月25日下午，中国国家主席习近平在北京同来华进行国事访问的塞尔维亚总统武契奇举行会谈。
+泰国国家经济和社会发展委员会（NESDC）周一发布数据，显示泰国今年第一季度经济实现加速增长。
 
-习近平指出，中塞两个民族都经历过苦难辉煌，都具有坚韧不拔、百折不挠的精神品质，都坚定追求独立自主、捍卫民族尊严，都对坚持和平发展、坚守公理正义有着深刻理解。
+然而，受中东冲突持续发酵影响，泰国官方大幅上调全年通货膨胀预期，并警告地缘政治外溢效应将持续拖累该国经济前景。
 
-双方要加强交往、巩固互信、深化合作、相互支持，携手走出一条命运与共、共同繁荣的光明大道，推动中塞全面战略伙伴关系迈向新高度。
+数据显示，泰国第一季度国内生产总值（GDP）同比增长2.8%，不仅高于去年第四季度2.5%的增速，亦超出市场此前预期的2.35%。
 
-当晚，习近平主席为武契奇总统举行“友谊勋章”颁授仪式，这枚中国国家对外最高荣誉勋章不仅彰显中塞两国“铁杆友谊”底色，也寄托着两国人民对新时代中塞命运共同体建设的殷切期望。
+经季节性调整后，一季度GDP环比增长0.7%，增速较前一季度的1.9%有所放缓。
 
-塞方人士一致认为，中国是塞尔维亚的真挚朋友，也是最重要、可信赖的经贸合作伙伴。
+基于上述表现，该委员会宣布，维持对2026年泰国经济增长1.5%至2.5%的年度预期不变。
 
-塞中两国友谊深厚，各领域合作成果丰硕，此次元首会晤将为双方带来新的发展与合作机遇。
+尽管经济运行呈现回升态势，但受中东局势引发的能源及生产成本上升波及，泰国物价正面临显著上行压力。
 
-监制：魏静、戴爽、金近 策划：张倩楠 文案：任丽君 编辑：位树理 视觉：曹懿心
+今年4月，在能源价格攀升的推动下，泰国总体通胀率创下三年多来新高，结束了长达一年的通货紧缩态势。
+
+为此，泰国国家经济和社会发展委员会将2026年全年平均通胀率预期，从先前的-0.3%至0.7%大幅上调至2.0%至3.0%。
 
 ## 相关推荐
 
-- 2026-06-29 16:40 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 16:41 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 16:38 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-29 16:37 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 16:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 16:52 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 16:50 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 16:47 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-29 16:59 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 16:47 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 16:36 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 16:36 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 16:38 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 16:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 17:00 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 16:43 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 17:04 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 16:57 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 17:03 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 16:56 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 16:50 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 16:56 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 17:02 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:43 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/25631508.shtml)
-- 2026-06-29 16:45 - [差点没看懂白鹿丞磊这段意识流](http://www.share.minike.top/Article/details/99755370650.shtml)
-- 2026-06-29 16:53 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/7347777912.shtml)
-- 2026-06-29 16:44 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/90879001045.shtml)
-- 2026-06-29 16:35 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/02785443241.shtml)
-- 2026-06-29 16:36 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/0084432.shtml)
-- 2026-06-29 16:46 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/14635794574.shtml)
-- 2026-06-29 16:59 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/816993173.shtml)
-- 2026-06-29 16:54 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/70790.shtml)
-- 2026-06-29 16:31 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/026909042.shtml)
-- 2026-06-29 16:40 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/8698494.shtml)
-- 2026-06-29 16:53 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/9948385.shtml)
-- 2026-06-29 16:32 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/950140373.shtml)
-- 2026-06-29 16:34 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/4501528373.shtml)
-- 2026-06-29 16:54 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/898368811.shtml)
+- 2026-06-29 16:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/23587.shtml)
+- 2026-06-29 16:43 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/54136.shtml)
+- 2026-06-29 16:47 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/975168722.shtml)
+- 2026-06-29 16:39 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/78219.shtml)
+- 2026-06-29 16:59 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/1362999.shtml)
+- 2026-06-29 17:03 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/8956001.shtml)
+- 2026-06-29 16:40 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/68564057678.shtml)
+- 2026-06-29 16:53 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/267681079.shtml)
+- 2026-06-29 16:59 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/10096875.shtml)
+- 2026-06-29 16:46 - [恋与深空 731](https://www.blog.minike.top/Article/details/5502934159.shtml)
+- 2026-06-29 16:59 - [黄金也扛不住了](https://www.share.minike.top/Article/details/9473169915.shtml)
+- 2026-06-29 16:39 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/0855024878.shtml)
+- 2026-06-29 16:49 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/30525668.shtml)
+- 2026-06-29 16:57 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.kurohicncr.top/Article/details/557726052.shtml)
+- 2026-06-29 16:47 - [金牌调解](http://www.share.kurohicncr.top/Article/details/13745296786.shtml)

@@ -1,56 +1,52 @@
-# 本轮调整超8个月！港股通创新药继续磨底， 520880再创新低！康方生物、百济神州等权重龙头尽墨
+# 青豫特高压工程累计输送电量突破千亿千瓦时
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-5月28日，港股深度调整，恒指一度跌逾2%。港股通创新药大幅走低，权重龙头集体飘绿，康方生物、百济神州跌逾2%，信达生物、中国生物制药跌超3%。 100%创新药研发标的——港股通创新药ETF华宝（520880）午后下探3.68%，现跌2.99%，连续4日下行，场内价格再创上市以来新低。 拉长时间看，港股通创新药自去年9月进入阶段调整期，至今已超8个月，港股通创新药ETF华宝（5
+发布时间：2026年05月18日 19:43 来源：中国新闻网 5月18日，记者从中国国家电网青海省电力公司获悉，截至17日24时，青海—河南±800千伏特高压直流输电工程(以下简称“青豫特高压工程”)累计输送电量达1000.17亿千瓦时。 青豫特高压工程是中国第一条专为清洁能源外送而建设的特高压通道，工程完全由清洁能源自身互补能力独立供电，是中国发展运用特高压输电技术推动新能
 
 ## 正文
 
-5月28日，港股深度调整，恒指一度跌逾2%。
+发布时间：2026年05月18日 19:43 来源：中国新闻网 5月18日，记者从中国国家电网青海省电力公司获悉，截至17日24时，青海—河南±800千伏特高压直流输电工程(以下简称“青豫特高压工程”)累计输送电量达1000.17亿千瓦时。
 
-港股通创新药大幅走低，权重龙头集体飘绿，康方生物、百济神州跌逾2%，信达生物、中国生物制药跌超3%。
+青豫特高压工程是中国第一条专为清洁能源外送而建设的特高压通道，工程完全由清洁能源自身互补能力独立供电，是中国发展运用特高压输电技术推动新能源大规模开发利用的一次重大创新。
 
-100%创新药研发标的——港股通创新药ETF华宝（520880）午后下探3.68%，现跌2.99%，连续4日下行，场内价格再创上市以来新低。
+据统计，青豫特高压累计外送的千亿千瓦时清洁能源电量，相当于减少燃烧标准煤约3500万吨，减排二氧化碳超9600万吨。
 
-拉长时间看，港股通创新药自去年9月进入阶段调整期，至今已超8个月，港股通创新药ETF华宝（520880）标的指数区间跌幅已超过30%，当前位置或接近本轮调整底部区间，配置性价比凸显。
+作为联通西北新能源基地与华中负荷中心的“绿电大动脉”，工程起于青海省海南藏族自治州，止于河南省驻马店市，途经青海、甘肃、陕西、河南四省，新建海南、驻马店两座换流站，线路全长1587公里。
 
-注：恒生港股通创新药精选指数2021-2025年年度历史收益分别为：-22.72%、-16.48%、-19.76%、-14.16%、66.32%。
+借助这条特高压通道，青海丰富的风电、光伏、水电转化为稳定清洁绿电，输送至华中负荷中心，既推动青海能源资源优势转化为经济发展优势，也有效支撑华中地区电力安全可靠供应。
 
-回测历史业绩不预示指数未来表现。
-
-回归投资底层逻辑，创新药基本面扎实：2026年Q1 BD出海超600亿美元，恒瑞152亿美元平台型大交易标志行业升维；政策端首发定价机制优化、医保商保双目录衔接形成持续支撑；港股通创新药已整体进入盈利阶段。
-
-事件层面，2026年美国临床肿瘤学会（ASCO）年会将于明日在芝加哥举行。
+(李隽 制作 刘鹏 视频来源 国家电网青海省电力公司） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 16:59 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 16:50 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 16:30 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 16:41 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 16:36 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 16:48 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 16:44 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 16:36 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 16:52 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 16:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 16:43 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 16:55 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 16:48 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 16:57 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 17:02 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 17:02 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 16:46 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 16:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 16:53 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 16:44 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:49 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/3336551.shtml)
-- 2026-06-29 16:31 - [12所大学更正招生目录](http://www.share.kurohicncr.top/Article/details/7430436296.shtml)
-- 2026-06-29 16:55 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.minike.top/Article/details/41963422280.shtml)
-- 2026-06-29 16:44 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/2315070106.shtml)
-- 2026-06-29 16:35 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.minike.top/Article/details/22632055088.shtml)
-- 2026-06-29 16:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/94088.shtml)
-- 2026-06-29 16:39 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/8373092.shtml)
-- 2026-06-29 16:37 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/66467359.shtml)
-- 2026-06-29 16:37 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/0375633288.shtml)
-- 2026-06-29 16:54 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/80097506.shtml)
-- 2026-06-29 16:34 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/601753585964.shtml)
-- 2026-06-29 16:48 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/08262943.shtml)
-- 2026-06-29 16:48 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/35121099203.shtml)
-- 2026-06-29 16:49 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/25735115531.shtml)
-- 2026-06-29 16:50 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/58192.shtml)
+- 2026-06-29 16:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/7653771.shtml)
+- 2026-06-29 16:59 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/925338.shtml)
+- 2026-06-29 16:53 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.minike.top/Article/details/8850285949.shtml)
+- 2026-06-29 16:49 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/39309966.shtml)
+- 2026-06-29 16:50 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/469041032.shtml)
+- 2026-06-29 16:56 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/41278629581.shtml)
+- 2026-06-29 16:58 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/6155092096.shtml)
+- 2026-06-29 17:04 - [当地回应林区违规放羊遭豹啃食](http://www.blog.minike.top/Article/details/679672917.shtml)
+- 2026-06-29 17:01 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/04854798777.shtml)
+- 2026-06-29 16:59 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/89521942.shtml)
+- 2026-06-29 16:58 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/830860.shtml)
+- 2026-06-29 16:45 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/52916933.shtml)
+- 2026-06-29 16:47 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.share.minike.top/Article/details/012597520.shtml)
+- 2026-06-29 16:36 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/98396538.shtml)
+- 2026-06-29 17:01 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/0709589.shtml)

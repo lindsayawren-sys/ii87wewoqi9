@@ -1,57 +1,60 @@
-# 中联发展控股就于东南亚发展人工智能数据中心业务订立合营协议
+# 俄罗斯尤日乌拉尔黄金公司被没收股权因无人竞标流拍
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-中联发展控股（00264）发布公告，于2026年5月28日，本公司一间全资附属公司与Nexelon Limited（合营伙伴）订立合营协议（合营协议）。根据合营协议，该附属公司已同意出售，而合营伙伴已同意以名义代价购买该附属公司一间全资附属公司（合营公司）的40%股权，以使合营协议项下所拟合营公司的股权结构更为合理。 合营协议完成后，合营公司将由该附属公司拥有60%权益及由合营
+俄罗斯国家拍卖网站18日发布通报指出，由于在规定期限内未收到任何竞标申请，该国大型黄金生产商尤日乌拉尔黄金公司（UGC）部分被没收国有股权的公开拍卖已宣告流拍。 此次公开拍卖的标的为俄罗斯商人康斯坦丁·斯特鲁科夫此前持有的尤日乌拉尔黄金公司67.2%的股权。尤日乌拉尔黄金公司系俄罗斯排名前十的黄金开采企业，该笔股权最新估值达1404.3亿卢布。俄罗斯国家拍卖网站确认本次招标无效
 
 ## 正文
 
-中联发展控股（00264）发布公告，于2026年5月28日，本公司一间全资附属公司与Nexelon Limited（合营伙伴）订立合营协议（合营协议）。
+俄罗斯国家拍卖网站18日发布通报指出，由于在规定期限内未收到任何竞标申请，该国大型黄金生产商尤日乌拉尔黄金公司（UGC）部分被没收国有股权的公开拍卖已宣告流拍。
 
-根据合营协议，该附属公司已同意出售，而合营伙伴已同意以名义代价购买该附属公司一间全资附属公司（合营公司）的40%股权，以使合营协议项下所拟合营公司的股权结构更为合理。
+此次公开拍卖的标的为俄罗斯商人康斯坦丁·斯特鲁科夫此前持有的尤日乌拉尔黄金公司67.2%的股权。
 
-合营协议完成后，合营公司将由该附属公司拥有60%权益及由合营伙伴拥有40%权益，而合营公司将仍为本公司的附属公司。
+尤日乌拉尔黄金公司系俄罗斯排名前十的黄金开采企业，该笔股权最新估值达1404.3亿卢布。
 
-订约各方有意透过合营公司共同于东南亚发展人工智能数据中心业务（AIDC）。
+俄罗斯国家拍卖网站确认本次招标无效，目前俄官方暂未明确是否将筹备启动新一轮拍卖程序。
 
-全球人工智能浪潮及数位化进程的加速发展，促使作为人工智能及数位化基础设施的智能算力中心市场规模持续扩大，并把握周边地区的发展机遇，尤其于亚太地区增长显著。
+去年7月，俄罗斯法院裁定将斯特鲁科夫名下的上述股权予以没收并收归国有。
 
-透过订立合营协议，本公司有望把握该等机遇，并提升其长远增长前景。
+俄罗斯检察机关此前指控其通过腐败手段获取相关资产。
 
-董事会认为，订立合营协议为一项策略性举措，将使本公司能够（其中包括）于快速增长的东南亚数位基础设施市场扩展其业务版图、善用合营伙伴的本地专业知识及网络，以及实现其收益来源多元化。
+本月上旬，俄罗斯联邦国有财产管理署正式将斯特鲁科夫名下总估值约1620.2亿卢布（约合22.2亿美元）的资产挂牌拍卖。
 
-责任编辑：卢昱君
+据悉，斯特鲁科夫目前尚未遭到正式起诉或羁押。
 
 ## 相关推荐
 
-- 2026-06-29 16:32 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 16:54 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 16:40 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 16:35 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 16:59 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 16:50 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 16:56 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 16:58 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 16:50 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 16:33 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 16:49 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 16:38 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 17:04 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 16:51 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 17:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 16:54 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 16:51 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 16:55 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 16:59 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 16:43 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 16:58 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 16:56 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 16:54 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 16:39 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 16:36 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:59 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/00593511.shtml)
-- 2026-06-29 16:47 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/757774.shtml)
-- 2026-06-29 16:49 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/5049603.shtml)
-- 2026-06-29 16:58 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/81342057591.shtml)
-- 2026-06-29 16:42 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/1776063.shtml)
-- 2026-06-29 16:42 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/36706.shtml)
-- 2026-06-29 16:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/85962151578.shtml)
-- 2026-06-29 16:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/83749908246.shtml)
-- 2026-06-29 16:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/679975270861.shtml)
-- 2026-06-29 16:58 - [TLAW vs DCG MSI](https://www.blog.kurohicncr.top/Article/details/1578488.shtml)
-- 2026-06-29 16:52 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/590844706.shtml)
-- 2026-06-29 16:40 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/50511.shtml)
-- 2026-06-29 16:49 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/4796067.shtml)
-- 2026-06-29 16:40 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/38805.shtml)
-- 2026-06-29 16:43 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/04115.shtml)
+- 2026-06-29 16:48 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/284252.shtml)
+- 2026-06-29 16:52 - [金刚川](https://www.share.minike.top/Article/details/08508.shtml)
+- 2026-06-29 17:03 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/447225.shtml)
+- 2026-06-29 16:50 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/795058710859.shtml)
+- 2026-06-29 16:36 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/64628.shtml)
+- 2026-06-29 16:45 - [起风了](https://www.blog.minike.top/Article/details/73877.shtml)
+- 2026-06-29 16:50 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.kurohicncr.top/Article/details/1779957799.shtml)
+- 2026-06-29 16:54 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/66638537.shtml)
+- 2026-06-29 17:02 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/80271216832.shtml)
+- 2026-06-29 16:47 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/7012905171.shtml)
+- 2026-06-29 16:55 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/464526.shtml)
+- 2026-06-29 16:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/03484139.shtml)
+- 2026-06-29 16:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/3753709.shtml)
+- 2026-06-29 16:44 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/18834176.shtml)
+- 2026-06-29 16:46 - [绘画区你赢了](http://www.share.minike.top/Article/details/15295114.shtml)

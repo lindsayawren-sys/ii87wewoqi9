@@ -1,57 +1,60 @@
-# 六国抵制欧盟减少免费碳排放配额的计划
+# 周涛：AI三大前沿方向将至 相信中国体制韧性能够平稳渡过技术冲击期
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-文件显示，欧盟计划逐步减少向工业界发放的免费二氧化碳排放配额，但遭到六个国家政府的抵制。这些国家要求放宽规则，以帮助企业应对伊朗战争带来的能源价格冲击。 欧盟委员会本月提出了关于工业界到2030年将获得的免费排放配额数量的新规则。 随着人们对拥有27个成员的欧盟竞争力日趋减弱的担忧不断加剧，布鲁塞尔方面表示，通过比最初预期更慢的速度减少免费配额的发放数量，这一变化将带来到本十年
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。 “AI驱动数字经济新发展”主题论坛上，电子科技大学大数据研究中心主任、数之联科技创始人周涛指出，当前AI有三大最核心的前沿方向： 一是空间智能/物理智能：AI
 
 ## 正文
 
-文件显示，欧盟计划逐步减少向工业界发放的免费二氧化碳排放配额，但遭到六个国家政府的抵制。
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。
 
-这些国家要求放宽规则，以帮助企业应对伊朗战争带来的能源价格冲击。
+本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。
 
-欧盟委员会本月提出了关于工业界到2030年将获得的免费排放配额数量的新规则。
+“AI驱动数字经济新发展”主题论坛上，电子科技大学大数据研究中心主任、数之联科技创始人周涛指出，当前AI有三大最核心的前沿方向： 一是空间智能/物理智能：AI已基本掌握语言智能，但对空间、物理世界的理解仍然很弱，真正能在现实世界自主行动的机器人，可能需要十几年甚至更久才能普及，难度接近可控核聚变。
 
-随着人们对拥有27个成员的欧盟竞争力日趋减弱的担忧不断加剧，布鲁塞尔方面表示，通过比最初预期更慢的速度减少免费配额的发放数量，这一变化将带来到本十年末将工业界需支付的碳成本总体降低40亿欧元（约合46.6亿美元）的效果。
+二是编码世界（Coding the world）：AI正在把所有事物转化为代码，目前产业代码90%已能自动化，这一两年内就会基本实现。
 
-但保加利亚、捷克共和国、希腊、波兰、罗马尼亚和斯洛伐克已要求欧盟委员会改为将免费发放的二氧化碳配额数量冻结在去年的水平。
+三是深度创造（AI for Science）：未来可能替代大量科研与创作工作。
 
-一份联合文件中，这些国家表示，自2月底伊朗战争爆发以来大幅上涨的高能源价格，对能源密集型产业的竞争力构成了风险。
+周涛强调，AI快速发展给人类社会带来两大深层担忧：第一，人的疏离感：下一代越来越习惯与AI、Agent交流，不愿与人打交道，长远来看不一定是好事。
 
-针对欧盟委员会提出的规则，他们表示：“这可能导致这些产业在全球市场上的竞争力进一步丧失、面临关闭或转移至欧盟以外的风险加大。
+第二，神圣感下降：下一代可能觉得科学和艺术不再神圣，未来的目的、价值都会受到冲击。
 
-” 欧盟的碳排放交易体系是欧盟应对二氧化碳排放和气候变化的主要工具，其运作方式是强制工业界在污染时购买排放配额。
+周涛认为，应对未来的关键是两点：一是相信中国体制的韧性，能够平稳渡过技术冲击期；二是与狼共舞、保持韧性，在与AI共存中守住人类的精神追求。
 
 ## 相关推荐
 
-- 2026-06-29 16:55 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 16:52 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 16:47 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 16:52 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 16:51 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 16:34 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 16:30 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 16:54 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 16:56 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 16:42 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 16:37 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 16:43 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 16:52 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 16:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 16:49 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 16:58 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 16:47 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 16:37 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 16:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 17:05 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 16:36 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 16:52 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 16:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 16:53 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 17:01 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:52 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/52847.shtml)
-- 2026-06-29 16:49 - [博主：美航母沦为毒品集散窝点](http://www.blog.kurohicncr.top/Article/details/1010948.shtml)
-- 2026-06-29 16:34 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/589860.shtml)
-- 2026-06-29 16:51 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/686038988.shtml)
-- 2026-06-29 16:42 - [端午节加班工资应该怎么算](https://www.share.kurohicncr.top/Article/details/820350.shtml)
-- 2026-06-29 16:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/12919767358.shtml)
-- 2026-06-29 16:40 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/750774486383.shtml)
-- 2026-06-29 16:40 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/38593698376.shtml)
-- 2026-06-29 16:41 - [货车司机雨中帮交警挪树获表扬](https://www.blog.minike.top/Article/details/26384477040.shtml)
-- 2026-06-29 16:44 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/05757.shtml)
-- 2026-06-29 16:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/06553522.shtml)
-- 2026-06-29 16:56 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/77083433.shtml)
-- 2026-06-29 16:47 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/8539378.shtml)
-- 2026-06-29 16:44 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/94742130097.shtml)
-- 2026-06-29 16:33 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/06279.shtml)
+- 2026-06-29 16:52 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/49004945.shtml)
+- 2026-06-29 17:00 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/359088860662.shtml)
+- 2026-06-29 16:45 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/964475.shtml)
+- 2026-06-29 17:03 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/262222.shtml)
+- 2026-06-29 16:37 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/48735.shtml)
+- 2026-06-29 16:42 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/3638523323.shtml)
+- 2026-06-29 17:00 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/9042855082.shtml)
+- 2026-06-29 16:54 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/787585733.shtml)
+- 2026-06-29 16:54 - [挪威王储妃长子2次强奸被判4年](http://www.blog.kurohicncr.top/Article/details/180816507977.shtml)
+- 2026-06-29 16:55 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/35391.shtml)
+- 2026-06-29 16:54 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/744645.shtml)
+- 2026-06-29 17:05 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/83041.shtml)
+- 2026-06-29 16:56 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/3095935.shtml)
+- 2026-06-29 16:48 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/6932906418.shtml)
+- 2026-06-29 16:58 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/713648769834.shtml)

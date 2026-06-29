@@ -1,56 +1,58 @@
-# 中东局势推高运费，美国液化气买家取消船货订单
+# 业内人士：债券市场已成为央行宏观调控和政策传导的重要阵地
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-受中东冲突影响，海运运费大幅飙升，部分美国液化石油气买家取消了原本发往亚洲的货运订单。 据不愿具名的知情人士透露，已有至少两批原定下月从美国墨西哥湾沿岸出口码头装船的货物被取消，还有部分买家正商议取消更多订单。这些人士因无权对外发声，故而选择匿名。 中东局势导致霍尔木兹海峡近乎停运，波斯湾地区的供气通道受阻，亚洲液化石油气买家此前不得不紧急增购美国货源。衡量美国液化气出口东亚利
+来源：金融时报 记者：马梅若 “2025年末，银行持有的债券超过100万亿元，占其总资产的25%，较2015年上升7个百分点；债券与贷款比例为35%，较2015年上升6个百分点。银行债券投融资行为已经成为影响货币供应和信用创造的重要渠道。”日前，中国人民银行在《2026年第一季度货币政策执行报告》（以下简称《报告》）中披露了上述数据。 “这显示，随着融资结构变化和银行经营转型，
 
 ## 正文
 
-受中东冲突影响，海运运费大幅飙升，部分美国液化石油气买家取消了原本发往亚洲的货运订单。
+来源：金融时报 记者：马梅若 “2025年末，银行持有的债券超过100万亿元，占其总资产的25%，较2015年上升7个百分点；债券与贷款比例为35%，较2015年上升6个百分点。
 
-据不愿具名的知情人士透露，已有至少两批原定下月从美国墨西哥湾沿岸出口码头装船的货物被取消，还有部分买家正商议取消更多订单。
+银行债券投融资行为已经成为影响货币供应和信用创造的重要渠道。
 
-这些人士因无权对外发声，故而选择匿名。
+”日前，中国人民银行在《2026年第一季度货币政策执行报告》（以下简称《报告》）中披露了上述数据。
 
-中东局势导致霍尔木兹海峡近乎停运，波斯湾地区的供气通道受阻，亚洲液化石油气买家此前不得不紧急增购美国货源。
+“这显示，随着融资结构变化和银行经营转型，商业银行债券投融资行为已成为影响货币供应和信用创造的重要渠道。
 
-衡量美国液化气出口东亚利润的核心指标 —— 远东指数 - 蒙特贝尔维尤价差持续收窄，叠加运费大涨，贸易商原本可观的收益已被完全吞噬。
+”平安银行有关业务负责人如是表示。
 
-印度是液化石油气主要进口国，战前该国 90% 的液化石油气均从中东采购。
+“央行遴选的一级交易商和做市商，正在扮演三重关键角色——流动性枢纽、定价锚点、市场稳定器。
 
-如今印度转而从美国进口以弥补供应缺口，但运费暴涨推高了采购成本，令该国国有炼油企业承压。
+”受访专家在接受采访时指出，通俗来说，银行既是政策落地的“传导器”，也是市场运行的“压舱石”。
 
-对于亚洲一众采购方而言，运费高企的困境暂无缓解迹象。
+与此同时，管好债市的意义也尤为凸显。
 
 ## 相关推荐
 
-- 2026-06-29 16:31 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 16:40 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 16:34 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 16:54 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 16:34 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 16:54 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 16:32 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 16:51 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 16:57 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 16:51 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 16:36 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 16:49 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 16:56 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 16:40 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 16:37 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 16:53 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 16:43 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 16:57 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 16:56 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 17:05 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 17:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 17:02 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:40 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/3918973.shtml)
-- 2026-06-29 16:55 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/8164931.shtml)
-- 2026-06-29 16:34 - [沙丘](https://www.blog.minike.top/Article/details/307408.shtml)
-- 2026-06-29 16:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/3954677.shtml)
-- 2026-06-29 16:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/066518301.shtml)
-- 2026-06-29 16:35 - [首尔商铺禁止洪明甫入内](http://www.share.kurohicncr.top/Article/details/673446184.shtml)
-- 2026-06-29 16:47 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/324478478903.shtml)
-- 2026-06-29 16:34 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/82080021355.shtml)
-- 2026-06-29 16:44 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/026510.shtml)
-- 2026-06-29 16:59 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/7930294.shtml)
-- 2026-06-29 16:45 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/54064924.shtml)
-- 2026-06-29 16:52 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/05169372.shtml)
-- 2026-06-29 16:54 - [A股割裂行情有变化了吗](http://www.blog.minike.top/Article/details/81149404.shtml)
-- 2026-06-29 16:31 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/93284.shtml)
-- 2026-06-29 16:59 - [东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/14218229.shtml)
+- 2026-06-29 16:51 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/762799420.shtml)
+- 2026-06-29 17:05 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/774935474382.shtml)
+- 2026-06-29 17:04 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/13311568.shtml)
+- 2026-06-29 16:56 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/146272473008.shtml)
+- 2026-06-29 16:36 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/428211.shtml)
+- 2026-06-29 16:37 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/5308304.shtml)
+- 2026-06-29 17:00 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/179584661973.shtml)
+- 2026-06-29 16:46 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/44733.shtml)
+- 2026-06-29 16:47 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/93261097740.shtml)
+- 2026-06-29 16:42 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/55254480.shtml)
+- 2026-06-29 17:01 - [乔家的儿女](https://www.share.minike.top/Article/details/5453413.shtml)
+- 2026-06-29 16:55 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/2577775.shtml)
+- 2026-06-29 17:00 - [扫黑风暴](https://www.blog.minike.top/Article/details/3727713.shtml)
+- 2026-06-29 17:04 - [T1 KC](http://www.share.kurohicncr.top/Article/details/209629.shtml)
+- 2026-06-29 16:57 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/506060064.shtml)

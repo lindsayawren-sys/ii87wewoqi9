@@ -1,57 +1,57 @@
-# 戴尔股价盘后飙升 公司上调AI服务器销售额展望至600亿美元
+# 利用工作便利做起买卖公民个人信息“生意” 网警严厉打击
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-戴尔科技股价盘后涨逾30%，此前这家硬件制造商给出的年度销售展望远超分析师预期，得益于人工智能（AI）服务器需求推动。 这家总部位于德克萨斯州的公司周四在声明中表示，截至2027年1月的财年营收将在约1，670亿美元，其中600亿美元来自AI服务器销售。这高于此前约1，400亿美元的营收展望，也超过彭博汇编数据显示的分析师平均预期1，421亿美元。 首席运营官Jeff Clar
+中新网5月19日电 据公安部网安局微信公众号消息，公积金账户，看似只是个人的缴存凭证，实则承载着大量核心的身份信息。非法买卖？已涉嫌犯罪。 案件回顾 近日，四川省攀枝花市公安机关网安部门破获一起利用工作便利条件，非法买卖公民公积金信息案件，犯罪嫌疑人王某等10人因涉嫌侵犯公民个人信息罪被依法采取刑事强制措施。 经查，犯罪嫌疑人王某曾任职于某信息技术公司，利用维护公积金相关系统的
 
 ## 正文
 
-戴尔科技股价盘后涨逾30%，此前这家硬件制造商给出的年度销售展望远超分析师预期，得益于人工智能（AI）服务器需求推动。
+中新网5月19日电 据公安部网安局微信公众号消息，公积金账户，看似只是个人的缴存凭证，实则承载着大量核心的身份信息。
 
-这家总部位于德克萨斯州的公司周四在声明中表示，截至2027年1月的财年营收将在约1，670亿美元，其中600亿美元来自AI服务器销售。
+非法买卖？
 
-这高于此前约1，400亿美元的营收展望，也超过彭博汇编数据显示的分析师平均预期1，421亿美元。
+已涉嫌犯罪。
 
-首席运营官Jeff Clarke在声明中表示，在截至5月1日的季度，该公司获得244亿美元AI订单，实现161亿美元AI服务器销售额。
+案件回顾 近日，四川省攀枝花市公安机关网安部门破获一起利用工作便利条件，非法买卖公民公积金信息案件，犯罪嫌疑人王某等10人因涉嫌侵犯公民个人信息罪被依法采取刑事强制措施。
 
-“AI机遇未见放缓迹象。
+经查，犯罪嫌疑人王某曾任职于某信息技术公司，利用维护公积金相关系统的便利条件，非法获取了一批公民的公积金缴存信息，并通过社交网络向贷款中介、理财公司兜售，宣称 “信息真实、可核验、可精准定位客户资质”。
 
-” 该股盘后涨逾30%，此前收于317.05美元。
+经进一步查证，王某等人累计向他人出售公民公积金信息500余万条。
 
-戴尔的服务器业务今年被视为AI赢家，推动该股截至周四收盘累计上涨逾150%。
+经审讯，王某对其非法获取并出售公民个人信息的犯罪事实供认不讳。
 
-第一财季销售额跃升88%，至438亿美元，分析师平均预期为355亿美元。
+目前，王某等人因非法获取和买卖公民个人信息已被依法采取刑事强制措施。
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 16:57 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 16:57 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 16:56 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 16:32 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 16:42 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 16:58 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 16:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 16:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 16:37 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 16:43 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 17:05 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 16:45 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 17:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 16:55 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 16:57 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 17:00 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 17:02 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 16:51 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 17:04 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 16:51 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 16:40 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:39 - [众星恭喜吴建豪](http://www.share.kurohicncr.top/Article/details/163320033.shtml)
-- 2026-06-29 16:38 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/83499.shtml)
-- 2026-06-29 16:53 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/3249734580.shtml)
-- 2026-06-29 16:59 - [7款商保创新药“转道”](http://www.share.kurohicncr.top/Article/details/50338816814.shtml)
-- 2026-06-29 16:55 - [韩国国脚无缘上亿韩元奖金](https://www.share.kurohicncr.top/Article/details/04927.shtml)
-- 2026-06-29 16:54 - [普京介绍前线战事](https://www.blog.minike.top/Article/details/21623.shtml)
-- 2026-06-29 16:53 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/799553121700.shtml)
-- 2026-06-29 16:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/5546052871.shtml)
-- 2026-06-29 16:46 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/0833234.shtml)
-- 2026-06-29 16:43 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/79474.shtml)
-- 2026-06-29 16:57 - [女心理师](http://www.blog.kurohicncr.top/Article/details/322888033345.shtml)
-- 2026-06-29 16:42 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/9881110021.shtml)
-- 2026-06-29 16:53 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.kurohicncr.top/Article/details/98508.shtml)
-- 2026-06-29 16:56 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/45903942.shtml)
-- 2026-06-29 16:45 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/1790906235.shtml)
+- 2026-06-29 16:59 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/36436.shtml)
+- 2026-06-29 17:02 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/563658179.shtml)
+- 2026-06-29 16:48 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/041183897.shtml)
+- 2026-06-29 16:51 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/57504389081.shtml)
+- 2026-06-29 16:56 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/016615972.shtml)
+- 2026-06-29 16:41 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/20116.shtml)
+- 2026-06-29 16:58 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/644981365.shtml)
+- 2026-06-29 17:02 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/9558905.shtml)
+- 2026-06-29 16:47 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/83165.shtml)
+- 2026-06-29 16:58 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/278529.shtml)
+- 2026-06-29 16:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/33736159.shtml)
+- 2026-06-29 16:41 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/08845.shtml)
+- 2026-06-29 17:04 - [请回答王牌2019](https://www.blog.minike.top/Article/details/30016423934.shtml)
+- 2026-06-29 17:04 - [众星恭喜吴建豪](http://www.blog.kurohicncr.top/Article/details/75134099303.shtml)
+- 2026-06-29 16:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/42029358.shtml)

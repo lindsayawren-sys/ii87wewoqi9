@@ -1,58 +1,58 @@
-# 从“无法理解”到“我会买的”，段永平出14.7亿港元举牌泡泡玛特
+# 普利制药已有一审胜诉，符合要求还可加入
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 一纸增持信息，令泡泡玛特的市场行情泛起涟漪。 5月28日，泡泡玛特以160港元的价格高开，开盘后股价迅速冲高至164.6港元，随后回落，股价全天震荡运行，最终收涨4.73%，对应161.5港元，总市值2165.78亿港元。 二级市场的激荡情绪源自知名投资人段永平对泡泡玛特的增持。 前一日（
+上海沪紫律师事务所刘鹏律师团队近日再次收到一批胜诉判决。此前海口市中级人民法院对投资者诉普利制药证券虚假陈述责任纠纷案件作出一审胜诉判决，公司需赔付股民损失。回溯此案，2025年3月21日，公司收到证监会的处罚决定，因财务造假极其严重触及重大违法强制退市，该公司已在2025年4月正式告别A股。（刘鹏律师专栏） 依据判决，投资者于2022年4月26日-2024年4月16日期间买入
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+上海沪紫律师事务所刘鹏律师团队近日再次收到一批胜诉判决。
 
-来源：国际金融报 一纸增持信息，令泡泡玛特的市场行情泛起涟漪。
+此前海口市中级人民法院对投资者诉普利制药证券虚假陈述责任纠纷案件作出一审胜诉判决，公司需赔付股民损失。
 
-5月28日，泡泡玛特以160港元的价格高开，开盘后股价迅速冲高至164.6港元，随后回落，股价全天震荡运行，最终收涨4.73%，对应161.5港元，总市值2165.78亿港元。
+回溯此案，2025年3月21日，公司收到证监会的处罚决定，因财务造假极其严重触及重大违法强制退市，该公司已在2025年4月正式告别A股。
 
-二级市场的激荡情绪源自知名投资人段永平对泡泡玛特的增持。
+（刘鹏律师专栏） 依据判决，投资者于2022年4月26日-2024年4月16日期间买入，并在2024年4月17日之后卖出或仍持有而亏损的即可报名索赔。
 
-前一日（27日），港交所披露了一则权益变动信息，显示段永平通过其控制的H&H International Investment在2026年5月25日以150港元/股的平均价格，买入了982.32万股泡泡玛特普通股，交易总额高达14.7亿港元。
+（普利制药维权入口） 鉴于已有一审胜诉，后续同类型案件将更快获得判决。
 
-本轮增持后，段永平合计持有泡泡玛特7637.16万股股份，持股比例为5.69%，达到举牌线，触发相关强制披露规定。
+目前该案时效还未到期，受损投资者可查看是否符合索赔区间进而参与挽回损失。
 
-根据东方财富Choice数据，截至4月22日，泡泡玛特创始人王宁持有上市公司44.978%股权，为第一大股东，Pop Mart Hehuo Holding Limited以4.712%的持股比例位居第二。
+据公告，证监会认定公司通过虚构成品药和原料药销售业务、开展贸易业务按总额法核算的方式，虚增收入和利润。
 
-以此作参考，此次增持后，段永平将成为泡泡玛特第二大股东。
+经计算，公司2021年、2022年虚假记载的营业收入金额合计达10.31亿元，且占该两年披露的年度营业收入合计金额的31.08%；虚假记载的利润总额金额合计达6.95亿元，且占该两年披露的年度利润总额合计金额的76.72%。
 
 ## 相关推荐
 
-- 2026-06-29 16:57 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 16:45 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 16:48 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 16:48 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 16:50 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 16:56 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 16:50 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 16:43 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 16:49 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 16:34 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 16:37 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 16:39 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 17:00 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 16:50 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 16:40 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 16:41 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 16:38 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 17:05 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 16:47 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 16:52 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 16:52 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 16:52 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 16:44 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 16:40 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:52 - [网友飞机上偶遇肖战](https://www.share.minike.top/Article/details/0686822786.shtml)
-- 2026-06-29 16:53 - [端午节加班工资应该怎么算](http://www.share.minike.top/Article/details/7238298921.shtml)
-- 2026-06-29 16:40 - [税务总局披露5起合规申报个税案例](https://www.blog.kurohicncr.top/Article/details/862007.shtml)
-- 2026-06-29 16:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/131605785.shtml)
-- 2026-06-29 16:54 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/817785893.shtml)
-- 2026-06-29 16:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/958569577671.shtml)
-- 2026-06-29 16:54 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/41333.shtml)
-- 2026-06-29 16:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/74830527081.shtml)
-- 2026-06-29 16:52 - [男孩复读一年减重20斤涨分111分](http://www.blog.kurohicncr.top/Article/details/3469223172.shtml)
-- 2026-06-29 16:38 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/703198.shtml)
-- 2026-06-29 16:47 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/58439.shtml)
-- 2026-06-29 16:33 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/2036006.shtml)
-- 2026-06-29 16:44 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/0166522.shtml)
-- 2026-06-29 16:38 - [首尔商铺禁止洪明甫入内](https://www.share.kurohicncr.top/Article/details/26437954963.shtml)
-- 2026-06-29 16:30 - [美国大满贯首日国乒主力均取胜](https://www.blog.kurohicncr.top/Article/details/4866003.shtml)
+- 2026-06-29 16:50 - [税务总局披露5起合规申报个税案例](https://www.blog.kurohicncr.top/Article/details/01189.shtml)
+- 2026-06-29 16:56 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/85895927740.shtml)
+- 2026-06-29 16:56 - [广州一高校通报网传禁止小米汽车入校](https://www.share.minike.top/Article/details/68070155983.shtml)
+- 2026-06-29 17:01 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/211027501391.shtml)
+- 2026-06-29 16:47 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/710885920296.shtml)
+- 2026-06-29 16:58 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/75677.shtml)
+- 2026-06-29 17:02 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/26739953428.shtml)
+- 2026-06-29 16:37 - [货车司机雨中帮交警挪树获表扬](http://www.share.kurohicncr.top/Article/details/33326561007.shtml)
+- 2026-06-29 16:49 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/54807841969.shtml)
+- 2026-06-29 16:46 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/025605.shtml)
+- 2026-06-29 16:54 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/354869.shtml)
+- 2026-06-29 16:48 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.minike.top/Article/details/0465162.shtml)
+- 2026-06-29 16:54 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/98580908284.shtml)
+- 2026-06-29 16:51 - [重度抑郁女孩没钱去做心理咨询](https://www.share.kurohicncr.top/Article/details/2571309424.shtml)
+- 2026-06-29 16:43 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/06364.shtml)

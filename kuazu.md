@@ -1,52 +1,58 @@
-# 长风药业：CF017于东南亚市场递交上市许可申请
+# 国际金价3月以来首次破4500美元，最低下探到4480美元
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-长风药业（02652）发布公告，本集团近期已向东南亚相关药品监管机构，递交CF017吸入用布地奈德混悬液的上市许可申请。 CF017已于2021年5月获中国国家药品监督管理局批准上市，其后在国内实现商业化销售。东南亚地区人口基数庞大且不断增长，医疗需求持续增长，呼吸疾病发病率不断攀升，是高品质吸入制剂极具发展潜力的市场。本公司认为，CF017于东南亚市场递交上市许可申请，标志本
+5月18日亚市早盘，现货黄金伦敦金一度失守4500美元/盎司，为3月底以来首次。日内最多下跌约1.3%，下探到4480.01美元/盎司。 截至界面新闻发稿，跌幅收窄，现货黄金最新报4538.28美元/盎司，跌0.02%；COMEX黄金期货报4551美元/盎司，跌0.24%。 2026年开年，国际黄金一路上涨，1月29日现货黄金逼近5600美元/盎司历史新高。此后在3月经历一轮剧
 
 ## 正文
 
-长风药业（02652）发布公告，本集团近期已向东南亚相关药品监管机构，递交CF017吸入用布地奈德混悬液的上市许可申请。
+5月18日亚市早盘，现货黄金伦敦金一度失守4500美元/盎司，为3月底以来首次。
 
-CF017已于2021年5月获中国国家药品监督管理局批准上市，其后在国内实现商业化销售。
+日内最多下跌约1.3%，下探到4480.01美元/盎司。
 
-东南亚地区人口基数庞大且不断增长，医疗需求持续增长，呼吸疾病发病率不断攀升，是高品质吸入制剂极具发展潜力的市场。
+截至界面新闻发稿，跌幅收窄，现货黄金最新报4538.28美元/盎司，跌0.02%；COMEX黄金期货报4551美元/盎司，跌0.24%。
 
-本公司认为，CF017于东南亚市场递交上市许可申请，标志本集团拓展国际商业化版图佈局的全球化战略再迈新台阶。
+2026年开年，国际黄金一路上涨，1月29日现货黄金逼近5600美元/盎司历史新高。
 
-责任编辑：卢昱君
+此后在3月经历一轮剧烈的抛售，3月23日一度失守4100美元/盎司，最低下探至4098．25美元/盎司。
+
+此后国际金价持续震荡走低。
+
+消息面上，美伊局势再度升温。
+
+据央视新闻，当地时间5月17日晚，以色列总理办公室证实，以总理内塔尼亚胡与美国总统特朗普当天通电话，通话持续约半小时，主要讨论重启对伊朗军事行动的可能性。
 
 ## 相关推荐
 
-- 2026-06-29 16:50 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 16:57 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 16:59 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 16:56 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 16:39 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 16:33 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 16:46 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 16:56 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 16:49 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 16:51 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 16:48 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-29 16:39 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 16:53 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 16:54 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 16:47 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 16:59 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 17:00 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 16:45 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 16:57 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 17:01 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 16:40 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 16:54 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 16:45 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 16:48 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:55 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/1036360.shtml)
-- 2026-06-29 16:34 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/9438639.shtml)
-- 2026-06-29 16:42 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/91567223.shtml)
-- 2026-06-29 16:54 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/802488549.shtml)
-- 2026-06-29 16:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/794628.shtml)
-- 2026-06-29 16:59 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/0151643934.shtml)
-- 2026-06-29 16:36 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/219726055137.shtml)
-- 2026-06-29 16:39 - [网友飞机上偶遇肖战](https://www.share.minike.top/Article/details/73483726.shtml)
-- 2026-06-29 16:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/975531.shtml)
-- 2026-06-29 16:51 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.kurohicncr.top/Article/details/82847161262.shtml)
-- 2026-06-29 16:35 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/030469385684.shtml)
-- 2026-06-29 16:31 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/88458734828.shtml)
-- 2026-06-29 16:31 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/5378242627.shtml)
-- 2026-06-29 16:38 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/16268514269.shtml)
-- 2026-06-29 16:36 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.kurohicncr.top/Article/details/92637688.shtml)
+- 2026-06-29 17:03 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/031478355255.shtml)
+- 2026-06-29 16:45 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/381280389920.shtml)
+- 2026-06-29 16:57 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/011220.shtml)
+- 2026-06-29 16:53 - [天道](http://www.blog.minike.top/Article/details/50104861.shtml)
+- 2026-06-29 17:02 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/006360513.shtml)
+- 2026-06-29 16:42 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.kurohicncr.top/Article/details/393092938.shtml)
+- 2026-06-29 16:51 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.kurohicncr.top/Article/details/69944.shtml)
+- 2026-06-29 16:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/5951116105.shtml)
+- 2026-06-29 17:00 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/77272798.shtml)
+- 2026-06-29 16:36 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/61287780061.shtml)
+- 2026-06-29 16:37 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/06815889.shtml)
+- 2026-06-29 16:57 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/602101352.shtml)
+- 2026-06-29 16:53 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/401556.shtml)
+- 2026-06-29 16:36 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/46871862.shtml)
+- 2026-06-29 17:03 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/9407077.shtml)

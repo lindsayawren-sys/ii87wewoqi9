@@ -1,53 +1,50 @@
-# 问界M9与蔚来ES9发布会撞期后更改时间，鸿蒙智行回应
+# 马斯克败诉
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-新浪科技讯 5月28日下午消息，近期汽车行业9系旗舰扎堆发布，问界M9与蔚来ES9发布会撞期后又改期一事引发关注。 据悉，问界M9发布会时间起初定于5月27日19：00，而蔚来ES9发布会时间则为5月27日19：30，两者时间有一定重合。 发布会前夕，鸿蒙智行方面宣布问界M9系列新品发布会时间调整至5月27日14：30，官方给出的理由是“为了给大家带来更好的体验”。外界则猜测，
+中新网5月19日电 据路透社报道，美国加利福尼亚州奥克兰市一家联邦法院的陪审团18日裁定，美企业家埃隆·马斯克在针对开放人工智能研究中心(OpenAI)的诉讼中败诉，马斯克此前指控该公司背离了造福人类的创立初衷。报道称，陪审团一致裁定，马斯克提起诉讼时间过晚，已超过诉讼时效。陪审团审议时间不到两个小时。 马斯克在诉讼中指控OpenAI的CEO奥尔特曼诱导他投入3800万美元，然
 
 ## 正文
 
-新浪科技讯 5月28日下午消息，近期汽车行业9系旗舰扎堆发布，问界M9与蔚来ES9发布会撞期后又改期一事引发关注。
+中新网5月19日电 据路透社报道，美国加利福尼亚州奥克兰市一家联邦法院的陪审团18日裁定，美企业家埃隆·马斯克在针对开放人工智能研究中心(OpenAI)的诉讼中败诉，马斯克此前指控该公司背离了造福人类的创立初衷。
 
-据悉，问界M9发布会时间起初定于5月27日19：00，而蔚来ES9发布会时间则为5月27日19：30，两者时间有一定重合。
+报道称，陪审团一致裁定，马斯克提起诉讼时间过晚，已超过诉讼时效。
 
-发布会前夕，鸿蒙智行方面宣布问界M9系列新品发布会时间调整至5月27日14：30，官方给出的理由是“为了给大家带来更好的体验”。
+陪审团审议时间不到两个小时。
 
-外界则猜测，是为了避免两款产品正面交锋。
+马斯克在诉讼中指控OpenAI的CEO奥尔特曼诱导他投入3800万美元，然后背着他在原有的非营利机构基础上搭建营利性业务，并从微软及其他投资方获得数百亿美元的资金。
 
-从产品定位和售价来看，两款产品是直接的竞争对手，都定位旗舰SUV，其中蔚来ES9售价49.8万元起，问界M9售价47.98万元起。
-
-责任编辑：孙同怀
+马斯克当天晚些时候表示将上诉。
 
 ## 相关推荐
 
-- 2026-06-29 16:33 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 16:39 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 16:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 16:31 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 16:40 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 16:53 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 16:38 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 16:38 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 16:38 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 16:59 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 16:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 16:39 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 16:47 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 17:01 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 16:59 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 17:02 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 17:03 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 16:53 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 16:44 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 17:00 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 16:46 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:31 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/138726672.shtml)
-- 2026-06-29 16:46 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/68854650.shtml)
-- 2026-06-29 16:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/25620.shtml)
-- 2026-06-29 16:30 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/987638225757.shtml)
-- 2026-06-29 16:38 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/202758877048.shtml)
-- 2026-06-29 16:50 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/24586.shtml)
-- 2026-06-29 16:47 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/5690818047.shtml)
-- 2026-06-29 16:54 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/263807.shtml)
-- 2026-06-29 16:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/58228175113.shtml)
-- 2026-06-29 16:52 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/8104507.shtml)
-- 2026-06-29 16:58 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/082970524.shtml)
-- 2026-06-29 16:48 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/54799718875.shtml)
-- 2026-06-29 16:34 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/668248508085.shtml)
-- 2026-06-29 16:38 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/573946223.shtml)
-- 2026-06-29 16:55 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/05922.shtml)
+- 2026-06-29 16:38 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/67274202052.shtml)
+- 2026-06-29 17:04 - [一见倾心](https://www.share.minike.top/Article/details/9995440.shtml)
+- 2026-06-29 17:00 - [新能源车能当外接空调用吗](http://www.share.minike.top/Article/details/38505068.shtml)
+- 2026-06-29 16:45 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/6836083386.shtml)
+- 2026-06-29 16:36 - [12所大学更正招生目录](https://www.share.minike.top/Article/details/87547565.shtml)
+- 2026-06-29 16:37 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/5868427.shtml)
+- 2026-06-29 16:46 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/48917.shtml)
+- 2026-06-29 16:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/902911.shtml)
+- 2026-06-29 16:50 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.minike.top/Article/details/6030434804.shtml)
+- 2026-06-29 17:04 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/408638706663.shtml)
+- 2026-06-29 16:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/25835811.shtml)
+- 2026-06-29 16:43 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/99942366.shtml)
+- 2026-06-29 16:54 - [世界杯看到肖战了](https://www.blog.kurohicncr.top/Article/details/683312074.shtml)
+- 2026-06-29 16:45 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/3783091002.shtml)
+- 2026-06-29 16:45 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/62373512.shtml)

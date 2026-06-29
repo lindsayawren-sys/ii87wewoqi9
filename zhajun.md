@@ -1,56 +1,61 @@
-# 险企巨头，股权上相恋了
+# 英国青年失业危机加剧 研究显示仅一半年轻人有付薪工作
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-来源：@经济观察报微博记者 姜鑫作为国内人身险市场体量最大的两家公司，中国人寿和中国平安正从昔日的行业竞争对手化为股东“密友”。根据财报及今年5月20日的港交所权益披露信息，中国人寿与中国平安之间出现了“互相持股”格局——中国平安持续买入中国人寿H股股票，中国人寿也出现在中国平安A股流通股股东名单中。险资增持同业，并非个案。中国平安同样手握中国太保H股股票，新华保险连续两个季度
+财政研究所（IFS）的分析显示，截至去年年底，英国16至24岁人群中仅一半有付薪工作，凸显该国不断加剧的青年失业危机的严重程度。 对行政数据进行的研究发现，这一比例已从2022年底的54.9%降至50.6%，降幅与新冠疫情和2008年金融危机时期相似。 IFS将这一危机归咎于就业成本飙升、心理健康状况恶化以及人工智能的兴起。 “英国青年就业率的下降可能会引起政府官员的警觉，尤其
 
 ## 正文
 
-来源：@经济观察报微博记者 姜鑫作为国内人身险市场体量最大的两家公司，中国人寿和中国平安正从昔日的行业竞争对手化为股东“密友”。
+财政研究所（IFS）的分析显示，截至去年年底，英国16至24岁人群中仅一半有付薪工作，凸显该国不断加剧的青年失业危机的严重程度。
 
-根据财报及今年5月20日的港交所权益披露信息，中国人寿与中国平安之间出现了“互相持股”格局——中国平安持续买入中国人寿H股股票，中国人寿也出现在中国平安A股流通股股东名单中。
+对行政数据进行的研究发现，这一比例已从2022年底的54.9%降至50.6%，降幅与新冠疫情和2008年金融危机时期相似。
 
-险资增持同业，并非个案。
+IFS将这一危机归咎于就业成本飙升、心理健康状况恶化以及人工智能的兴起。
 
-中国平安同样手握中国太保H股股票，新华保险连续两个季度增持中国人保A股股份。
+“英国青年就业率的下降可能会引起政府官员的警觉，尤其是因为我们知道，职业生涯早期的失业可能会带来持久的负面影响，” IFS研究经济学家及本报告作者之一Jed Michael指出。
 
-今年一季度，保险股经历了调整，跌幅远超大盘，险企巨头在其他机构选择离场时增持了同业股份。
+官方数据显示，目前有近100万的16至24岁年轻人被归类为尼特族（NEET，即不升学、不就业、也不参加培训的青年群体），而这一数字在近几个月急剧攀升。
 
-这背后是险企巨头在低利率、优质资产难寻以及政策放开背景下的“双向奔赴”。
+轻人的困境加剧了民众对首相斯塔默的不满。
 
-增持同业5月20日，港交所权益披露信息显示，中国平安再度增持中国人寿H股股份，持股达11.99亿股，占已发行的有投票权股份的16.12%。
+工党在地方选举中遭遇惨败后，他正面临潜在的领导权挑战。
 
-3月25日，中国平安增持中国太保H股股份，持股达3.35亿股，占已发行的有投票权股份的12.08%。
+尤其很多年轻选民正在转向左翼民粹主义政党绿党。
 
 ## 相关推荐
 
-- 2026-06-29 16:41 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 16:30 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 16:45 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 16:46 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 16:50 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 16:31 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 16:45 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 16:38 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 16:49 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 16:55 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 16:43 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 16:43 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 16:58 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 16:51 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 16:55 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 16:41 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 17:03 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 16:44 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 16:37 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 16:47 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 17:00 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 16:37 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 16:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 16:44 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 17:04 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:48 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/42786451150.shtml)
-- 2026-06-29 16:43 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/008532106793.shtml)
-- 2026-06-29 16:33 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/00087664495.shtml)
-- 2026-06-29 16:31 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/7501682.shtml)
-- 2026-06-29 16:36 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/43845286.shtml)
-- 2026-06-29 16:33 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/987938644672.shtml)
-- 2026-06-29 16:50 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/74440086.shtml)
-- 2026-06-29 16:44 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/9881497.shtml)
-- 2026-06-29 16:33 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/428618.shtml)
-- 2026-06-29 16:56 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/6674787.shtml)
-- 2026-06-29 16:42 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/56686466.shtml)
-- 2026-06-29 16:57 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/634980063.shtml)
-- 2026-06-29 16:41 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/131868221.shtml)
-- 2026-06-29 16:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/4966544.shtml)
-- 2026-06-29 16:49 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/03538.shtml)
+- 2026-06-29 16:56 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/74107121208.shtml)
+- 2026-06-29 16:55 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/542015.shtml)
+- 2026-06-29 16:37 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/70404.shtml)
+- 2026-06-29 16:41 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/3201882932.shtml)
+- 2026-06-29 16:41 - [首尔商铺禁止洪明甫入内](http://www.blog.kurohicncr.top/Article/details/4773270403.shtml)
+- 2026-06-29 17:05 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/374862558411.shtml)
+- 2026-06-29 16:56 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/740573.shtml)
+- 2026-06-29 16:39 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/09778461674.shtml)
+- 2026-06-29 16:51 - [沉睡花园](https://www.share.minike.top/Article/details/44705019275.shtml)
+- 2026-06-29 16:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/54914.shtml)
+- 2026-06-29 16:40 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/344702974320.shtml)
+- 2026-06-29 16:53 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/128718301.shtml)
+- 2026-06-29 17:05 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/19492615317.shtml)
+- 2026-06-29 16:42 - [第一炉香](http://www.share.minike.top/Article/details/88517484.shtml)
+- 2026-06-29 17:01 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/47783.shtml)

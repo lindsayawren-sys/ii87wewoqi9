@@ -1,59 +1,56 @@
-# 小米一季报：旧驱动力退潮，汽车业务面临“增重”阵痛
+# 保险业协会赵宇龙：科技保险风险分担机制正在逐渐形成
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-小米集团交出了一份并不轻松的一季报。5月26日，小米集团发布截至2026年3月31日止三个月业绩公告。今年一季度，小米集团收入991.42亿元，同比下降10.9%；期间利润47.35亿元，同比下降56.5%；经调整净利润60.72亿元，同比下降43.1%。从分部看，“手机×AIoT”收入793亿元，“智能电动汽车及AI等创新业务”收入199亿元。放在小米过去几年的发展路径里，这
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。 在2026中国经济展望暨《2026中国金融政策报告》发布环节，中国保险行业协会党委书记、会长赵宇龙表示，20年来科技保险得到了比较快的发展，10年前的2016
 
 ## 正文
 
-小米集团交出了一份并不轻松的一季报。
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。
 
-5月26日，小米集团发布截至2026年3月31日止三个月业绩公告。
+本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。
 
-今年一季度，小米集团收入991.42亿元，同比下降10.9%；期间利润47.35亿元，同比下降56.5%；经调整净利润60.72亿元，同比下降43.1%。
+在2026中国经济展望暨《2026中国金融政策报告》发布环节，中国保险行业协会党委书记、会长赵宇龙表示，20年来科技保险得到了比较快的发展，10年前的2016年，全国科技保险保费不足80亿元，保额约1万亿元；10年后到去年年末，保费已达到800亿元，保额达到8万亿元。
 
-从分部看，“手机×AIoT”收入793亿元，“智能电动汽车及AI等创新业务”收入199亿元。
+从组织机制来看，科技保险支撑体系也在不断完善，各个保险公司现在都有了专门的团队、专门的部门、专门的产品、专门的考核机制。
 
-放在小米过去几年的发展路径里，这组数据算不上好看。
+在人才支撑方面，懂科技、懂保险、懂金融的复合型人才队伍也在不断完善。
 
-手机仍是最大的收入来源，但出货量已经出现明显下滑。
+产品体系方面，目前一共有八大类科技保险产品。
 
-而物联网与生活消费产品过去受益于以旧换新和国补政策，但如今也开始承压。
+特别重要的是，科技保险风险分担机制正在逐渐形成，行业内横向分散机制就是科技共保体，像半导体、商业航空等领域都组建了很多共保体，实现行业横向分担。
 
-虽然汽车业务带来了新的收入增长极，但也把小米的制造业投入带入了更重的结构里。
+此外还有再保险的纵向分担机制，同时政府的各类补贴和基金担保方面的支持政策也在逐渐完善，风险减量前置政策也在推出。
 
 ## 相关推荐
 
-- 2026-06-29 16:35 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 16:38 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 16:39 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 16:35 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 16:50 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 16:40 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 16:36 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 16:34 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 16:30 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 16:34 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 16:58 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 16:32 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 16:49 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 16:40 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 17:06 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 16:44 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 16:46 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 16:52 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 16:45 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 16:43 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 16:37 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 16:45 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 17:05 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:36 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/126205.shtml)
-- 2026-06-29 16:44 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.minike.top/Article/details/248377820.shtml)
-- 2026-06-29 16:49 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/321097491357.shtml)
-- 2026-06-29 16:47 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/131415.shtml)
-- 2026-06-29 16:59 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/7597052999.shtml)
-- 2026-06-29 16:43 - [抓特务票房破亿](http://www.share.minike.top/Article/details/445412972122.shtml)
-- 2026-06-29 16:44 - [德国VS巴拉圭前瞻](http://www.share.minike.top/Article/details/630722.shtml)
-- 2026-06-29 16:52 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/29155657591.shtml)
-- 2026-06-29 16:41 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/440302679.shtml)
-- 2026-06-29 16:34 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/31594204226.shtml)
-- 2026-06-29 16:42 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/7599874.shtml)
-- 2026-06-29 16:50 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/41917687845.shtml)
-- 2026-06-29 16:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/05603.shtml)
-- 2026-06-29 16:48 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/847553.shtml)
-- 2026-06-29 16:44 - [抓特务票房破亿](http://www.share.kurohicncr.top/Article/details/76052058672.shtml)
+- 2026-06-29 16:46 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.kurohicncr.top/Article/details/61817549.shtml)
+- 2026-06-29 16:36 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/101586459692.shtml)
+- 2026-06-29 16:41 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/244705.shtml)
+- 2026-06-29 17:03 - [2026世界杯谁能一黑到底](https://www.share.minike.top/Article/details/555489462.shtml)
+- 2026-06-29 16:39 - [抓特务票房破亿](https://www.share.minike.top/Article/details/776922460.shtml)
+- 2026-06-29 17:03 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/233001123106.shtml)
+- 2026-06-29 17:04 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/4770414.shtml)
+- 2026-06-29 16:55 - [爱很美味](http://www.share.kurohicncr.top/Article/details/552106.shtml)
+- 2026-06-29 16:55 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/945271401.shtml)
+- 2026-06-29 16:38 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/8752834.shtml)
+- 2026-06-29 16:48 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/417160952697.shtml)
+- 2026-06-29 17:03 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/58525.shtml)
+- 2026-06-29 17:01 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/6015743.shtml)
+- 2026-06-29 16:53 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/50489171.shtml)
+- 2026-06-29 17:04 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/82373.shtml)

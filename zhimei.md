@@ -1,59 +1,58 @@
-# 日媒曝高市早苗团队“抹黑门”新料
+# 深夜，大幅拉升！美伊，突发大消息！伊朗重磅发声
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-中新网东京5月28日电 日本首相高市早苗的团队被曝曾雇人制作视频抹黑竞选对手后，日本媒体《周刊文春》27日公布更多细节，说视频制作者用手机注册大量社交媒体账号，通过人工智能软件“海量”制作并传播视频。据《周刊文春》网络版27日报道，在去年10月的自民党总裁选举和今年2月的众议院选举中，高市阵营制作了大量抹黑竞争对手和在野党的视频，并在社交媒体上进行传播。例如，在自民党总裁选举期
+美伊谈判传来一系列新消息！ 据新华社援引伊朗媒体18日报道，美国在回应伊朗的新谈判文本中，同意在谈判期间豁免对伊朗的石油制裁。 Axios援引美国官员和知情人士报道称，伊朗已经针对一份潜在停火协议给出一份更新版方案。然而，美国白宫认为，伊朗的最新建议没有实质性意义。美国拒绝伊朗最新和平提议。 资本市场方面，北京时间18日晚间，欧洲股市大幅拉升。截至发稿，德国DAX30指数涨幅扩
 
 ## 正文
 
-中新网东京5月28日电 日本首相高市早苗的团队被曝曾雇人制作视频抹黑竞选对手后，日本媒体《周刊文春》27日公布更多细节，说视频制作者用手机注册大量社交媒体账号，通过人工智能软件“海量”制作并传播视频。
+美伊谈判传来一系列新消息！
 
-据《周刊文春》网络版27日报道，在去年10月的自民党总裁选举和今年2月的众议院选举中，高市阵营制作了大量抹黑竞争对手和在野党的视频，并在社交媒体上进行传播。
+据新华社援引伊朗媒体18日报道，美国在回应伊朗的新谈判文本中，同意在谈判期间豁免对伊朗的石油制裁。
 
-例如，在自民党总裁选举期间的视频中，将竞争对手小泉进次郎描绘为“无能傀儡”，对另一对手林芳正则称其应“完全出局”。
+Axios援引美国官员和知情人士报道称，伊朗已经针对一份潜在停火协议给出一份更新版方案。
 
-此外，在众议院选举中，也大量传播了批评“中道改革联合”候选人的视频。
+然而，美国白宫认为，伊朗的最新建议没有实质性意义。
 
-“抹黑门”事件主要人物之一、视频制作者松井健透露，他在高市的秘书木下刚志授意下，制作并散布大量抹黑高市党内竞争对手和在野党候选人的视频。
+美国拒绝伊朗最新和平提议。
 
-松井健和视频团队准备了约20部智能手机，在每部手机上创建3个谷歌邮箱账号，随后在各大社交媒体和视频平台散布抹黑视频。
+资本市场方面，北京时间18日晚间，欧洲股市大幅拉升。
 
-松井健表示，视频生成“几乎已实现自动化”，由AI完成，“每天制作100到200个视频进行传播。
+截至发稿，德国DAX30指数涨幅扩大至1.93%，英国富时100指数涨1.28%；欧洲斯托克50指数涨0.58%，法国CAC40指数上涨0.49%，此前跌幅均超过1%。
 
-” 面对“抹黑门”持续发酵，高市22日在国会接受质询时极力撇清，坚称自己和团队与此事无关。
+美股三大指数走势分化。
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 16:58 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 16:48 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 16:53 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 16:45 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 16:58 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 16:31 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 16:37 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 16:47 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 16:46 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 16:56 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 16:38 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 16:48 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 16:36 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 16:42 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 16:55 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 16:58 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 16:47 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 17:04 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 16:49 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 16:59 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 16:54 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 16:52 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 16:40 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 16:39 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:45 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/2220914.shtml)
-- 2026-06-29 16:57 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/51786336148.shtml)
-- 2026-06-29 16:42 - [网警提醒4类高考查分陷阱考生速看](https://www.share.minike.top/Article/details/6251799.shtml)
-- 2026-06-29 16:48 - [张雪机车杀向海外](https://www.share.kurohicncr.top/Article/details/129201.shtml)
-- 2026-06-29 16:41 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/77639913.shtml)
-- 2026-06-29 16:58 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/123095721817.shtml)
-- 2026-06-29 16:47 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/01661.shtml)
-- 2026-06-29 16:38 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/418654731.shtml)
-- 2026-06-29 16:32 - [恋与深空发放补偿未得到玩家认可](https://www.blog.kurohicncr.top/Article/details/392580.shtml)
-- 2026-06-29 16:38 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/352090.shtml)
-- 2026-06-29 16:55 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/874905671.shtml)
-- 2026-06-29 16:49 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/21704030.shtml)
-- 2026-06-29 16:59 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/869167082754.shtml)
-- 2026-06-29 16:32 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/378618187008.shtml)
-- 2026-06-29 16:39 - [第一炉香](http://www.share.kurohicncr.top/Article/details/32005.shtml)
+- 2026-06-29 16:43 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/868653739419.shtml)
+- 2026-06-29 17:05 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/95531604.shtml)
+- 2026-06-29 16:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/758863.shtml)
+- 2026-06-29 17:05 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/16392647659.shtml)
+- 2026-06-29 16:44 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/86980.shtml)
+- 2026-06-29 16:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/491506239.shtml)
+- 2026-06-29 16:46 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/96413743024.shtml)
+- 2026-06-29 16:41 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/8027081.shtml)
+- 2026-06-29 16:48 - [端午节加班工资应该怎么算](https://www.share.kurohicncr.top/Article/details/218230.shtml)
+- 2026-06-29 16:47 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/58485352503.shtml)
+- 2026-06-29 16:38 - [T1 KC](http://www.blog.minike.top/Article/details/17436.shtml)
+- 2026-06-29 16:46 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.kurohicncr.top/Article/details/77735463719.shtml)
+- 2026-06-29 17:05 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.minike.top/Article/details/3030020216.shtml)
+- 2026-06-29 16:55 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/373241122.shtml)
+- 2026-06-29 16:58 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/99752623.shtml)

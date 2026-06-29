@@ -1,51 +1,57 @@
-# 长沙银行：2021年二级资本债券赎回完成
+# 日本首相高市早苗呼吁编制补充预算 以应对中东局势带来的冲击
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-5月27日金融一线消息，长沙银行发布公告称，2021年5月26日至5月27日，长沙银行发行了规模为人民币20亿元的二级资本债券（以下简称“本期债券”），并于2021年5月28日发布了《长沙银行股份有限公司关于发行2021年二级资本债券的公告》。根据本期债券募集说明书相关条款的规定，本期债券设有发行人有条件赎回权，发行人有权在本期债券第5个计息年度的最后一日（即2026年5月27
+日本首相高市早苗呼吁编制补充预算，以应对持续的中东冲突推高大宗商品价格，此举标志着其此前坚称无需追加预算立场的明显转变，并推动超长期国债收益率再创新高。 高市早苗周一在执政联盟会议上表示：“我上周已要求财务大臣片山皋月研究筹资方式，包括编制补充预算。” 过去数周，高市早苗和片山皋月一直否认需要追加财政支出或发行新债。但随着油价持续上涨以及用于支持减负措施的财政储备资金枯竭，市场
 
 ## 正文
 
-5月27日金融一线消息，长沙银行发布公告称，2021年5月26日至5月27日，长沙银行发行了规模为人民币20亿元的二级资本债券（以下简称“本期债券”），并于2021年5月28日发布了《长沙银行股份有限公司关于发行2021年二级资本债券的公告》。
+日本首相高市早苗呼吁编制补充预算，以应对持续的中东冲突推高大宗商品价格，此举标志着其此前坚称无需追加预算立场的明显转变，并推动超长期国债收益率再创新高。
 
-根据本期债券募集说明书相关条款的规定，本期债券设有发行人有条件赎回权，发行人有权在本期债券第5个计息年度的最后一日（即2026年5月27日）部分或全部赎回本期债券。
+高市早苗周一在执政联盟会议上表示：“我上周已要求财务大臣片山皋月研究筹资方式，包括编制补充预算。
 
-截至本公告日，本行已行使赎回权，全额赎回了本期债券。
+” 过去数周，高市早苗和片山皋月一直否认需要追加财政支出或发行新债。
 
-责任编辑：王馨茹
+但随着油价持续上涨以及用于支持减负措施的财政储备资金枯竭，市场普遍认为推出补充预算几乎已成定局。
+
+据媒体此前报道，该补充预算将侧重于财政紧急纾困，而非全面经济刺激方案。
+
+路透援引不具名政府官员报道称，为筹措部分补充预算资金，日本政府可能将发行新债。
+
+正在巴黎出席七国集团（G7）会议的片山皋月表示，目前讨论补充预算细节仍为时尚早。
+
+在新财年刚刚开始一个多月后即提出追加预算，这可能加剧投资者对其财政支出计划的担忧。
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 16:38 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 16:30 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 16:47 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 16:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 16:55 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 16:56 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 16:46 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 16:50 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 16:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 16:42 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 16:54 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 16:41 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 17:05 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 16:52 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 16:36 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 16:43 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 17:04 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 16:49 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 17:03 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 16:40 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 16:39 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 16:59 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 16:58 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:33 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/801561015882.shtml)
-- 2026-06-29 16:50 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/189104545.shtml)
-- 2026-06-29 16:53 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/388568906593.shtml)
-- 2026-06-29 16:33 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/42628963.shtml)
-- 2026-06-29 16:41 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/6574814515.shtml)
-- 2026-06-29 16:48 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/085264247.shtml)
-- 2026-06-29 16:57 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/44713.shtml)
-- 2026-06-29 16:30 - [小娘惹](https://www.blog.minike.top/Article/details/10023131513.shtml)
-- 2026-06-29 16:39 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/647897.shtml)
-- 2026-06-29 16:47 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.minike.top/Article/details/948372225890.shtml)
-- 2026-06-29 16:52 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/560762239965.shtml)
-- 2026-06-29 16:55 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/51575675.shtml)
-- 2026-06-29 16:46 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/1319165.shtml)
-- 2026-06-29 16:40 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/691173143.shtml)
-- 2026-06-29 16:33 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/82280.shtml)
+- 2026-06-29 16:51 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/83903.shtml)
+- 2026-06-29 16:46 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/166636283679.shtml)
+- 2026-06-29 16:52 - [女心理师](https://www.blog.minike.top/Article/details/091648.shtml)
+- 2026-06-29 16:51 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/280189.shtml)
+- 2026-06-29 17:00 - [日本前锋言论激怒巴西](https://www.share.minike.top/Article/details/926895746846.shtml)
+- 2026-06-29 16:38 - [乔家的儿女](https://www.share.minike.top/Article/details/227650138280.shtml)
+- 2026-06-29 16:42 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/9337078093.shtml)
+- 2026-06-29 17:02 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/676589870.shtml)
+- 2026-06-29 16:43 - [东方风云榜](https://www.share.minike.top/Article/details/6341776.shtml)
+- 2026-06-29 16:38 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/78793845910.shtml)
+- 2026-06-29 16:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/8863254120.shtml)
+- 2026-06-29 17:02 - [挪威王储妃长子2次强奸被判4年](http://www.share.kurohicncr.top/Article/details/386880196.shtml)
+- 2026-06-29 16:47 - [金刚川](http://www.share.minike.top/Article/details/74414.shtml)
+- 2026-06-29 16:51 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.kurohicncr.top/Article/details/323163213685.shtml)
+- 2026-06-29 17:03 - [我和我的家乡](https://www.blog.minike.top/Article/details/14170438.shtml)

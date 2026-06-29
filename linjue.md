@@ -1,59 +1,60 @@
-# 中央财经大学副校长李涛：“政府与市场经济学”要面向科技和人文
+# 日本财务大臣暗示政府编制补充预算时会考虑债市因素
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-专题：第八届政府与市场经济学国际研讨会 第八届“政府与市场经济学国际研讨会”于2025年5月27日在线上播出。 中央财经大学副校长李涛谈到“政府与市场经济学”未来发展时表示，中央财经大学将紧跟学科前沿布局，依托自身财经学科特色，持续服务国家经济建设，主动配合整体学科布局、联动兄弟院校协同发展。 同时，他明确学校下一步两大重点研究方向：“政府与市场经济学未来我会在两个方面去关心，
+日本财务大臣片山皋月表示，政府在考虑如何为应对中东冲突对经济的不利影响而增加支出时，会将债券市场纳入考量。 “鉴于中东局势，我们必须从最大限度降低风险的角度做好充分准备，”片山皋月周一在巴黎出席七国集团财长会议后对记者表示，“从最大限度降低风险也涉及到市场。整个金融市场本身就是风险之一。” 早前，日本首相高市早苗呼吁编制补充预算，以应对持续的中东冲突推高大宗商品价格，此举标志着
 
 ## 正文
 
-专题：第八届政府与市场经济学国际研讨会 第八届“政府与市场经济学国际研讨会”于2025年5月27日在线上播出。
+日本财务大臣片山皋月表示，政府在考虑如何为应对中东冲突对经济的不利影响而增加支出时，会将债券市场纳入考量。
 
-中央财经大学副校长李涛谈到“政府与市场经济学”未来发展时表示，中央财经大学将紧跟学科前沿布局，依托自身财经学科特色，持续服务国家经济建设，主动配合整体学科布局、联动兄弟院校协同发展。
+“鉴于中东局势，我们必须从最大限度降低风险的角度做好充分准备，”片山皋月周一在巴黎出席七国集团财长会议后对记者表示，“从最大限度降低风险也涉及到市场。
 
-同时，他明确学校下一步两大重点研究方向：“政府与市场经济学未来我会在两个方面去关心，一个是面向科技，也就是面向人工智能，硅基社会的建立，怎么样和政府与市场经济学做一种关联。
+整个金融市场本身就是风险之一。
 
-第二，因为我长期做文化经济学的研究，我想经济学所有的研究，政府与市场经济学的决策与行动要根植于社会的文化习惯和传统，我们怎么样去和人文文化契合，面向科技和人文，这是下一步要做的。
+” 早前，日本首相高市早苗呼吁编制补充预算，以应对持续的中东冲突推高大宗商品价格，此举标志着其此前坚称无需追加预算立场的明显转变，并推动超长期国债收益率再创新高。
 
-”未来，学校将立足科技与人文双向维度，持续拓宽政府与市场经济学的研究边界，助力学科高质量创新发展。
+片山皋月并未透露有关新支出规模以及如何筹集资金的明确信息。
 
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+“从某种意义上说，首相的指示是让我们全面评估形势，并考虑确保资金来源的措施，而这正是我们打算做的，”片山皋月说道，但并未回答有关政府是否需要发行新债的问题。
 
-责任编辑：李思阳
+日本30年期国债收益率周一跃升，触及自1999年该债券推出以来的最高水平。
+
+基准10年期国债和20年期国债收益率也大幅飙升，达到1996年以来的最高水平。
 
 ## 相关推荐
 
-- 2026-06-29 16:53 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 16:37 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 16:50 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 16:59 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 16:51 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 16:46 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 16:43 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 16:30 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 16:53 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 16:58 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 16:55 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 16:46 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 16:36 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 16:33 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 16:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 16:38 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 16:50 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 16:42 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 16:43 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 16:42 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 16:36 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 16:47 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 16:47 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 16:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 17:06 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 17:03 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 16:43 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 16:46 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 16:56 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:49 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.kurohicncr.top/Article/details/443366757.shtml)
-- 2026-06-29 16:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/687364620.shtml)
-- 2026-06-29 16:30 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/4819515.shtml)
-- 2026-06-29 16:39 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/519412469617.shtml)
-- 2026-06-29 16:40 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/566679.shtml)
-- 2026-06-29 16:56 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/2182064600.shtml)
-- 2026-06-29 16:33 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/627566.shtml)
-- 2026-06-29 16:50 - [博主：全球股市进入“AI极端共振”](http://www.share.kurohicncr.top/Article/details/178407.shtml)
-- 2026-06-29 16:57 - [速度与激情9](http://www.blog.minike.top/Article/details/744423.shtml)
-- 2026-06-29 16:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/2896884653.shtml)
-- 2026-06-29 16:47 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/866645425594.shtml)
-- 2026-06-29 16:57 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/38979.shtml)
-- 2026-06-29 16:50 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/860810879875.shtml)
-- 2026-06-29 16:30 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/151051560970.shtml)
-- 2026-06-29 16:56 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/38308.shtml)
+- 2026-06-29 16:47 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.minike.top/Article/details/743167.shtml)
+- 2026-06-29 16:46 - [王安宇尊重田曦薇的一切选择](https://www.blog.kurohicncr.top/Article/details/75006553758.shtml)
+- 2026-06-29 16:51 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/28365222.shtml)
+- 2026-06-29 16:58 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/7191664898.shtml)
+- 2026-06-29 17:05 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/545545.shtml)
+- 2026-06-29 16:51 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/22413578785.shtml)
+- 2026-06-29 16:40 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/962605586.shtml)
+- 2026-06-29 17:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/08186141.shtml)
+- 2026-06-29 16:56 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/799025904.shtml)
+- 2026-06-29 16:48 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/64836.shtml)
+- 2026-06-29 16:53 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/131780.shtml)
+- 2026-06-29 17:00 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/962492354030.shtml)
+- 2026-06-29 16:53 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/64012.shtml)
+- 2026-06-29 16:53 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/076623635692.shtml)
+- 2026-06-29 16:40 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/2757753499.shtml)

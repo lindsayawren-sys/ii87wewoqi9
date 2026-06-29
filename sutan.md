@@ -1,48 +1,58 @@
-# 中塞(尔维亚)两国央行再次签署双边本币互换协议
+# 早盘：美股涨跌不一 标普500指数上涨0.1%
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-中新网5月28日电 据央行网站消息，经国务院批准，近日中国人民银行与塞尔维亚国家银行再次签署双边本币互换协议，互换规模由原来的15亿元人民币/270亿塞尔维亚第纳尔扩大至50亿元人民币/740亿塞尔维亚第纳尔，协议有效期五年，经双方同意可以展期。 双方再次签署双边本币互换协议并扩大规模，有助于进一步深化两国货币金融合作，促进双边贸易和投资便利化，维护金融市场稳定。
+北京时间5月18日晚，美股周一早盘涨跌不一，标普指数上涨0.1%。交易员正密切关注油价与债券收益率，同时等待中东冲突的进一步进展。本周将迎来繁忙的财报季，英伟达领衔众多企业公布业绩。 道指跌26.65点，跌幅为0.05%，报49499.52点；标普500指数涨11.27点，涨幅为0.15%，报7419.77点；纳指涨44.22点，涨幅为0.17%，报26269.36点。 本周将
 
 ## 正文
 
-中新网5月28日电 据央行网站消息，经国务院批准，近日中国人民银行与塞尔维亚国家银行再次签署双边本币互换协议，互换规模由原来的15亿元人民币/270亿塞尔维亚第纳尔扩大至50亿元人民币/740亿塞尔维亚第纳尔，协议有效期五年，经双方同意可以展期。
+北京时间5月18日晚，美股周一早盘涨跌不一，标普指数上涨0.1%。
 
-双方再次签署双边本币互换协议并扩大规模，有助于进一步深化两国货币金融合作，促进双边贸易和投资便利化，维护金融市场稳定。
+交易员正密切关注油价与债券收益率，同时等待中东冲突的进一步进展。
+
+本周将迎来繁忙的财报季，英伟达领衔众多企业公布业绩。
+
+道指跌26.65点，跌幅为0.05%，报49499.52点；标普500指数涨11.27点，涨幅为0.15%，报7419.77点；纳指涨44.22点，涨幅为0.17%，报26269.36点。
+
+本周将迎来繁忙的财报季，英伟达领衔众多企业公布业绩。
+
+除科技巨头外，零售巨头塔吉特和沃尔玛也将陆续发布财报。
+
+市场关注英伟达的业绩能否支撑当前人工智能驱动的涨势，同时密切追踪零售商在通胀环境下的消费需求表现。
+
+地缘政治风险与财报季的叠加效应使投资者情绪趋于谨慎。
 
 ## 相关推荐
 
-- 2026-06-29 16:35 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 16:30 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 16:37 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 16:43 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 16:30 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 16:50 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 16:36 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 16:31 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 16:49 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 16:42 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 16:43 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 16:43 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 16:59 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 16:52 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 16:46 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 16:51 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 16:51 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 16:41 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 17:00 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 16:58 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 16:58 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 16:52 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 16:45 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 16:49 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 16:45 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 16:54 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:59 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/372468.shtml)
-- 2026-06-29 16:44 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/164607787156.shtml)
-- 2026-06-29 16:57 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/26625114.shtml)
-- 2026-06-29 16:36 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.minike.top/Article/details/7218888.shtml)
-- 2026-06-29 16:42 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/946566.shtml)
-- 2026-06-29 16:36 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/86763753.shtml)
-- 2026-06-29 16:44 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/632539997.shtml)
-- 2026-06-29 16:56 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/0294163.shtml)
-- 2026-06-29 16:52 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/227955550948.shtml)
-- 2026-06-29 16:34 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/417068378808.shtml)
-- 2026-06-29 16:36 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/62381260428.shtml)
-- 2026-06-29 16:34 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.minike.top/Article/details/0927547408.shtml)
-- 2026-06-29 16:35 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/0005835338.shtml)
-- 2026-06-29 16:40 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/9091650.shtml)
-- 2026-06-29 16:48 - [BB大王横店拍戏](http://www.blog.kurohicncr.top/Article/details/41808793.shtml)
+- 2026-06-29 16:44 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/059735.shtml)
+- 2026-06-29 16:55 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/78788577.shtml)
+- 2026-06-29 16:37 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/459078870003.shtml)
+- 2026-06-29 16:39 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/517121.shtml)
+- 2026-06-29 16:41 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/54252686088.shtml)
+- 2026-06-29 16:50 - [首尔商铺禁止洪明甫入内](https://www.share.minike.top/Article/details/748045342940.shtml)
+- 2026-06-29 16:51 - [恋与深空失控领地](https://www.share.minike.top/Article/details/453490979108.shtml)
+- 2026-06-29 17:03 - [千与千寻](http://www.share.minike.top/Article/details/5563964.shtml)
+- 2026-06-29 16:44 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/128844.shtml)
+- 2026-06-29 16:59 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/540456.shtml)
+- 2026-06-29 16:43 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/3062549804.shtml)
+- 2026-06-29 16:56 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/57164053263.shtml)
+- 2026-06-29 16:59 - [舒行钢任湖南省交通运输厅厅长](http://www.share.kurohicncr.top/Article/details/9269639818.shtml)
+- 2026-06-29 16:42 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/8128427.shtml)
+- 2026-06-29 16:56 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/2028542644.shtml)

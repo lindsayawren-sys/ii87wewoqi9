@@ -1,57 +1,61 @@
-# 天津首批境外上市公司境内股东减持登记业务落地
+# 精彩回顾 | 第二届“加强医保商保有效衔接，支持创新药械发展”会议成功举办
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-中新网天津5月27日电 (记者 周亚强)记者27日从中国银行天津市分行获悉，在国家外汇管理局天津市分局指导下，该行近日成功落地天津市首批境外上市公司境内股东减持登记业务。 据了解，根据中国人民银行、国家外汇管理局联合发布的《关于境内企业境外上市资金管理有关问题的通知》，自今年4月1日起，境内企业境外上市登记、变更登记及境内股东减持登记等业务改由银行直接办理，登记时限也大幅放宽。
+2026年5月17日，第二届“加强医保商保有效衔接，支持创新药械发展”会议在上海圆满举办。本场会议由中国医药教育协会、北京中康联公益基金会、北京中西医慢病防治促进会联合主办，艾社康承办，并获得中欧校友医疗健康产业协会的学术合作支持。 本届会议特邀多位多层次医疗保障相关政策专家、保险行业代表，以及药械产业代表为核心嘉宾，分享完善多层次医疗保障制度体系的思路与先进经验，探索基本医保
 
 ## 正文
 
-中新网天津5月27日电 (记者 周亚强)记者27日从中国银行天津市分行获悉，在国家外汇管理局天津市分局指导下，该行近日成功落地天津市首批境外上市公司境内股东减持登记业务。
+2026年5月17日，第二届“加强医保商保有效衔接，支持创新药械发展”会议在上海圆满举办。
 
-据了解，根据中国人民银行、国家外汇管理局联合发布的《关于境内企业境外上市资金管理有关问题的通知》，自今年4月1日起，境内企业境外上市登记、变更登记及境内股东减持登记等业务改由银行直接办理，登记时限也大幅放宽。
+本场会议由中国医药教育协会、北京中康联公益基金会、北京中西医慢病防治促进会联合主办，艾社康承办，并获得中欧校友医疗健康产业协会的学术合作支持。
 
-此次办理业务的是一家已在境外上市的茶饮企业，其境内股东拟减持所持股份。
+本届会议特邀多位多层次医疗保障相关政策专家、保险行业代表，以及药械产业代表为核心嘉宾，分享完善多层次医疗保障制度体系的思路与先进经验，探索基本医保与商业健康险更紧密地协同与衔接，共同支持创新药械发展。
 
-银行安排专人上门对接，为企业提供材料审核、系统录入、减持登记、开户等全流程服务，企业无需往返外汇局，在银行网点即可办结全部手续。
+罗念慈 中欧校友医疗健康产业协会副会长，上海健贤医疗行业创新研究院院长 刘畅 艾社康亚洲创始人兼CEO 本次会议由中欧校友医疗健康产业协会副会长，上海健贤医疗行业创新研究院院长罗念慈和艾社康亚洲创始人兼CEO刘畅共同主持。
 
-“以前要跑好几个地方，现在直接在银行就办完了，省时又省力。
+邓坚 中欧校友医疗健康产业协会医疗器械IVD专委会副会长、美敦力全球副总裁及中国法定代表人 中欧校友医疗健康产业协会医疗器械IVD专委会副会长、美敦力全球副总裁及中国法定代表人邓坚为本次会议致欢迎词。
 
-”该企业财务负责人表示。
+邓坚总代表主办方向各位嘉宾和同仁表示热烈欢迎，并指出，在医学科技持续进步、健康需求不断升级的背景下，医保商保的有效衔接，不仅是支付机制的优化，更是推动保障体系、服务体系和产业创新协同配合的关键命题。
 
-中国银行天津市分行称，后续将持续推动资本项目便利化政策落地，让更多企业享受高效便捷的跨境金融服务。
+他强调，创新的真正价值不止于药械获批上市，更在于能否被患者有效获得、被支付方合理承接。
 
-(完)
+在中国独特的医疗保障体系下，探索符合国情的医保商保衔接路径，是一项值得长期实践的重要课题。
 
 ## 相关推荐
 
-- 2026-06-29 16:49 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 16:47 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 16:47 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 16:58 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 16:38 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 16:30 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 16:38 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 16:57 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 16:51 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 16:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 16:30 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 16:58 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 16:54 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 16:49 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 16:59 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 16:56 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 17:00 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 16:56 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 16:41 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 16:50 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 16:39 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 16:45 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 16:48 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 16:42 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 16:46 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 16:39 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/10001407.shtml)
-- 2026-06-29 16:42 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/56654.shtml)
-- 2026-06-29 16:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/57056787348.shtml)
-- 2026-06-29 16:37 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/346205568719.shtml)
-- 2026-06-29 16:55 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/95613.shtml)
-- 2026-06-29 16:44 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/92557.shtml)
-- 2026-06-29 16:46 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/57311247.shtml)
-- 2026-06-29 16:53 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.minike.top/Article/details/324637449.shtml)
-- 2026-06-29 16:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/25635575576.shtml)
-- 2026-06-29 16:44 - [《贺子珍》](http://www.blog.minike.top/Article/details/409867449.shtml)
-- 2026-06-29 16:33 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/64247551.shtml)
-- 2026-06-29 16:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/792663.shtml)
-- 2026-06-29 16:57 - [恋与深空发放补偿未得到玩家认可](http://www.share.kurohicncr.top/Article/details/646943.shtml)
-- 2026-06-29 16:46 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/9944405166.shtml)
-- 2026-06-29 16:34 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/841112477.shtml)
+- 2026-06-29 17:01 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/89319.shtml)
+- 2026-06-29 16:51 - [三星与SK集团或将投资2000万亿韩元](https://www.share.kurohicncr.top/Article/details/168956680.shtml)
+- 2026-06-29 17:03 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/9715701.shtml)
+- 2026-06-29 16:40 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/150453982.shtml)
+- 2026-06-29 16:52 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/9002477392.shtml)
+- 2026-06-29 16:41 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/370307.shtml)
+- 2026-06-29 16:42 - [滾石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/0476527608.shtml)
+- 2026-06-29 16:44 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/585979.shtml)
+- 2026-06-29 17:02 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/421243236.shtml)
+- 2026-06-29 16:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/19692509.shtml)
+- 2026-06-29 16:49 - [周生如故](http://www.blog.kurohicncr.top/Article/details/79257.shtml)
+- 2026-06-29 17:04 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.minike.top/Article/details/2637288658.shtml)
+- 2026-06-29 16:55 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/15419163.shtml)
+- 2026-06-29 16:40 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/22983.shtml)
+- 2026-06-29 17:00 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/95118.shtml)

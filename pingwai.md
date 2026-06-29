@@ -1,61 +1,60 @@
-# 中德学者揭示大连马为跨大陆马类演化“遗传桥梁”
+# 特斯拉跌近3%，金银油价同步上涨
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-中新网武汉5月27日电 (孙彦钦 马芙蓉)中国地质大学(武汉)、德国波茨坦大学等单位学者，通过对已灭绝晚更新世大连马的古基因组解析，证实大连马是连接北美与欧亚大陆马类种群的关键遗传中介，并揭示其灭绝原因。 相关成果于27日在线发表于国际期刊《英国皇家学会学报B：生物科学》。 大连马是在晚更新世晚期灭绝的大型马科类群之一，因其最早在辽宁大连古龙山遗址出土而得名，曾长期被认为仅局限
+当地时间5月18日，美股三大股指收盘涨跌不一，道指涨0.32%，标普500指数跌0.07%，纳指跌0.51%。 万得美国科技七巨头指数跌0.61%，特斯拉跌近3%，英伟达跌超1%。纳斯达克中国金龙指数跌0.72%，理想汽车跌近10%。 大宗商品市场方面，国际贵金属价格上涨，油价上涨。 新华社消息，美东时间18日下午，美国总统特朗普在社交媒体发文称，在卡塔尔、沙特阿拉伯、阿联酋领
 
 ## 正文
 
-中新网武汉5月27日电 (孙彦钦 马芙蓉)中国地质大学(武汉)、德国波茨坦大学等单位学者，通过对已灭绝晚更新世大连马的古基因组解析，证实大连马是连接北美与欧亚大陆马类种群的关键遗传中介，并揭示其灭绝原因。
+当地时间5月18日，美股三大股指收盘涨跌不一，道指涨0.32%，标普500指数跌0.07%，纳指跌0.51%。
 
-相关成果于27日在线发表于国际期刊《英国皇家学会学报B：生物科学》。
+万得美国科技七巨头指数跌0.61%，特斯拉跌近3%，英伟达跌超1%。
 
-大连马是在晚更新世晚期灭绝的大型马科类群之一，因其最早在辽宁大连古龙山遗址出土而得名，曾长期被认为仅局限分布于中国东北地区。
+纳斯达克中国金龙指数跌0.72%，理想汽车跌近10%。
 
-研究团队对来自黑龙江、内蒙古等地的20例大连马化石标本开展古DNA研究发现，大连马构成欧亚大陆马科中一个独立遗传支系，从分子水平上揭示其分布范围远超以往认知——从中国东北向北延伸至西伯利亚南部乃至雅库特地区，是晚更新世东北亚广泛分布的马科特色谱系。
+大宗商品市场方面，国际贵金属价格上涨，油价上涨。
 
-进一步分析发现，大连马携带独特的东白令陆桥(北美)遗传组分，这一特征未见于其他东北亚马科谱系；且该组分占比在距今约5万—3.2万年间存在波动，揭示大连马与白令陆桥东部马科种群在此期间存在基因交流。
+新华社消息，美东时间18日下午，美国总统特朗普在社交媒体发文称，在卡塔尔、沙特阿拉伯、阿联酋领导人要求下，他已下令“明天（19日）”不按原计划对伊朗发动攻击。
 
-结合基因组数据与时空分布证据，研究首次提出：大连马是北美遗传成分传入欧亚大陆的重要“遗传桥梁”，西伯利亚东北部野马群体中零散、低比例的北美血统，很可能经由大连马介导获得。
+伊朗最高领袖穆杰塔巴·哈梅内伊的社交媒体账号18日摘发其上任后首份声明，重申将考虑在敌人不擅长的领域开辟新战线。
 
-该研究还揭开了大连马的灭绝之谜：距今约4万年以来，东北亚气候趋于湿润，干冷草原被湿地、泥炭地替代，优质牧草锐减。
+美股三大股指涨跌不一 当地时间5月18日，美股三大股指收盘涨跌不一。
 
-生态特化与体型偏大使大连马难以适应环境快速变迁，最终灭绝。
+Wind数据显示，截至收盘，道指涨0.32%报49686.12点，标普500指数跌0.07%报7403.05点，纳指跌0.51%报26090.73点。
 
 ## 相关推荐
 
-- 2026-06-29 16:49 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 16:43 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 16:52 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 16:37 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 16:37 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 16:52 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 16:41 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 16:52 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 16:52 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 16:44 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 16:56 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 16:45 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 16:46 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 16:48 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 16:31 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 16:47 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 16:49 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 16:39 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 16:36 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 16:40 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 16:49 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 16:48 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 16:37 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 16:58 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 16:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 16:52 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 16:56 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 16:54 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 16:50 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:30 - [德国VS巴拉圭前瞻](http://www.blog.kurohicncr.top/Article/details/618120538528.shtml)
-- 2026-06-29 16:35 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/1649209.shtml)
-- 2026-06-29 16:42 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/572992617.shtml)
-- 2026-06-29 16:57 - [流金岁月](http://www.share.minike.top/Article/details/975771976.shtml)
-- 2026-06-29 16:59 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/5741212.shtml)
-- 2026-06-29 16:35 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/38330.shtml)
-- 2026-06-29 16:36 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/270411243669.shtml)
-- 2026-06-29 16:54 - [新能源车能当外接空调用吗](http://www.share.minike.top/Article/details/99352580.shtml)
-- 2026-06-29 16:34 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/1089978.shtml)
-- 2026-06-29 16:38 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/2897616487.shtml)
-- 2026-06-29 16:56 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.minike.top/Article/details/304799619.shtml)
-- 2026-06-29 16:54 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/884143424.shtml)
-- 2026-06-29 16:30 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/968157.shtml)
-- 2026-06-29 16:46 - [博主：黄金和原油回落不等于风险消失](http://www.share.kurohicncr.top/Article/details/52892.shtml)
-- 2026-06-29 16:37 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/95077770299.shtml)
+- 2026-06-29 16:50 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/414167748.shtml)
+- 2026-06-29 17:04 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/9177581.shtml)
+- 2026-06-29 16:50 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/98850.shtml)
+- 2026-06-29 16:44 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/07942190.shtml)
+- 2026-06-29 16:47 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/71200776283.shtml)
+- 2026-06-29 16:56 - [省市招考专家解读山西高考志愿政策](http://www.blog.minike.top/Article/details/403368533.shtml)
+- 2026-06-29 16:59 - [驻日美军航母沦为“毒窝”](http://www.share.minike.top/Article/details/957683970.shtml)
+- 2026-06-29 16:43 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/778187.shtml)
+- 2026-06-29 17:00 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/333543119.shtml)
+- 2026-06-29 16:57 - [业内：全球市场迎来结构性投资窗口](http://www.share.minike.top/Article/details/7941792545.shtml)
+- 2026-06-29 16:49 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/4197774600.shtml)
+- 2026-06-29 16:59 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/0774302270.shtml)
+- 2026-06-29 16:58 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/20882983758.shtml)
+- 2026-06-29 16:47 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/5802065.shtml)
+- 2026-06-29 16:43 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/17502.shtml)

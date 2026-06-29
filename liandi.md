@@ -1,60 +1,58 @@
-# “泡沫预言家”：历史大顶之后，都是最糟糕的时期，美股或面临十年低迷，标普500指数真正崩盘时会腰斩
+# 抢跑人形机器人赛道，六大行科技贷款23万亿创新高！工行6万亿领跑、农行增速第一
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-来源：华尔街见闻 5月25日，知名投资研究与培训机构 Behind the Balance Sheet 发布了最新一期播客节目，传奇投资者 Jeremy Grantham 接受了机构创始人Stephen Clapham的深度专访。 在长达一个多小时的对话中，这位经历过1973年股灾、精准预测过2000年互联网泡沫和2008年次贷危机的“泡沫预言家”，对当前全球资本市场的估值逻辑
+来源：时代周报 今年4月举行的北京亦庄人形机器人半程马拉松，工商银行聚焦人形机器人产业全链条发展需求，从产业金融支持、场景应用落地、行业生态赋能等多维度发力，提供全面金融解决方案，为人形机器人产业注入强劲金融动能。 这也是当前国有大行深耕科技金融、精准赋能新兴科创产业的真实缩影。 自中央金融工作会议明确要求做好科技金融以来，科技金融已成为银行业转型的核心驱动力，而国有大行稳定发
 
 ## 正文
 
-来源：华尔街见闻 5月25日，知名投资研究与培训机构 Behind the Balance Sheet 发布了最新一期播客节目，传奇投资者 Jeremy Grantham 接受了机构创始人Stephen Clapham的深度专访。
+来源：时代周报 今年4月举行的北京亦庄人形机器人半程马拉松，工商银行聚焦人形机器人产业全链条发展需求，从产业金融支持、场景应用落地、行业生态赋能等多维度发力，提供全面金融解决方案，为人形机器人产业注入强劲金融动能。
 
-在长达一个多小时的对话中，这位经历过1973年股灾、精准预测过2000年互联网泡沫和2008年次贷危机的“泡沫预言家”，对当前全球资本市场的估值逻辑、AI带来的资本支出狂潮、以及未来资产配置的方向进行了深度剖析。
+这也是当前国有大行深耕科技金融、精准赋能新兴科创产业的真实缩影。
 
-在Grantham看来，2022年的美股原本已经步入了典型的泡沫破裂轨道。
+自中央金融工作会议明确要求做好科技金融以来，科技金融已成为银行业转型的核心驱动力，而国有大行稳定发挥“压舱石”作用，是科技金融供给的绝对主力。
 
-Grantham指出： 在2022年，形成重大泡沫的所有条件都已满足，随后泡沫破裂，标普500指数下跌了25%，‘七巨头’下跌了40%……债券市场经历了历史上最糟糕的一年。
+截至2025年末，六家国有大行科技贷款余额超过23万亿元。
 
-但随后，ChatGPT问世了。
+苏商银行特约研究员武泽伟向时代周报记者表示，超23万亿元的体量与15%以上的增速，表明国有大行的信贷资源配置已发生方向性调整，科技创新领域正成为资产扩张的关键板块。
 
-这是第一个被如此强大的事物所打断的泡沫。
+在传统行业有效信贷需求相对不足的背景下，这一规模意味着银行对技术型企业的支持从局部探索进入系统推进阶段，金融资源与国家创新战略的衔接更加紧密。
 
-他坦言，AI的出现不仅改变了游戏规则，也彻底扭转了市场的下行趋势。
+另一方面，2025年，六家国有大行在科技投入力度整体进一步加强，科技投入合计超1300亿元，较2024年进一步增长。
 
-Grantham表示： 我们原本正走向一场衰退，经济正在走弱，但巨量的AI投资打断了这一进程。
+从投入领域来看，AI成为六家国有大行年报的热门关键词。
 
 ## 相关推荐
 
-- 2026-06-29 16:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 16:48 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 16:45 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 16:30 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 16:37 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 16:37 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 16:39 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 16:54 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 16:59 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 16:40 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 16:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 16:44 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 16:50 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 16:40 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 16:38 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 16:54 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 17:02 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 16:57 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 16:45 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 17:00 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 16:36 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 16:52 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 16:46 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 16:55 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 16:58 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 16:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:48 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/790838096641.shtml)
-- 2026-06-29 16:36 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/0387783.shtml)
-- 2026-06-29 16:40 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/120478421.shtml)
-- 2026-06-29 16:50 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/2775803.shtml)
-- 2026-06-29 16:51 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/752984875.shtml)
-- 2026-06-29 16:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/0705134414.shtml)
-- 2026-06-29 16:51 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/159557396.shtml)
-- 2026-06-29 16:34 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/741216744.shtml)
-- 2026-06-29 16:42 - [女心理师](https://www.share.minike.top/Article/details/3049205172.shtml)
-- 2026-06-29 16:52 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/76042062938.shtml)
-- 2026-06-29 16:35 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/77804499721.shtml)
-- 2026-06-29 16:52 - [疑似吴建豪老婆正脸照](http://www.share.minike.top/Article/details/13768981.shtml)
-- 2026-06-29 16:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/53714059995.shtml)
-- 2026-06-29 16:36 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/1522040134.shtml)
-- 2026-06-29 16:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/959213847.shtml)
+- 2026-06-29 17:05 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/964950611402.shtml)
+- 2026-06-29 16:59 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/2653392026.shtml)
+- 2026-06-29 17:05 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/003202250558.shtml)
+- 2026-06-29 16:56 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/18739548.shtml)
+- 2026-06-29 16:54 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/4845976.shtml)
+- 2026-06-29 17:03 - [速度与激情9](http://www.share.minike.top/Article/details/57332322438.shtml)
+- 2026-06-29 16:51 - [送你一朵小红花](https://www.share.minike.top/Article/details/31729061956.shtml)
+- 2026-06-29 16:46 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/973729212224.shtml)
+- 2026-06-29 16:43 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/03942069.shtml)
+- 2026-06-29 16:46 - [日本偶像龟梨和也宣布结婚](http://www.blog.kurohicncr.top/Article/details/3273591.shtml)
+- 2026-06-29 16:50 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/6425436548.shtml)
+- 2026-06-29 16:37 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/7699584907.shtml)
+- 2026-06-29 16:47 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/1624831.shtml)
+- 2026-06-29 16:41 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/7186339.shtml)
+- 2026-06-29 16:41 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/844271342723.shtml)

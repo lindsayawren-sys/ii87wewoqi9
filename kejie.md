@@ -1,60 +1,60 @@
-# 监管“亮剑”强化“报行合一” 5家险企分支机构车险业务被暂停
+# 博时市场点评5月18日：两市震荡调整，成交量能减弱
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-上证报中国证券网讯（记者 何奎）近日，吉林金融监管局一次性叫停五家保险公司分支机构的车险业务，被采取措施的机构分别是中国人寿财险长春中心支公司、华泰财险吉林分公司、平安产险长春中心支公司、申能财险长春中心支公司、华安保险长春中心支公司。 从处罚理由来看，五家险企的分支机构均存在“未按规定使用经报备的商业车险费率”问题，这是典型的违反“报行合一”行为。“报行合一”是指保险公司报备
+🌟【博时市场点评5月18日】两市震荡调整，成交量能减弱 📝每日观点 🎈今日沪深三大指数继续调整，两市成交较上周五缩量至不足3万亿。国内经济基本面来看，4月经济呈现CPI小幅回升、PPI大幅抬升，社融与信贷偏弱、直接融资偏强，产业结构中新兴偏强、传统偏弱的结构特征；今日公布的4月消费、投资数据也较上月回落，短期对权益风险偏好或形成牵制。海外方面，美国通胀超预期与利率再上行，霍尔木
 
 ## 正文
 
-上证报中国证券网讯（记者 何奎）近日，吉林金融监管局一次性叫停五家保险公司分支机构的车险业务，被采取措施的机构分别是中国人寿财险长春中心支公司、华泰财险吉林分公司、平安产险长春中心支公司、申能财险长春中心支公司、华安保险长春中心支公司。
+🌟【博时市场点评5月18日】两市震荡调整，成交量能减弱 📝每日观点 🎈今日沪深三大指数继续调整，两市成交较上周五缩量至不足3万亿。
 
-从处罚理由来看，五家险企的分支机构均存在“未按规定使用经报备的商业车险费率”问题，这是典型的违反“报行合一”行为。
+国内经济基本面来看，4月经济呈现CPI小幅回升、PPI大幅抬升，社融与信贷偏弱、直接融资偏强，产业结构中新兴偏强、传统偏弱的结构特征；今日公布的4月消费、投资数据也较上月回落，短期对权益风险偏好或形成牵制。
 
-“报行合一”是指保险公司报备给监管部门的条款、费率及费用假设，必须与实际经营行为完全一致。
+海外方面，美国通胀超预期与利率再上行，霍尔木兹海峡仍处在实质封闭状态，美伊冲突仍有不确定性，在“通胀再抬头→利率上行→波动加大”的链条下，全球风险资产进入再定价阶段，短线或以震荡偏弱为主，权益侧需注意均衡与防御，配置上或可关注高股息红利资产的防御价值。
 
-在五家险企中，华安保险、平安产险、华泰财险三家险企突破报备费率的幅度较大。
+🔥消息面 🎈5月18日，国家统计局发布4月国民经济运行数据。
 
-例如，华安保险长春中心支公司报备燃油商业车险手续费上限为15%，实际支付手续费率为15.24%至22.41%；平安产险长春中心支公司报备的燃油商业车险手续费上限为14%，实际支付手续费率达到18.6%至19%；华泰财险吉林分公司报备的燃油商业车险手续费上限为16%，实际支付手续费率达到20%。
+4月规模以上工业增加值同比增长4.1%，较上月回落1.6个百分点；4月社会消费品零售总额同比增长0.2%，较上月回落1.5个百分点，累计同比增长1.9%。
 
-‌‌ 基于上述违规事实，监管部门责令五家险企的分支机构在长春地区停止使用燃油商业车险条款、费率10个自然日。
+1至4月全国固定资产投资（不含农户）同比下降1.6%，其中基础设施投资同比增长4.3%，制造业投资增长1.2%，房地产开发投资下降13.7%。
 
-这意味着，五家险企分支机构的商业车险业务停业，在行业内属于较严厉的监管措施。
+简评：1—4月份国民经济保持稳中有进发展态势，高质量发展扎实推进。
 
-据记者了解，因违反“报行合一”政策，五家险企分支机构同时被监管做出停业处罚，这在近年较为少见。
+但也要看到，外部形势复杂多变，国内供强需弱仍较突出，部分企业经营困难，经济稳中向好的基础还需巩固。
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 16:50 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 16:32 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 17:00 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 16:38 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 16:38 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 16:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 16:31 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 16:34 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 16:53 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 16:36 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 16:44 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 16:48 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 16:55 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 16:36 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 16:49 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 16:46 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 16:50 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 17:01 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 16:57 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 16:40 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 16:38 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 16:40 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 17:03 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 16:54 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 16:40 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 16:48 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 16:57 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:31 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/10317808386.shtml)
-- 2026-06-29 16:34 - [12所大学更正招生目录](http://www.blog.minike.top/Article/details/4350813.shtml)
-- 2026-06-29 16:41 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/027079548.shtml)
-- 2026-06-29 16:49 - [波兰创该国高温纪录](http://www.blog.minike.top/Article/details/16520567775.shtml)
-- 2026-06-29 16:48 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/5153167.shtml)
-- 2026-06-29 16:30 - [青春环游记第三季](https://www.share.minike.top/Article/details/331976620157.shtml)
-- 2026-06-29 16:40 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/31918898.shtml)
-- 2026-06-29 16:52 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.minike.top/Article/details/5373470.shtml)
-- 2026-06-29 16:55 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/346161517495.shtml)
-- 2026-06-29 16:45 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/49115096.shtml)
-- 2026-06-29 16:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/2444152479.shtml)
-- 2026-06-29 16:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/26390.shtml)
-- 2026-06-29 16:48 - [世界杯十大帅哥必吃榜](http://www.blog.minike.top/Article/details/248333634.shtml)
-- 2026-06-29 16:40 - [第一炉香](http://www.share.kurohicncr.top/Article/details/25921510.shtml)
-- 2026-06-29 16:38 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/59910451974.shtml)
+- 2026-06-29 16:44 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/4987234812.shtml)
+- 2026-06-29 16:47 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/3432654.shtml)
+- 2026-06-29 16:48 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/7047706.shtml)
+- 2026-06-29 16:53 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/86563875149.shtml)
+- 2026-06-29 16:45 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/64589.shtml)
+- 2026-06-29 17:04 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/927087837011.shtml)
+- 2026-06-29 16:38 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/62859.shtml)
+- 2026-06-29 16:52 - [毒液2](https://www.share.kurohicncr.top/Article/details/9420388.shtml)
+- 2026-06-29 16:51 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/6220966.shtml)
+- 2026-06-29 16:41 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.minike.top/Article/details/07155199.shtml)
+- 2026-06-29 16:48 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/09075614743.shtml)
+- 2026-06-29 16:54 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/50005887.shtml)
+- 2026-06-29 17:05 - [机器人学校开学了](http://www.blog.kurohicncr.top/Article/details/97903560881.shtml)
+- 2026-06-29 17:02 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/2617632.shtml)
+- 2026-06-29 16:40 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/192457875037.shtml)

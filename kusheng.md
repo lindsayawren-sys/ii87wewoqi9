@@ -1,59 +1,61 @@
-# Kaskela律所对Reservoir Media发起股东调查，凸显收购战中的信托责任争议
+# A股五大上市险企均宣布不再设立监事会
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-股东权益律师事务所Kaskela Law LLC今日宣布，已代表Reservoir Media， Inc．（纳斯达克代码：RSVR）的股东对公司展开调查，旨在确定公司或其代表是否因近期公司行动而违反证券法或信托责任。Kaskela Law特别鼓励RSVR股东主动联系律所，了解其合法权利及可采取的法律选项。 此项调查正值Reservoir Media陷入一场复杂的收购战之中。该公
+日前，中国平安保险(集团)股份有限公司发布关于公司章程获国家金融监督管理总局核准及不再设立监事会的公告，自2026年5月13日起，该公司不再设立监事会，由董事会审计与风险管理委员会行使公司法规定的监事会职权。 此前，中国人民保险集团股份有限公司、中国人寿保险股份有限公司、中国太平洋保险(集团)股份有限公司、新华人寿保险股份有限公司等公司均已发布公告称，新版公司章程获得监管部门核
 
 ## 正文
 
-股东权益律师事务所Kaskela Law LLC今日宣布，已代表Reservoir Media， Inc．（纳斯达克代码：RSVR）的股东对公司展开调查，旨在确定公司或其代表是否因近期公司行动而违反证券法或信托责任。
+日前，中国平安保险(集团)股份有限公司发布关于公司章程获国家金融监督管理总局核准及不再设立监事会的公告，自2026年5月13日起，该公司不再设立监事会，由董事会审计与风险管理委员会行使公司法规定的监事会职权。
 
-Kaskela Law特别鼓励RSVR股东主动联系律所，了解其合法权利及可采取的法律选项。
+此前，中国人民保险集团股份有限公司、中国人寿保险股份有限公司、中国太平洋保险(集团)股份有限公司、新华人寿保险股份有限公司等公司均已发布公告称，新版公司章程获得监管部门核准，自新版公司章程生效日起，公司不再设立监事会，监事会职权转由董事会审计委员会行使。
 
-此项调查正值Reservoir Media陷入一场复杂的收购战之中。
+至此，A股五大上市险企均宣布不再设立监事会。
 
-该公司于2026年3月先后收到两份非约束性私有化提议：3月3日，持股近10%的激进对冲基金Irenic Capital Management出价每股10至11美元；次日，合计持股约65%的内部人财团Richmond Hill Investment与Wesbild则出价每股10.50美元。
+“过往实践中，险企监事会常存在独立性不足、专业能力欠缺、对复杂保险及投资业务监督乏力、话语权较弱等问题，易流于形式。
 
-鉴于内部人财团凭借65%的控股权足以单方面强制通过每股10.50美元的现金收购，从而将中小股东挤出公司，该交易的公平性引发了广泛质疑。
+取消监事会设置，既能精简险企治理层级、实现降本增效，又能通过审计委员会行使相关职权，将监督嵌入治理决策核心环节，在事前、事中介入公司重大投资决策、准备金计提、资产减值、关联交易等关键风险事项，相比事后检查的监事会更为及时。
 
-Kaskela Law的调查重点正是这一价格是否公允地反映了公司的真实价值，以及董事会是否因内部人利益冲突而未能充分履行其信托责任。
+”天职国际金融业咨询合伙人周瑾在接受《证券日报》记者采访时表示。
 
-为应对这一局面，公司董事会已成立独立的特别委员会，并聘请摩根士丹利担任财务顾问、Wachtell， Lipton， Rosen & Katz律师事务所担任法律顾问，以评估各项提案及战略替代方案。
+南开大学金融学教授田利辉在接受《证券日报》记者采访时表示，撤销监事会可精简治理层级、提升决策效率，同时与国际单层制董事会模式趋同，增强境外投资者认可度。
 
-此前，B． Riley已将RSVR评级从“买入”下调至“中性”，并将目标价从11.5美元下调至11美元。
+从对险企的影响来看，主要是“一减一增”：“减”的是治理成本与职能重叠，“增”的是对审计委员会独立性和专业能力的极致考验。
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 16:40 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 16:42 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 16:57 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 16:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 16:54 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 16:30 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 16:56 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 16:34 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 16:31 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 16:41 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 16:48 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 16:40 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 17:03 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 17:02 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 16:59 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 16:58 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 16:45 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 16:39 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 17:00 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 16:47 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 17:02 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 16:57 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 17:00 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 16:57 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 16:46 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 17:05 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 17:03 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:39 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/38057875204.shtml)
-- 2026-06-29 16:55 - [青春环游记第三季](https://www.blog.minike.top/Article/details/481372024.shtml)
-- 2026-06-29 16:34 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/006944.shtml)
-- 2026-06-29 16:34 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.kurohicncr.top/Article/details/9202610.shtml)
-- 2026-06-29 16:58 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/09717878209.shtml)
-- 2026-06-29 16:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/155475910.shtml)
-- 2026-06-29 16:46 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/7518467404.shtml)
-- 2026-06-29 16:36 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/4337397.shtml)
-- 2026-06-29 16:50 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/28987.shtml)
-- 2026-06-29 16:49 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/91968175006.shtml)
-- 2026-06-29 16:34 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/17930777399.shtml)
-- 2026-06-29 16:56 - [7款商保创新药“转道”](http://www.share.kurohicncr.top/Article/details/45599.shtml)
-- 2026-06-29 16:40 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/2462170149.shtml)
-- 2026-06-29 16:51 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/23063.shtml)
-- 2026-06-29 16:59 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/254424033777.shtml)
+- 2026-06-29 16:43 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/8288740.shtml)
+- 2026-06-29 16:37 - [省市招考专家解读山西高考志愿政策](https://www.blog.minike.top/Article/details/110065.shtml)
+- 2026-06-29 16:57 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/302055.shtml)
+- 2026-06-29 16:55 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/400301068184.shtml)
+- 2026-06-29 16:53 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/1255729.shtml)
+- 2026-06-29 16:43 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/717253069.shtml)
+- 2026-06-29 16:55 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/4228477197.shtml)
+- 2026-06-29 16:55 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/549781064.shtml)
+- 2026-06-29 17:02 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/311542178724.shtml)
+- 2026-06-29 16:45 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/9180658.shtml)
+- 2026-06-29 17:04 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/2130113461.shtml)
+- 2026-06-29 16:54 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/8435109.shtml)
+- 2026-06-29 16:53 - [王曼昱被突如其来的话筒逗笑了](https://www.share.kurohicncr.top/Article/details/12676725.shtml)
+- 2026-06-29 16:55 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/712231.shtml)
+- 2026-06-29 17:04 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/213813473485.shtml)

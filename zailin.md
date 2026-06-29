@@ -1,57 +1,57 @@
-# 押注国产芯！6家险资23.85亿布局，有望斩获千亿级市值回报
+# First Eagle主动型ETF平台推出不到18个月，资产规模突破30亿美元
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-来源：险联社 “险资凭借‘长期、稳健、抗周期’的投资特质，在企业低迷阶段重金入局，仅合计投入23.85亿元，如今有望撬动千亿市值收益。” 国产DRAM存储芯片龙头长鑫科技成功过会，这场硬科技企业的上市热潮中，6家保险资金的长线潜伏布局，成为市场关注的焦点。 险资凭借“长期、稳健、抗周期”的投资特质，在企业低迷阶段重金入局，仅合计投入23.85亿元，如今有望撬动千亿市值收益。 六
+增长数据 First Eagle Investments宣布，截至2026年5月12日，其主动管理型ETF平台的管理资产规模已超过30亿美元，距离该平台推出不到18个月。年初至今的资金流入主要由全球策略驱动，在不到一半的时间内已追平2025年全年的总额。 产品矩阵 该平台于2024年底推出，目前包括四只股票型ETF：First Eagle全球股票ETF、First Eagle海
 
 ## 正文
 
-来源：险联社 “险资凭借‘长期、稳健、抗周期’的投资特质，在企业低迷阶段重金入局，仅合计投入23.85亿元，如今有望撬动千亿市值收益。
+增长数据 First Eagle Investments宣布，截至2026年5月12日，其主动管理型ETF平台的管理资产规模已超过30亿美元，距离该平台推出不到18个月。
 
-” 国产DRAM存储芯片龙头长鑫科技成功过会，这场硬科技企业的上市热潮中，6家保险资金的长线潜伏布局，成为市场关注的焦点。
+年初至今的资金流入主要由全球策略驱动，在不到一半的时间内已追平2025年全年的总额。
 
-险资凭借“长期、稳健、抗周期”的投资特质，在企业低迷阶段重金入局，仅合计投入23.85亿元，如今有望撬动千亿市值收益。
+产品矩阵 该平台于2024年底推出，目前包括四只股票型ETF：First Eagle全球股票ETF、First Eagle海外股票ETF、First Eagle美国股票ETF和First Eagle中型股股票ETF。
 
-六大险资低位布局持股架构清晰 此次布局长鑫科技的险资阵营清晰，和谐健康、阳光人寿、中邮人寿、国寿投资、人保资本、人保科创6家机构，均在企业上市前的私募阶段完成投资，属于典型的低位提前布局。
+这些基金由First Eagle旗下成熟的投资团队管理，包括Matt McLennan领导的全球价值团队和Bill Hench领导的小盘股团队。
 
-与偏好短期套利的资金不同，险资金体量大、投资周期长，对科创企业前期亏损、回报周期长的特点具备天然耐受度，与半导体这类重投入、高成长的硬核赛道高度适配，这也是多家险资集体押注的核心逻辑。
+行业趋势 在市场高度集中和波动加剧的背景下，投资者日益转向主动、估值驱动的策略。
 
-从招股书披露的持股数据来看，险资持仓结构清晰、布局精准。
+主动型ETF被视作获得更具选择性、估值驱动的投资敞口并具有下行保护潜力的有效工具。
 
-其中，和谐健康表现最为突出，以1.5%的持股比例跻身长鑫科技发行前第十大股东，是所有险资中唯一进入企业前十股东的机构，也是持股比例最高的险资主体。
+管理层表态 First Eagle美国财富解决方案主管Frank Riccio表示，突破30亿美元既反映了对主动管理型ETF日益增长的需求，也体现了投资者对投资组合构建思路的变化。
 
-其余险资持股分布均衡，国寿投资持股0.79%，人保资本持股0.78%，两大国资险资资管平台紧随其后；阳光人寿、中邮人寿持股比例一致，均为0.37%；人保科创持股0.15%。
+在当前环境下，投资者在追求增长的同时，正优先考虑多元化和资本保值，并使用主动型ETF来实现这些目标。
 
 ## 相关推荐
 
-- 2026-06-29 16:47 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 16:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 16:59 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 16:56 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 16:49 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 16:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 16:52 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 16:53 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 16:40 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 16:53 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 16:37 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 16:46 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 16:58 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 16:54 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 16:45 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 16:52 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 17:02 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 16:37 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 16:54 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 16:56 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 17:02 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 17:00 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:59 - [斗破苍穹](https://www.share.minike.top/Article/details/60331766236.shtml)
-- 2026-06-29 16:38 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/786410.shtml)
-- 2026-06-29 16:41 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/8419797.shtml)
-- 2026-06-29 16:56 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/290332123.shtml)
-- 2026-06-29 16:42 - [中国空间站为什么要升级扩容](https://www.blog.kurohicncr.top/Article/details/95427.shtml)
-- 2026-06-29 16:36 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/8177766330.shtml)
-- 2026-06-29 16:32 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/49409681307.shtml)
-- 2026-06-29 16:34 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.minike.top/Article/details/740398709016.shtml)
-- 2026-06-29 16:45 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/6192513451.shtml)
-- 2026-06-29 16:40 - [中方将20家日本实体列入关注名单](https://www.share.kurohicncr.top/Article/details/621962979.shtml)
-- 2026-06-29 16:52 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/7456713.shtml)
-- 2026-06-29 16:41 - [南昌市委书记调整](https://www.share.minike.top/Article/details/5899428.shtml)
-- 2026-06-29 16:48 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/289118400.shtml)
-- 2026-06-29 16:56 - [普京为何喊话俄乌都别打对方纵深](http://www.share.kurohicncr.top/Article/details/749649977938.shtml)
-- 2026-06-29 16:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/9659275552.shtml)
+- 2026-06-29 16:44 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/97823155501.shtml)
+- 2026-06-29 16:58 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/254916.shtml)
+- 2026-06-29 16:55 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/00181209.shtml)
+- 2026-06-29 16:36 - [货车司机雨中帮交警挪树获表扬](http://www.blog.kurohicncr.top/Article/details/1390214.shtml)
+- 2026-06-29 16:56 - [欧盟为什么越来越倾向贸易保护](http://www.share.minike.top/Article/details/87071247988.shtml)
+- 2026-06-29 16:52 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/18506.shtml)
+- 2026-06-29 16:58 - [一生一世](https://www.share.minike.top/Article/details/74605491.shtml)
+- 2026-06-29 17:03 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/887636420.shtml)
+- 2026-06-29 16:51 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/886593555285.shtml)
+- 2026-06-29 16:58 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/3127307879.shtml)
+- 2026-06-29 17:00 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/77916.shtml)
+- 2026-06-29 16:44 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/22656374.shtml)
+- 2026-06-29 16:46 - [挪威王储妃长子2次强奸被判4年](http://www.blog.kurohicncr.top/Article/details/08362154.shtml)
+- 2026-06-29 16:50 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/801106282338.shtml)
+- 2026-06-29 16:37 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/254174.shtml)

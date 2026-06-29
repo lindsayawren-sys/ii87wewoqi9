@@ -1,54 +1,57 @@
-# 韩国财长称5月份工业产出有望反弹
+# “十五五”开局GDP增速亮眼 上海如何巩固发展优势？
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-韩国财政部长官具润哲周五表示，受中东紧张局势影响，韩国4月份工业产出环比下滑，但随着商业信心出现改善迹象，5月份工业产出有望反弹。 韩国数据和统计部当天早些时候公布的数据显示，该国4月份工业产出环比下降0.6%，零售销售和设施投资均出现下滑。 具润哲在与经济相关部长的会议上表示：“在过去几个月的强劲表现后，4月份的数据出现了暂时性修正，这是由于基数效应所致。” “随着消费者和企
+中新网上海5月18日电 (谢梦圆)18日，上海市政府新闻发布厅举行“开局起步‘十五五’”上海专场新闻发布会。记者在会上获悉，今年一季度上海GDP实现5.9%的增长，为继续保持优势，接下来，上海将聚焦建设“五个中心”重要使命，以更大力度和更实举措抓好经济工作，持续巩固经济社会发展良好势头。当前，上海已成为全国首个经济总量突破5万亿元的城市，跻身全球城市前五位，人均地区生产总值达到
 
 ## 正文
 
-韩国财政部长官具润哲周五表示，受中东紧张局势影响，韩国4月份工业产出环比下滑，但随着商业信心出现改善迹象，5月份工业产出有望反弹。
+中新网上海5月18日电 (谢梦圆)18日，上海市政府新闻发布厅举行“开局起步‘十五五’”上海专场新闻发布会。
 
-韩国数据和统计部当天早些时候公布的数据显示，该国4月份工业产出环比下降0.6%，零售销售和设施投资均出现下滑。
+记者在会上获悉，今年一季度上海GDP实现5.9%的增长，为继续保持优势，接下来，上海将聚焦建设“五个中心”重要使命，以更大力度和更实举措抓好经济工作，持续巩固经济社会发展良好势头。
 
-具润哲在与经济相关部长的会议上表示：“在过去几个月的强劲表现后，4月份的数据出现了暂时性修正，这是由于基数效应所致。
+当前，上海已成为全国首个经济总量突破5万亿元的城市，跻身全球城市前五位，人均地区生产总值达到3.2万美元。
 
-” “随着消费者和企业信心大幅反弹，出口保持强劲势头，预计工业产出数据将重回上升趋势，”他补充道。
+集成电路、生物医药、人工智能三大先导产业规模突破2万亿元，工业战略性新兴产业总产值占规模以上工业总产值比重提高到45%。
 
-具润哲还表示：“政府将努力减轻高油价对民众生活造成的负担，并致力于振兴各经济部门。
+为能够在2035年如期基本建成具有世界影响力的社会主义现代化国际大都市，“十五五”时期是上海乘势而上的全面发力期，也是其转型升级的攻坚决胜期。
 
-”责任编辑：于健 SF069
+上海将持续增强经济发展韧性，还将持续推动产业转型升级。
+
+具体而言，上海将促进制造业创新升级，深化落实三大先导产业“上海方案”，加快布局新兴产业和未来产业，做强做优细分赛道，打造更具竞争力的产业生态。
+
+上海还将稳步扩大首创性改革和制度型开放，聚焦浦东引领区、自贸试验区及临港新片区、虹桥国际开放枢纽、东方枢纽国际商务合作区，积极开展先行先试和功能导入；深入推进长三角更高质量一体化发展，共同落实一批重点合作事项。
 
 ## 相关推荐
 
-- 2026-06-29 16:47 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 16:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 16:31 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 16:51 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 16:55 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 16:30 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 16:35 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 16:34 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 16:35 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 16:40 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 16:42 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 16:43 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 16:58 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 17:00 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 17:03 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 16:59 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 16:40 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 17:02 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 16:46 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 16:45 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 17:04 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 16:49 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 16:42 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:40 - [沙丘](https://www.blog.kurohicncr.top/Article/details/069398.shtml)
-- 2026-06-29 16:41 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/500240439594.shtml)
-- 2026-06-29 16:50 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.minike.top/Article/details/672559189.shtml)
-- 2026-06-29 16:46 - [滾石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/853211.shtml)
-- 2026-06-29 16:34 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/1814309.shtml)
-- 2026-06-29 16:30 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.minike.top/Article/details/33368.shtml)
-- 2026-06-29 16:48 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/906920465.shtml)
-- 2026-06-29 16:59 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/37220.shtml)
-- 2026-06-29 16:39 - [天道](http://www.blog.minike.top/Article/details/824929635.shtml)
-- 2026-06-29 16:51 - [TI2026参赛战队出炉](https://www.blog.kurohicncr.top/Article/details/489582.shtml)
-- 2026-06-29 16:44 - [人类对空调和其他家电有多双标](http://www.blog.kurohicncr.top/Article/details/454289830514.shtml)
-- 2026-06-29 16:31 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/207698.shtml)
-- 2026-06-29 16:42 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/622987312.shtml)
-- 2026-06-29 16:32 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/1838991146.shtml)
-- 2026-06-29 16:33 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/26148.shtml)
+- 2026-06-29 16:56 - [女心理师](https://www.blog.minike.top/Article/details/600545.shtml)
+- 2026-06-29 16:36 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/475433600693.shtml)
+- 2026-06-29 17:05 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/803806481925.shtml)
+- 2026-06-29 16:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/03502530.shtml)
+- 2026-06-29 16:45 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/0141699707.shtml)
+- 2026-06-29 16:47 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/49832431.shtml)
+- 2026-06-29 16:54 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/9758366.shtml)
+- 2026-06-29 17:04 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/062795722.shtml)
+- 2026-06-29 16:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/06174719893.shtml)
+- 2026-06-29 16:48 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/1649238623.shtml)
+- 2026-06-29 16:46 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/228141.shtml)
+- 2026-06-29 16:42 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/385239.shtml)
+- 2026-06-29 17:01 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/918981585.shtml)
+- 2026-06-29 16:57 - [医院大厅放钢琴是形式主义吗](http://www.blog.minike.top/Article/details/40535.shtml)
+- 2026-06-29 16:55 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/644125882.shtml)

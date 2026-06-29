@@ -1,56 +1,54 @@
-# 际华集团（601718）投资者索赔再提交法院立案
+# 国家统计局：1—4月份国民经济保持稳中有进发展态势
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-2026年5月27日，上海久诚律师事务所股票索赔律师许峰代理的际华集团（601718）虚假陈述投资者索赔案再向北京金融法院提交一次立案。（许峰律师专栏） 许峰律师代理的际华集团投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排。律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 2026年4月30日晚，际华集团公告收到证监会下发的《行政处罚事
+今天上午，国务院新闻办召开新闻发布会，国家统计局新闻发言人表示，今年1—4月份，我国有效实施更加积极有为的宏观政策，着力稳就业、稳企业、稳市场、稳预期，生产供给平稳增长，市场销售继续扩大，外贸韧性持续彰显，就业物价总体稳定，新动能成长壮大，高质量发展向新向优。 具体来看，工业生产较快增长，装备制造业和高技术制造业增长较快，1—4月份，全国规模以上工业增加值同比增长5.6%。服务
 
 ## 正文
 
-2026年5月27日，上海久诚律师事务所股票索赔律师许峰代理的际华集团（601718）虚假陈述投资者索赔案再向北京金融法院提交一次立案。
+今天上午，国务院新闻办召开新闻发布会，国家统计局新闻发言人表示，今年1—4月份，我国有效实施更加积极有为的宏观政策，着力稳就业、稳企业、稳市场、稳预期，生产供给平稳增长，市场销售继续扩大，外贸韧性持续彰显，就业物价总体稳定，新动能成长壮大，高质量发展向新向优。
 
-（许峰律师专栏） 许峰律师代理的际华集团投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排。
+具体来看，工业生产较快增长，装备制造业和高技术制造业增长较快，1—4月份，全国规模以上工业增加值同比增长5.6%。
 
-律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+服务业平稳增长，现代服务业发展向好，1—4月份，全国服务业生产指数同比增长4.9%。
 
-2026年4月30日晚，际华集团公告收到证监会下发的《行政处罚事先告知书》，经查明，际华集团及相关人员违法事实如下： 际华集团2018年至2021年年度报告分别虚增营业收入5，098，495，638.15元、2，997，624，845.12元、550，776，959.10元、1，013，129，465.60元，占各期对外披露营业收入的22.48%、14.17%、3.68%、6.54%，虚增营业成本5，078，563，183.57元、2，980，144，144.24元、550，776，959.10元、1，013，129，465.60元，占各期对外披露营业成本的22.29%、14.04%、3.60%、6.51%。
+市场销售规模扩大，服务零售增长加快，1—4月份，社会消费品零售总额164941亿元，同比增长1.9%。
 
-同时，2020年年度报告虚减利润总额502，111，658.99元，占当期对外披露利润总额的60.26%。
+货物进出口较快增长，贸易结构继续优化，1—4月份，货物进出口总额162252亿元，同比增长14.9%。
 
-专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，在2019年4月26日到2025年8月9日之间买入际华集团股票，并在2025年8月9日后卖出或继续持有股票的投资者，目前还可发起索赔。
-
-（际华集团维权入口） （本文由许峰律师供稿，不代表新浪财经立场。
-
-许峰律师，上海久诚律师事务所主任，2008年起律师执业，执业服务范围涉及虚假陈述、内幕交易、操纵市场等证券欺诈领域索赔代理。
+（总台央视记者 吴昊 宋菀）责任编辑：韦子蓉
 
 ## 相关推荐
 
-- 2026-06-29 16:45 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 16:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 16:52 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 16:51 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 16:31 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 16:33 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 16:46 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 16:38 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 16:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-29 16:53 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 16:47 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 16:47 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 16:56 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 16:45 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 16:42 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 17:00 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 16:37 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 16:36 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 16:36 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 16:45 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 16:43 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 16:38 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:56 - [博主：美航母沦为毒品集散窝点](https://www.share.kurohicncr.top/Article/details/82140.shtml)
-- 2026-06-29 16:40 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/7244662419.shtml)
-- 2026-06-29 16:55 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/0589223522.shtml)
-- 2026-06-29 16:50 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/5007341299.shtml)
-- 2026-06-29 16:37 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/14647063.shtml)
-- 2026-06-29 16:39 - [首尔商铺禁止洪明甫入内](http://www.share.minike.top/Article/details/33774211.shtml)
-- 2026-06-29 16:42 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/281031763.shtml)
-- 2026-06-29 16:38 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/9780083.shtml)
-- 2026-06-29 16:45 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/939025302.shtml)
-- 2026-06-29 16:45 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/2297758744.shtml)
-- 2026-06-29 16:44 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/1770528.shtml)
-- 2026-06-29 16:47 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/33147534265.shtml)
-- 2026-06-29 16:53 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/588431.shtml)
-- 2026-06-29 16:59 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/5625205.shtml)
-- 2026-06-29 16:49 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/098723325323.shtml)
+- 2026-06-29 16:36 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/4258787799.shtml)
+- 2026-06-29 16:44 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/620234523245.shtml)
+- 2026-06-29 16:48 - [青春环游记第三季](http://www.blog.minike.top/Article/details/2850425.shtml)
+- 2026-06-29 16:55 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/9004229.shtml)
+- 2026-06-29 16:36 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/254867447207.shtml)
+- 2026-06-29 16:51 - [当我回母校教书](https://www.share.minike.top/Article/details/730673931130.shtml)
+- 2026-06-29 16:39 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/67881.shtml)
+- 2026-06-29 16:49 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/497208809.shtml)
+- 2026-06-29 16:57 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/743293121.shtml)
+- 2026-06-29 16:46 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/294524100594.shtml)
+- 2026-06-29 17:01 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/551976.shtml)
+- 2026-06-29 17:03 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/78778775227.shtml)
+- 2026-06-29 16:55 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/3418104.shtml)
+- 2026-06-29 16:41 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/9052516869.shtml)
+- 2026-06-29 16:37 - [毒液2](https://www.blog.minike.top/Article/details/941564170873.shtml)

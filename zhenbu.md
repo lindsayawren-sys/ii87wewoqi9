@@ -1,60 +1,51 @@
-# 全球媒体聚焦｜英媒：海外“中国热”助推入境中国游热潮涌现
+# 广西车辆坠河事件已造成6人遇难 4人失联
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-英国《金融时报》28日刊发报道《“中国热”助推入境游热潮》，揭示中国正迎来新一轮国际游客增长浪潮。文章通过详实数据和多方采访，展现了中国旅游业的新气象。 文章开篇指出，今年5月国际政要访华热潮引人注目——美国总统特朗普、俄罗斯总统普京、巴基斯坦总理夏巴兹·谢里夫等相继到访。但更值得关注的是，北京首都机场入境通道排起的长队显示，普通国际旅客的增长更为显著。 文章分析认为，国际旅客
+记者在广西环江“5·16”过桥车辆坠河事件事发地漫水桥附近看到，坠河车辆位置已确定，现场搜救人员正进行打捞作业。目前在车内发现1名失联人员，经确认已无生命体征。截至目前，该事件已造成6人遇难，4人失联。(记者曹祎铭 王楚然)
 
 ## 正文
 
-英国《金融时报》28日刊发报道《“中国热”助推入境游热潮》，揭示中国正迎来新一轮国际游客增长浪潮。
+记者在广西环江“5·16”过桥车辆坠河事件事发地漫水桥附近看到，坠河车辆位置已确定，现场搜救人员正进行打捞作业。
 
-文章通过详实数据和多方采访，展现了中国旅游业的新气象。
+目前在车内发现1名失联人员，经确认已无生命体征。
 
-文章开篇指出，今年5月国际政要访华热潮引人注目——美国总统特朗普、俄罗斯总统普京、巴基斯坦总理夏巴兹·谢里夫等相继到访。
+截至目前，该事件已造成6人遇难，4人失联。
 
-但更值得关注的是，北京首都机场入境通道排起的长队显示，普通国际旅客的增长更为显著。
-
-文章分析认为，国际旅客的身影明显增多，一定程度上得益于中国对50国实施的免签政策。
-
-今年一季度，外国人入境中国达2100万人次，同比增长22%。
-
-近期来访的海外友人普遍提到几大动因：免签政策、对中国未来主义消费场景和制造业景观的好奇，以及便利的飞往亚洲的中转航线(尤其在中东航空通道受阻背景下)。
-
-文章说，在海外社交平台，中国成为了“酷”的代名词。
+(记者曹祎铭 王楚然)
 
 ## 相关推荐
 
-- 2026-06-29 16:53 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 16:50 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 16:30 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 16:39 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 16:55 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 16:35 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 16:30 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 16:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 16:47 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 16:54 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 16:34 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 16:42 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 16:56 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 16:36 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 16:58 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 16:52 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 16:58 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 16:44 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 16:42 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 16:38 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 16:55 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 16:59 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 16:53 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 16:42 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 16:59 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 16:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 16:47 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:41 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/3144409785.shtml)
-- 2026-06-29 16:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/33511788.shtml)
-- 2026-06-29 16:51 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/7963975604.shtml)
-- 2026-06-29 16:53 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/813738376116.shtml)
-- 2026-06-29 16:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/93842550006.shtml)
-- 2026-06-29 16:40 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/74065.shtml)
-- 2026-06-29 16:51 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/600416.shtml)
-- 2026-06-29 16:36 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.minike.top/Article/details/4201389035.shtml)
-- 2026-06-29 16:34 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/3024200292.shtml)
-- 2026-06-29 16:54 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/35939062.shtml)
-- 2026-06-29 16:56 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/16388584.shtml)
-- 2026-06-29 16:34 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/5114980564.shtml)
-- 2026-06-29 16:45 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.kurohicncr.top/Article/details/0147435448.shtml)
-- 2026-06-29 16:53 - [东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/767389055.shtml)
-- 2026-06-29 16:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/422274.shtml)
+- 2026-06-29 16:58 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/93150841.shtml)
+- 2026-06-29 16:42 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/806066.shtml)
+- 2026-06-29 16:47 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/29282835.shtml)
+- 2026-06-29 16:43 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/7868010144.shtml)
+- 2026-06-29 17:02 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/501061.shtml)
+- 2026-06-29 17:03 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/594346227.shtml)
+- 2026-06-29 16:57 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/101051615444.shtml)
+- 2026-06-29 17:05 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.minike.top/Article/details/61797231516.shtml)
+- 2026-06-29 16:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/3351340.shtml)
+- 2026-06-29 16:38 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/627321870.shtml)
+- 2026-06-29 16:51 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/2499647.shtml)
+- 2026-06-29 16:42 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/5456176.shtml)
+- 2026-06-29 16:59 - [当地回应林区违规放羊遭豹啃食](http://www.share.kurohicncr.top/Article/details/86851843.shtml)
+- 2026-06-29 16:53 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/327278.shtml)
+- 2026-06-29 16:55 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/451788.shtml)

@@ -1,57 +1,60 @@
-# 美银CEO预计第二季度交易业务收入同比增长15% 称美国经济保持坚韧
+# 国家统计局：1—4月份国民经济保持稳中有进发展态势
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-美国银行首席执行官Brian Moynihan表示，预计第二季度销售和交易收入将较上年同期增长约15%，同时经济保持坚韧。 Moynihan表示，该行一直在动用更多资产负债表资源来支持交易业务，并加大科技投资。去年10月，美国银行还提拔Denis Manelski和Soofian Zuberi担任全球市场业务联席主管。 Moynihan说：“在这样一个高度依赖人才、需要精细服务
+中新网5月18日电 据国家统计局网站消息，1—4月份，各地区各部门认真贯彻落实党中央、国务院决策部署，坚持稳中求进工作总基调，完整准确全面贯彻新发展理念，加快构建新发展格局，有效实施更加积极有为的宏观政策，着力稳就业、稳企业、稳市场、稳预期，生产供给平稳增长，市场销售继续扩大，外贸韧性持续彰显，就业物价总体稳定，新动能成长壮大，高质量发展向新向优。一、工业生产较快增长，装备制造
 
 ## 正文
 
-美国银行首席执行官Brian Moynihan表示，预计第二季度销售和交易收入将较上年同期增长约15%，同时经济保持坚韧。
+中新网5月18日电 据国家统计局网站消息，1—4月份，各地区各部门认真贯彻落实党中央、国务院决策部署，坚持稳中求进工作总基调，完整准确全面贯彻新发展理念，加快构建新发展格局，有效实施更加积极有为的宏观政策，着力稳就业、稳企业、稳市场、稳预期，生产供给平稳增长，市场销售继续扩大，外贸韧性持续彰显，就业物价总体稳定，新动能成长壮大，高质量发展向新向优。
 
-Moynihan表示，该行一直在动用更多资产负债表资源来支持交易业务，并加大科技投资。
+一、工业生产较快增长，装备制造业和高技术制造业增长较快 1—4月份，全国规模以上工业增加值同比增长5.6%。
 
-去年10月，美国银行还提拔Denis Manelski和Soofian Zuberi担任全球市场业务联席主管。
+分三大门类看，采矿业增加值同比增长5.5%，制造业增长5.8%，电力、热力、燃气及水生产和供应业增长4.5%。
 
-Moynihan说：“在这样一个高度依赖人才、需要精细服务客户的业务中，你必须真正愿意投入大规模资源。
+装备制造业增加值同比增长8.7%，高技术制造业增加值增长12.6%，分别快于全部规模以上工业增加值3.1和7.0个百分点。
 
-团队在这方面做得很好。
+分经济类型看，国有控股企业增加值同比增长4.4%；股份制企业增长6.0%，外商及港澳台投资企业增长3.9%；私营企业增长5.2%。
 
-” 华尔街各大银行预计，其交易部门将再度迎来一个亮眼季度。
+分产品看，3D打印设备、锂离子电池、工业机器人产品产量同比分别增长50.9%、36.0%、25.7%。
 
-摩根大通首席执行官杰米·戴蒙在同一场会议上表示，该行市场业务收入可能同比增长11%，这将成为该业务有史以来表现第二好的季度。
+4月份，全国规模以上工业增加值同比增长4.1%，环比增长0.05%。
 
-Moynihan表示，尽管面临关税和中东战争等因素，美国经济依然强劲，持续的消费者和企业支出以及稳定的失业率都反映出这一点。
+4月份，制造业采购经理指数为50.3%；企业生产经营活动预期指数为54.5%，比上月上升1.1个百分点。
 
 ## 相关推荐
 
-- 2026-06-29 16:45 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 16:36 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 16:32 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 16:39 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 16:54 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 16:38 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 16:48 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 16:40 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 16:35 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-29 16:32 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 16:55 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 16:45 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 16:47 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 16:41 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 17:04 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 16:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 16:39 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 16:38 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 16:54 - [韩国国脚无缘上亿韩元奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 16:49 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 16:45 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 16:44 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 16:48 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 17:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 16:49 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:31 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/37359.shtml)
-- 2026-06-29 16:52 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/3196005.shtml)
-- 2026-06-29 16:59 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/87731.shtml)
-- 2026-06-29 16:51 - [端午节加班工资应该怎么算](http://www.blog.kurohicncr.top/Article/details/173213405662.shtml)
-- 2026-06-29 16:40 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/143241655550.shtml)
-- 2026-06-29 16:53 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/12069700812.shtml)
-- 2026-06-29 16:48 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/4269034398.shtml)
-- 2026-06-29 16:42 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/889200325.shtml)
-- 2026-06-29 16:51 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/4754401964.shtml)
-- 2026-06-29 16:32 - [T1零封KC MSI](http://www.share.minike.top/Article/details/161567018367.shtml)
-- 2026-06-29 16:49 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/6941171288.shtml)
-- 2026-06-29 16:45 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/6513729277.shtml)
-- 2026-06-29 16:51 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/77272.shtml)
-- 2026-06-29 16:58 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/757273841.shtml)
-- 2026-06-29 16:41 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/856783135750.shtml)
+- 2026-06-29 16:37 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/846174.shtml)
+- 2026-06-29 16:39 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/6350538190.shtml)
+- 2026-06-29 16:41 - [天价门票抬高美加墨世界杯观赛门槛](http://www.share.minike.top/Article/details/821584906231.shtml)
+- 2026-06-29 16:47 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/3401250062.shtml)
+- 2026-06-29 16:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/089227406242.shtml)
+- 2026-06-29 16:47 - [金刚川](https://www.share.minike.top/Article/details/49545780.shtml)
+- 2026-06-29 16:51 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/26253397.shtml)
+- 2026-06-29 16:41 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/23213866.shtml)
+- 2026-06-29 16:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/7874626559.shtml)
+- 2026-06-29 16:54 - [和周杰伦在演唱会合唱了](http://www.share.minike.top/Article/details/498696062779.shtml)
+- 2026-06-29 16:43 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/53410753076.shtml)
+- 2026-06-29 16:40 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/19606.shtml)
+- 2026-06-29 16:43 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/776682.shtml)
+- 2026-06-29 16:41 - [东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/786804061796.shtml)
+- 2026-06-29 16:42 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/393099467951.shtml)

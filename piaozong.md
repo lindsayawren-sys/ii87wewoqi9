@@ -1,53 +1,60 @@
-# 马斯克：SpaceX并未与Anthropic就Colossus项目达成长期租赁协议
+# 伊朗据报道启动以比特币结算的霍尔木兹海峡航运保险服务
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-SpaceX首席执行官埃隆·马斯克周四表示，这家即将上市的公司仅同意将“巨像”（Colossus）人工智能训练数据中心集群租赁给Anthropic六个月，而非此前暗示的数年。 “SpaceX并未承诺将Colossus出租多年，尽管未来可能会有这种可能性，”马斯克在X平台的一篇帖子中写道。 他补充称，该协议为期180天，此后双方均可提前90天通知终止合同。 “短期租赁是我们提出的
+伊朗半官方的法尔斯通讯社援引从伊朗经济与财政事务部获得的文件报道称，伊朗已启动一项以比特币支持的航运保险服务，面向希望通过霍尔木兹海峡的航运公司。 报道称，这项服务名为“霍尔木兹安全”（Hormuz Safe），伊朗政府预计其可为该国带来逾100亿美元收入，但未说明具体时间范围，也未披露服务运作细节。 自美国和以色列于2月28日开始对伊朗发动空袭以来，伊朗实际上已关闭霍尔木兹海
 
 ## 正文
 
-SpaceX首席执行官埃隆·马斯克周四表示，这家即将上市的公司仅同意将“巨像”（Colossus）人工智能训练数据中心集群租赁给Anthropic六个月，而非此前暗示的数年。
+伊朗半官方的法尔斯通讯社援引从伊朗经济与财政事务部获得的文件报道称，伊朗已启动一项以比特币支持的航运保险服务，面向希望通过霍尔木兹海峡的航运公司。
 
-“SpaceX并未承诺将Colossus出租多年，尽管未来可能会有这种可能性，”马斯克在X平台的一篇帖子中写道。
+报道称，这项服务名为“霍尔木兹安全”（Hormuz Safe），伊朗政府预计其可为该国带来逾100亿美元收入，但未说明具体时间范围，也未披露服务运作细节。
 
-他补充称，该协议为期180天，此后双方均可提前90天通知终止合同。
+自美国和以色列于2月28日开始对伊朗发动空袭以来，伊朗实际上已关闭霍尔木兹海峡。
 
-“短期租赁是我们提出的，而非Anthropic的要求。
+这条水道是全球能源供应及其他货物流通的重要通道。
 
-我们不会让他们陷入困境，并将提供合理的退出机制，但如果计算资源变得极其紧张，我曾表示我们可能需要在某个时候收回这些资源，”他说。
+此后，伊朗政府和伊朗伊斯兰革命卫队一直寻求将其对这一航道的控制制度化，包括征收通行费和其他费用，而保险服务可能成为另一种筹资手段。
 
-责任编辑：刘明亮
+根据法尔斯分享的“霍尔木兹安全”网站截图，这项服务面向“伊朗航运公司和货主”。
+
+伊朗长期受到美国严厉制裁，自美国总统唐纳德·特朗普在其第一任期内开始打击伊朗经济和能源出口以来，伊朗对比特币和Tether等加密货币的使用大幅增加。
+
+“对于途经波斯湾、霍尔木兹海峡及周边水道的货物，将提供可通过加密技术验证的保险单，且保费将以比特币结算，”法尔斯通讯社援引该网站hormuzsafe.ir报道；该网站似乎无法在伊朗境外访问。
 
 ## 相关推荐
 
-- 2026-06-29 16:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 16:52 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 16:49 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 16:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 16:56 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 16:38 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 16:55 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 16:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 16:48 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 16:44 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 16:41 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 16:41 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 16:47 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 17:04 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 16:40 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 16:54 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 16:40 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 16:57 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 17:00 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 17:05 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 16:57 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 16:37 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 16:42 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 16:41 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 16:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:50 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/49935334.shtml)
-- 2026-06-29 16:55 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/532549016163.shtml)
-- 2026-06-29 16:42 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/82231.shtml)
-- 2026-06-29 16:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/4587429.shtml)
-- 2026-06-29 16:43 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/336973564.shtml)
-- 2026-06-29 16:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/06828.shtml)
-- 2026-06-29 16:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/6199213282.shtml)
-- 2026-06-29 16:56 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/37948434.shtml)
-- 2026-06-29 16:32 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/50078308680.shtml)
-- 2026-06-29 16:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/73366930.shtml)
-- 2026-06-29 16:41 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.kurohicncr.top/Article/details/573932503.shtml)
-- 2026-06-29 16:44 - [绘画区你赢了](https://www.share.minike.top/Article/details/671976.shtml)
-- 2026-06-29 16:36 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/4271965995.shtml)
-- 2026-06-29 16:48 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/63142339.shtml)
-- 2026-06-29 16:31 - [金牌调解](http://www.share.minike.top/Article/details/253669458251.shtml)
+- 2026-06-29 16:40 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/481692477.shtml)
+- 2026-06-29 17:00 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/7568957644.shtml)
+- 2026-06-29 17:04 - [货车司机雨中帮交警挪树获表扬](https://www.share.kurohicncr.top/Article/details/6875891596.shtml)
+- 2026-06-29 16:44 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/2247754.shtml)
+- 2026-06-29 16:37 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/989182554717.shtml)
+- 2026-06-29 16:42 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/098504.shtml)
+- 2026-06-29 16:53 - [新能源车能当外接空调用吗](https://www.blog.kurohicncr.top/Article/details/3880184628.shtml)
+- 2026-06-29 16:43 - [博主：美航母沦为毒品集散窝点](http://www.blog.kurohicncr.top/Article/details/934840307970.shtml)
+- 2026-06-29 16:47 - [A股割裂行情有变化了吗](https://www.share.kurohicncr.top/Article/details/95717784.shtml)
+- 2026-06-29 16:47 - [南昌市委书记调整](https://www.blog.kurohicncr.top/Article/details/28677436820.shtml)
+- 2026-06-29 17:01 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/54989.shtml)
+- 2026-06-29 17:03 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/29350269365.shtml)
+- 2026-06-29 16:55 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/18959996.shtml)
+- 2026-06-29 16:48 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.kurohicncr.top/Article/details/359736130988.shtml)
+- 2026-06-29 16:56 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/432984711860.shtml)

@@ -1,52 +1,61 @@
-# 商务部回应中美关税谈判进展：双方经贸团队将商定具体安排并尽快推动实施
+# 广西贵港发现汉代铜鼓
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-中新网5月28日电 商务部28日召开例行新闻发布会，商务部新闻发言人何亚东在会上回应关于中美关税谈判进展的提问时表示，“关税一直是中美经贸关系中的关键问题之一。在两国元首战略引领下，中美经贸团队围绕关税问题深入沟通，就有关双边关税做出安排。我想重申，希望美方信守承诺，为双方拓展经贸合作创造积极条件。” 何亚东还提到，同时，双方原则同意在贸易理事会项下讨论同等规模产品对等降税框架
+中新网贵港5月18日电(张庆杰 熊耀章)近日，广西贵港市覃塘区黄练镇新何村村民意外发现一面汉代铜鼓，并将铜鼓无偿上交至贵港博物馆。 经贵港市文物部门初步鉴定，该铜鼓年代为汉代，为北流型铜鼓，面径97厘米，高55厘米。鼓胸和鼓足各有一处破损，其他位置保存较为完好。鼓面饰4个立体蛙纹，鼓面中心饰七芒太阳纹，通体以云雷纹为主。鼓胸对称，有两对圆茎环耳。 铜鼓是中国古代一种打击乐器和祭
 
 ## 正文
 
-中新网5月28日电 商务部28日召开例行新闻发布会，商务部新闻发言人何亚东在会上回应关于中美关税谈判进展的提问时表示，“关税一直是中美经贸关系中的关键问题之一。
+中新网贵港5月18日电(张庆杰 熊耀章)近日，广西贵港市覃塘区黄练镇新何村村民意外发现一面汉代铜鼓，并将铜鼓无偿上交至贵港博物馆。
 
-在两国元首战略引领下，中美经贸团队围绕关税问题深入沟通，就有关双边关税做出安排。
+经贵港市文物部门初步鉴定，该铜鼓年代为汉代，为北流型铜鼓，面径97厘米，高55厘米。
 
-我想重申，希望美方信守承诺，为双方拓展经贸合作创造积极条件。
+鼓胸和鼓足各有一处破损，其他位置保存较为完好。
 
-” 何亚东还提到，同时，双方原则同意在贸易理事会项下讨论同等规模产品对等降税框架安排，规模各为300亿美元或更多。
+鼓面饰4个立体蛙纹，鼓面中心饰七芒太阳纹，通体以云雷纹为主。
 
-双方经贸团队将保持密切沟通，商定具体安排并尽快推动实施。
+鼓胸对称，有两对圆茎环耳。
+
+铜鼓是中国古代一种打击乐器和祭祀用品，迄今已有2700余年历史，是中国南方多个民族的文化符号和象征。
+
+据了解，新中国成立以来，贵港市覃塘区曾多次发现汉代铜鼓。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:57 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 16:51 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 16:43 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 16:47 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 16:54 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 16:59 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 16:50 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 16:44 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 16:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 16:56 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 16:40 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 16:42 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 16:47 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 17:00 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 17:05 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 17:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 16:36 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 17:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 16:43 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 16:41 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 16:42 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 16:43 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 16:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 17:05 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 17:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 16:55 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 16:37 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:41 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/47291.shtml)
-- 2026-06-29 16:56 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/459691290555.shtml)
-- 2026-06-29 16:43 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/470824990928.shtml)
-- 2026-06-29 16:37 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/38396.shtml)
-- 2026-06-29 16:59 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/2087908.shtml)
-- 2026-06-29 16:38 - [媒体：中国田径压力与期待并存](http://www.blog.kurohicncr.top/Article/details/08072652.shtml)
-- 2026-06-29 16:49 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/152376243.shtml)
-- 2026-06-29 16:36 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/138737.shtml)
-- 2026-06-29 16:36 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/03607364.shtml)
-- 2026-06-29 16:40 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/7164558616.shtml)
-- 2026-06-29 16:33 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/81746480414.shtml)
-- 2026-06-29 16:49 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/9481300259.shtml)
-- 2026-06-29 16:45 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/252251490796.shtml)
-- 2026-06-29 16:45 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/155712.shtml)
-- 2026-06-29 16:35 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/963569693.shtml)
+- 2026-06-29 16:49 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/35907.shtml)
+- 2026-06-29 17:03 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/1561538.shtml)
+- 2026-06-29 16:51 - [滾石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/5310203127.shtml)
+- 2026-06-29 16:57 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/56472501.shtml)
+- 2026-06-29 16:55 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/2329324576.shtml)
+- 2026-06-29 16:58 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.kurohicncr.top/Article/details/85804837.shtml)
+- 2026-06-29 16:46 - [广州一高校通报网传禁止小米汽车入校](https://www.share.minike.top/Article/details/516991679.shtml)
+- 2026-06-29 17:02 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/5059171461.shtml)
+- 2026-06-29 17:02 - [起风了](https://www.blog.kurohicncr.top/Article/details/18368.shtml)
+- 2026-06-29 16:37 - [小娘惹](https://www.share.kurohicncr.top/Article/details/909547595.shtml)
+- 2026-06-29 16:52 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/51290068.shtml)
+- 2026-06-29 17:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/71682.shtml)
+- 2026-06-29 16:36 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/553507355433.shtml)
+- 2026-06-29 16:50 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/10470.shtml)
+- 2026-06-29 16:41 - [南部战区位南海海域进行例行巡航](https://www.blog.kurohicncr.top/Article/details/3603896722.shtml)

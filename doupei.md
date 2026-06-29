@@ -1,57 +1,56 @@
-# 喜临门创始人被控“掏空”自己公司，发生了什么？
+# 第一国民银行再获南卡罗来纳州最佳职场及军属最佳雇主双项殊荣
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-中新网北京5月28日电(记者 左雨晴) 近日，“中国床垫第一股”喜临门召开2025年度股东会，这是喜临门“戴帽”为ST后的首次年度股东大会。然而，喜临门实际控制人、董事长陈阿裕缺席了股东会，这令在场股东联想到此前的“跑路”传闻。 对此，陈阿裕之子、公司副董事长兼总裁陈一铖称，陈阿裕目前正常履职，本次缺席股东会系外出统筹推进债务化解工作。 “家族企业内讧”、“董事长借离婚逃债”…
+新增两项职场荣誉 第一国民银行（F.N.B． Corporation）宣布，被命名为2026年度南卡罗来纳州最佳职场，这是FNB第三次入选该州最具活力和以人为本的公司榜单。此外，公司还同时获评为军属最佳雇主。 公司董事长、总裁兼首席执行官Vincent J． Delie， Jr．表示，这些荣誉反映了公司在建设职场文化方面所做的努力，这种文化支持员工敬业度、强业绩并为利益相关者带
 
 ## 正文
 
-中新网北京5月28日电(记者 左雨晴) 近日，“中国床垫第一股”喜临门召开2025年度股东会，这是喜临门“戴帽”为ST后的首次年度股东大会。
+新增两项职场荣誉 第一国民银行（F.N.B． Corporation）宣布，被命名为2026年度南卡罗来纳州最佳职场，这是FNB第三次入选该州最具活力和以人为本的公司榜单。
 
-然而，喜临门实际控制人、董事长陈阿裕缺席了股东会，这令在场股东联想到此前的“跑路”传闻。
+此外，公司还同时获评为军属最佳雇主。
 
-对此，陈阿裕之子、公司副董事长兼总裁陈一铖称，陈阿裕目前正常履职，本次缺席股东会系外出统筹推进债务化解工作。
+公司董事长、总裁兼首席执行官Vincent J． Delie， Jr．表示，这些荣誉反映了公司在建设职场文化方面所做的努力，这种文化支持员工敬业度、强业绩并为利益相关者带来有意义的积极影响。
 
-“家族企业内讧”、“董事长借离婚逃债”……在过去的两个月里，关于喜临门的各类传闻甚嚣尘上，这家行业巨头市值已蒸发过半。
+他强调，南卡罗来纳州等令人兴奋的高增长市场对公司持续增长至关重要，公司的成功直接反映了对人才和当地社区的投资。
 
-1亿元“不翼而飞”，实控人被起诉 危机的爆发，始于2026年3月。
+评选依据与员工反馈 最佳职场奖项由独立研究公司Energage管理，完全基于匿名的员工反馈，从价值观、沟通和领导力等多个维度对工作场所进行评估，仅有排名最高的公司才能因其企业文化获得认可。
 
-3月27日，喜临门突然公告称，近日公司发现下属控股子公司喜途科技有限公司的银行账户资金被非法划转，划转资金累计1亿元。
+支持军属的承诺 FNB被认定为军属最佳雇主，反映了其为军人家庭创造包容和支持性工作场所的承诺。
 
-经公司核查，发现相关人员涉嫌利用职务之便，非法挪用公司资金。
+公司优先考虑灵活的就业机会、有竞争力的福利以及针对军属经常面临的搬迁和部署过渡等挑战而制定的周全政策。
 
-喜临门披露，为进一步防范资金安全风险，保障上市公司资金安全，公司已于2026年3月26日向公安机关申请立案侦查，并将可能涉及的相关银行账户进行保护性冻结。
+通过积极的招聘工作、职业发展支持以及与军人家庭支持组织的合作，FNB使军属和退伍军人能够在平衡其特殊环境需求的同时，建立有意义且长期的职业生涯。
 
 ## 相关推荐
 
-- 2026-06-29 16:42 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 16:52 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 16:55 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 16:44 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 16:31 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 16:39 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 16:39 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 16:37 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 16:33 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 16:52 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 16:34 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 16:48 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 17:05 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 17:05 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 16:57 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 16:52 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 16:54 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 17:03 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 16:39 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 16:57 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 17:05 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/521644.shtml)
-- 2026-06-29 16:52 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/0749339.shtml)
-- 2026-06-29 16:47 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/324977364992.shtml)
-- 2026-06-29 16:52 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/358416959.shtml)
-- 2026-06-29 16:30 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/719418953.shtml)
-- 2026-06-29 16:34 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/323197.shtml)
-- 2026-06-29 16:55 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/744114104.shtml)
-- 2026-06-29 16:49 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/20044143906.shtml)
-- 2026-06-29 16:32 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.minike.top/Article/details/12052087.shtml)
-- 2026-06-29 16:42 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/38144733469.shtml)
-- 2026-06-29 16:56 - [葛军谈AI时代理科生出路](http://www.blog.minike.top/Article/details/246937.shtml)
-- 2026-06-29 16:46 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/74047078.shtml)
-- 2026-06-29 16:54 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/312500349.shtml)
-- 2026-06-29 16:36 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/09004932190.shtml)
-- 2026-06-29 16:52 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/8619385.shtml)
+- 2026-06-29 16:55 - [博主：全球股市进入“AI极端共振”](https://www.share.minike.top/Article/details/777032541.shtml)
+- 2026-06-29 16:55 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/2507780.shtml)
+- 2026-06-29 16:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/575324992.shtml)
+- 2026-06-29 16:45 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/6906715.shtml)
+- 2026-06-29 16:48 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/4047085.shtml)
+- 2026-06-29 16:52 - [12所大学更正招生目录](https://www.blog.kurohicncr.top/Article/details/434226222.shtml)
+- 2026-06-29 16:43 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/32174966877.shtml)
+- 2026-06-29 17:05 - [广东一地发现极危植物新物种](http://www.blog.kurohicncr.top/Article/details/10389996494.shtml)
+- 2026-06-29 16:59 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/22668.shtml)
+- 2026-06-29 16:42 - [高市早苗口齿不清被质疑醉酒](http://www.share.minike.top/Article/details/253933045176.shtml)
+- 2026-06-29 16:39 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/56721268.shtml)
+- 2026-06-29 16:45 - [张雪机车杀向海外](https://www.blog.minike.top/Article/details/8153678.shtml)
+- 2026-06-29 16:42 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/161549504.shtml)
+- 2026-06-29 16:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/063589.shtml)
+- 2026-06-29 17:03 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/94593.shtml)

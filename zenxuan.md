@@ -1,52 +1,46 @@
-# 大美边疆看我家丨黑龙江大兴安岭：与驯鹿来一场“夏日之约”
+# 洁丽雅发布声明：已就网络谣言报警
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月27日 17:24 来源：中国新闻网 夏季的黑龙江大兴安岭呼中区，拥有广阔的原始森林和驯鹿种群。夏季食物充足，驯鹿几乎会全天候进食，优先选择嫩草、柳树叶、苔藓、蘑菇等植物，为食物匮乏的冬季积累足够体重。当你厌倦了城市的喧嚣与炎热，不妨来这里，让浩瀚的原始森林洗涤心灵，让驯鹿的温柔治愈疲惫，让这个夏天成为最清凉、美好的时光。(作者：孙富国) 责任编辑：【
+中新网北京5月18日电 18日晚，洁丽雅通过微博发布声明称，近日，网络上出现关于洁丽雅家居股份有限公司董事长及其家属的谣言。公司已就此事向公安机关报案，对编造、散布不实信息，以及恶意攻击、抹黑公司及个人的行为，将依法追究法律责任。 洁丽雅网站显示，洁丽雅是创立于1986年的中国家纺品牌，目前为集纺纱、织造、染整、成衣、物流于一体的品牌营运专业性集团公司。
 
 ## 正文
 
-发布时间：2026年05月27日 17:24 来源：中国新闻网 夏季的黑龙江大兴安岭呼中区，拥有广阔的原始森林和驯鹿种群。
+中新网北京5月18日电 18日晚，洁丽雅通过微博发布声明称，近日，网络上出现关于洁丽雅家居股份有限公司董事长及其家属的谣言。
 
-夏季食物充足，驯鹿几乎会全天候进食，优先选择嫩草、柳树叶、苔藓、蘑菇等植物，为食物匮乏的冬季积累足够体重。
+公司已就此事向公安机关报案，对编造、散布不实信息，以及恶意攻击、抹黑公司及个人的行为，将依法追究法律责任。
 
-当你厌倦了城市的喧嚣与炎热，不妨来这里，让浩瀚的原始森林洗涤心灵，让驯鹿的温柔治愈疲惫，让这个夏天成为最清凉、美好的时光。
-
-(作者：孙富国) 责任编辑：【魏聪聪】
+洁丽雅网站显示，洁丽雅是创立于1986年的中国家纺品牌，目前为集纺纱、织造、染整、成衣、物流于一体的品牌营运专业性集团公司。
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 16:52 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 16:44 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 16:54 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 16:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 16:52 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 16:46 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 16:49 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 16:37 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 16:49 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 16:38 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 16:32 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 16:42 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 16:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 16:56 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 16:46 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 16:42 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 16:52 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 16:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 16:46 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 16:45 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 16:47 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 16:45 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 16:49 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:35 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/106220701033.shtml)
-- 2026-06-29 16:46 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/50073196781.shtml)
-- 2026-06-29 16:47 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.kurohicncr.top/Article/details/186647212842.shtml)
-- 2026-06-29 16:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/73080878094.shtml)
-- 2026-06-29 16:46 - [起风了](https://www.blog.kurohicncr.top/Article/details/221521792498.shtml)
-- 2026-06-29 16:35 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/710960470.shtml)
-- 2026-06-29 16:41 - [AG 宫斗](https://www.share.minike.top/Article/details/10790397.shtml)
-- 2026-06-29 16:30 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/991007258.shtml)
-- 2026-06-29 16:30 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/8539975.shtml)
-- 2026-06-29 16:46 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/97071993264.shtml)
-- 2026-06-29 16:42 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.minike.top/Article/details/87580326344.shtml)
-- 2026-06-29 16:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/885867.shtml)
-- 2026-06-29 16:48 - [未成年少女长期吸毒导致卧床不起](https://www.share.kurohicncr.top/Article/details/287533917992.shtml)
-- 2026-06-29 16:49 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.kurohicncr.top/Article/details/04259250349.shtml)
-- 2026-06-29 16:41 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.minike.top/Article/details/5122783441.shtml)
+- 2026-06-29 16:43 - [王俊凯命名方式](https://www.share.minike.top/Article/details/86950315350.shtml)
+- 2026-06-29 16:36 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/13376565.shtml)
+- 2026-06-29 16:43 - [恋与深空发放补偿未得到玩家认可](http://www.blog.kurohicncr.top/Article/details/43490.shtml)
+- 2026-06-29 16:50 - [首尔商铺禁止洪明甫入内](http://www.share.kurohicncr.top/Article/details/024518426177.shtml)
+- 2026-06-29 16:44 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/488400589.shtml)
+- 2026-06-29 16:58 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/10637059.shtml)
+- 2026-06-29 16:51 - [12所大学更正招生目录](http://www.share.minike.top/Article/details/17033443814.shtml)
+- 2026-06-29 16:44 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.kurohicncr.top/Article/details/912852.shtml)
+- 2026-06-29 16:38 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/36867631.shtml)
+- 2026-06-29 16:43 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/83813.shtml)
+- 2026-06-29 17:02 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/1189394.shtml)
+- 2026-06-29 16:39 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/8973022.shtml)
+- 2026-06-29 17:00 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/1500357.shtml)
+- 2026-06-29 17:05 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/994706.shtml)
+- 2026-06-29 16:58 - [起风了](http://www.blog.kurohicncr.top/Article/details/5942813502.shtml)

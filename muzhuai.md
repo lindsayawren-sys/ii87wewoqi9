@@ -1,61 +1,58 @@
-# 预测市场谋求下一阶段增长，发力招揽机构投资者
+# 欧盟将叙利亚国防部和内政部移出制裁名单
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-卡尔希等多家预测交易平台正大力招揽头部机构投资者与对冲基金。尽管这类交易平台距离大规模普及仍有一段路要走，但此番布局或将对传统金融领域产生连锁影响。 过去一年，预测市场在个人交易者群体中热度飙升、规模迅猛扩张。如今平台开始将目光转向财力雄厚的金融机构与投资公司。这类客户资金实力强劲，能够开展大额批量交易，是利润丰厚的客群。 索利达斯实验室是卡尔希的交易监控合作方，该公司首席执行
+中新社布鲁塞尔5月18日电 (记者 德永健)欧盟18日再度放松对叙利亚的制裁力度，将叙利亚国防部和内政部移出制裁名单。 据欧盟理事会当日发布的公告，欧盟决定将针对叙利亚前政府的制裁措施延长一年，至2027年6月1日为止，但将叙利亚国防部、内政部等7家实体移出制裁名单，从而“帮助加强欧盟与叙利亚的接触”。 公告称，对于仍被列为制裁对象的叙利亚个人和实体，欧盟将继续冻结他们在欧盟司
 
 ## 正文
 
-卡尔希等多家预测交易平台正大力招揽头部机构投资者与对冲基金。
+中新社布鲁塞尔5月18日电 (记者 德永健)欧盟18日再度放松对叙利亚的制裁力度，将叙利亚国防部和内政部移出制裁名单。
 
-尽管这类交易平台距离大规模普及仍有一段路要走，但此番布局或将对传统金融领域产生连锁影响。
+据欧盟理事会当日发布的公告，欧盟决定将针对叙利亚前政府的制裁措施延长一年，至2027年6月1日为止，但将叙利亚国防部、内政部等7家实体移出制裁名单，从而“帮助加强欧盟与叙利亚的接触”。
 
-过去一年，预测市场在个人交易者群体中热度飙升、规模迅猛扩张。
+公告称，对于仍被列为制裁对象的叙利亚个人和实体，欧盟将继续冻结他们在欧盟司法管辖范围内的财产，禁止欧盟成员国公民和实体向他们提供资金，禁止相关人员入境或过境欧盟。
 
-如今平台开始将目光转向财力雄厚的金融机构与投资公司。
+2011年叙利亚内战爆发后，欧盟对叙利亚实施严厉制裁。
 
-这类客户资金实力强劲，能够开展大额批量交易，是利润丰厚的客群。
+2024年12月叙利亚政局剧变，欧盟转而接触叙利亚过渡政府，开始放松对叙利亚的制裁力度。
 
-索利达斯实验室是卡尔希的交易监控合作方，该公司首席执行官阿萨夫・迈尔表示：“在传统金融渠道之外，对冲基金需要更精细、更精准的工具，在各类衍生品市场表达自身观点。
+2025年5月，欧盟以“支持叙利亚和平和包容性过渡”为由，宣布全面叫停对叙利亚的经济制裁，但保留对叙利亚化学武器、武器贸易、军民两用物项等领域的制裁。
 
-” 他还称，众多对冲基金和机构投资者正密切关注预测市场的交易机会。
+本月早些时候，在叙利亚过渡政府外长希巴尼访问欧盟期间，欧盟宣布全面恢复《欧盟叙利亚合作协定》。
 
-卡尔希机构业务负责人安迪・罗斯向路透社透露，近几周平台完成了首笔定制化大宗交易，目前正积极争取更多大型机构入驻。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:55 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 16:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 16:52 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 16:57 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 16:53 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 16:47 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 16:39 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 16:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 16:42 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 16:54 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 16:55 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 16:36 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 16:57 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 16:55 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 16:38 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 16:47 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 16:59 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 17:05 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 16:46 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 16:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 16:47 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 16:37 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 16:56 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 16:51 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 17:01 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 16:47 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 17:02 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:53 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/650687744.shtml)
-- 2026-06-29 16:35 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.minike.top/Article/details/464546263615.shtml)
-- 2026-06-29 16:39 - [送你一朵小红花](http://www.blog.minike.top/Article/details/180517084.shtml)
-- 2026-06-29 16:59 - [博主：美航母沦为毒品集散窝点](https://www.share.kurohicncr.top/Article/details/088910423.shtml)
-- 2026-06-29 16:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/61292820.shtml)
-- 2026-06-29 16:32 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/82645816376.shtml)
-- 2026-06-29 16:30 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/7301051.shtml)
-- 2026-06-29 16:42 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/17539106621.shtml)
-- 2026-06-29 16:55 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/48274472.shtml)
-- 2026-06-29 16:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/240913090367.shtml)
-- 2026-06-29 16:50 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/77542923.shtml)
-- 2026-06-29 16:35 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/482385506585.shtml)
-- 2026-06-29 16:37 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/70240847.shtml)
-- 2026-06-29 16:37 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/82065.shtml)
-- 2026-06-29 16:56 - [千与千寻](http://www.share.minike.top/Article/details/502320220.shtml)
+- 2026-06-29 16:59 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/257533.shtml)
+- 2026-06-29 17:00 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/6509151.shtml)
+- 2026-06-29 16:38 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/43773587.shtml)
+- 2026-06-29 16:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/7032802.shtml)
+- 2026-06-29 16:37 - [流金岁月](https://www.blog.minike.top/Article/details/5415807.shtml)
+- 2026-06-29 16:42 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/322475619375.shtml)
+- 2026-06-29 16:53 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/6932966218.shtml)
+- 2026-06-29 16:51 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/4190531.shtml)
+- 2026-06-29 16:49 - [中国空间站为什么要升级扩容](http://www.share.kurohicncr.top/Article/details/820277.shtml)
+- 2026-06-29 16:56 - [大疆7月15日起涨价？公司回应](http://www.blog.minike.top/Article/details/835278553.shtml)
+- 2026-06-29 16:42 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/297374274.shtml)
+- 2026-06-29 16:55 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/615540.shtml)
+- 2026-06-29 16:58 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/32302098853.shtml)
+- 2026-06-29 16:38 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/4693174360.shtml)
+- 2026-06-29 16:49 - [美的空调 卡bug](https://www.share.minike.top/Article/details/01550.shtml)

@@ -1,58 +1,56 @@
-# 浙江台州检商协作 为民营经济“撑腰”
+# 中国中东部大范围强降水持续 多地启动防汛应急响应
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-中新网台州5月28日电(张益聪)一份白皮书，近三年来，239件案件，300名涉案人员——这些数字背后，是浙江省台州市民营企业内部职务犯罪的真实切面。 近日，台州市人民检察院与市工商联联合发布《民营企业人员职务犯罪白皮书(2023-2025年度)》(下称：白皮书)，并签署检企协作机制备忘录。这是一场关于“如何让企业不再独自面对内部蛀虫”的法治探索。 白皮书揭示了一个值得警惕的现象
+中新社北京5月18日电 (记者 陈溯)中国中东部近日出现大范围强降水天气过程。国家防汛抗旱总指挥部(简称“国家防总”)18日针对湖南、广西启动防汛四级应急响应，并加派工作组赴一线指导。 17日，中国中东部地区出现大范围降雨，华北中南部及河南、湖北、重庆、广西等地出现大到暴雨，局地大暴雨。 气象部门预计，18日至20日，中东部大范围降雨过程持续，西南地区东部、江汉、江淮、江南、华
 
 ## 正文
 
-中新网台州5月28日电(张益聪)一份白皮书，近三年来，239件案件，300名涉案人员——这些数字背后，是浙江省台州市民营企业内部职务犯罪的真实切面。
+中新社北京5月18日电 (记者 陈溯)中国中东部近日出现大范围强降水天气过程。
 
-近日，台州市人民检察院与市工商联联合发布《民营企业人员职务犯罪白皮书(2023-2025年度)》(下称：白皮书)，并签署检企协作机制备忘录。
+国家防汛抗旱总指挥部(简称“国家防总”)18日针对湖南、广西启动防汛四级应急响应，并加派工作组赴一线指导。
 
-这是一场关于“如何让企业不再独自面对内部蛀虫”的法治探索。
+17日，中国中东部地区出现大范围降雨，华北中南部及河南、湖北、重庆、广西等地出现大到暴雨，局地大暴雨。
 
-白皮书揭示了一个值得警惕的现象：制造业、建筑业、批发零售业成为职务犯罪高发区。
+气象部门预计，18日至20日，中东部大范围降雨过程持续，西南地区东部、江汉、江淮、江南、华南、黄淮东南部等地部分地区有大雨或暴雨，局地大暴雨，局地伴有雷暴大风、短时强降水等强对流天气。
 
-更令人忧心的是，犯罪手段日益隐蔽——虚构交易、篡改数字凭证等技术化作案增多，部分高管通过“影子公司”实施系统性贪腐。
+中央气象台18日继续发布暴雨黄色预警。
 
-归根结底，这些案件的共性是：企业内部往往缺乏有效的监督机制，待发现时，损失已经难以挽回。
+国家防总18日针对湖南、广西启动防汛四级应急响应，继续维持针对湖北、重庆、贵州的防汛四级应急响应。
 
-在“检企面对面”座谈会上，8位企业家交流发言，道出企业的真实心声。
+国家防总办公室、国家防灾减灾救灾委员会办公室18日加派2个工作组分赴湖北、湖南协助指导防汛救灾工作，前期派出的工作组继续在广西一线协助指导河池环江县车辆坠河人员搜救工作。
 
-埃杰盾阀门有限公司董事长熊军红表示，检企协作机制帮助企业从“出了事再补救”转向“事前预防”“事中干预”，推动涉企矛盾纠纷更快实质性化解。
+气象部门预计，未来10天，中东部地区降雨过程频繁，累计雨量较常年同期显著偏多。
 
 ## 相关推荐
 
-- 2026-06-29 16:55 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 16:45 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 16:34 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 16:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 16:51 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 16:43 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 16:47 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 16:37 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 16:36 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 16:38 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 16:54 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 16:55 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 17:02 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 17:03 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 16:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 16:54 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 17:00 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 16:36 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 16:46 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 17:02 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 16:50 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 16:51 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:35 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/8037008.shtml)
-- 2026-06-29 16:49 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/985144526.shtml)
-- 2026-06-29 16:42 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/2232779.shtml)
-- 2026-06-29 16:38 - [周生如故](https://www.share.minike.top/Article/details/92847045.shtml)
-- 2026-06-29 16:50 - [高市早苗口齿不清被质疑醉酒](http://www.share.minike.top/Article/details/2571516.shtml)
-- 2026-06-29 16:34 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/646788685.shtml)
-- 2026-06-29 16:59 - [欧洲人驾车200公里抢购中国空调](https://www.share.kurohicncr.top/Article/details/434793555013.shtml)
-- 2026-06-29 16:58 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/767980323193.shtml)
-- 2026-06-29 16:34 - [驻日美军航母沦为“毒窝”](https://www.share.minike.top/Article/details/840326096454.shtml)
-- 2026-06-29 16:30 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/285951.shtml)
-- 2026-06-29 16:54 - [德国VS巴拉圭前瞻](https://www.share.minike.top/Article/details/649763251.shtml)
-- 2026-06-29 16:55 - [男孩复读一年减重20斤涨分111分](https://www.share.minike.top/Article/details/9941297857.shtml)
-- 2026-06-29 16:44 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/143926615.shtml)
-- 2026-06-29 16:42 - [斛珠夫人](http://www.share.minike.top/Article/details/8117177200.shtml)
-- 2026-06-29 16:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/29989.shtml)
+- 2026-06-29 16:57 - [东方风云榜红毯](https://www.blog.minike.top/Article/details/215520.shtml)
+- 2026-06-29 16:43 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/9665882028.shtml)
+- 2026-06-29 16:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/10711.shtml)
+- 2026-06-29 17:04 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/879768229966.shtml)
+- 2026-06-29 16:56 - [周生如故](https://www.share.kurohicncr.top/Article/details/005926.shtml)
+- 2026-06-29 16:58 - [沙丘](https://www.blog.kurohicncr.top/Article/details/7174249900.shtml)
+- 2026-06-29 16:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/312942135254.shtml)
+- 2026-06-29 16:54 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/268650220214.shtml)
+- 2026-06-29 16:51 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/7261734.shtml)
+- 2026-06-29 17:03 - [叠纸](http://www.blog.minike.top/Article/details/827798983989.shtml)
+- 2026-06-29 16:51 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/02970511650.shtml)
+- 2026-06-29 16:45 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/1446534.shtml)
+- 2026-06-29 16:40 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/830137850.shtml)
+- 2026-06-29 16:56 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/760862.shtml)
+- 2026-06-29 16:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/527885199.shtml)

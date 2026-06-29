@@ -1,59 +1,60 @@
-# 瑞银首予Lundin Gold“买入”评级：强劲自由现金流支撑高估值
+# 我国建立白名单制度规范医保个人账户使用
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-瑞银集团周四发布研报，首予加拿大黄金生产商Lundin Gold“买入”评级，目标价设定为103加元。瑞银认为，该公司位于厄瓜多尔的Fruta del Norte金矿具有“高利润率”特点，按现货金价计算，每年可产生约10亿美元的稳定自由现金流。 这一乐观评级建立在Lundin Gold发布的创纪录一季度业绩基础之上。财报显示，2026年第一季度，公司营收达5.6738亿美元，同
+中新网5月19日电 据国家医保局微信公众号19日消息，国家医保局、财政部发布《关于进一步加强定点零售药店职工基本医疗保险个人账户使用监督管理的通知》，明确建立定点零售药店职工医保个人账户支付白名单制度，白名单内的，个人账户在定点零售药店可以支付；白名单外的，不予支付。国家医保局办公室 财政部办公厅关于进一步加强定点零售药店职工基本医疗保险个人账户使用监督管理的通知 为切实维护医
 
 ## 正文
 
-瑞银集团周四发布研报，首予加拿大黄金生产商Lundin Gold“买入”评级，目标价设定为103加元。
+中新网5月19日电 据国家医保局微信公众号19日消息，国家医保局、财政部发布《关于进一步加强定点零售药店职工基本医疗保险个人账户使用监督管理的通知》，明确建立定点零售药店职工医保个人账户支付白名单制度，白名单内的，个人账户在定点零售药店可以支付；白名单外的，不予支付。
 
-瑞银认为，该公司位于厄瓜多尔的Fruta del Norte金矿具有“高利润率”特点，按现货金价计算，每年可产生约10亿美元的稳定自由现金流。
+国家医保局办公室 财政部办公厅关于进一步加强定点零售药店职工基本医疗保险个人账户使用监督管理的通知 为切实维护医保基金安全，根据《医疗保障基金使用监督管理条例》《国务院办公厅关于建立健全职工基本医疗保险门诊共济保障机制的指导意见》(国办发〔2021〕14号)《国务院办公厅关于健全基本医疗保险参保长效机制的指导意见》(国办发〔2024〕38号)，现就进一步加强定点零售药店职工基本医疗保险个人账户使用监督管理有关工作通知如下： 一、坚持“保基本”功能定位 职工基本医疗保险基金由统筹基金和个人账户构成，个人账户是职工基本医保基金的重要组成部分。
 
-这一乐观评级建立在Lundin Gold发布的创纪录一季度业绩基础之上。
+各级医保部门要认真落实改革要求，完善个人账户支出政策，使个人账户不仅能用于参保人本人医疗费用支出，还能用于已参保近亲属医疗费用支出；不仅能在省内实现家庭共济，还能实现跨省共济；不仅能用于支付医疗费用，还能用于近亲属参加城乡居民基本医疗保险个人缴费；不仅能用于支付在定点医疗机构发生的医疗费用，还允许支付在定点医疗机构发生的流感疫苗费用，能用于支付在定点零售药店发生的合规费用。
 
-财报显示，2026年第一季度，公司营收达5.6738亿美元，同比增长59%；净利润为2.7333亿美元，合每股收益1.13美元，较上年同期增长78%。
+同时要始终坚持“保基本”的功能定位，合理稳妥、灵活有度规范职工医保个人账户使用，防止将不属于基本医疗保障范围内的不合理费用纳入支出范围，坚决维护医保基金安全。
 
-自由现金流达3.485亿美元，合每股1.44美元，均为历史最高水平。
+二、建立定点零售药店职工医保个人账户支付白名单制度 各省级医保部门要在现有政策基础上，结合当地实际，商财政等部门进一步研究规范职工医保个人账户支付范围管理。
 
-业绩增长主要由金价上涨驱动——一季度平均实现金价达每盎司4951美元，较上年同期的3081美元大幅提升。
+各省级医保部门原则上要于2026年9月底前出台全省统一的定点零售药店职工医保个人账户支付白名单(以下简称“白名单”)。
 
-但Lundin Gold并非纯金价上涨的被动受益者。
+白名单内的，个人账户在定点零售药店可以支付；白名单外的，不予支付。
 
-Fruta del Norte矿的成本结构在同业中处于极具竞争力的位置：一季度现金运营成本为每盎司987美元，全维持成本为每盎司1114美元。
+列入白名单的，应是经药监部门正式批准注册或备案，可以在零售药店销售，并且与治疗密切相关、医疗属性强、价格适宜的药品、医疗器械和医用耗材。
 
 ## 相关推荐
 
-- 2026-06-29 16:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 16:31 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 16:42 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 16:46 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 16:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 16:53 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 16:43 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 16:45 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 16:33 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 16:55 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 16:51 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 16:33 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 16:43 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 16:47 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 16:57 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 16:37 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 17:03 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 16:57 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 16:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 16:37 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 16:37 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 16:48 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 16:53 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 16:42 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 16:52 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 16:57 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 17:01 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:51 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/197648.shtml)
-- 2026-06-29 16:38 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/82688024.shtml)
-- 2026-06-29 16:48 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.kurohicncr.top/Article/details/11599621.shtml)
-- 2026-06-29 16:52 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.kurohicncr.top/Article/details/526012333666.shtml)
-- 2026-06-29 16:46 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/898747.shtml)
-- 2026-06-29 16:34 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/189262802.shtml)
-- 2026-06-29 16:52 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/3994658.shtml)
-- 2026-06-29 16:41 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/81095348.shtml)
-- 2026-06-29 16:31 - [加拿大绝杀南非晋级](http://www.share.minike.top/Article/details/013592276106.shtml)
-- 2026-06-29 16:49 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/583848428.shtml)
-- 2026-06-29 16:47 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/819135964993.shtml)
-- 2026-06-29 16:59 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/0560635189.shtml)
-- 2026-06-29 16:59 - [男孩复读一年减重20斤涨分111分](https://www.share.minike.top/Article/details/6164872580.shtml)
-- 2026-06-29 16:30 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/26447155782.shtml)
-- 2026-06-29 16:34 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/9517909413.shtml)
+- 2026-06-29 16:39 - [王曼昱被突如其来的话筒逗笑了](http://www.share.minike.top/Article/details/4436027.shtml)
+- 2026-06-29 17:02 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/6798860680.shtml)
+- 2026-06-29 16:40 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/539333.shtml)
+- 2026-06-29 16:55 - [机器人学校开学了](https://www.blog.minike.top/Article/details/0716117.shtml)
+- 2026-06-29 16:39 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/5182101.shtml)
+- 2026-06-29 16:39 - [王安宇尊重田曦薇的一切选择](http://www.blog.kurohicncr.top/Article/details/1755076615.shtml)
+- 2026-06-29 16:56 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.minike.top/Article/details/4205327.shtml)
+- 2026-06-29 16:47 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/644260.shtml)
+- 2026-06-29 16:45 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/3661083.shtml)
+- 2026-06-29 16:50 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/1707494083.shtml)
+- 2026-06-29 16:50 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.minike.top/Article/details/7737165.shtml)
+- 2026-06-29 16:56 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/1220106314.shtml)
+- 2026-06-29 16:39 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/3664484.shtml)
+- 2026-06-29 16:54 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/92852.shtml)
+- 2026-06-29 16:49 - [啊啊啊](http://www.blog.minike.top/Article/details/285978.shtml)

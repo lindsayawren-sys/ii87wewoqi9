@@ -1,58 +1,61 @@
-# 香格里拉山花烂漫游人如织
+# 新加坡太平洋经济合作委员会主席：盼中国将AI打造为公共产品
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-利润暴跌，日系车巨头集体失速倒计时10天！今年高考有哪些新变化？林志玲辞任董事的台湾“文策院”，是个什么机构？国家首次专门发文，解决未落户常住人口急难愁盼英法加澳频繁介入西太平洋局势，“刷存在感”背后安全格局生变？这里的荔枝，何以C位出道？美伊谈判仍在继续 美以伊最新局势一文速览武契奇夫人塔玛拉体验中华文化 提议在塞举办中国服装秀“纸面上的安全堡垒”难守“人命关天”的安全生产防
+中新社上海5月18日电 (周昕 许婧)2026年亚太经合组织(APEC)第二次高官会开幕式18日在上海举办。新加坡太平洋经济合作委员会主席陈企业与会期间接受媒体采访时表示，期待中国将成熟的人工智能(AI)技术与应用经验打造为亚太区域公共产品，推动亚太发展成果普惠共享。陈企业表示，AI可全面赋能智慧医疗、先进制造、物流通信等多领域，落地应用前景广阔，是撬动区域协同发展的优质抓手。
 
 ## 正文
 
-利润暴跌，日系车巨头集体失速倒计时10天！
+中新社上海5月18日电 (周昕 许婧)2026年亚太经合组织(APEC)第二次高官会开幕式18日在上海举办。
 
-今年高考有哪些新变化？
+新加坡太平洋经济合作委员会主席陈企业与会期间接受媒体采访时表示，期待中国将成熟的人工智能(AI)技术与应用经验打造为亚太区域公共产品，推动亚太发展成果普惠共享。
 
-林志玲辞任董事的台湾“文策院”，是个什么机构？
+陈企业表示，AI可全面赋能智慧医疗、先进制造、物流通信等多领域，落地应用前景广阔，是撬动区域协同发展的优质抓手。
 
-国家首次专门发文，解决未落户常住人口急难愁盼英法加澳频繁介入西太平洋局势，“刷存在感”背后安全格局生变？
+中国AI技术研发实力雄厚，落地场景丰富，实践成果丰硕，具备技术输出与引领能力。
 
-这里的荔枝，何以C位出道？
+而不少东盟国家拥有广阔的应用落地空间，需要成熟技术与经验指引数字化转型。
 
-美伊谈判仍在继续 美以伊最新局势一文速览武契奇夫人塔玛拉体验中华文化 提议在塞举办中国服装秀“纸面上的安全堡垒”难守“人命关天”的安全生产防线不到1个月，“巴铁”总统、总理为何先后访华？
+“这正是亚太合作的关键突破口。
 
-写出《给阿嬷的情书》的人们，怎么可能是“神秘渗透者”！
+”陈企业指出，期盼依托2026年APEC“中国年”这一机遇，推动中国AI技术、应用体系与实践经验转化为区域公共产品，助力各经济体明晰数字化发展路径，降低转型门槛，有效缩小各经济体间的科技发展差距，让创新成果惠及更多APEC成员。
 
-龙卷风为何近期多发？
+与会期间，能源安全也成为各经济体代表的重要关切。
 
 ## 相关推荐
 
-- 2026-06-29 16:32 - [抓特务票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 16:47 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 16:30 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 16:35 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 16:54 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 16:41 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 16:34 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 16:59 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 16:35 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 16:40 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 16:49 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 16:33 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 16:50 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 16:51 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 16:37 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 16:40 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 16:48 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 16:45 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 16:59 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 16:48 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 16:41 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 16:51 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 16:57 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 17:05 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 16:40 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 16:57 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 16:48 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:41 - [端午节加班工资应该怎么算](http://www.share.kurohicncr.top/Article/details/06838407.shtml)
-- 2026-06-29 16:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/4437914.shtml)
-- 2026-06-29 16:51 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/85315.shtml)
-- 2026-06-29 16:33 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/328789236.shtml)
-- 2026-06-29 16:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/5486701.shtml)
-- 2026-06-29 16:30 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/879745627.shtml)
-- 2026-06-29 16:37 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/01433935246.shtml)
-- 2026-06-29 16:42 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/0002091.shtml)
-- 2026-06-29 16:43 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/360097551.shtml)
-- 2026-06-29 16:42 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.minike.top/Article/details/24338289540.shtml)
-- 2026-06-29 16:57 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/1993069880.shtml)
-- 2026-06-29 16:33 - [王楚钦开门红](http://www.share.minike.top/Article/details/485020985854.shtml)
-- 2026-06-29 16:36 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/47530.shtml)
-- 2026-06-29 16:51 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/346536871373.shtml)
-- 2026-06-29 16:41 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/632290778376.shtml)
+- 2026-06-29 16:41 - [东方风云榜](https://www.share.minike.top/Article/details/5746046.shtml)
+- 2026-06-29 16:37 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/762439616137.shtml)
+- 2026-06-29 16:46 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/22594449590.shtml)
+- 2026-06-29 16:42 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/79645244.shtml)
+- 2026-06-29 16:58 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/58998605175.shtml)
+- 2026-06-29 16:49 - [挪威王储妃长子2次强奸被判4年](https://www.blog.minike.top/Article/details/027881348179.shtml)
+- 2026-06-29 17:02 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/82293923825.shtml)
+- 2026-06-29 16:43 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/2977016610.shtml)
+- 2026-06-29 16:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/625730094.shtml)
+- 2026-06-29 16:46 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/150512.shtml)
+- 2026-06-29 17:01 - [斛珠夫人](https://www.blog.minike.top/Article/details/5568449331.shtml)
+- 2026-06-29 16:58 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/91714.shtml)
+- 2026-06-29 17:01 - [新能源车能当外接空调用吗](https://www.share.kurohicncr.top/Article/details/710918983297.shtml)
+- 2026-06-29 16:56 - [医院大厅放钢琴是形式主义吗](http://www.share.kurohicncr.top/Article/details/974832.shtml)
+- 2026-06-29 16:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/9078984.shtml)

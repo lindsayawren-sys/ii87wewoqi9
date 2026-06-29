@@ -1,58 +1,59 @@
-# Soitec公司恢复自由现金流，股价大涨
+# 乌干达报告埃博拉病毒输入病例 卢旺达暂时关闭口岸
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 巴黎交易所该股周四早盘涨幅超 13% 法国半导体材料厂商Soitec公布截至 3 月的财年实现正向自由现金流后，股价应声走高。受人工智能热潮推动，该股年内涨幅已超 7 倍，本轮涨势得以延续。 公司表示，本财年自由现金流达6300 万欧元（约合 7320 万美元），而上一财年为负 2300 万欧元。今年 4 月上任的首席执行官洛朗・勒蒙称，实
+中新网北京5月18日电 综合消息：外媒18日消息称，乌干达报告2例埃博拉病毒输入性病例，其中1人死亡。本轮埃博拉疫情暴发以来，非洲疾病预防控制中心已报告疑似病例336例，相关死亡病例88例。疫情防控、遏制跨境传播面临多重挑战。法新社、英国广播公司18日消息称，刚果(金)邻国乌干达报告2例埃博拉病毒输入病例，其中1人已经死亡。 卢旺达媒体17日援引当地官员的话称，出于埃博拉疫情防
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 巴黎交易所该股周四早盘涨幅超 13% 法国半导体材料厂商Soitec公布截至 3 月的财年实现正向自由现金流后，股价应声走高。
+中新网北京5月18日电 综合消息：外媒18日消息称，乌干达报告2例埃博拉病毒输入性病例，其中1人死亡。
 
-受人工智能热潮推动，该股年内涨幅已超 7 倍，本轮涨势得以延续。
+本轮埃博拉疫情暴发以来，非洲疾病预防控制中心已报告疑似病例336例，相关死亡病例88例。
 
-公司表示，本财年自由现金流达6300 万欧元（约合 7320 万美元），而上一财年为负 2300 万欧元。
+疫情防控、遏制跨境传播面临多重挑战。
 
-今年 4 月上任的首席执行官洛朗・勒蒙称，实现正向自由现金流是企业重回可持续盈利增长轨道的关键一步。
+法新社、英国广播公司18日消息称，刚果(金)邻国乌干达报告2例埃博拉病毒输入病例，其中1人已经死亡。
 
-Soitec巴黎股价周四上涨超 13%。
+卢旺达媒体17日援引当地官员的话称，出于埃博拉疫情防控需要，刚果(金)东部城市戈马与卢旺达西部城市吉塞尼之间的两个边境口岸已暂时关闭。
 
-近数月欧洲多只科技股集体大涨，荷兰半导体设备厂商阿斯麦、德国芯片企业英飞凌，以及为苹果、特斯拉、太空探索技术公司供货的意法半导体，近期股价均收获大幅涨幅。
+世界卫生组织(简称“世卫组织”)17日宣布，刚果(金)和乌干达出现的埃博拉疫情构成“国际关注的突发公共卫生事件”。
 
-人工智能发展离不开数据中心，而半导体是数据中心的核心硬件，资金持续涌入相关产业链企业。
+“国际关注的突发公共卫生事件”是《国际卫生条例》规定的第二高警报级别，本轮埃博拉疫情尚未达到最高级别“大流行病突发事件”标准。
 
-各大企业承诺投入数千亿美元资本开支，搭建人工智能基础设施，这一领域对高端半导体的需求也不断攀升。
+世卫组织指出，由于人口流动、贸易往来和持续的流行病学不确定性，本轮疫情存在进一步传播风险。
 
 ## 相关推荐
 
-- 2026-06-29 16:56 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 16:32 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 16:47 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 16:43 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 16:39 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 16:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 16:38 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 16:44 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 16:31 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 16:54 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 16:35 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 16:48 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 16:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 16:36 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 17:04 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 16:58 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 16:42 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 17:04 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 17:05 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 17:03 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 16:58 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 16:46 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 16:38 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 16:48 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 16:44 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:41 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/80091.shtml)
-- 2026-06-29 16:36 - [第一炉香](http://www.share.minike.top/Article/details/363181.shtml)
-- 2026-06-29 16:43 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/51835640946.shtml)
-- 2026-06-29 16:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/691367317423.shtml)
-- 2026-06-29 16:48 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/68827696.shtml)
-- 2026-06-29 16:57 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/347451570310.shtml)
-- 2026-06-29 16:32 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/888267635759.shtml)
-- 2026-06-29 16:39 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/49289531.shtml)
-- 2026-06-29 16:41 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/359235246.shtml)
-- 2026-06-29 16:52 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/106968726.shtml)
-- 2026-06-29 16:48 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/864260074.shtml)
-- 2026-06-29 16:46 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.kurohicncr.top/Article/details/29966057347.shtml)
-- 2026-06-29 16:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/954611067.shtml)
-- 2026-06-29 16:54 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/29114879.shtml)
-- 2026-06-29 16:33 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.kurohicncr.top/Article/details/17080972.shtml)
+- 2026-06-29 16:58 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/84175.shtml)
+- 2026-06-29 16:40 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/8059589.shtml)
+- 2026-06-29 16:40 - [疑似吴建豪老婆正脸照](http://www.share.kurohicncr.top/Article/details/0343287.shtml)
+- 2026-06-29 16:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/535332878.shtml)
+- 2026-06-29 16:50 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/73498.shtml)
+- 2026-06-29 17:02 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/941329643.shtml)
+- 2026-06-29 16:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/202995.shtml)
+- 2026-06-29 16:40 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/37642892.shtml)
+- 2026-06-29 16:56 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/153289210.shtml)
+- 2026-06-29 17:00 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/928775.shtml)
+- 2026-06-29 16:46 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/73714373.shtml)
+- 2026-06-29 16:56 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/007853606106.shtml)
+- 2026-06-29 16:47 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/2962141758.shtml)
+- 2026-06-29 16:44 - [扬名立万](https://www.blog.minike.top/Article/details/21239869.shtml)
+- 2026-06-29 16:38 - [医院大厅放钢琴是形式主义吗](http://www.blog.minike.top/Article/details/71702.shtml)

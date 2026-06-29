@@ -1,60 +1,57 @@
-# 全新一代问界M9上市：47.98万元起售，发布即交付
+# 吕天贵拟回归中信银行出任行长，十万亿股份行高管补齐
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-2026年5月27日，鸿蒙智行问界M9系列新品发布会于深圳正式举办，全景智慧旗舰SUV全新一代问界M9系列正式上市，官方建议零售价47.98万元起，问界M9 Ultimate领世加长版官方建议零售价64.98万元起。 华为常务董事、终端BG董事长余承东在发布会上介绍，全新一代问界M9搭载了超过140项全新技术与超40项行业首创，实现了从设计、空间、智能交互到安全、性能的全维度跃
+原标题：21独家|吕天贵拟回归中信银行出任行长，十万亿股份行高管补齐 21世纪经济报道 记者郭聪聪 5月19日，21世纪经济报道记者从多名业内人士处获悉，中信信托董事长吕天贵回归中信银行。经过必要程序后，他将补位中信银行行长一职，目前该职位已空缺近五个月。 一位接近吕天贵的银行高管向21世纪经济报道记者表示：“他（吕天贵）非常具有战略眼光，业务经验非常丰富，管过零售、公司金融，
 
 ## 正文
 
-2026年5月27日，鸿蒙智行问界M9系列新品发布会于深圳正式举办，全景智慧旗舰SUV全新一代问界M9系列正式上市，官方建议零售价47.98万元起，问界M9 Ultimate领世加长版官方建议零售价64.98万元起。
+原标题：21独家|吕天贵拟回归中信银行出任行长，十万亿股份行高管补齐 21世纪经济报道 记者郭聪聪 5月19日，21世纪经济报道记者从多名业内人士处获悉，中信信托董事长吕天贵回归中信银行。
 
-华为常务董事、终端BG董事长余承东在发布会上介绍，全新一代问界M9搭载了超过140项全新技术与超40项行业首创，实现了从设计、空间、智能交互到安全、性能的全维度跃迁。
+经过必要程序后，他将补位中信银行行长一职，目前该职位已空缺近五个月。
 
-鸿蒙智行生态势能持续攀升。
+一位接近吕天贵的银行高管向21世纪经济报道记者表示：“他（吕天贵）非常具有战略眼光，业务经验非常丰富，管过零售、公司金融，也管过信托。
 
-截至目前，鸿蒙智行全系累计交付已突破139万辆，2026年累计交付19万辆，同比增长27%。
+金融专业知识和业务经验都很扎实，为人也比较务实。
 
-主动安全避免可能碰撞超429万次；华为乾崑智驾累计辅助驾驶里程突破91.07亿公里。
+” 此番回归，意味着中信集团内部两大金融机构完成第二次高管轮换，吕天贵将与董事长方合英组成新的管理组合，共同掌舵这家资产规模已突破10万亿元的股份制商业银行。
 
-问界品牌以新势力成交均价、品牌净推荐值NPS、插混保值率、C-NCAP综合得分率四大行业第一树立智能汽车新标准。
+待其任职资格获批后，中信银行高管层将得以补齐，形成“一正六副”的管理架构。
 
-其中，问界M9累计交付已突破28.5万辆，取得50万级以上销量、用户净推荐值、质量表现三项第一。
+从中信银行走出的金融干将 公开资料显示，吕天贵，1972年生人，毕业于四川大学工商管理专业，拥有高级会计师职称以及国际注册内部审计师、中国注册会计师等专项资格。
 
-全新一代问界M9新车车身尺寸5285×2026×1845mm，轴距3125mm；领世加长版尺寸5402×2026×1845mm，轴距3236mm，风阻系数低至0.247Cd，为全尺寸SUV最优。
+其金融从业生涯始于1993年，在中国银行吉林分行工作近十年，曾任风险管理处副处长。
 
 ## 相关推荐
 
-- 2026-06-29 16:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 16:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 16:41 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 16:47 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 16:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 16:51 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 16:48 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 16:55 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 16:34 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 16:37 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 16:50 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 16:56 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 16:47 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 16:45 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 16:51 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 16:48 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 17:03 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 16:58 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 17:00 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 16:40 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 16:55 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 16:49 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 17:04 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 16:39 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 16:50 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:45 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/1078891001.shtml)
-- 2026-06-29 16:42 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.minike.top/Article/details/48319245557.shtml)
-- 2026-06-29 16:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/28127080168.shtml)
-- 2026-06-29 16:54 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/549752.shtml)
-- 2026-06-29 16:48 - [扫黑风暴](http://www.blog.minike.top/Article/details/559412.shtml)
-- 2026-06-29 16:44 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/161710.shtml)
-- 2026-06-29 16:30 - [抓特务票房破亿](http://www.blog.kurohicncr.top/Article/details/473026827.shtml)
-- 2026-06-29 16:44 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/003397265016.shtml)
-- 2026-06-29 16:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/56134583.shtml)
-- 2026-06-29 16:40 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/019328.shtml)
-- 2026-06-29 16:56 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/050861275830.shtml)
-- 2026-06-29 16:58 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/549214.shtml)
-- 2026-06-29 16:44 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/23247.shtml)
-- 2026-06-29 16:53 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/52278.shtml)
-- 2026-06-29 16:48 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/516100791032.shtml)
+- 2026-06-29 17:01 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/52793669.shtml)
+- 2026-06-29 17:02 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/306491642546.shtml)
+- 2026-06-29 16:45 - [7款商保创新药“转道”](http://www.share.minike.top/Article/details/7880306.shtml)
+- 2026-06-29 16:45 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/74950643261.shtml)
+- 2026-06-29 17:02 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.minike.top/Article/details/76774722.shtml)
+- 2026-06-29 16:44 - [高市早苗口齿不清被质疑醉酒](http://www.share.minike.top/Article/details/19768486.shtml)
+- 2026-06-29 16:37 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/877397363.shtml)
+- 2026-06-29 16:57 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/119852.shtml)
+- 2026-06-29 16:37 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/08034666970.shtml)
+- 2026-06-29 17:03 - [AG 宫斗](https://www.share.minike.top/Article/details/241006929.shtml)
+- 2026-06-29 16:46 - [范志毅看好日本淘汰巴西](https://www.share.kurohicncr.top/Article/details/29414057.shtml)
+- 2026-06-29 16:44 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/029939361.shtml)
+- 2026-06-29 16:56 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/047351.shtml)
+- 2026-06-29 16:52 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/8349468.shtml)
+- 2026-06-29 17:03 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/48228893.shtml)

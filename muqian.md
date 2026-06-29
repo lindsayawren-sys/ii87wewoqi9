@@ -1,60 +1,56 @@
-# 美国国债上涨 因据报美伊达成延长停火的协议
+# Inpex Ichthys LNG工厂工人拟于5月底罢工，全球能源供应面临新压力
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-美国国债上涨，据报美伊已达成延长停火的协议，并正在就彻底结束战争进行谈判。 周四的走势推动国债收益率下跌，与油价回落同步。不过，据Axios报道，该协议仍需美国总统特朗普批准。 在美国关键通胀指标升幅低于预期后，美债收益率从盘中高点回落。Axios的报道刺激收益率一度大幅下跌，但随后跌幅有所收窄，各期限收益率最新下跌约2至3个基点。 Axios援引两名美国官员和一名参与谈判的地
+罢工通知 海上联盟工会周一表示，已向Inpex发出通知，计划从5月27日起在其位于澳大利亚北部的Ichthys液化天然气工厂举行罢工。此举可能进一步加剧本已紧张的全球能源供应形势。 争议背景与谈判进展 上个月，这座位于达尔文附近的年产930万吨LNG工厂的346名工会工人中有326人投票支持就薪酬和工作条件采取罢工行动。投票结果有待5月份为期六天的谈判确认。工会律师已向这家日本
 
 ## 正文
 
-美国国债上涨，据报美伊已达成延长停火的协议，并正在就彻底结束战争进行谈判。
+罢工通知 海上联盟工会周一表示，已向Inpex发出通知，计划从5月27日起在其位于澳大利亚北部的Ichthys液化天然气工厂举行罢工。
 
-周四的走势推动国债收益率下跌，与油价回落同步。
+此举可能进一步加剧本已紧张的全球能源供应形势。
 
-不过，据Axios报道，该协议仍需美国总统特朗普批准。
+争议背景与谈判进展 上个月，这座位于达尔文附近的年产930万吨LNG工厂的346名工会工人中有326人投票支持就薪酬和工作条件采取罢工行动。
 
-在美国关键通胀指标升幅低于预期后，美债收益率从盘中高点回落。
+投票结果有待5月份为期六天的谈判确认。
 
-Axios的报道刺激收益率一度大幅下跌，但随后跌幅有所收窄，各期限收益率最新下跌约2至3个基点。
+工会律师已向这家日本公司发出通知，表示将从5月27日至6月10日期间的任何时间点发起罢工，并称数月谈判未能取得任何进展。
 
-Axios援引两名美国官员和一名参与谈判的地区消息人士称，该协议包括将停火延长60天，并启动有关伊核计划的谈判。
+工会表态 一位发言人在声明中表示，已向Inpex明确表示，不会因为Inpex在六个月内未能审阅其诉求而接受核心诉求被轻视。
 
-4月个人消费支出（PCE）价格指数整体上涨0.4%，剔除食品和能源的核心指标上涨0.2%。
+工会已告知Inpex，其将继续在定于5月25日和26日的会议上与公司进行谈判。
 
-经济学家此前分别预期上涨0.5%和0.3%。
+Inpex未立即回应置评请求。
 
 ## 相关推荐
 
-- 2026-06-29 16:48 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 16:39 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 16:49 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 16:55 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 16:55 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 16:36 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 16:40 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 16:57 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 16:34 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 16:59 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-29 16:30 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 16:56 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 16:59 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 16:58 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 16:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 16:45 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 16:54 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 16:53 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 16:50 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 16:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 16:46 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 17:04 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 16:50 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 16:37 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:36 - [未成年少女长期吸毒导致卧床不起](http://www.blog.minike.top/Article/details/79701881.shtml)
-- 2026-06-29 16:49 - [周生如故](https://www.blog.minike.top/Article/details/72064781.shtml)
-- 2026-06-29 16:43 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/178005.shtml)
-- 2026-06-29 16:38 - [BB大王横店拍戏](https://www.blog.kurohicncr.top/Article/details/39886.shtml)
-- 2026-06-29 16:31 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/891196.shtml)
-- 2026-06-29 16:41 - [博主：黄金和原油回落不等于风险消失](https://www.blog.kurohicncr.top/Article/details/924004910785.shtml)
-- 2026-06-29 16:47 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/43056.shtml)
-- 2026-06-29 16:51 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.minike.top/Article/details/295752368277.shtml)
-- 2026-06-29 16:32 - [乔家的儿女](https://www.blog.minike.top/Article/details/82673.shtml)
-- 2026-06-29 16:38 - [抓特务票房破亿](https://www.share.minike.top/Article/details/427609612.shtml)
-- 2026-06-29 16:48 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/566143.shtml)
-- 2026-06-29 16:35 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/16879138.shtml)
-- 2026-06-29 16:58 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/35727.shtml)
-- 2026-06-29 16:50 - [李在镕：计划将光州作为芯片生产基地](https://www.share.minike.top/Article/details/285661075.shtml)
-- 2026-06-29 16:41 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/47350066.shtml)
+- 2026-06-29 16:40 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/13277650802.shtml)
+- 2026-06-29 16:46 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/57975805874.shtml)
+- 2026-06-29 17:02 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/40143507.shtml)
+- 2026-06-29 16:40 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/263302524.shtml)
+- 2026-06-29 16:37 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/21206275.shtml)
+- 2026-06-29 16:48 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/246822.shtml)
+- 2026-06-29 17:01 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/192603623.shtml)
+- 2026-06-29 17:02 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/903809011.shtml)
+- 2026-06-29 16:54 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/5941356.shtml)
+- 2026-06-29 16:45 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/19516997050.shtml)
+- 2026-06-29 16:45 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/484611169.shtml)
+- 2026-06-29 16:55 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/18448012280.shtml)
+- 2026-06-29 16:47 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/56316656365.shtml)
+- 2026-06-29 16:44 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/18151.shtml)
+- 2026-06-29 16:42 - [普京承认俄出现燃料危机](http://www.blog.kurohicncr.top/Article/details/35172098.shtml)

@@ -1,58 +1,61 @@
-# Capital Economics：通胀预期难阻AI牛市，标普500年底上看8000点
+# 韩正出席2026年全球贸易投资促进峰会开幕式并致辞
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-尽管通胀压力持续升温、债券收益率不断走高，但Capital Economics首席经济学家Neil Shearing在本周发布的最新报告中明确指出，这些逆风不足以压垮由人工智能驱动的股市上涨行情。他预计，美股本轮反弹仍有进一步上行的空间。 Shearing在报告中指出，2026年AI带来的经济收益将继续累积，但主要集中在美国，且主要驱动力是建设AI基础设施所需的资本支出激增。据
+中新社北京5月18日电 5月18日，中国国家副主席韩正在北京出席2026年全球贸易投资促进峰会开幕式并致辞。 韩正表示，当前国际形势变乱交织，全球经贸秩序遭受严重冲击。习近平主席指出，面对风险和挑战，任何国家都不可能独善其身，坚持团结合作、开放包容才是人间正道。我们要坚定信念、携手前行，有效把握新机遇、应对新挑战，实现互利共赢基础上的共同发展。 韩正提出4点建议，一是共同营造开
 
 ## 正文
 
-尽管通胀压力持续升温、债券收益率不断走高，但Capital Economics首席经济学家Neil Shearing在本周发布的最新报告中明确指出，这些逆风不足以压垮由人工智能驱动的股市上涨行情。
+中新社北京5月18日电 5月18日，中国国家副主席韩正在北京出席2026年全球贸易投资促进峰会开幕式并致辞。
 
-他预计，美股本轮反弹仍有进一步上行的空间。
+韩正表示，当前国际形势变乱交织，全球经贸秩序遭受严重冲击。
 
-Shearing在报告中指出，2026年AI带来的经济收益将继续累积，但主要集中在美国，且主要驱动力是建设AI基础设施所需的资本支出激增。
+习近平主席指出，面对风险和挑战，任何国家都不可能独善其身，坚持团结合作、开放包容才是人间正道。
 
-据Capital Economics估计，AI已对美国经济增长产生实质性贡献——2025年上半年为GDP增速贡献了约0.5个百分点。
+我们要坚定信念、携手前行，有效把握新机遇、应对新挑战，实现互利共赢基础上的共同发展。
 
-这一趋势预计将持续贯穿2026年，支撑该机构对美国经济2.5%的“高于共识”的增长预测。
+韩正提出4点建议，一是共同营造开放合作的国际经济环境，坚定维护多边主义和开放合作，持续推动全球贸易投资自由化便利化。
 
-尽管通胀已成为市场的核心忧虑——4月PCE年率仍高达3.8%，且长期国债收益率持续攀升——但Shearing认为，当前AI投资的结构性特征使其对利率上行具有较强韧性。
+二是共同塑造创新发展新优势，充分发挥新技术的驱动和赋能作用，让科技创新成果更好造福各国人民。
 
-原因在于，AI投资正在重塑美国经济的增长引擎：摩根士丹利在近期报告中也指出，美国经济正从传统的“消费驱动”模式转向“AI资本开支驱动”模式，2026年和2027年超大规模云服务商的资本开支预计将分别达到8050亿美元和1.116万亿美元。
+三是共同提升产业链供应链韧性，加强产业协同、技术交流和标准对接。
 
-这类投资被视为未来数十年的基础设施布局，而非短期景气循环，因此对短期融资成本变化相对不敏感。
+四是共同推动全球经济治理体系改革，积极落实全球治理倡议，坚持共商共建共享，坚定维护以世贸组织为核心、以规则为基础的多边贸易体制。
 
 ## 相关推荐
 
-- 2026-06-29 16:32 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 16:32 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 16:46 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 16:45 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 16:43 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 16:32 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 16:37 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 16:57 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 16:31 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 16:39 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 16:43 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 16:42 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 16:39 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 17:02 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 16:39 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 16:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 16:44 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 16:56 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 17:02 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 17:01 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 16:37 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 16:42 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 16:57 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 16:41 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 17:04 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 16:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 16:59 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:51 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/260094353.shtml)
-- 2026-06-29 16:45 - [斛珠夫人](https://www.share.minike.top/Article/details/34418498409.shtml)
-- 2026-06-29 16:41 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/166103.shtml)
-- 2026-06-29 16:33 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/8336495.shtml)
-- 2026-06-29 16:37 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/65939.shtml)
-- 2026-06-29 16:32 - [起风了](http://www.blog.kurohicncr.top/Article/details/534732.shtml)
-- 2026-06-29 16:43 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/5484777638.shtml)
-- 2026-06-29 16:31 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/10438.shtml)
-- 2026-06-29 16:49 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/411679.shtml)
-- 2026-06-29 16:55 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/079085516007.shtml)
-- 2026-06-29 16:57 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/66240938280.shtml)
-- 2026-06-29 16:50 - [起风了](https://www.share.minike.top/Article/details/3155933.shtml)
-- 2026-06-29 16:37 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/67619.shtml)
-- 2026-06-29 16:50 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/79289.shtml)
-- 2026-06-29 16:38 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/3825201.shtml)
+- 2026-06-29 16:57 - [沙丘](https://www.blog.minike.top/Article/details/2088043.shtml)
+- 2026-06-29 16:45 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/807840441.shtml)
+- 2026-06-29 16:51 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/864078.shtml)
+- 2026-06-29 16:41 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/325508637.shtml)
+- 2026-06-29 16:53 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/32559628792.shtml)
+- 2026-06-29 16:36 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/35267125.shtml)
+- 2026-06-29 16:53 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/012603.shtml)
+- 2026-06-29 17:01 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/187670757363.shtml)
+- 2026-06-29 16:49 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/9072986622.shtml)
+- 2026-06-29 17:00 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/0856878902.shtml)
+- 2026-06-29 16:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/6702064366.shtml)
+- 2026-06-29 16:40 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/21779293.shtml)
+- 2026-06-29 16:56 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/29714789.shtml)
+- 2026-06-29 17:00 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/8053851583.shtml)
+- 2026-06-29 17:03 - [博主：AI泡沫必须破灭](https://www.share.minike.top/Article/details/433732606.shtml)

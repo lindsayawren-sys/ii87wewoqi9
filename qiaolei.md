@@ -1,48 +1,56 @@
-# 綦江2026年第2号洪水已经形成
+# 吃这种水果24小时内别喝酒，可致呼吸衰竭！
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月28日电 (记者 刘相琳)记者28日从重庆市水利局获悉，受强降雨影响，綦江水位持续上涨，重庆江津区綦江五岔站28日20时05分水位198.52米，超过警戒水位(198.51米)0.01米，“綦江2026年第2号洪水”已经形成。 重庆市水利局官方网站显示，綦江是长江上游南岸支流，发源于重庆市綦江区石壕镇万隆村大垭口，干流流经贵州省习水县和桐梓县、重庆市綦江区和江津区
+眼下，榴莲正集中上市 享受“榴莲自由”的同时 食用禁忌和健康风险 也需关注近日，福建一位女子聚餐时，先吃了两大块榴莲，又喝了约200毫升白酒。随后出现呼吸困难、意识模糊等严重症状。榴莲配酒为何会诱发危险？ “榴莲+酒”危害机制 与头孢类药物类似 首都医科大学附属北京世纪坛医院临床营养科副主任贾平平指出，榴莲搭配酒精的危害机制与头孢类药物类似。 榴莲果肉中含有大量含硫化合物，这类
 
 ## 正文
 
-中新网重庆5月28日电 (记者 刘相琳)记者28日从重庆市水利局获悉，受强降雨影响，綦江水位持续上涨，重庆江津区綦江五岔站28日20时05分水位198.52米，超过警戒水位(198.51米)0.01米，“綦江2026年第2号洪水”已经形成。
+眼下，榴莲正集中上市 享受“榴莲自由”的同时 食用禁忌和健康风险 也需关注近日，福建一位女子聚餐时，先吃了两大块榴莲，又喝了约200毫升白酒。
 
-重庆市水利局官方网站显示，綦江是长江上游南岸支流，发源于重庆市綦江区石壕镇万隆村大垭口，干流流经贵州省习水县和桐梓县、重庆市綦江区和江津区，于江津区支坪镇花铺社区王爷庙注入长江。
+随后出现呼吸困难、意识模糊等严重症状。
 
-綦江是重庆市境内仅次于嘉陵江、乌江的一级支流。
+榴莲配酒为何会诱发危险？
 
-(完)
+“榴莲+酒”危害机制 与头孢类药物类似 首都医科大学附属北京世纪坛医院临床营养科副主任贾平平指出，榴莲搭配酒精的危害机制与头孢类药物类似。
+
+榴莲果肉中含有大量含硫化合物，这类物质会强力抑制人体内乙醛脱氢酶活性。
+
+酒精代谢需要乙醛脱氢酶，酶被抑制后，酒精代谢中断，有毒的乙醛大量堆积在体内，从而引发类似像“双硫仑样反应”的症状。
+
+乙醛蓄积会扩张血管、损伤心肌、抑制呼吸，轻则皮肤潮红、心慌心悸、恶心呕吐，重则血压骤降、呼吸困难、休克、呼吸循环衰竭，救治不及时可危及生命。
+
+吃完榴莲后多久能饮酒？
 
 ## 相关推荐
 
-- 2026-06-29 16:33 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 16:40 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 16:56 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 16:31 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 16:58 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 16:30 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 16:48 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 16:43 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 16:52 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 16:49 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 16:47 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 17:01 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 16:45 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 16:52 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 16:57 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 17:03 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 16:48 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 17:01 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 17:03 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 16:45 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:40 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/399411898317.shtml)
-- 2026-06-29 16:53 - [逆天祖国人](https://www.blog.minike.top/Article/details/676555.shtml)
-- 2026-06-29 16:30 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/85390266.shtml)
-- 2026-06-29 16:44 - [医院大厅放钢琴是形式主义吗](http://www.share.kurohicncr.top/Article/details/97323371958.shtml)
-- 2026-06-29 16:43 - [机器人学校开学了](https://www.share.minike.top/Article/details/54226313444.shtml)
-- 2026-06-29 16:34 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/94503776.shtml)
-- 2026-06-29 16:51 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/0831264.shtml)
-- 2026-06-29 16:42 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/2800017.shtml)
-- 2026-06-29 16:36 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/68434529904.shtml)
-- 2026-06-29 16:36 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/13448501.shtml)
-- 2026-06-29 16:54 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/965675699.shtml)
-- 2026-06-29 16:36 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/808472863366.shtml)
-- 2026-06-29 16:43 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/12622386.shtml)
-- 2026-06-29 16:48 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.kurohicncr.top/Article/details/8759460.shtml)
-- 2026-06-29 16:32 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/557324.shtml)
+- 2026-06-29 16:39 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/2897067769.shtml)
+- 2026-06-29 16:58 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/17711.shtml)
+- 2026-06-29 16:37 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/63737.shtml)
+- 2026-06-29 16:49 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.minike.top/Article/details/097617567577.shtml)
+- 2026-06-29 16:55 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/62173941.shtml)
+- 2026-06-29 16:53 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/773771349.shtml)
+- 2026-06-29 16:55 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/25050883.shtml)
+- 2026-06-29 16:44 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/40751.shtml)
+- 2026-06-29 16:55 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/07803018.shtml)
+- 2026-06-29 16:50 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/542041118.shtml)
+- 2026-06-29 16:53 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/53053569463.shtml)
+- 2026-06-29 16:45 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/539623529804.shtml)
+- 2026-06-29 16:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/03684017718.shtml)
+- 2026-06-29 16:42 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/07931840.shtml)
+- 2026-06-29 17:04 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/62807225387.shtml)

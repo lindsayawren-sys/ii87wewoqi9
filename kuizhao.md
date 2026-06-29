@@ -1,58 +1,58 @@
-# 百万购车人群悄然流失，且短期内难以回流
+# 英美资源集团拟最高 38.75亿美元出售澳大利亚炼钢煤炭资产
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-高油价、利率攀升与顽固通胀抑制购车需求，新车持续积压 内容速览 进入 2026 年以来，受车价高企与各类经济因素影响，美国新车市场流失了约一百万潜在消费者。 美国汽车行业正面临严峻现实：自今年年初起，已有约一百万潜在买家退出新车市场，且业内预计这部分人群短期内不会回归。 此前，车企高管、行业分析师及经济学家普遍认为，美国新车销量将稳步回升至疫情前水平。新冠疫情曾导致工厂停工、全
+交易预计 2027 年一季度完成，自此彻底退出炼钢煤炭业务 内容速览 英美资源集团已达成协议，将旗下澳大利亚炼钢煤炭资产出售给迪尔玛矿业，交易总价最高达 38.75 亿美元，全部以现金结算。 英美资源集团表示，此次向私营企业迪尔玛矿业出售澳洲炼钢煤资产，最高交易金额 38.75 亿美元。此举意在精简业务布局，为其与泰克资源的合并交易铺路。 本次交易包含23 亿美元首期现金款项，
 
 ## 正文
 
-高油价、利率攀升与顽固通胀抑制购车需求，新车持续积压 内容速览 进入 2026 年以来，受车价高企与各类经济因素影响，美国新车市场流失了约一百万潜在消费者。
+交易预计 2027 年一季度完成，自此彻底退出炼钢煤炭业务 内容速览 英美资源集团已达成协议，将旗下澳大利亚炼钢煤炭资产出售给迪尔玛矿业，交易总价最高达 38.75 亿美元，全部以现金结算。
 
-美国汽车行业正面临严峻现实：自今年年初起，已有约一百万潜在买家退出新车市场，且业内预计这部分人群短期内不会回归。
+英美资源集团表示，此次向私营企业迪尔玛矿业出售澳洲炼钢煤资产，最高交易金额 38.75 亿美元。
 
-此前，车企高管、行业分析师及经济学家普遍认为，美国新车销量将稳步回升至疫情前水平。
+此举意在精简业务布局，为其与泰克资源的合并交易铺路。
 
-新冠疫情曾导致工厂停工、全球供应链陷入混乱。
+本次交易包含23 亿美元首期现金款项，外加最高 15.75 亿美元浮动加价。
 
-如今形势已然生变。
+这家伦敦上市矿企称，所得资金将用于削减净负债。
 
-通用汽车、福特汽车、丰田等多家车企表示，在通胀居高不下、燃油价格上涨、贷款利率走高的多重压力下，消费者对均价已升至约 5 万美元的新车望而却步，因此今年新车销量或将下滑或陷入停滞。
+本次拟出售资产均位于澳大利亚，其中包括昆士兰州的莫兰巴北部地下煤矿，该煤矿已于去年 3 月因火灾事故关停。
 
-2020 年之前，美国每年新车及皮卡销量约 1700 万辆。
+2024 年成功击退必和必拓的收购邀约后，英美资源启动业务重组，早已计划剥离炼钢煤炭相关资产。
 
-行业分析师预判，市场销量要重回这一水平，至少要等到 2020 年代末甚至更晚。
+此前该集团曾与皮博迪能源敲定总价 37.8 亿美元的出售方案，后因莫兰巴北部煤矿突发火灾，这笔交易宣告破裂。
 
 ## 相关推荐
 
-- 2026-06-29 16:36 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 16:45 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 16:30 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 16:50 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 16:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 16:47 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 16:51 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 16:44 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 16:51 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 16:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 16:44 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 16:55 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 17:04 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 16:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 16:49 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 16:54 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 16:57 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 17:02 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 16:38 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 17:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 16:48 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 17:05 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 16:43 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 16:39 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:32 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/03182650.shtml)
-- 2026-06-29 16:56 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/276982869.shtml)
-- 2026-06-29 16:35 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/51196742146.shtml)
-- 2026-06-29 16:31 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/85362.shtml)
-- 2026-06-29 16:52 - [小鹏MONAL03预售定档7月2日](http://www.blog.kurohicncr.top/Article/details/7769452.shtml)
-- 2026-06-29 16:31 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/033834.shtml)
-- 2026-06-29 16:45 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/5080817150.shtml)
-- 2026-06-29 16:32 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/930785827632.shtml)
-- 2026-06-29 16:41 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/82257677.shtml)
-- 2026-06-29 16:47 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/51584.shtml)
-- 2026-06-29 16:32 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/60796.shtml)
-- 2026-06-29 16:42 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/905720.shtml)
-- 2026-06-29 16:39 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/1678957.shtml)
-- 2026-06-29 16:47 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/1935989.shtml)
-- 2026-06-29 16:43 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/9980555763.shtml)
+- 2026-06-29 16:36 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/44690.shtml)
+- 2026-06-29 16:48 - [博主：AI泡沫必须破灭](https://www.share.kurohicncr.top/Article/details/52233.shtml)
+- 2026-06-29 16:41 - [葛军谈AI时代理科生出路](https://www.share.minike.top/Article/details/7325034.shtml)
+- 2026-06-29 16:38 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/894070433.shtml)
+- 2026-06-29 16:42 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/95014286707.shtml)
+- 2026-06-29 16:49 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/43309295.shtml)
+- 2026-06-29 16:50 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/825013811407.shtml)
+- 2026-06-29 16:56 - [新能源车能当外接空调用吗](https://www.share.minike.top/Article/details/8020731628.shtml)
+- 2026-06-29 16:52 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.minike.top/Article/details/4119141376.shtml)
+- 2026-06-29 16:51 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/402850117.shtml)
+- 2026-06-29 16:51 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/347775.shtml)
+- 2026-06-29 16:54 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/9918870.shtml)
+- 2026-06-29 16:36 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/91119.shtml)
+- 2026-06-29 16:37 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/804491211.shtml)
+- 2026-06-29 16:42 - [20年前的周杰伦](https://www.blog.minike.top/Article/details/39536143882.shtml)

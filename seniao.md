@@ -1,58 +1,60 @@
-# 美国消费者支出承压 通胀加速升温
+# 广西柳州市柳南区发生5.2级地震 周边多个城市有震感
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-受战争引发的通胀压力侵蚀收入并将储蓄率推低至近四年低点影响，美国4月消费者支出仅小幅增长。 美国经济分析局周四公布的数据显示，经通胀调整后的4月消费者支出增长0.1%；个人消费支出（PCE）价格指数同比上升3.8%。剔除食物和能源价格后的核心PCE指数同比上升3.3%。 数据表明，在生活成本压力和就业市场表现不均衡的背景下，美国消费者变得更加谨慎。中东冲突推高燃料及其他原材料价
+中新网柳州5月18日电 (陈梅 林馨)据广西地震台网正式测定，北京时间2026年05月18日00时21分在广西柳州市柳南区(北纬24.38度，东经109.26度)发生5.2级地震，震源深度8公里。 震中位于柳南区太阳村镇，距柳南城区约13公里、柳州市城区约16公里。柳州本地震感强烈，相邻的南宁、河池、来宾、桂林等城市亦有明显震感。 此次地震前，柳南区已连续发生三次有感地震。 5
 
 ## 正文
 
-受战争引发的通胀压力侵蚀收入并将储蓄率推低至近四年低点影响，美国4月消费者支出仅小幅增长。
+中新网柳州5月18日电 (陈梅 林馨)据广西地震台网正式测定，北京时间2026年05月18日00时21分在广西柳州市柳南区(北纬24.38度，东经109.26度)发生5.2级地震，震源深度8公里。
 
-美国经济分析局周四公布的数据显示，经通胀调整后的4月消费者支出增长0.1%；个人消费支出（PCE）价格指数同比上升3.8%。
+震中位于柳南区太阳村镇，距柳南城区约13公里、柳州市城区约16公里。
 
-剔除食物和能源价格后的核心PCE指数同比上升3.3%。
+柳州本地震感强烈，相邻的南宁、河池、来宾、桂林等城市亦有明显震感。
 
-数据表明，在生活成本压力和就业市场表现不均衡的背景下，美国消费者变得更加谨慎。
+此次地震前，柳南区已连续发生三次有感地震。
 
-中东冲突推高燃料及其他原材料价格，其影响正传导至整体经济，并令消费者信心跌至纪录低点。
+5月17日7时46分，柳南区洛满镇发生2.5级地震，震源深度10公里，初估震中烈度约3度。
 
-与此同时，这份通胀数据可能会进一步强化部分美联储官员此前的警告，即如果价格压力未能缓解，美联储将需要考虑加息。
+5月17日17时07分，柳南区(北纬24.37度，东经109.27度)再发生3.2级地震，震源深度10千米。
 
-5月22日刚刚宣誓就任美联储主席的凯文·沃什可能需要说服其他官员相信无需加息也能控制通胀预期。
+5月17日22时54分在广西柳州市柳南区(北纬24.42度，东经109.28度)发生3.0级地震，震源深度10千米。
 
-尽管同比通胀加速上升，备受关注的核心PCE价格指数环比仅上涨0.2%，略低于市场预期。
+截至目前，当地暂无人员伤亡及财产损失报告，地震灾害情况正在进一步核查统计中。
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 16:42 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 16:41 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 16:58 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 16:34 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 16:38 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 16:39 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 16:56 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 16:52 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 16:56 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-29 16:59 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 16:46 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 16:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 16:47 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 16:38 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 16:50 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 16:51 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 16:50 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 16:50 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 16:37 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 16:56 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 16:49 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 16:50 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 16:50 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 16:57 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 16:54 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:50 - [上海一小区水池内出现一条鳄鱼](https://www.blog.kurohicncr.top/Article/details/614482.shtml)
-- 2026-06-29 16:36 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/290426016647.shtml)
-- 2026-06-29 16:45 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/88431.shtml)
-- 2026-06-29 16:59 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/350767.shtml)
-- 2026-06-29 16:34 - [绘画区你赢了](https://www.share.minike.top/Article/details/5808477.shtml)
-- 2026-06-29 16:34 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/0433071.shtml)
-- 2026-06-29 16:56 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/9773581.shtml)
-- 2026-06-29 16:48 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.kurohicncr.top/Article/details/0571162000.shtml)
-- 2026-06-29 16:31 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/10025795468.shtml)
-- 2026-06-29 16:34 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/0575656.shtml)
-- 2026-06-29 16:51 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/5065680.shtml)
-- 2026-06-29 16:55 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/270556.shtml)
-- 2026-06-29 16:38 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/0596612279.shtml)
-- 2026-06-29 16:40 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/27480514.shtml)
-- 2026-06-29 16:48 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.kurohicncr.top/Article/details/921606600605.shtml)
+- 2026-06-29 16:59 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/2170085.shtml)
+- 2026-06-29 16:58 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/096519.shtml)
+- 2026-06-29 16:40 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/97442284201.shtml)
+- 2026-06-29 17:04 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/831055.shtml)
+- 2026-06-29 16:48 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/290156587853.shtml)
+- 2026-06-29 16:51 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/9535412224.shtml)
+- 2026-06-29 16:43 - [小说《无悔追踪》翻红](http://www.share.minike.top/Article/details/399778387.shtml)
+- 2026-06-29 16:38 - [挪威王储妃长子2次强奸被判4年](http://www.blog.minike.top/Article/details/314474086678.shtml)
+- 2026-06-29 16:44 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.minike.top/Article/details/094528.shtml)
+- 2026-06-29 16:55 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/431680685081.shtml)
+- 2026-06-29 16:58 - [首尔商铺禁止洪明甫入内](http://www.blog.minike.top/Article/details/37037403.shtml)
+- 2026-06-29 16:50 - [范志毅看好日本淘汰巴西](http://www.share.kurohicncr.top/Article/details/6818520.shtml)
+- 2026-06-29 16:46 - [千与千寻](http://www.share.minike.top/Article/details/49182937791.shtml)
+- 2026-06-29 16:54 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/9609414.shtml)
+- 2026-06-29 16:55 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/67309330702.shtml)

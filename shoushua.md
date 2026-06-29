@@ -1,56 +1,56 @@
-# 山东省欧美同学会召开海归企业家座谈交流会
+# 湖北发布黄色山洪灾害气象风险预警
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-中新网济南5月28日电(王采怡)山东省欧美同学会5月28日在济南市召开海归企业家座谈交流会，深入了解海归企业家思想动态和发展需求，听取意见建议，进一步坚定发展信心，凝聚思想共识，助力现代化强省建设。山东省委统战部副部长孙中亮，山东省干部学院副院长吴萍出席会议并讲话。山东省欧美同学会副会长、经济委员会主任张祝秀主持会议。 孙中亮强调，山东省广大海归企业家要站稳政治立场、凝聚思想共
+中新网武汉5月18日电 (记者 梁婷)湖北省水利厅和湖北省气象局18日20时联合发布黄色山洪灾害气象预警。预计5月18日20时至5月19日20时，该省部分地区存在山洪灾害风险。 预警信息显示，黄冈市(英山县)、武汉市(新洲区)为黄色预警区域，山洪灾害可能性较大；黄冈市(麻城市、罗田县、红安县、白莲河示范区)、武汉市(黄陂区)为蓝色预警区域，山洪灾害可能发生。 根据预警提示，预警
 
 ## 正文
 
-中新网济南5月28日电(王采怡)山东省欧美同学会5月28日在济南市召开海归企业家座谈交流会，深入了解海归企业家思想动态和发展需求，听取意见建议，进一步坚定发展信心，凝聚思想共识，助力现代化强省建设。
+中新网武汉5月18日电 (记者 梁婷)湖北省水利厅和湖北省气象局18日20时联合发布黄色山洪灾害气象预警。
 
-山东省委统战部副部长孙中亮，山东省干部学院副院长吴萍出席会议并讲话。
+预计5月18日20时至5月19日20时，该省部分地区存在山洪灾害风险。
 
-山东省欧美同学会副会长、经济委员会主任张祝秀主持会议。
+预警信息显示，黄冈市(英山县)、武汉市(新洲区)为黄色预警区域，山洪灾害可能性较大；黄冈市(麻城市、罗田县、红安县、白莲河示范区)、武汉市(黄陂区)为蓝色预警区域，山洪灾害可能发生。
 
-孙中亮强调，山东省广大海归企业家要站稳政治立场、凝聚思想共识，在多元思想碰撞中保持清醒，在艰苦创业实践中坚定发展信心，不忘初心使命，厚植家国情怀，把爱国之情、报国之志落实在行动上、体现在工作中。
+根据预警提示，预警区域应针对性地部署辖区内山洪灾害防御工作，密切关注降水情况，查看河道水情，发现危险征兆立即报告，提前转移老幼病残、行动不便等弱势人群，及时报送处置灾害风险隐患信息。
 
-要聚焦国家重大战略部署与山东省委中心工作，锚定“走在前、挑大梁”，发挥独特优势作用，深入践行“留学报国人才库”“建言献策智囊团”“民间外交生力军”职责使命，为谱写中国式现代化山东篇章贡献更多海归力量。
+同时，建议远离沟边、河边，留心观察山洪灾害危险区警示标识和转移避险路线；接到转移避险通知后，听从指挥，快速转移至安全地点；危险未解除时，不要擅自返回。
 
-要着眼精准服务、强化实干担当、力求务实高效，持续强化欧美同学会自身建设，进一步丰富工作体系、建强桥梁纽带、筑牢精神家园，把欧美同学会建设成为更有凝聚力、战斗力、影响力的留学人员“温暖家园”。
+据提示，该省其他地区也可能因局地短历时强降水引发山洪灾害，各地应注意做好实时监测、防汛预警和转移避险等防范工作。
 
-会上，来自8个市和部分山东省直单位的28位海归企业家代表参加座谈，并作交流发言。
+近日，湖北多地遭遇特大暴雨。
 
-代表们结合海外求学、回国创业的经历深入交流，既深情回顾了学成归来、扎根齐鲁的初心历程，又分享了在各自领域创新创业、深耕发展的实践体会，并围绕技术攻关、成果转化、人才引育等方面提出意见建议。
+湖北省防办已于5月16日20时启动防汛四级应急响应。
 
 ## 相关推荐
 
-- 2026-06-29 16:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 16:36 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 16:35 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 16:32 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 16:53 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 16:33 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 16:36 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 16:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 16:44 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 16:53 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 16:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 16:58 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 16:39 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 16:49 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 16:58 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 16:47 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 17:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 16:40 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 16:41 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 16:37 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:54 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/516623524.shtml)
-- 2026-06-29 16:38 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/66417299.shtml)
-- 2026-06-29 16:56 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/514697705629.shtml)
-- 2026-06-29 16:42 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/5841462723.shtml)
-- 2026-06-29 16:57 - [葛军谈AI时代理科生出路](http://www.blog.kurohicncr.top/Article/details/2572823.shtml)
-- 2026-06-29 16:40 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.kurohicncr.top/Article/details/0286437872.shtml)
-- 2026-06-29 16:57 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/1781926156.shtml)
-- 2026-06-29 16:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/909254.shtml)
-- 2026-06-29 16:39 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/399211296722.shtml)
-- 2026-06-29 16:30 - [世界杯十大帅哥必吃榜](https://www.blog.kurohicncr.top/Article/details/64159277249.shtml)
-- 2026-06-29 16:31 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/99356.shtml)
-- 2026-06-29 16:52 - [世界杯上那些封神的门将](http://www.blog.kurohicncr.top/Article/details/78305707964.shtml)
-- 2026-06-29 16:38 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/298387.shtml)
-- 2026-06-29 16:54 - [一生一世](http://www.blog.kurohicncr.top/Article/details/375186.shtml)
-- 2026-06-29 16:36 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/500696.shtml)
+- 2026-06-29 17:00 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/16339892867.shtml)
+- 2026-06-29 17:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/635290.shtml)
+- 2026-06-29 17:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/8760405.shtml)
+- 2026-06-29 16:44 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/854505671442.shtml)
+- 2026-06-29 16:52 - [南昌市委书记调整](http://www.share.kurohicncr.top/Article/details/997798079.shtml)
+- 2026-06-29 17:05 - [扬名立万](http://www.blog.minike.top/Article/details/606154385117.shtml)
+- 2026-06-29 16:44 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/38612472549.shtml)
+- 2026-06-29 16:37 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/21299.shtml)
+- 2026-06-29 16:45 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/45197.shtml)
+- 2026-06-29 17:04 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/09751.shtml)
+- 2026-06-29 16:48 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/98466.shtml)
+- 2026-06-29 16:42 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/0871853631.shtml)
+- 2026-06-29 17:00 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/677708991.shtml)
+- 2026-06-29 16:39 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/7756806.shtml)
+- 2026-06-29 17:04 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.kurohicncr.top/Article/details/9859472428.shtml)

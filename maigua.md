@@ -1,56 +1,54 @@
-# “A股唯一韬”，今晚澄清
+# 何立峰会见美国超威半导体公司董事会主席兼首席执行官苏姿丰
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月27日晚间，雄韬股份（002733）发布澄清公告，近期，公司关注到互联网平台、社交媒体及部分自媒体陆续发布、传播针对本公司的多篇不实言论，主要内容包括：2026年5月26日网传称“大A仅此一韬”，5月25日，华为公司发表了韬（τ）定律，提出以“时间（τ）缩微”替代“几何缩微”；互联网平台、社交媒体及部分
+新华社北京5月18日电 中共中央政治局委员、国务院副总理何立峰18日下午在人民大会堂会见美国超威半导体公司董事会主席兼首席执行官苏姿丰。 何立峰指出，上周中美两国元首在北京举行重要会晤，达成一系列重要共识。在两国元首战略引领下，两国经贸团队达成了总体平衡积极的成果，这将为下一步的中美经贸合作与世界经济注入更多确定性和稳定性。欢迎包括超威半导体公司在内的跨国公司把握中国发展机遇，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新华社北京5月18日电 中共中央政治局委员、国务院副总理何立峰18日下午在人民大会堂会见美国超威半导体公司董事会主席兼首席执行官苏姿丰。
 
-5月27日晚间，雄韬股份（002733）发布澄清公告，近期，公司关注到互联网平台、社交媒体及部分自媒体陆续发布、传播针对本公司的多篇不实言论，主要内容包括：2026年5月26日网传称“大A仅此一韬”，5月25日，华为公司发表了韬（τ）定律，提出以“时间（τ）缩微”替代“几何缩微”；互联网平台、社交媒体及部分自媒体将公司定位为“AI算力基础设施核心供应商”的表述，市场进一步延伸至“微软独家供应商”、“英伟达电源供应商”等叙事。
+何立峰指出，上周中美两国元首在北京举行重要会晤，达成一系列重要共识。
 
-雄韬股份表示，上述不实传闻内容片面、失真，具有较强误导性，已对公司形象、正常经营秩序及广大投资者的合理判断造成不良影响。
+在两国元首战略引领下，两国经贸团队达成了总体平衡积极的成果，这将为下一步的中美经贸合作与世界经济注入更多确定性和稳定性。
 
-为维护公司及全体投资者的合法权益，现就相关传闻逐一澄清说明如下。
+欢迎包括超威半导体公司在内的跨国公司把握中国发展机遇，深化互利合作。
 
-公司与华为公司发布的韬（τ）定律相关概念与公司主营业务不存在关联关系。
-
-公司不属于“AI算力基础设施核心供应商”，也不存在AI芯片、AI服务器等核心算力基础设施研发、生产与运营业务。
-
-公司与华为、字节、英伟达、微软暂无合作。
-
-公司的氢能业务仍处于商业化早期阶段，2025年氢能板块收入为869万元，对公司经营业绩影响很小。
+苏姿丰积极评价两国元首会晤成果，表示愿继续拓展在华业务，持续加大在华投资。
 
 ## 相关推荐
 
-- 2026-06-29 16:46 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 16:49 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 17:00 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 16:52 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 16:38 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 16:39 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 16:59 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 16:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 16:40 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 16:37 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 17:01 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 16:39 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 16:46 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 16:46 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 17:05 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 17:03 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 17:04 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 16:52 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 16:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 16:43 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 16:38 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 16:49 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 16:56 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 17:02 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:57 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/7123421.shtml)
-- 2026-06-29 16:56 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/996231.shtml)
-- 2026-06-29 16:58 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.minike.top/Article/details/141600758.shtml)
-- 2026-06-29 16:40 - [东方风云榜红毯](http://www.blog.minike.top/Article/details/41246.shtml)
-- 2026-06-29 16:55 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/08948.shtml)
-- 2026-06-29 16:34 - [一生一世](http://www.share.kurohicncr.top/Article/details/188530.shtml)
-- 2026-06-29 16:37 - [日本偶像龟梨和也宣布结婚](http://www.blog.kurohicncr.top/Article/details/4492341.shtml)
-- 2026-06-29 16:30 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/695038.shtml)
-- 2026-06-29 16:59 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/1113164.shtml)
-- 2026-06-29 16:56 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/01998.shtml)
-- 2026-06-29 16:37 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/44672874.shtml)
-- 2026-06-29 16:30 - [差点没看懂白鹿丞磊这段意识流](http://www.share.minike.top/Article/details/02500.shtml)
-- 2026-06-29 16:40 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/19375.shtml)
-- 2026-06-29 16:48 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/74719262.shtml)
-- 2026-06-29 16:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/46552802090.shtml)
+- 2026-06-29 16:42 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/13599.shtml)
+- 2026-06-29 16:38 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/03191.shtml)
+- 2026-06-29 16:41 - [毒液2](https://www.share.kurohicncr.top/Article/details/94979980783.shtml)
+- 2026-06-29 16:58 - [当地回应林区违规放羊遭豹啃食](http://www.share.kurohicncr.top/Article/details/59003.shtml)
+- 2026-06-29 16:37 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/454287911971.shtml)
+- 2026-06-29 16:58 - [沉睡花园](https://www.share.minike.top/Article/details/509298.shtml)
+- 2026-06-29 16:59 - [爸爸当家](http://www.share.minike.top/Article/details/38109917488.shtml)
+- 2026-06-29 16:49 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/4611732.shtml)
+- 2026-06-29 16:36 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/83393513.shtml)
+- 2026-06-29 16:47 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/3413636.shtml)
+- 2026-06-29 17:05 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/2509065970.shtml)
+- 2026-06-29 16:46 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/6190111.shtml)
+- 2026-06-29 16:41 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/988388820312.shtml)
+- 2026-06-29 16:52 - [请回答王牌2019](http://www.blog.minike.top/Article/details/516615409.shtml)
+- 2026-06-29 17:00 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/08172711332.shtml)

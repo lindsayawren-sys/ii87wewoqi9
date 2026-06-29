@@ -1,51 +1,44 @@
-# 针对高市早苗一再否定东京审判言行 日本历史学者系统驳斥
+# 土耳其南部发生枪击致6死8伤
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-中新网5月28日电(记者 张素 周昕 黄钰钦)纪念东京审判开庭80周年国际研讨会28日起在上海、南京举行。针对日本首相高市早苗一再否定东京审判的言行，来华出席研讨会的日本历史学者、细菌战问题研究专家森正孝接受中新社记者专访时进行系统驳斥。他表示，高市早苗否定东京审判主要有三种说辞：一是声称东京审判是“胜者对败者的裁决”；二是认为审判依据的是“事后法”，即当时国际法尚不存在的罪名
+发布时间：2026年05月19日 11:07 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网5月28日电(记者 张素 周昕 黄钰钦)纪念东京审判开庭80周年国际研讨会28日起在上海、南京举行。
-
-针对日本首相高市早苗一再否定东京审判的言行，来华出席研讨会的日本历史学者、细菌战问题研究专家森正孝接受中新社记者专访时进行系统驳斥。
-
-他表示，高市早苗否定东京审判主要有三种说辞：一是声称东京审判是“胜者对败者的裁决”；二是认为审判依据的是“事后法”，即当时国际法尚不存在的罪名；三是将承认东京审判定性为“自虐史观”。
-
-森正孝进一步指出，高市早苗不仅不承认在东京审判中被判处死刑的甲级战犯的罪名，反而称这些人是“为了战争而牺牲的”，从根本上否定东京审判，其意图是想将日本复活到战争之前的状态，“再次复活军国主义是一种妄想”。
+发布时间：2026年05月19日 11:07 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 16:56 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 16:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 16:52 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-29 16:39 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 16:49 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 16:40 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 16:55 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 16:45 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 16:46 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 16:57 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 16:44 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 16:30 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 16:54 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 16:48 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 16:38 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 16:51 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 16:38 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 16:40 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 16:39 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 16:46 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 16:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 16:44 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 16:39 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 17:00 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 16:47 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:36 - [上海一小区水池内出现一条鳄鱼](http://www.share.kurohicncr.top/Article/details/93991872433.shtml)
-- 2026-06-29 16:43 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/77364.shtml)
-- 2026-06-29 16:40 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/79119824280.shtml)
-- 2026-06-29 16:46 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/436523.shtml)
-- 2026-06-29 16:58 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/24779819.shtml)
-- 2026-06-29 16:30 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/576541157.shtml)
-- 2026-06-29 16:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/37152.shtml)
-- 2026-06-29 16:39 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/51907.shtml)
-- 2026-06-29 16:57 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/485881033.shtml)
-- 2026-06-29 16:54 - [驻日美军航母沦为“毒窝”](http://www.share.minike.top/Article/details/66005694169.shtml)
-- 2026-06-29 16:57 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/873424091.shtml)
-- 2026-06-29 16:53 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/88141947.shtml)
-- 2026-06-29 16:49 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/26452.shtml)
-- 2026-06-29 16:57 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.minike.top/Article/details/1977220.shtml)
-- 2026-06-29 16:50 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/352737685.shtml)
+- 2026-06-29 16:52 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/21244.shtml)
+- 2026-06-29 16:44 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/385706221.shtml)
+- 2026-06-29 16:58 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/158955.shtml)
+- 2026-06-29 16:39 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/841396779284.shtml)
+- 2026-06-29 17:00 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/568833.shtml)
+- 2026-06-29 16:53 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/7156136623.shtml)
+- 2026-06-29 16:40 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/12492.shtml)
+- 2026-06-29 17:03 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/70721.shtml)
+- 2026-06-29 16:55 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/930719549.shtml)
+- 2026-06-29 16:52 - [博主：美航母沦为毒品集散窝点](https://www.share.kurohicncr.top/Article/details/3648505.shtml)
+- 2026-06-29 16:44 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/332128780156.shtml)
+- 2026-06-29 16:41 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/1315616.shtml)
+- 2026-06-29 17:03 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/38998.shtml)
+- 2026-06-29 17:05 - [教育部发布高考志愿填报预警](http://www.share.kurohicncr.top/Article/details/077552287.shtml)
+- 2026-06-29 16:44 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/59551941622.shtml)

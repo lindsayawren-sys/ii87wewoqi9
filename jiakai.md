@@ -1,58 +1,56 @@
-# 天更蓝、水更清、土壤更安全 未来五年美丽河南建设更出彩
+# 季报净息差现企稳拐点，沪市银行业持续释放积极信号
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-中新网郑州5月28日(记者 韩章云 阚力)“生态环境好不好，鸟儿会用翅膀来投票。”5月28日，河南省政府新闻办举行“开局起步‘十五五’——奋力谱写中原大地推进中国式现代化新篇章”专题新闻发布会，河南省政府常务副省长张敏在回答中新社、中新网记者提问时介绍，“十五五”时期，河南将以更高标准改善大气、水、土壤质量，全面推进美丽河南建设。 “十四五”期间，河南持续加强生态环境保护，生态
+高股息率构筑投资“安全垫”。 全球市场波动加剧、资产安全备受关注的背景下，沪市银行业持续释放积极信号。一方面，年报“现金红包”陆续派发，高股息率构筑坚实投资“安全垫”；另一方面，2026年一季报显示，沪市银行业净息差迎来阶段性企稳拐点，经营基本面持续向好。 高股息率构筑投资“安全垫” 近期，工商银行、农业银行两家公司的A股2025年年度分红率先到账，成为最早发放年度“现金红包”
 
 ## 正文
 
-中新网郑州5月28日(记者 韩章云 阚力)“生态环境好不好，鸟儿会用翅膀来投票。
+高股息率构筑投资“安全垫”。
 
-”5月28日，河南省政府新闻办举行“开局起步‘十五五’——奋力谱写中原大地推进中国式现代化新篇章”专题新闻发布会，河南省政府常务副省长张敏在回答中新社、中新网记者提问时介绍，“十五五”时期，河南将以更高标准改善大气、水、土壤质量，全面推进美丽河南建设。
+全球市场波动加剧、资产安全备受关注的背景下，沪市银行业持续释放积极信号。
 
-“十四五”期间，河南持续加强生态环境保护，生态环境质量显著改善。
+一方面，年报“现金红包”陆续派发，高股息率构筑坚实投资“安全垫”；另一方面，2026年一季报显示，沪市银行业净息差迎来阶段性企稳拐点，经营基本面持续向好。
 
-过去五年，河南全省PM2.5浓度下降22.6%，优良天数比例提高8个百分点；黄河干流出境水质持续保持Ⅱ类，南水北调中线工程出境水质持续稳定在Ⅱ类及以上标准；土壤污染和固废治理成效显著，土壤环境质量保持稳定。
+高股息率构筑投资“安全垫” 近期，工商银行、农业银行两家公司的A股2025年年度分红率先到账，成为最早发放年度“现金红包”的沪市银行公司。
 
-生态环境好不好，鸟儿是“评判员”。
+两家公司A股2025年期末分红分别为455.38亿元、415.02亿元，叠加中期分红，持续以真金白银回报投资者。
 
-以河南省会郑州为例，孟夏时节，在郑州北龙湖，一群天鹅雏鸟常跟随天鹅成鸟戏水觅食，吸引众多市民观天鹅、赏湿地风光。
+统计显示，沪市银行板块分红正在有序实施中，目前已有3家实施了2025年年度分红；杭州银行、南京银行等银行已召开股东会，通过年度利润分配方案。
 
-数年前，几只天鹅从外地飞临此处落脚安家，经过几年繁殖，北龙湖的天鹅种群不断壮大，已成为郑州一景。
+从整体来看，沪市银行2025年期末分红总额高达3298亿元，意味着“先头部队”之后，还有更多现金红包将会陆续派发。
 
-张敏介绍，除了郑州北龙湖的天鹅，每年来到三门峡市栖息越冬的白天鹅已超过1.6万只，“这些都是美丽河南建设的生动画面”。
+各行业中，银行业的分红在A股各行业中位居前列。
 
 ## 相关推荐
 
-- 2026-06-29 16:37 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 16:43 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 16:47 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 16:41 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 16:33 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 16:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 16:59 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-29 16:53 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 16:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 16:38 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 16:34 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 16:41 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 16:57 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 16:49 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 16:58 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 16:40 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 17:01 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 16:39 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 16:56 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 16:36 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 16:43 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 16:56 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:43 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/51008.shtml)
-- 2026-06-29 16:54 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/8552075533.shtml)
-- 2026-06-29 16:36 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/56540872.shtml)
-- 2026-06-29 16:40 - [舒行钢任湖南省交通运输厅厅长](http://www.share.kurohicncr.top/Article/details/61391289.shtml)
-- 2026-06-29 16:31 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/0837585.shtml)
-- 2026-06-29 16:37 - [工作靠AI算不算职场作弊](https://www.share.minike.top/Article/details/014294352641.shtml)
-- 2026-06-29 16:57 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/8389862641.shtml)
-- 2026-06-29 16:33 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/48136.shtml)
-- 2026-06-29 16:55 - [毒液2](https://www.blog.kurohicncr.top/Article/details/7970184.shtml)
-- 2026-06-29 16:40 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/8283059.shtml)
-- 2026-06-29 16:32 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/703230195152.shtml)
-- 2026-06-29 16:34 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/233754547948.shtml)
-- 2026-06-29 16:45 - [7款商保创新药“转道”](http://www.share.minike.top/Article/details/381726013528.shtml)
-- 2026-06-29 16:42 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/5753067459.shtml)
-- 2026-06-29 16:32 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/83503.shtml)
+- 2026-06-29 17:01 - [众星恭喜吴建豪](https://www.blog.kurohicncr.top/Article/details/6656035.shtml)
+- 2026-06-29 16:56 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/718807.shtml)
+- 2026-06-29 16:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/61660614.shtml)
+- 2026-06-29 16:50 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/2750886.shtml)
+- 2026-06-29 16:46 - [12所大学更正招生目录](https://www.blog.minike.top/Article/details/561383694003.shtml)
+- 2026-06-29 16:53 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/111343286894.shtml)
+- 2026-06-29 16:57 - [媒体：中国田径压力与期待并存](http://www.blog.kurohicncr.top/Article/details/602574105881.shtml)
+- 2026-06-29 16:40 - [斛珠夫人](https://www.share.minike.top/Article/details/202875043474.shtml)
+- 2026-06-29 16:56 - [扬名立万](https://www.share.minike.top/Article/details/38260132089.shtml)
+- 2026-06-29 16:51 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/8170331453.shtml)
+- 2026-06-29 16:52 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.minike.top/Article/details/34491.shtml)
+- 2026-06-29 16:45 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/3807973762.shtml)
+- 2026-06-29 16:55 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/846366895.shtml)
+- 2026-06-29 16:37 - [BB大王横店拍戏](http://www.share.kurohicncr.top/Article/details/74224.shtml)
+- 2026-06-29 16:57 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/822302689.shtml)

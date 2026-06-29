@@ -1,58 +1,58 @@
-# 申万宏源：建滔积层板首予“增持”评级 厚植一体化护城河
+# 尾盘：美股继续下滑 纳指下跌320点
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-申万宏源发布研报称，建滔积层板（01888）盈利能力或将大幅提升，该行预计2026-2028年公司分别实现营收268、356、383亿港元，对应综合毛利率分别为30%、31%、32%，其中毛利率假设主要基于公司逐步提价以及产品结构升级，预计2026-2028年公司实现归母净利润46.2、66.6、75.4亿港元，对应估值分别为37、26、23倍。公司估值低于可比公司，但考虑不同
+北京时间5月19日晚，美股周一尾盘继续下滑，纳指下跌约320点。交易员正密切关注油价与债券收益率，同时等待中东冲突的进一步进展。本周将迎来繁忙的财报季，英伟达领衔众多企业公布业绩。 道指跌83.72点，跌幅为0.17%，报49442.45点；纳指跌318.85点，跌幅为1.22%，报25906.29点；标普500指数跌45.14点，跌幅为0.61%，报7363.36点。 本周将
 
 ## 正文
 
-申万宏源发布研报称，建滔积层板（01888）盈利能力或将大幅提升，该行预计2026-2028年公司分别实现营收268、356、383亿港元，对应综合毛利率分别为30%、31%、32%，其中毛利率假设主要基于公司逐步提价以及产品结构升级，预计2026-2028年公司实现归母净利润46.2、66.6、75.4亿港元，对应估值分别为37、26、23倍。
+北京时间5月19日晚，美股周一尾盘继续下滑，纳指下跌约320点。
 
-公司估值低于可比公司，但考虑不同市场的估值差异，该行以谨慎性原则，首次覆盖，给予公司“增持”评级。
+交易员正密切关注油价与债券收益率，同时等待中东冲突的进一步进展。
 
-申万宏源主要观点如下： 产业链一体化建设的全球CCL头部企业，迎来三重转变机遇 建滔积层板是全球最大的刚性覆铜板销售企业，占据2024年全球销售额14.4%。
+本周将迎来繁忙的财报季，英伟达领衔众多企业公布业绩。
 
-公司具备行业稀缺的产业链一体化布局优势，覆铜板上游的铜箔、玻纤、树脂、填料等均具备资产能力；其母公司建滔集团（00148）则是PCB的核心供应商。
+道指跌83.72点，跌幅为0.17%，报49442.45点；纳指跌318.85点，跌幅为1.22%，报25906.29点；标普500指数跌45.14点，跌幅为0.61%，报7363.36点。
 
-在AI需求驱动的原材料涨价周期中，公司当前正处于“传统CCL多次提价修复利润，AI-CCL高端材料成长重估，从CCL头部企业向AI电子布领先供应商转型”的三重转变阶段。
+本周将迎来繁忙的财报季，英伟达领衔众多企业公布业绩。
 
-三重转变对公司的盈利预期与估值水平均有深刻影响，资本市场正处在对公司深刻转变的认知过程中。
+除科技巨头外，零售巨头塔吉特和沃尔玛也将陆续发布财报。
 
-传统业务周期拐点，传统CCL多轮提价修复盈利 CCL在PCB产业链格局较分散，盈利能力在过去弱于下游PCB与上游材料板块，提价难度也相对高于产业链其他环节。
+市场关注英伟达的业绩能否支撑当前人工智能驱动的涨势，同时密切追踪零售商在通胀环境下的消费需求表现。
 
-2025年以来，需求推动下行业逐步落实CCL提价规划，传统CCL盈利能力迎来重估。
+地缘政治风险与财报季的叠加效应使投资者情绪趋于谨慎。
 
 ## 相关推荐
 
-- 2026-06-29 16:44 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 16:40 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 16:55 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 16:30 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 16:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 16:51 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 16:34 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 16:32 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 16:33 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 16:48 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 16:37 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 16:54 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 16:36 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 16:54 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 16:49 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 16:45 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 17:04 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 16:48 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 16:47 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 16:59 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 16:51 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 16:45 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 16:48 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 16:58 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:46 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/6959232099.shtml)
-- 2026-06-29 16:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/74465.shtml)
-- 2026-06-29 16:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/23271967852.shtml)
-- 2026-06-29 16:51 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/4262379290.shtml)
-- 2026-06-29 16:34 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.minike.top/Article/details/7014403.shtml)
-- 2026-06-29 16:42 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/8293988056.shtml)
-- 2026-06-29 16:46 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/20512069161.shtml)
-- 2026-06-29 16:39 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/757843618.shtml)
-- 2026-06-29 16:31 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/55552511.shtml)
-- 2026-06-29 16:56 - [新能源车能当外接空调用吗](http://www.blog.kurohicncr.top/Article/details/65762165714.shtml)
-- 2026-06-29 16:40 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/20384970.shtml)
-- 2026-06-29 16:36 - [T1 KC](https://www.share.kurohicncr.top/Article/details/8309181017.shtml)
-- 2026-06-29 16:52 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/47450.shtml)
-- 2026-06-29 16:32 - [南昌市委书记调整](https://www.share.minike.top/Article/details/17006942.shtml)
-- 2026-06-29 16:47 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/80569620.shtml)
+- 2026-06-29 16:45 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/3751792.shtml)
+- 2026-06-29 16:53 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/004819784.shtml)
+- 2026-06-29 16:43 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/2736413.shtml)
+- 2026-06-29 16:41 - [小娘惹](http://www.share.minike.top/Article/details/283121276898.shtml)
+- 2026-06-29 17:00 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/1129510.shtml)
+- 2026-06-29 16:37 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/0171686.shtml)
+- 2026-06-29 16:50 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/2769163.shtml)
+- 2026-06-29 16:50 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/41345.shtml)
+- 2026-06-29 16:38 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/6748495471.shtml)
+- 2026-06-29 16:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/2705388.shtml)
+- 2026-06-29 16:46 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/53290411.shtml)
+- 2026-06-29 17:01 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/3531884.shtml)
+- 2026-06-29 16:57 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/30929.shtml)
+- 2026-06-29 17:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/16885559504.shtml)
+- 2026-06-29 16:42 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/77291.shtml)

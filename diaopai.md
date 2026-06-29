@@ -1,57 +1,56 @@
-# Kohl’s转型成效显现，季度亏损收窄
+# 一球跨越国界！中美青少年在成都以匹克球续写民间友好
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 这家百货连锁企业截至 5 月 2 日的季度亏损为 1400 万美元，去年同期亏损 1500 万美元 凭借同店销售额表现改善，Kohl’s本季度亏损有所收窄。 百货连锁品牌Kohl’s（KSS） 最新季度亏损收窄，同店销售额创下多年新高，标志着公司转型工作稳步落地。 财报显示，截至 5 月 2 日的一季度，公司亏损1400 万美元；去年同期亏
+发布时间：2026年05月18日 12:08 来源：中国新闻网 5月17日，来自美国的朱迪·霍夫罗斯特在四川成都打了一场酣畅淋漓的中美匹克球友谊赛，今年70岁的她仍然身姿矫健，在取得胜利后与搭档拥抱庆祝，脸上洋溢着兴奋的笑容。此次友谊赛，是美国俄勒冈州与中国四川省以体育为纽带、续写跨洋友好情谊、深化两地民间交流的生动互动。 朱迪说，这是她第十一次到访中国，首次到访四川，距她与中
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 这家百货连锁企业截至 5 月 2 日的季度亏损为 1400 万美元，去年同期亏损 1500 万美元 凭借同店销售额表现改善，Kohl’s本季度亏损有所收窄。
+发布时间：2026年05月18日 12:08 来源：中国新闻网 5月17日，来自美国的朱迪·霍夫罗斯特在四川成都打了一场酣畅淋漓的中美匹克球友谊赛，今年70岁的她仍然身姿矫健，在取得胜利后与搭档拥抱庆祝，脸上洋溢着兴奋的笑容。
 
-百货连锁品牌Kohl’s（KSS） 最新季度亏损收窄，同店销售额创下多年新高，标志着公司转型工作稳步落地。
+此次友谊赛，是美国俄勒冈州与中国四川省以体育为纽带、续写跨洋友好情谊、深化两地民间交流的生动互动。
 
-财报显示，截至 5 月 2 日的一季度，公司亏损1400 万美元；去年同期亏损 1500 万美元。
+朱迪说，这是她第十一次到访中国，首次到访四川，距她与中国的初次相遇已有55年。
 
-本季度每股亏损 0.13 美元，低于 FactSet 统计的分析师预期（每股亏损 0.16 美元）。
+1971年，年仅15岁的朱迪作为美国代表团中最年轻的团员，亲历中美“乒乓外交”，见证了体育在两国民间交流中扮演的重要角色。
 
-季度营收同比下滑 1.7%，至 30 亿美元，与市场预期基本持平。
+从此，她便与中国结下不解之缘。
 
-剔除门店增减影响的同店销售额下降 1.1%，优于分析师此前预测的 1.7% 降幅。
-
-首席执行官迈克尔・本德表示，这是公司四年多以来同店销售的最佳表现，小幅下滑源于业务优化调整阶段的正常现象。
-
-他补充道：“此外，公司持续精细化运营，成本管控成效显著，库存结构进一步优化，资产负债表状况也得到改善。
+(记者 吕杨） 责任编辑：【李岩】
 
 ## 相关推荐
 
-- 2026-06-29 16:56 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 16:45 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 16:56 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 16:50 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 16:47 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 16:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 16:46 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 16:31 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 16:52 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 16:35 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 16:38 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 16:39 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 16:47 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 16:58 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 16:42 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 16:46 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 16:37 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 17:05 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 16:43 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 16:45 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 17:02 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 16:36 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 17:00 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 16:47 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 16:37 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:46 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/4094164470.shtml)
-- 2026-06-29 16:45 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/08378.shtml)
-- 2026-06-29 16:41 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/17913863743.shtml)
-- 2026-06-29 16:56 - [端午节加班工资应该怎么算](https://www.share.kurohicncr.top/Article/details/07625564.shtml)
-- 2026-06-29 16:52 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/1469099.shtml)
-- 2026-06-29 16:48 - [一生一世](http://www.share.kurohicncr.top/Article/details/126544.shtml)
-- 2026-06-29 16:56 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/29627.shtml)
-- 2026-06-29 16:42 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/683725604.shtml)
-- 2026-06-29 16:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/773750169.shtml)
-- 2026-06-29 16:34 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/046712220616.shtml)
-- 2026-06-29 16:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/5469675.shtml)
-- 2026-06-29 16:49 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/507623404908.shtml)
-- 2026-06-29 16:59 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/278157126.shtml)
-- 2026-06-29 16:55 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/07497259.shtml)
-- 2026-06-29 16:52 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/55128085801.shtml)
+- 2026-06-29 16:43 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/99910.shtml)
+- 2026-06-29 17:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/261417.shtml)
+- 2026-06-29 17:01 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/6976769264.shtml)
+- 2026-06-29 16:47 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/7383909.shtml)
+- 2026-06-29 16:55 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/13731.shtml)
+- 2026-06-29 17:05 - [T1 KC](http://www.share.minike.top/Article/details/75315654.shtml)
+- 2026-06-29 16:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/4141396828.shtml)
+- 2026-06-29 16:40 - [网友飞机上偶遇肖战](https://www.share.kurohicncr.top/Article/details/651290.shtml)
+- 2026-06-29 16:56 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/5296744019.shtml)
+- 2026-06-29 16:53 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/36703646771.shtml)
+- 2026-06-29 16:43 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/4210822.shtml)
+- 2026-06-29 17:05 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/1594001393.shtml)
+- 2026-06-29 16:51 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/093872.shtml)
+- 2026-06-29 16:56 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/870073.shtml)
+- 2026-06-29 16:41 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/708321892.shtml)

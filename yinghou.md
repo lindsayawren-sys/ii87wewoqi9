@@ -1,59 +1,61 @@
-# 害虫防治企业Rollins宣布CFO交接，Kenneth Krause卸任由William Harkins接棒
+# 国务院就业促进和劳动保护工作领导小组印发通知部署稳岗扩容提质行动
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-害虫防治企业Rollins， Inc．（纽约证券交易所代码：ROL）今日宣布，执行副总裁兼首席财务官Kenneth D． Krause将辞职，前往一家非相关行业的公司任职，该决定自2026年6月15日起生效。为确保平稳过渡，Krause已同意签署过渡服务协议，在交接期内继续为公司提供咨询服务。公司同时宣布，现任首席会计官William W． Harkins已被推选为执行副总裁兼
+中新网5月18日电 据人力资源和社会保障部网站消息，日前，国务院就业促进和劳动保护工作领导小组印发《稳岗扩容提质行动方案》(以下简称《方案》)，以推动高质量发展为目标，以实施就业优先战略为引领，以加强人力资源开发利用为主线，完善政策扶持，优化服务支撑，全力促进高校毕业生、农民工、退役军人等重点群体就业创业。《方案》指出，稳定制造业、建筑业、住宿餐饮业等行业用工规模。实施制造业重
 
 ## 正文
 
-害虫防治企业Rollins， Inc．（纽约证券交易所代码：ROL）今日宣布，执行副总裁兼首席财务官Kenneth D． Krause将辞职，前往一家非相关行业的公司任职，该决定自2026年6月15日起生效。
+中新网5月18日电 据人力资源和社会保障部网站消息，日前，国务院就业促进和劳动保护工作领导小组印发《稳岗扩容提质行动方案》(以下简称《方案》)，以推动高质量发展为目标，以实施就业优先战略为引领，以加强人力资源开发利用为主线，完善政策扶持，优化服务支撑，全力促进高校毕业生、农民工、退役军人等重点群体就业创业。
 
-为确保平稳过渡，Krause已同意签署过渡服务协议，在交接期内继续为公司提供咨询服务。
+《方案》指出，稳定制造业、建筑业、住宿餐饮业等行业用工规模。
 
-公司同时宣布，现任首席会计官William W． Harkins已被推选为执行副总裁兼首席财务官，同样于6月15日正式上任。
+实施制造业重点产业链高质量发展行动，培育中小企业特色产业集群、建设特色产业园区，扩大中西部和东北地区就业空间。
 
-自2022年加入Rollins以来，Krause对公司现代化进程、资本结构优化及投资者透明度提升做出了重要贡献，并主导了多项关键资本市场交易。
+培育现代化建筑产业链，高质量开展城市更新，有序推进“好房子”建设，创造更多就业机会。
 
-在他的任期内，公司市值增长超过50%，股息自2022年以来增幅超过80%。
+引导住宿行业特色化发展，加快打造主题酒店、度假酒店、特色民宿等多元业态，培育特色餐饮品牌，带动劳动者就业创业。
 
-Rollins总裁兼首席执行官Jerry Gahlhoff表示：“Ken一直是一位杰出的领导者，我们深切感激他为Rollins所做的一切”。
+《方案》强调，挖掘各渠道各领域就业潜力。
 
-接任者Harkins拥有超过二十年的丰富财务与会计领导经验，于2025年3月加入Rollins担任首席会计官。
+聚焦消费领域，打造中国消费名品方阵，开展服务业促就业行动。
 
-在加入Rollins之前，他曾任Mohawk Industries的首席会计官兼财务总监，并在Mars， Incorporated和The Coca-Cola Company担任过领导职务。
+聚焦项目建设，加力推进交通、水利等工程建设，加大以工代赈实施力度。
 
 ## 相关推荐
 
-- 2026-06-29 16:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 16:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 16:45 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 16:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 16:30 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 16:59 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 16:51 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 16:34 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 16:54 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 16:30 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 16:35 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 16:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 16:48 - [T1 KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 16:44 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 16:39 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 16:51 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 16:50 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 16:57 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 17:00 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 17:02 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 16:59 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 16:42 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 16:43 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 17:02 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 16:58 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 16:38 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 17:02 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 17:01 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:59 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/597538004344.shtml)
-- 2026-06-29 16:37 - [当我回母校教书](https://www.share.minike.top/Article/details/6784359.shtml)
-- 2026-06-29 16:37 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/93970.shtml)
-- 2026-06-29 16:30 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/178729759369.shtml)
-- 2026-06-29 16:59 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/2056303348.shtml)
-- 2026-06-29 16:50 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/887622478.shtml)
-- 2026-06-29 16:56 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/76781219.shtml)
-- 2026-06-29 16:43 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/4420227145.shtml)
-- 2026-06-29 16:38 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/4203642343.shtml)
-- 2026-06-29 16:44 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/4750302.shtml)
-- 2026-06-29 16:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/2792500077.shtml)
-- 2026-06-29 16:58 - [男孩复读一年减重20斤涨分111分](https://www.share.kurohicncr.top/Article/details/40534.shtml)
-- 2026-06-29 16:50 - [这一刀 会很帅](http://www.share.minike.top/Article/details/75978752825.shtml)
-- 2026-06-29 16:57 - [黄金也扛不住了](http://www.share.minike.top/Article/details/31054844.shtml)
-- 2026-06-29 16:31 - [小娘惹](https://www.share.minike.top/Article/details/582228487801.shtml)
+- 2026-06-29 16:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/4753140361.shtml)
+- 2026-06-29 17:05 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/6129754.shtml)
+- 2026-06-29 17:03 - [沙丘](https://www.share.kurohicncr.top/Article/details/744316.shtml)
+- 2026-06-29 16:40 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/80683828593.shtml)
+- 2026-06-29 16:39 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/38422242.shtml)
+- 2026-06-29 16:48 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/6851635917.shtml)
+- 2026-06-29 16:50 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/376620261.shtml)
+- 2026-06-29 16:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/925785.shtml)
+- 2026-06-29 17:02 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/1280007.shtml)
+- 2026-06-29 16:55 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/224413429.shtml)
+- 2026-06-29 16:38 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/9389404.shtml)
+- 2026-06-29 16:44 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/8711101929.shtml)
+- 2026-06-29 17:04 - [波兰创该国高温纪录](https://www.share.kurohicncr.top/Article/details/25595073.shtml)
+- 2026-06-29 16:50 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.kurohicncr.top/Article/details/8503215.shtml)
+- 2026-06-29 16:49 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/8602262850.shtml)

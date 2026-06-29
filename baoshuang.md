@@ -1,57 +1,61 @@
-# 全球首个房地产经纪人智能体“易居・小新”登场！易居中国周忻解锁AI“无佣模式”
+# 员工持股，三天清仓！002081，跌停
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-专题：深度智联AI+不动产生态大会暨2026新品发布会 “深度智联AI+不动产生态大会暨2026新品发布会”于2026年5月27日在上海举办，大会主题为“走进那扇门：不动产的模数共振”，聚焦AI技术在房产开发、银发人居、住房租赁、物业服务等泛地产行业的创新应用。 大会重磅推出全球首个房地产经纪人智能体“易居・小新”，克而瑞深度智联首席科学家伊人表示，本次推出的房产经纪人智能体，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】今天A股有惊无险 中国基金报记者 泰勒 大家好啊，今天A股市场有惊无险。在外围市场集体跳水的情况，A股主要指数盘中一度回落，但临近收盘，又集体拉升，最后小幅收跌。 一起看看发生了什么事情。 5月18日，A股市场全天缩量调整，主要指数集体下挫。截至收盘，沪指跌0.09%，深成指跌0.
 
 ## 正文
 
-专题：深度智联AI+不动产生态大会暨2026新品发布会 “深度智联AI+不动产生态大会暨2026新品发布会”于2026年5月27日在上海举办，大会主题为“走进那扇门：不动产的模数共振”，聚焦AI技术在房产开发、银发人居、住房租赁、物业服务等泛地产行业的创新应用。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-大会重磅推出全球首个房地产经纪人智能体“易居・小新”，克而瑞深度智联首席科学家伊人表示，本次推出的房产经纪人智能体，核心只为解决一个行业关键问题：“AI在房产领域如何做到从回答一个问题到推进一笔交易。
+来源：中国基金报 【导读】今天A股有惊无险 中国基金报记者 泰勒 大家好啊，今天A股市场有惊无险。
 
-”区别于市面仅能基础问答的房产AI工具，易居·小新立足一线经纪人真实工作场景，提炼行业高价值工作能力，打造出四大核心服务体系，即“四扇门”：专业参谋、精准匹配、顺畅沟通、服务陪伴。
+在外围市场集体跳水的情况，A股主要指数盘中一度回落，但临近收盘，又集体拉升，最后小幅收跌。
 
-伊人总结，易居·小新精准破解行业消息差大、匹配低效、沟通断裂、AI只答疑不落地、经纪人能力参差不齐等痛点。
+一起看看发生了什么事情。
 
-产品定位实现三重升级，既是专业房产经纪人智能体，也是交易执行任务系统，更是行业从简单撮合到全周期陪伴服务的全新升级。
+5月18日，A股市场全天缩量调整，主要指数集体下挫。
 
-目前该产品已正式开启内测，持续迭代成长。
+截至收盘，沪指跌0.09%，深成指跌0.2%，创业板指跌0.36%。
 
-而易居·小新的内测上线也代表着“易居无佣模式“的开启，它正在探索全球首个中立型房产经纪人智能体的全新商业模式。
+两市共2375只个股上涨，102只个股涨停，3003只个股下跌。
 
-易居中国董事局主席，克而瑞深度智联董事长周忻在发布中表示，自己去年叫停相关业务并非技术难题，而是受制于行业畸形流程：“中国房地产中介服务的流程是超长的，我解不开整个房地产的流程。
+油气、煤炭板块走强，中油工程、辽宁能源、新大洲A涨停。
 
 ## 相关推荐
 
-- 2026-06-29 16:31 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 16:53 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 16:40 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 16:32 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 16:38 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 16:35 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 16:36 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 16:36 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 16:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 16:38 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 16:43 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 17:00 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 16:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 16:46 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 16:43 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 16:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 16:55 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 16:48 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-29 16:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 16:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 16:42 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 16:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 17:04 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 16:57 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 16:50 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 16:41 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:50 - [税务总局披露5起合规申报个税案例](https://www.share.kurohicncr.top/Article/details/808057398421.shtml)
-- 2026-06-29 16:36 - [乔家的儿女](https://www.blog.minike.top/Article/details/308188915.shtml)
-- 2026-06-29 16:56 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/3986040.shtml)
-- 2026-06-29 16:30 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/913761229.shtml)
-- 2026-06-29 16:55 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/0993882575.shtml)
-- 2026-06-29 16:57 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/95796355.shtml)
-- 2026-06-29 16:53 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/872724.shtml)
-- 2026-06-29 16:55 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/981340306.shtml)
-- 2026-06-29 16:58 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/579182959.shtml)
-- 2026-06-29 16:49 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/48802420.shtml)
-- 2026-06-29 16:31 - [极限挑战第一季](http://www.blog.minike.top/Article/details/87403844309.shtml)
-- 2026-06-29 16:54 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/17937.shtml)
-- 2026-06-29 16:50 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/80018280.shtml)
-- 2026-06-29 16:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/277894292.shtml)
-- 2026-06-29 16:46 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/01043268182.shtml)
+- 2026-06-29 17:00 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/2411356377.shtml)
+- 2026-06-29 17:05 - [扫黑风暴](https://www.blog.minike.top/Article/details/82751463386.shtml)
+- 2026-06-29 16:51 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/50399814433.shtml)
+- 2026-06-29 17:00 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/4037048.shtml)
+- 2026-06-29 16:39 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/10057423560.shtml)
+- 2026-06-29 17:00 - [急先锋](https://www.blog.kurohicncr.top/Article/details/3665269779.shtml)
+- 2026-06-29 16:47 - [博主：AI泡沫必须破灭](https://www.blog.minike.top/Article/details/519403867.shtml)
+- 2026-06-29 16:47 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/90487143.shtml)
+- 2026-06-29 16:53 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/1655827605.shtml)
+- 2026-06-29 16:59 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/07298.shtml)
+- 2026-06-29 16:37 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/465595543.shtml)
+- 2026-06-29 16:58 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/507591670.shtml)
+- 2026-06-29 16:46 - [把古诗里的动作换成加班](http://www.blog.kurohicncr.top/Article/details/62758934.shtml)
+- 2026-06-29 16:55 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/424081.shtml)
+- 2026-06-29 17:02 - [首尔商铺禁止洪明甫入内](https://www.blog.minike.top/Article/details/65327420943.shtml)

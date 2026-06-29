@@ -1,56 +1,52 @@
-# KKR将开设米兰办事处 进一步深化在意大利的业务布局
+# 日经指数上涨0.7% 受金融和建筑股领涨提振
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-KKR & Co 周四表示，将在米兰开设办事处。此前，这家美国私募股权公司已在电信和能源领域进行了大量投资，目前正寻求扩大其在意大利的业务版图 。 过去两年间，由KKR牵头的财团以190亿欧元（合220亿美元）收购了意大利电信（Telecom Italia）旗下的固定电话网络，同时KKR还以约36亿欧元入股了埃尼集团（Eni）旗下生物燃料子公司Enilive，持股比例为30%。
+日本股市早盘走高，得益于人们对美伊可能达成结束战争的协议抱有持续希望。 日经指数上涨0.7%，至61235.36点。 金融和建筑类股领涨。瑞穗金融集团上涨4.1%，Kajima上涨3.9%。投资者正关注中东局势的发展，以及日本政府和企业为应对能源和其他产品短缺而采取的任何措施。责任编辑：王永生
 
 ## 正文
 
-KKR & Co 周四表示，将在米兰开设办事处。
+日本股市早盘走高，得益于人们对美伊可能达成结束战争的协议抱有持续希望。
 
-此前，这家美国私募股权公司已在电信和能源领域进行了大量投资，目前正寻求扩大其在意大利的业务版图 。
+日经指数上涨0.7%，至61235.36点。
 
-过去两年间，由KKR牵头的财团以190亿欧元（合220亿美元）收购了意大利电信（Telecom Italia）旗下的固定电话网络，同时KKR还以约36亿欧元入股了埃尼集团（Eni）旗下生物燃料子公司Enilive，持股比例为30%。
+金融和建筑类股领涨。
 
-该公司在一份声明中表示，新办公室将负责KKR在意大利的私募股权、实物资产、信贷和保险业务，以及其私人财富管理业务。
+瑞穗金融集团上涨4.1%，Kajima上涨3.9%。
 
-该办公室将由KKR基础设施团队合伙人马尔科·丰塔纳（Marco Fontana）领导。
+投资者正关注中东局势的发展，以及日本政府和企业为应对能源和其他产品短缺而采取的任何措施。
 
-私募股权团队董事尼科洛·德拉·卡萨（Nicolo Della Casa）将负责领导该公司在意大利的私募股权业务。
-
-责任编辑：刘明亮
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 16:44 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 16:59 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 16:48 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 16:51 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 16:53 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 16:39 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 16:43 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 16:40 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 16:41 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 16:59 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 16:41 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 16:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 17:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 16:45 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 16:59 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 16:45 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 16:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 16:56 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 16:59 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 16:40 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 16:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 16:46 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/9920631556.shtml)
-- 2026-06-29 16:42 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/44580.shtml)
-- 2026-06-29 16:41 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/7084179602.shtml)
-- 2026-06-29 16:55 - [人类对空调和其他家电有多双标](http://www.share.minike.top/Article/details/054071061066.shtml)
-- 2026-06-29 16:56 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/32842.shtml)
-- 2026-06-29 16:54 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/20083943.shtml)
-- 2026-06-29 16:30 - [T1 KC](https://www.share.minike.top/Article/details/05238147.shtml)
-- 2026-06-29 16:51 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/43051522.shtml)
-- 2026-06-29 16:40 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/0072267.shtml)
-- 2026-06-29 16:54 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/779771513306.shtml)
-- 2026-06-29 16:44 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/2882377.shtml)
-- 2026-06-29 16:30 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/990228168393.shtml)
-- 2026-06-29 16:42 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/59919816.shtml)
-- 2026-06-29 16:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/5865635.shtml)
-- 2026-06-29 16:45 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/18076773413.shtml)
+- 2026-06-29 17:05 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/042041397.shtml)
+- 2026-06-29 17:04 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/71179009.shtml)
+- 2026-06-29 16:59 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/885971983.shtml)
+- 2026-06-29 16:52 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/97660.shtml)
+- 2026-06-29 16:37 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/43641.shtml)
+- 2026-06-29 17:05 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/67086440100.shtml)
+- 2026-06-29 16:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/1301422.shtml)
+- 2026-06-29 16:43 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/362912.shtml)
+- 2026-06-29 16:44 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/798280854.shtml)
+- 2026-06-29 16:41 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/9441570369.shtml)
+- 2026-06-29 16:37 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/2267827976.shtml)
+- 2026-06-29 16:44 - [爸爸当家](http://www.share.minike.top/Article/details/70735.shtml)
+- 2026-06-29 16:55 - [端午节加班工资应该怎么算](https://www.share.minike.top/Article/details/738318558.shtml)
+- 2026-06-29 16:38 - [世界杯看到肖战了](http://www.share.kurohicncr.top/Article/details/10763068.shtml)
+- 2026-06-29 16:45 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/257602.shtml)

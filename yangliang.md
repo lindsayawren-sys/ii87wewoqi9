@@ -1,56 +1,58 @@
-# 国防部：“新型军国主义”大有成为东亚“祸乱”之势
+# 福田深通拟吸收合并宝安桂银，“村并村”背后：两城商行退出，深圳农商行进场
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-中新社北京5月28日电 (记者 郭超凯)中国国防部28日举行例行记者会。针对美日近期在西南诸岛开展联合军演，国防部新闻发言人蒋斌在会上表示，日本右翼势力在军事安全领域不断危险冒进、试探挑衅，“新型军国主义”大有成为东亚“祸乱”之势。会上有记者提问，据报道，美日近期在西南诸岛开展联合军演，距台湾仅110公里并设联合指挥中心。日防卫大臣直言此举意在强化区域威慑与应急作战能力。请问对
+界面新闻记者 | 何柳颖 界面新闻编辑 | 王姝 靴子落地！ 5月18日，市场关注已久的深圳宝安桂银村镇银行（下称“宝安桂银”）吸收合并一事迎来最新进展，公告显示，吸收方为深圳福田深通村镇银行（下称“福田深通”），而深圳农商行于近日收购了福田深通75%的股份。 近段时间以来，“村并村”、“村改支”等村镇银行改革案例持续涌现。在政策指引下，我国村镇银行改革正迈入减量提质、强化主责
 
 ## 正文
 
-中新社北京5月28日电 (记者 郭超凯)中国国防部28日举行例行记者会。
+界面新闻记者 | 何柳颖 界面新闻编辑 | 王姝 靴子落地！
 
-针对美日近期在西南诸岛开展联合军演，国防部新闻发言人蒋斌在会上表示，日本右翼势力在军事安全领域不断危险冒进、试探挑衅，“新型军国主义”大有成为东亚“祸乱”之势。
+5月18日，市场关注已久的深圳宝安桂银村镇银行（下称“宝安桂银”）吸收合并一事迎来最新进展，公告显示，吸收方为深圳福田深通村镇银行（下称“福田深通”），而深圳农商行于近日收购了福田深通75%的股份。
 
-会上有记者提问，据报道，美日近期在西南诸岛开展联合军演，距台湾仅110公里并设联合指挥中心。
+近段时间以来，“村并村”、“村改支”等村镇银行改革案例持续涌现。
 
-日防卫大臣直言此举意在强化区域威慑与应急作战能力。
+在政策指引下，我国村镇银行改革正迈入减量提质、强化主责的“深水区”。
 
-请问对此有何评论？
+“百亿级”吸收合并 5月18日，界面新闻记者留意到，宝安桂银发布公告称，经福田深通（吸收方，注册资本40000万元）和宝安桂银（被吸收方，注册资本71066.4万元）内部决策机构审议通过，福田深通拟吸收合并宝安桂银，并将宝安桂银改建设立为福田深通的分支机构。
 
-蒋斌表示，中方一贯主张，有关国家间军事合作不应针对第三方或损害第三方利益，不应破坏地区和平稳定。
+公告称，本次吸收合并尚待监管部门核准实施。
 
-日本右翼势力在军事安全领域不断危险冒进、试探挑衅，“新型军国主义”大有成为东亚“祸乱”之势。
+本次吸收合并完成后，吸收方注册资本保持不变，被吸收方将解散并注销法人资格，被吸收方全部业务、财产、债权债务及其他一切权利义务由吸收方承继，被吸收方原有客户可在被吸收方原有网点继续办理相关业务，债权人的合法权益不受影响，产品服务不会中断，被吸收方已经合法订立的合同依然有效。
 
-所有爱好和平的人们都不应放任日本倒行逆施，让其破坏和平、为祸世界。
+被吸收方宝安桂银成立于2011年，当时由桂林银行主发起，并由深圳市宝安区投资管理集团有限公司、深圳市中跃投资有限公司等七家企业出资成立，总部设在深圳宝安中心区。
 
 ## 相关推荐
 
-- 2026-06-29 16:55 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 16:35 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 16:56 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 16:33 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 16:58 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 16:59 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 16:43 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 16:54 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 16:30 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 16:46 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 16:45 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 16:48 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 16:39 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 16:54 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 16:36 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 16:36 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 16:55 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 16:50 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 16:48 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 16:59 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 17:01 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 16:46 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:49 - [舒行钢任湖南省交通运输厅厅长](https://www.share.minike.top/Article/details/16384479097.shtml)
-- 2026-06-29 16:34 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/58056.shtml)
-- 2026-06-29 16:45 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/248747731747.shtml)
-- 2026-06-29 16:43 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/822217682431.shtml)
-- 2026-06-29 16:53 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/8088214.shtml)
-- 2026-06-29 16:35 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/2464868.shtml)
-- 2026-06-29 16:33 - [5万块的威力](http://www.blog.minike.top/Article/details/23720804.shtml)
-- 2026-06-29 16:45 - [欧洲多国激辩“装不装空调”](https://www.blog.kurohicncr.top/Article/details/364508207.shtml)
-- 2026-06-29 16:38 - [普京承认俄出现燃料危机](https://www.share.kurohicncr.top/Article/details/988193.shtml)
-- 2026-06-29 16:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/873289.shtml)
-- 2026-06-29 16:49 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/047109758.shtml)
-- 2026-06-29 16:59 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/198487109607.shtml)
-- 2026-06-29 16:56 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/69475579715.shtml)
-- 2026-06-29 16:36 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/8333285.shtml)
-- 2026-06-29 16:49 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/45028.shtml)
+- 2026-06-29 16:44 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/473326610049.shtml)
+- 2026-06-29 17:04 - [女心理师](https://www.share.kurohicncr.top/Article/details/4086074604.shtml)
+- 2026-06-29 16:39 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/3566015051.shtml)
+- 2026-06-29 17:04 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/14493576238.shtml)
+- 2026-06-29 16:50 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.share.kurohicncr.top/Article/details/837773479675.shtml)
+- 2026-06-29 16:55 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/745318.shtml)
+- 2026-06-29 16:48 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/883202.shtml)
+- 2026-06-29 16:37 - [张雪机车杀向海外](http://www.blog.kurohicncr.top/Article/details/51085945760.shtml)
+- 2026-06-29 16:54 - [媒体：中国田径压力与期待并存](http://www.blog.kurohicncr.top/Article/details/20439379.shtml)
+- 2026-06-29 16:42 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/20322264.shtml)
+- 2026-06-29 16:37 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/09931342681.shtml)
+- 2026-06-29 16:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/09965377.shtml)
+- 2026-06-29 16:41 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/3206431018.shtml)
+- 2026-06-29 16:50 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/1502137.shtml)
+- 2026-06-29 16:55 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/41249796950.shtml)

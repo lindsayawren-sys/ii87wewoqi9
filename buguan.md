@@ -1,56 +1,61 @@
-# Mhmarkets迈汇:金银震荡等待数据
+# 特朗普警告伊朗“时钟正滴答作响”
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-5月28日，隔夜贵金属市场在美元与收益率变化中重新定价，黄金从高位回落后靠近关键支撑区域。Investing.com黄金页面5月28日实时行情显示，黄金期货在4417至4420美元附近，日内跌幅约1.36%至1.44%，当日波动区间约4416.55至4497.20美元。页面新闻列表显示，黄金在亚洲时段回落，美元和原油走强压制短线表现。Mhmarkets迈汇表示，金价短线并非单一
+新华社华盛顿5月17日电美国总统特朗普17日再次向伊朗发出警告称，“时钟正滴答作响”，如果伊朗不拿出一份更好的协议方案，“他们将遭受比之前猛烈得多的打击”。 特朗普当天在接受美国阿克西奥斯新闻网站电话采访时说，他认为伊朗仍想要达成协议，他正等待伊朗拿出新的方案，希望伊朗新方案比几天前提交的上一份方案要好，但他拒绝透露与伊朗谈判的具体截止日期。 “我们想达成协议，但他们（伊朗方案
 
 ## 正文
 
-5月28日，隔夜贵金属市场在美元与收益率变化中重新定价，黄金从高位回落后靠近关键支撑区域。
+新华社华盛顿5月17日电美国总统特朗普17日再次向伊朗发出警告称，“时钟正滴答作响”，如果伊朗不拿出一份更好的协议方案，“他们将遭受比之前猛烈得多的打击”。
 
-Investing.com黄金页面5月28日实时行情显示，黄金期货在4417至4420美元附近，日内跌幅约1.36%至1.44%，当日波动区间约4416.55至4497.20美元。
+特朗普当天在接受美国阿克西奥斯新闻网站电话采访时说，他认为伊朗仍想要达成协议，他正等待伊朗拿出新的方案，希望伊朗新方案比几天前提交的上一份方案要好，但他拒绝透露与伊朗谈判的具体截止日期。
 
-页面新闻列表显示，黄金在亚洲时段回落，美元和原油走强压制短线表现。
+“我们想达成协议，但他们（伊朗方案）尚未达到我方预期。
 
-Mhmarkets迈汇表示，金价短线并非单一消息驱动，而是避险需求降温、宏观数据偏强与技术位压力共同作用。
+伊朗必须作出让步，否则将遭受猛烈打击，而这并非伊朗所愿。
 
-从盘面结构看，Mhmarkets迈汇认为黄金目前更像是在高位区间内进行压力测试。
+”特朗普说，若伊朗拿不出更好方案，美国对伊朗的打击力度将远超以往，“时钟正滴答作响。
 
-报价仍处于历史相对高位附近，但日内跌幅说明资金对追高更谨慎；白银同步回落，也使贵金属板块的波动率保持偏高。
+伊朗最好迅速行动，否则将一无所有”。
 
-市场数据显示，若金价不能重新站上4550美元附近，短线交易者可能继续围绕4450美元一带观察买盘强度。
+特朗普当天在社交媒体上作出类似表态。
 
-报道中的制造业数据改善，使投资者重新评估后续通胀与利率路径。
+报道援引一名知情人士的话说，特朗普16日在美国弗吉尼亚州一家高尔夫俱乐部会见其国家安全团队成员，讨论了伊朗问题。
 
 ## 相关推荐
 
-- 2026-06-29 16:40 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 16:53 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 16:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 16:50 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 16:42 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 16:48 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 16:32 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 16:46 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 16:46 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 16:55 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 16:52 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 16:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 16:37 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 16:51 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 16:53 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 17:01 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 16:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 16:56 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 16:50 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 16:47 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 16:55 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 17:01 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 16:36 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 16:39 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 16:53 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:53 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/70582677786.shtml)
-- 2026-06-29 16:49 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/2124553.shtml)
-- 2026-06-29 16:49 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/40754412933.shtml)
-- 2026-06-29 16:31 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/9112514499.shtml)
-- 2026-06-29 16:32 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/4543726344.shtml)
-- 2026-06-29 16:48 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/56235.shtml)
-- 2026-06-29 16:30 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/043817.shtml)
-- 2026-06-29 16:47 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/4250087326.shtml)
-- 2026-06-29 16:41 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/86097573.shtml)
-- 2026-06-29 16:46 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/172432569.shtml)
-- 2026-06-29 16:36 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/37587105.shtml)
-- 2026-06-29 16:55 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/71110.shtml)
-- 2026-06-29 16:54 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/2283603187.shtml)
-- 2026-06-29 16:51 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/63981.shtml)
-- 2026-06-29 16:54 - [扬名立万](http://www.blog.minike.top/Article/details/504472874254.shtml)
+- 2026-06-29 16:55 - [中国创新药股价要反攻了吗](http://www.share.minike.top/Article/details/50463592149.shtml)
+- 2026-06-29 16:39 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/220386754.shtml)
+- 2026-06-29 16:54 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/01593352.shtml)
+- 2026-06-29 16:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/45206.shtml)
+- 2026-06-29 16:48 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/06123471015.shtml)
+- 2026-06-29 16:59 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/69141.shtml)
+- 2026-06-29 17:00 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/4038356090.shtml)
+- 2026-06-29 16:42 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/11888637105.shtml)
+- 2026-06-29 16:57 - [一生一世](http://www.share.minike.top/Article/details/110963942042.shtml)
+- 2026-06-29 16:55 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/223466.shtml)
+- 2026-06-29 16:55 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/62157205255.shtml)
+- 2026-06-29 16:55 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/1731581.shtml)
+- 2026-06-29 16:49 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/3866510230.shtml)
+- 2026-06-29 16:58 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/26691109406.shtml)
+- 2026-06-29 16:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/359873.shtml)

@@ -1,57 +1,59 @@
-# 深演智能上市次日涨超48% 公司为“企业决策AI智能体第一股”
+# 年度医保药品目录调整工作启动，恒生创新药ETF华泰柏瑞（520500）单日“吸金”超1.6亿元！
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-深演智能（02723）今日延续上市首日强势，盘中一度涨超65%。最高见335.20港元，较发行价55.5港元累计飙升500%。截至发稿，股价上涨48.57%，现报301.60港元，成交额2.53亿港元。 公开资料显示，深演智能是一家决策AI技术公司，凭借专有的AI应用产品，运用AI技术为企业提供智能营销服务。公司主要通过AlphaDesk和AlphaData的两个旗舰平台，分别
+今日（26/5/18）早盘创新药板块有所回调，但在多重利好催化下，此次调整或为投资者提供了较好的布局窗口期，相关ETF交投火热。从政策端看，2026年医保药品目录调整工作启动并新增“预申报”环节，进一步加快创新药准入；从基本面看，2025年年报显示港股创新药板块首次实现大幅盈利，盈利拐点或立；从数据催化来看，超90项中国研究入选2026 ASCO年会口头报道，中国药企闪耀全球可
 
 ## 正文
 
-深演智能（02723）今日延续上市首日强势，盘中一度涨超65%。
+今日（26/5/18）早盘创新药板块有所回调，但在多重利好催化下，此次调整或为投资者提供了较好的布局窗口期，相关ETF交投火热。
 
-最高见335.20港元，较发行价55.5港元累计飙升500%。
+从政策端看，2026年医保药品目录调整工作启动并新增“预申报”环节，进一步加快创新药准入；从基本面看，2025年年报显示港股创新药板块首次实现大幅盈利，盈利拐点或立；从数据催化来看，超90项中国研究入选2026 ASCO年会口头报道，中国药企闪耀全球可期。
 
-截至发稿，股价上涨48.57%，现报301.60港元，成交额2.53亿港元。
+创新药赛道近期受到资金青睐。
 
-公开资料显示，深演智能是一家决策AI技术公司，凭借专有的AI应用产品，运用AI技术为企业提供智能营销服务。
+Wind及交易所数据显示，当前全市场仅有的跟踪恒生创新药指数的ETF产品——恒生创新药ETF华泰柏瑞（520500）成交额最新（26/5/15）单日资金净流入高达1.61亿元，5月以来资金累计净流入4.91亿元、同期日均成交额8.61亿元。
 
-公司主要通过AlphaDesk和AlphaData的两个旗舰平台，分别提供智能广告投放服务和智能数据管理。
+连续6个交易日的资金净流入助推该ETF最新规模和份额分别达27.18亿元和18.89亿份，双双创历史新高！
 
-此次赴港上市，深演智能在公开发售阶段获得了5480.23倍高倍数认购。
+2026年5月17日，国家医保局宣布启动年度医保药品目录调整工作。
 
-财务方面看，2023至2025年，深演智能的收入分别为6.11亿、5.38亿、5.77亿元，同期的经调整净利润分别为7081.4万、2152万、2486.7万元。
+本次调整首次允许已纳入2025年商业健康保险创新药品目录的药品申报国家医保目录，并新增“预申报”环节，进一步加快创新药准入。
 
-尽管2025年较2024年有所反弹，但无论是收入还是利润，均未能恢复至2023年的高点。
+工作方案预计5月底发布，新版国家医保目录及商保创新药目录将于11月底前正式公布。
 
 ## 相关推荐
 
-- 2026-06-29 16:35 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 16:34 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 16:37 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 16:31 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 16:47 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 16:40 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 16:31 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 16:53 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 16:57 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 16:42 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 16:38 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 16:43 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 16:57 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 16:50 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 16:45 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 16:40 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 16:37 - [欧盟为什么越来越倾向贸易保护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 16:51 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 16:36 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 16:48 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 16:45 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 16:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 16:36 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 16:48 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:33 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/802468965.shtml)
-- 2026-06-29 16:50 - [央视曝光涉黄App诈骗陷阱](https://www.blog.kurohicncr.top/Article/details/26329327.shtml)
-- 2026-06-29 16:32 - [世界杯上那些封神的门将](http://www.blog.kurohicncr.top/Article/details/18143051742.shtml)
-- 2026-06-29 16:55 - [河南考699分女生已接到清华大学电话](https://www.share.minike.top/Article/details/423403749.shtml)
-- 2026-06-29 16:55 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/84878339120.shtml)
-- 2026-06-29 16:50 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/01660581.shtml)
-- 2026-06-29 16:44 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/7549135664.shtml)
-- 2026-06-29 16:46 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/072430746333.shtml)
-- 2026-06-29 16:43 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/0924433732.shtml)
-- 2026-06-29 16:57 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/391429064.shtml)
-- 2026-06-29 16:47 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.minike.top/Article/details/85909659456.shtml)
-- 2026-06-29 16:31 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/1052283.shtml)
-- 2026-06-29 16:50 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/8085156137.shtml)
-- 2026-06-29 16:40 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/66255518.shtml)
-- 2026-06-29 16:52 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/2986614.shtml)
+- 2026-06-29 17:05 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/284237.shtml)
+- 2026-06-29 16:49 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/817879033512.shtml)
+- 2026-06-29 16:44 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/5664254.shtml)
+- 2026-06-29 16:37 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/309065058442.shtml)
+- 2026-06-29 16:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/8495321.shtml)
+- 2026-06-29 16:59 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/5814079808.shtml)
+- 2026-06-29 16:42 - [朱必达辞去湖南人大常委会委员职务](http://www.share.minike.top/Article/details/33215029.shtml)
+- 2026-06-29 17:01 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/064214921.shtml)
+- 2026-06-29 16:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/7398471521.shtml)
+- 2026-06-29 16:50 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/67795004376.shtml)
+- 2026-06-29 16:42 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/049013812.shtml)
+- 2026-06-29 16:57 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/2178005328.shtml)
+- 2026-06-29 17:01 - [南昌市委书记调整](http://www.share.kurohicncr.top/Article/details/92519.shtml)
+- 2026-06-29 16:47 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/856924.shtml)
+- 2026-06-29 16:44 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/4228312.shtml)

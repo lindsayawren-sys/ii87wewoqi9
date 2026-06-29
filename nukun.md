@@ -1,59 +1,61 @@
-# 美官员称美伊谈判代表已就谅解备忘录达成一致
+# 长鑫存储概念多股一字涨停，兆易创新创新高
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-当地时间28日，央视记者获悉，美国与伊朗谈判人员已就一份为期60天的谅解备忘录达成协议框架，拟延长停火并启动围绕伊朗核问题的谈判，但仍需要美国总统特朗普最终批准。 美国官员称协议条款在26日前已基本敲定，但双方仍需获得各自高层批准。美方称，伊朗方面随后表示已获得必要授权并准备签署，但伊朗官方尚未予以证实。 美方官员表示，谈判人员已向特朗普汇报最终协议内容，但他并未立即批准，并表
+专题：业绩炸裂！长鑫存储概念引爆，多股“一字板” 记者丨金珊 编辑丨曾静娇 5月18日，A股早盘低开冲高后回落，四大指数盘中一度集体翻红，截至午间收盘，沪指跌0.22%，深成指跌0.31%，创业板指跌0.5%，科创综指涨1.09%。沪深两市半日成交额1.93万亿元，较上个交易日缩量2420亿元，全市场超3500只个股下跌。 具体板块来看，存储芯片概念强势拉升，同有科技20CM涨
 
 ## 正文
 
-当地时间28日，央视记者获悉，美国与伊朗谈判人员已就一份为期60天的谅解备忘录达成协议框架，拟延长停火并启动围绕伊朗核问题的谈判，但仍需要美国总统特朗普最终批准。
+专题：业绩炸裂！
 
-美国官员称协议条款在26日前已基本敲定，但双方仍需获得各自高层批准。
+长鑫存储概念引爆，多股“一字板” 记者丨金珊 编辑丨曾静娇 5月18日，A股早盘低开冲高后回落，四大指数盘中一度集体翻红，截至午间收盘，沪指跌0.22%，深成指跌0.31%，创业板指跌0.5%，科创综指涨1.09%。
 
-美方称，伊朗方面随后表示已获得必要授权并准备签署，但伊朗官方尚未予以证实。
+沪深两市半日成交额1.93万亿元，较上个交易日缩量2420亿元，全市场超3500只个股下跌。
 
-美方官员表示，谈判人员已向特朗普汇报最终协议内容，但他并未立即批准，并表示“需要几天时间考虑”。
+具体板块来看，存储芯片概念强势拉升，同有科技20CM涨停，兆易创新触及涨停，股价续创历史新高，A+H股总市值一度突破2900亿。
 
-在具体内容方面，该备忘录拟规定霍尔木兹海峡航运“无限制通行”，不设通行费且不得遭到干扰，同时要求伊朗在30天内清除海峡内所有水雷。
+长鑫存储概念多股大涨，合肥城建、合百集团、上峰水泥“一字”涨停，柏诚股份涨停。
 
-此外，美方表示将逐步解除海上封锁。
+消息面上，长鑫科技重启IPO，其最新财务数据显示，公司2026年一季度业绩实现历史性突破。
 
-备忘录还将包含伊朗承诺不发展核武器的内容，并规定60天谈判期内优先讨论伊朗高浓缩铀处置方式及铀浓缩问题。
+油气股盘中走强，贵州燃气封涨停，通源石油涨超10%，首华燃气、科力股份涨近10%。
 
-美国方面则承诺在谈判中讨论对伊朗制裁减免及解冻资金问题，并讨论建立机制帮助伊朗获取物资及人道援助。
+CPO概念反复活跃，华工科技反包涨停，汇绿生态触及涨停。
 
 ## 相关推荐
 
-- 2026-06-29 16:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 16:42 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 16:51 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 16:45 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 16:57 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 16:58 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 16:55 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 16:51 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 16:46 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 16:47 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 16:42 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 16:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 16:50 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 16:52 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 16:36 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 16:42 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 16:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 17:01 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 17:03 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 16:39 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 16:57 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 16:56 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 16:59 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 16:47 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 17:02 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 16:42 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 16:54 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 17:03 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:42 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/2832712451.shtml)
-- 2026-06-29 16:35 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/63045593286.shtml)
-- 2026-06-29 16:51 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/7492966.shtml)
-- 2026-06-29 16:36 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/6207830787.shtml)
-- 2026-06-29 16:47 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/6692301493.shtml)
-- 2026-06-29 16:40 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/5458629.shtml)
-- 2026-06-29 16:58 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/80129775222.shtml)
-- 2026-06-29 16:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/894526487889.shtml)
-- 2026-06-29 16:33 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/475756766270.shtml)
-- 2026-06-29 16:59 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/99421994.shtml)
-- 2026-06-29 16:33 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/6858339.shtml)
-- 2026-06-29 16:37 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/61174.shtml)
-- 2026-06-29 16:53 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/826479772.shtml)
-- 2026-06-29 16:39 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/66611473798.shtml)
-- 2026-06-29 16:40 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/42298274.shtml)
+- 2026-06-29 16:43 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/01044.shtml)
+- 2026-06-29 16:46 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/50360619241.shtml)
+- 2026-06-29 16:39 - [TLAW vs DCG MSI](http://www.share.kurohicncr.top/Article/details/297766.shtml)
+- 2026-06-29 17:02 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/2568631476.shtml)
+- 2026-06-29 16:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/67702085198.shtml)
+- 2026-06-29 16:49 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/440994508235.shtml)
+- 2026-06-29 16:58 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/24043125.shtml)
+- 2026-06-29 17:02 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/976070.shtml)
+- 2026-06-29 16:54 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/9922151100.shtml)
+- 2026-06-29 16:48 - [依法管制阻遏日方军事化危险动向](https://www.share.kurohicncr.top/Article/details/76245.shtml)
+- 2026-06-29 16:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/29570043.shtml)
+- 2026-06-29 16:40 - [沙丘](http://www.share.minike.top/Article/details/950020.shtml)
+- 2026-06-29 16:54 - [爱很美味](https://www.share.kurohicncr.top/Article/details/28771.shtml)
+- 2026-06-29 16:57 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/3785056.shtml)
+- 2026-06-29 16:57 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.kurohicncr.top/Article/details/68111187.shtml)

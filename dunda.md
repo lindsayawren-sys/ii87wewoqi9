@@ -1,58 +1,57 @@
-# 中信建投期货：5月29日能化早报
+# 2026年全球贸易投资促进峰会北京倡议发布
 
-> 更新时间：2026-06-29 17:00:02 UTC+8
+> 更新时间：2026-06-29 17:06:02 UTC+8
 
 ## 摘要
 
-橡胶：预期反转，短期反弹 周四，国产全乳胶 17550/吨，环比上日上涨 150 元/吨；泰国 20 号混合胶 17400 元/吨，环比上日上涨 450 元/吨。 原料端：泰国胶水报收 83.7 泰铢/公斤，环比上日持平；泰国杯胶报收 69.0 泰铢/公斤，环比上日持平；云南胶水报收 16.5 元/公斤，环比上日上涨 0.4 元/公斤；海南胶水报收 16.4元/公斤，环比上日下
+中新社北京5月18日电 (记者 尹倩芸)2026年全球贸易投资促进峰会18日在北京举行。会上，中国贸促会会长任鸿斌代表与会工商界发布《2026年全球贸易投资促进峰会北京倡议》，提出五点倡议。 一是培育新质生产力，拓展全球经济增长新空间。倡议提出，携手培育以科技创新为核心驱动的新质生产力，深化人工智能、量子信息、生物制造等领域研发协作。 二是推动产业链供应链开放合作，构建安全稳定
 
 ## 正文
 
-橡胶：预期反转，短期反弹 周四，国产全乳胶 17550/吨，环比上日上涨 150 元/吨；泰国 20 号混合胶 17400 元/吨，环比上日上涨 450 元/吨。
+中新社北京5月18日电 (记者 尹倩芸)2026年全球贸易投资促进峰会18日在北京举行。
 
-原料端：泰国胶水报收 83.7 泰铢/公斤，环比上日持平；泰国杯胶报收 69.0 泰铢/公斤，环比上日持平；云南胶水报收 16.5 元/公斤，环比上日上涨 0.4 元/公斤；海南胶水报收 16.4元/公斤，环比上日下跌 0.1 元/公斤。
+会上，中国贸促会会长任鸿斌代表与会工商界发布《2026年全球贸易投资促进峰会北京倡议》，提出五点倡议。
 
-截至 2026 年 5 月 24 日，中国天然橡胶社会库存 129.48 万吨，环比下降 2.16 万吨，降幅 1.64%。
+一是培育新质生产力，拓展全球经济增长新空间。
 
-中国深色胶社会总库存为 89.35 万吨，环比降 1.37%。
+倡议提出，携手培育以科技创新为核心驱动的新质生产力，深化人工智能、量子信息、生物制造等领域研发协作。
 
-其中青岛现货库存降0.84%；云南降 1.5%；越南 10 降 4.62%；NR 库存小计降 10.49%。
+二是推动产业链供应链开放合作，构建安全稳定高效畅通的全球产业生态。
 
-中国浅色胶社会总库存为 40.13 万吨，环比降 2.24%。
+倡议强调，坚持“拉手”而不是“松手”，“延链”而不是“断链”，深化产业链供应链国际合作。
 
-其中老全乳胶环比降 2.15%，3L 环比降 11.88%，RU 库存小计增加 0.81%。
+鼓励企业合理有序跨境布局，推动形成多元、稳定、互补的国际产业合作网络。
 
-观点：近期，泰国等东南亚主产区迎来较为持续的降水，预计前期高温少雨对胶树的影响逐步缓解，预计全球产量上量的时间点不会出现超预期的延后。
+三是以人工智能赋能经贸合作，共筑数智化发展新生态。
 
 ## 相关推荐
 
-- 2026-06-29 16:32 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 16:53 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 16:50 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 16:41 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 16:54 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 16:36 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 16:33 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 16:47 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 16:46 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 16:43 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 16:37 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 16:59 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 16:48 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 16:52 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 16:48 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 16:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 17:00 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 16:43 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 16:57 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 17:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 17:04 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 16:37 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 16:55 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:47 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/49687158.shtml)
-- 2026-06-29 16:55 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/627769237358.shtml)
-- 2026-06-29 16:50 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/5344426501.shtml)
-- 2026-06-29 16:35 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/8502474965.shtml)
-- 2026-06-29 16:45 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/240297143.shtml)
-- 2026-06-29 16:39 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/844359479400.shtml)
-- 2026-06-29 16:39 - [大范围炎热天气将至](https://www.share.kurohicncr.top/Article/details/71248.shtml)
-- 2026-06-29 16:56 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/389226131748.shtml)
-- 2026-06-29 16:36 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/58405.shtml)
-- 2026-06-29 16:56 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/1768620.shtml)
-- 2026-06-29 16:52 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/5401821.shtml)
-- 2026-06-29 16:31 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/76069942.shtml)
-- 2026-06-29 16:57 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/86986342.shtml)
-- 2026-06-29 16:56 - [博主：全球股市进入“AI极端共振”](http://www.blog.kurohicncr.top/Article/details/23100.shtml)
-- 2026-06-29 16:41 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/925395615.shtml)
+- 2026-06-29 17:01 - [世界杯上那些封神的门将](http://www.share.minike.top/Article/details/5028956.shtml)
+- 2026-06-29 16:56 - [普京介绍前线战事](http://www.share.minike.top/Article/details/37465298.shtml)
+- 2026-06-29 16:53 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/1085642.shtml)
+- 2026-06-29 17:03 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/80750230630.shtml)
+- 2026-06-29 16:39 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/78877.shtml)
+- 2026-06-29 17:01 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/48603948.shtml)
+- 2026-06-29 16:39 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/64613342442.shtml)
+- 2026-06-29 16:55 - [逆天祖国人](https://www.blog.minike.top/Article/details/67976174248.shtml)
+- 2026-06-29 16:41 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/7903018.shtml)
+- 2026-06-29 17:05 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/74923827.shtml)
+- 2026-06-29 16:41 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/232696169656.shtml)
+- 2026-06-29 17:00 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/76114.shtml)
+- 2026-06-29 16:52 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/0326953320.shtml)
+- 2026-06-29 16:43 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/93956.shtml)
+- 2026-06-29 16:44 - [TFING全员黑西装](https://www.share.minike.top/Article/details/3305918.shtml)
