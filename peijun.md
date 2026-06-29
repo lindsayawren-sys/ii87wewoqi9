@@ -1,52 +1,56 @@
-# AI合成名人形象是否侵权？律师解读丨法律顾问在身边
+# 江西高校里的“宝藏”博物馆：大一新生参与“挖”出新矿物
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月28日 18:40 来源：中国新闻网 近日，社交平台上出现了“库克代言小米”等以假乱真的AI合成图片和视频，引发广泛传播。这些AI合成图片，很多是以“娱乐恶搞”为目的，并非商业广告，是否会构成侵权？不少网友看到这类图片觉得好玩，随手转发到朋友圈或群里，有没有风险？ 对此，北京岳成律师事务所岳运生主任表示，AI合成名人形象，不赚钱也侵权；普通用户转发同样
+中新网南昌6月11日电 题：江西高校里的“宝藏”博物馆：大一新生参与“挖”出新矿物 中新网记者 姜涛 位于江西应用科技学院的刘光华自然遗产博物馆，展示有19公斤重的海蓝宝石“蓝月”、高4.3米的乌拉圭紫水晶晶洞等珍稀矿物标本。更令人惊叹的是，包括该校大一新生在内的一群本科生，在这里参与发现了全新矿物。 不久前，由江西应用科技学院宝石矿物资源学院8名本科生申报的新矿物“氟镁钠闪石
 
 ## 正文
 
-发布时间：2026年04月28日 18:40 来源：中国新闻网 近日，社交平台上出现了“库克代言小米”等以假乱真的AI合成图片和视频，引发广泛传播。
+中新网南昌6月11日电 题：江西高校里的“宝藏”博物馆：大一新生参与“挖”出新矿物 中新网记者 姜涛 位于江西应用科技学院的刘光华自然遗产博物馆，展示有19公斤重的海蓝宝石“蓝月”、高4.3米的乌拉圭紫水晶晶洞等珍稀矿物标本。
 
-这些AI合成图片，很多是以“娱乐恶搞”为目的，并非商业广告，是否会构成侵权？
+更令人惊叹的是，包括该校大一新生在内的一群本科生，在这里参与发现了全新矿物。
 
-不少网友看到这类图片觉得好玩，随手转发到朋友圈或群里，有没有风险？
+不久前，由江西应用科技学院宝石矿物资源学院8名本科生申报的新矿物“氟镁钠闪石”，获得国际矿物学协会新矿物命名与分类委员会批准。
 
-对此，北京岳成律师事务所岳运生主任表示，AI合成名人形象，不赚钱也侵权；普通用户转发同样有风险，不转、即删，才能保护自己。
+这不仅是一份来自国际学术界的认可，也是一所民办高校在基础科学领域突围的生动注脚。
 
-(完） 责任编辑：【吉翔】
+从“矿石小白”到新矿物发现者 去年秋天，张文臣考入江西应用科技学院宝石及材料工艺学专业。
+
+他没想到，进校才两个月，就被选中加入了一个“高难度”的科研项目——参与新矿物的发现与申报。
+
+“其实心里还是比较忐忑的，这些专业知识比较难。
+
+”张文臣坦言。
 
 ## 相关推荐
 
-- 2026-06-30 01:55 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-30 02:08 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 02:14 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 01:59 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 02:18 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 02:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 02:20 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 02:01 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 02:11 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 02:02 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 02:09 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 01:59 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 02:13 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 02:13 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 02:00 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 02:01 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 02:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 02:15 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 02:25 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 02:04 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 02:22 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-30 02:03 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:12 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/2454889.shtml)
-- 2026-06-30 02:13 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/58872889946.shtml)
-- 2026-06-30 02:12 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/8621760615.shtml)
-- 2026-06-30 02:17 - [急先锋](http://www.share.kurohicncr.top/Article/details/290544828061.shtml)
-- 2026-06-30 01:57 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/590802466.shtml)
-- 2026-06-30 02:20 - [日本进球](https://www.share.kurohicncr.top/Article/details/628455052.shtml)
-- 2026-06-30 02:19 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/12644990.shtml)
-- 2026-06-30 02:21 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/2214047.shtml)
-- 2026-06-30 02:04 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/88041.shtml)
-- 2026-06-30 02:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/74056.shtml)
-- 2026-06-30 02:22 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/08078200.shtml)
-- 2026-06-30 01:56 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/601693590.shtml)
-- 2026-06-30 01:58 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/660561037601.shtml)
-- 2026-06-30 02:09 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/53721.shtml)
-- 2026-06-30 02:13 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/0771014.shtml)
+- 2026-06-30 02:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/738389533961.shtml)
+- 2026-06-30 02:14 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/5167861032.shtml)
+- 2026-06-30 02:07 - [日本16强魔咒](https://www.blog.minike.top/Article/details/678167756.shtml)
+- 2026-06-30 02:07 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/638391910.shtml)
+- 2026-06-30 02:16 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/89115027.shtml)
+- 2026-06-30 02:09 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/4731420080.shtml)
+- 2026-06-30 02:25 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/7938128286.shtml)
+- 2026-06-30 02:08 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/745317488742.shtml)
+- 2026-06-30 02:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/03834828215.shtml)
+- 2026-06-30 02:20 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/34497478.shtml)
+- 2026-06-30 02:07 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/27114505.shtml)
+- 2026-06-30 02:03 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/12716.shtml)
+- 2026-06-30 02:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/59895.shtml)
+- 2026-06-30 02:20 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/3294147301.shtml)
+- 2026-06-30 02:24 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/931372.shtml)

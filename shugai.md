@@ -1,59 +1,47 @@
-# 榴莲价格腰斩，还能再降！
+# 特朗普告诉众议院议长 他接近确定情报总监正式人选
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新经纬4月29日电 (闫淑鑫)近日，榴莲降价的消息引发关注。社交平台上，不少网友称榴莲价格便宜，“不到100元能买到一个5斤左右的”“回家路上看到18.9元/斤，立马买了一个”，还有人称“9.9元/斤指日可待”。 今年的“榴莲自由”为何来得那么早？榴莲价格还会更低吗？ 批发价跌破“2”字头 今年的榴莲有多便宜？ 北京新发地官网数据显示，4月20日，泰国金枕榴莲的批发均价为27
+美国众议院议长迈克·约翰逊表示，总统特朗普在过去一小时内告诉他，他接近确定国家情报总监办公室负责人的正式人选。 约翰逊向记者作出上述表态，此前众议院否决了特朗普延长监控权限的要求。责任编辑：丁文武
 
 ## 正文
 
-中新经纬4月29日电 (闫淑鑫)近日，榴莲降价的消息引发关注。
+美国众议院议长迈克·约翰逊表示，总统特朗普在过去一小时内告诉他，他接近确定国家情报总监办公室负责人的正式人选。
 
-社交平台上，不少网友称榴莲价格便宜，“不到100元能买到一个5斤左右的”“回家路上看到18.9元/斤，立马买了一个”，还有人称“9.9元/斤指日可待”。
+约翰逊向记者作出上述表态，此前众议院否决了特朗普延长监控权限的要求。
 
-今年的“榴莲自由”为何来得那么早？
-
-榴莲价格还会更低吗？
-
-批发价跌破“2”字头 今年的榴莲有多便宜？
-
-北京新发地官网数据显示，4月20日，泰国金枕榴莲的批发均价为27元/斤，越南金枕榴莲批发均价24元/斤，越南干尧榴莲批发均价20元/斤。
-
-其中，泰国金枕榴莲的批发均价同比降21.7%，越南干尧榴莲批发均价同比降57%。
-
-另据农业农村部全国农产品批发市场价格信息系统数据，4月27日，有批发市场榴莲批发均价为35元/公斤，即17.5元/斤。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 01:56 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 02:09 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 02:10 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 02:14 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 02:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 01:57 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 02:07 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 02:20 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 01:55 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 02:16 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 02:22 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 02:11 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 02:05 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 02:12 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-30 02:22 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 02:29 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 02:27 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 02:20 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 02:16 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 02:05 - [日本进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 02:23 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 02:12 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 02:18 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 02:08 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:15 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/16441.shtml)
-- 2026-06-30 02:18 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/737344484.shtml)
-- 2026-06-30 02:17 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/347763870.shtml)
-- 2026-06-30 02:09 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/632202080.shtml)
-- 2026-06-30 02:14 - [点菜也要教吗](http://www.blog.minike.top/Article/details/45305787.shtml)
-- 2026-06-30 02:18 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/7392493512.shtml)
-- 2026-06-30 02:01 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/360289585.shtml)
-- 2026-06-30 02:23 - [啊啊啊](https://www.blog.minike.top/Article/details/817851.shtml)
-- 2026-06-30 01:55 - [美股](https://www.share.kurohicncr.top/Article/details/3271908.shtml)
-- 2026-06-30 02:18 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/1557447.shtml)
-- 2026-06-30 02:15 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/3349777734.shtml)
-- 2026-06-30 02:03 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/48817290900.shtml)
-- 2026-06-30 02:09 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/64645035.shtml)
-- 2026-06-30 02:04 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/5016695.shtml)
-- 2026-06-30 02:13 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/9769560035.shtml)
+- 2026-06-30 02:18 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/469345.shtml)
+- 2026-06-30 02:05 - [爱很美味](https://www.share.kurohicncr.top/Article/details/0528404.shtml)
+- 2026-06-30 02:00 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/865829.shtml)
+- 2026-06-30 02:13 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/086363.shtml)
+- 2026-06-30 02:29 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/883006.shtml)
+- 2026-06-30 02:22 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/880777.shtml)
+- 2026-06-30 02:19 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/475526331035.shtml)
+- 2026-06-30 02:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/833940406777.shtml)
+- 2026-06-30 02:26 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/5746283.shtml)
+- 2026-06-30 02:23 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/124100583808.shtml)
+- 2026-06-30 02:13 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/79011734.shtml)
+- 2026-06-30 02:21 - [千与千寻](https://www.blog.minike.top/Article/details/7352899039.shtml)
+- 2026-06-30 02:17 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/284717282882.shtml)
+- 2026-06-30 02:01 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/32200.shtml)
+- 2026-06-30 02:25 - [速度与激情9](http://www.share.minike.top/Article/details/43739041.shtml)

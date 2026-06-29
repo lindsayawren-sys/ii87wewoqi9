@@ -1,49 +1,61 @@
-# 山东三家村镇银行获批解散
+# 美丽中国行丨“熊猫走廊”修复生态“断点” 拓展共生富民新业态
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-4月28日金融一线消息，山东金融监管局发布多则批复，同意解散莘县青隆村镇银行股份有限公司，你行资产、负债、业务及各项权利义务由山东莘县农村商业银行股份有限公司承接；同意解散山东蒙阴齐丰村镇银行股份有限公司，你行资产、负债、业务及各项权利义务由山东蒙阴农村商业银行股份有限公司承接；同意解散山东新泰齐丰村镇银行股份有限公司，你行资产、负债、业务及各项权利义务由山东新泰农村商业银行股
+大熊猫国家公园地处青藏高原东缘、四川盆地向青藏高原过渡的岷山、邛崃山、大小相岭等高山峡谷地带，总面积2.2万平方公里，涉及四川、陕西、甘肃三省，分布在大熊猫国家公园内的大熊猫野外种群数量1340只。 探访大熊猫国家公园 野生大熊猫曾因人类活动干扰，被割裂为33个局域种群，小种群面临近亲繁殖、灭绝风险。国家公园总体规划打造的7条生态廊道，正成为串联起大熊猫跨山系的交流网络。 大熊
 
 ## 正文
 
-4月28日金融一线消息，山东金融监管局发布多则批复，同意解散莘县青隆村镇银行股份有限公司，你行资产、负债、业务及各项权利义务由山东莘县农村商业银行股份有限公司承接；同意解散山东蒙阴齐丰村镇银行股份有限公司，你行资产、负债、业务及各项权利义务由山东蒙阴农村商业银行股份有限公司承接；同意解散山东新泰齐丰村镇银行股份有限公司，你行资产、负债、业务及各项权利义务由山东新泰农村商业银行股份有限公司承接。
+大熊猫国家公园地处青藏高原东缘、四川盆地向青藏高原过渡的岷山、邛崃山、大小相岭等高山峡谷地带，总面积2.2万平方公里，涉及四川、陕西、甘肃三省，分布在大熊猫国家公园内的大熊猫野外种群数量1340只。
 
-山东金融监管局表示，接批复文件后，上述村镇银行应立即停止经营活动，于15个工作日内向聊城、临沂、泰安金融监管分局缴回许可证，并按照有关法律法规要求办理相关手续。
+探访大熊猫国家公园 野生大熊猫曾因人类活动干扰，被割裂为33个局域种群，小种群面临近亲繁殖、灭绝风险。
 
-责任编辑：曹睿潼
+国家公园总体规划打造的7条生态廊道，正成为串联起大熊猫跨山系的交流网络。
+
+大熊猫国家公园： 7条生态走廊 万物共生 在7条生态廊道中，四川雅安泥巴山廊道建设成效显著，野外布设的红外相机几乎每天都能捕捉到大熊猫的身影。
+
+下面先来看看这些大熊猫们的日常生活吧。
+
+缝合生态“断点” 泥巴山上架起“熊猫走廊” 几年前，大熊猫们在泥巴山远没有这样的出镜率。
+
+泥巴山生态廊道面积约5万公顷，是连接邛崃山与大相岭两大山系的关键通道，曾因植被破坏与人为干扰变成野生大熊猫无法逾越的生态“断点”。
+
+如今，持续的生态修复正在重新缝合破碎的栖息地，架起一条生机盎然的“熊猫走廊”。
 
 ## 相关推荐
 
-- 2026-06-30 01:57 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 02:05 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 02:11 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 02:03 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 02:03 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 02:02 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-30 02:05 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-30 02:11 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 01:54 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 02:07 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 01:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 02:07 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 02:22 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 02:26 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 02:03 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 02:07 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 02:08 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 02:07 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 02:27 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 02:06 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 02:28 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 02:00 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 02:04 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 02:17 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-30 02:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 02:26 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 02:21 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 02:01 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:58 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/4474507.shtml)
-- 2026-06-30 02:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/67274.shtml)
-- 2026-06-30 02:16 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/9729370073.shtml)
-- 2026-06-30 02:22 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/9633749476.shtml)
-- 2026-06-30 02:11 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/9604693564.shtml)
-- 2026-06-30 01:58 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/246443910295.shtml)
-- 2026-06-30 02:07 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/60283985.shtml)
-- 2026-06-30 02:05 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/143197.shtml)
-- 2026-06-30 02:13 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/518298.shtml)
-- 2026-06-30 02:14 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/245993781608.shtml)
-- 2026-06-30 01:59 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/331323860213.shtml)
-- 2026-06-30 01:55 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/669130547842.shtml)
-- 2026-06-30 02:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/51749.shtml)
-- 2026-06-30 01:57 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/092962475.shtml)
-- 2026-06-30 02:01 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/9174517.shtml)
+- 2026-06-30 02:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/586506.shtml)
+- 2026-06-30 02:27 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/738181.shtml)
+- 2026-06-30 02:18 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/33386478049.shtml)
+- 2026-06-30 02:04 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/034684688.shtml)
+- 2026-06-30 02:00 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/6782129394.shtml)
+- 2026-06-30 02:04 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/477704975539.shtml)
+- 2026-06-30 02:06 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/459651710310.shtml)
+- 2026-06-30 02:24 - [世界杯](http://www.blog.minike.top/Article/details/733338.shtml)
+- 2026-06-30 02:21 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/3713949.shtml)
+- 2026-06-30 02:29 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/6036486939.shtml)
+- 2026-06-30 02:10 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/637404.shtml)
+- 2026-06-30 02:09 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/497347.shtml)
+- 2026-06-30 02:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/9698802520.shtml)
+- 2026-06-30 02:10 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/032108280973.shtml)
+- 2026-06-30 02:08 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/232373012.shtml)

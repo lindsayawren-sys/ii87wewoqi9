@@ -1,57 +1,60 @@
-# 曦智科技今起登陆港交所，开盘大涨407%
+# 风暴来袭，芝加哥机场数百架航班取消
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-新浪科技讯 4月28日上午消息，曦智科技-P今日在香港交易所主板挂牌上市，成为全球AI硅光芯片第一股。上市首日，曦智科技开盘价为880港元，较183.2港元发行价大幅上涨。盘中，公司股价一度涨超930港元，较发行价上涨超407%。 公开信息显示，曦智科技成立于2017年，由麻省理工学院物理学博士沈亦晨创立，是全球光电混合算力领域的技术及商业化先行者。当前，全球人工智能产业对算力
+当地时间周四晚间，芝加哥及周边地区龙卷风预警解除，最严峻的险情已过去，但当地航空及供电仍受影响。 美国国家气象局发布声明称：“此次触发预警的风暴强度已降至强风暴标准以下，不再具备形成龙卷风的条件。” 该局表示，印第安纳州、密歇根州、伊利诺伊州部分区域仍维持龙卷风观察预警，艾奥瓦州则发布洪水观察预警。美国风暴预测中心称，截至周四，包括芝加哥民众在内，超910万人所处区域面临中度强
 
 ## 正文
 
-新浪科技讯 4月28日上午消息，曦智科技-P今日在香港交易所主板挂牌上市，成为全球AI硅光芯片第一股。
+当地时间周四晚间，芝加哥及周边地区龙卷风预警解除，最严峻的险情已过去，但当地航空及供电仍受影响。
 
-上市首日，曦智科技开盘价为880港元，较183.2港元发行价大幅上涨。
+美国国家气象局发布声明称：“此次触发预警的风暴强度已降至强风暴标准以下，不再具备形成龙卷风的条件。
 
-盘中，公司股价一度涨超930港元，较发行价上涨超407%。
+” 该局表示，印第安纳州、密歇根州、伊利诺伊州部分区域仍维持龙卷风观察预警，艾奥瓦州则发布洪水观察预警。
 
-公开信息显示，曦智科技成立于2017年，由麻省理工学院物理学博士沈亦晨创立，是全球光电混合算力领域的技术及商业化先行者。
+美国风暴预测中心称，截至周四，包括芝加哥民众在内，超910万人所处区域面临中度强雷暴风险，此类天气易引发冰雹和龙卷风。
 
-当前，全球人工智能产业对算力的需求呈指数级增长，与此同时，传统数据中心在带宽、功耗与延迟方面都面临瓶颈，算力供给与市场需求间的缺口持续拉大。
+风暴预测中心数据显示，过去两天，美国中西部已记录428起冰雹、破坏性大风及龙卷风相关灾害报告。
 
-在此背景下，光电混合算力通过引入光学能力进行数据处理与传输，被视为算力基础设施演进的重要技术方向之一。
+截至美国东部时间22时59分，全美共计取消1474架次航班，其中芝加哥奥黑尔国际机场进出港航班取消882架次。
 
-据弗若斯特沙利文数据，曦智科技凭借光互连与光计算两大产品线，已成为全球首家实现光电混合算力大规模部署的公司。
+美国联邦航空管理局此前已预警，雷暴天气将导致该机场航班延误。
 
-2025年，在中国独立Scale-up光互连解决方案市场中，曦智科技按收入计算排名第一，市场份额约为88.3%，为多个千卡级GPU集群提供支持。
+受风暴连锁影响，纽约拉瓜迪亚机场另有166架经停航班取消。
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 02:08 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-30 02:23 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 02:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 02:08 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 02:01 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-30 01:58 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 01:57 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 02:03 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 02:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 02:12 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 02:04 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 02:26 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 02:28 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 02:13 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 02:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 02:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 02:04 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 02:03 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 02:18 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-30 02:05 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 02:17 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 02:21 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 02:06 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 02:06 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:12 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/54201290.shtml)
-- 2026-06-30 02:17 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/91503387.shtml)
-- 2026-06-30 02:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/233087649.shtml)
-- 2026-06-30 02:03 - [绘画区你赢了](https://www.blog.minike.top/Article/details/940044624.shtml)
-- 2026-06-30 02:19 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/4354843.shtml)
-- 2026-06-30 02:01 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/2844064.shtml)
-- 2026-06-30 02:20 - [逃狱兄弟](https://www.share.minike.top/Article/details/85185.shtml)
-- 2026-06-30 02:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/8653690695.shtml)
-- 2026-06-30 02:03 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/6878305.shtml)
-- 2026-06-30 02:00 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/369148550062.shtml)
-- 2026-06-30 02:06 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/3042984234.shtml)
-- 2026-06-30 02:19 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/16351160.shtml)
-- 2026-06-30 01:58 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/1140513726.shtml)
-- 2026-06-30 02:18 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/1147423.shtml)
-- 2026-06-30 02:06 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/022520.shtml)
+- 2026-06-30 02:06 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/33369.shtml)
+- 2026-06-30 02:08 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/211673200.shtml)
+- 2026-06-30 02:14 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/246152633116.shtml)
+- 2026-06-30 02:16 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/827604.shtml)
+- 2026-06-30 02:03 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/27583.shtml)
+- 2026-06-30 02:23 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/34665499989.shtml)
+- 2026-06-30 02:29 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/531801305340.shtml)
+- 2026-06-30 02:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/118166840.shtml)
+- 2026-06-30 02:04 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/095076.shtml)
+- 2026-06-30 02:07 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/538299948.shtml)
+- 2026-06-30 02:17 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/68883728691.shtml)
+- 2026-06-30 02:26 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/496703159613.shtml)
+- 2026-06-30 02:26 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/942541180.shtml)
+- 2026-06-30 02:00 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/8529421.shtml)
+- 2026-06-30 02:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/077910864708.shtml)

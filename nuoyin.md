@@ -1,57 +1,55 @@
-# 十四届全国人大常委会举行第六十六次委员长会议 听取有关草案和议案审议情况汇报 赵乐际主持
+# 美国5月PPI环比上升1.1% 预期为0.7%
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-新华社北京4月29日电 十四届全国人大常委会第六十六次委员长会议29日上午在北京人民大会堂举行。赵乐际委员长主持。 会议听取了全国人大宪法和法律委员会主任委员信春鹰作的关于监狱法修订草案修改意见的汇报、关于社会救助法草案修改意见的汇报，审议了相关草案修改稿。 会议听取了全国人大外事委员会主任委员娄勤俭作的关于《中华人民共和国和阿塞拜疆共和国关于刑事司法协助的条约》《中华人民共和
+根据美国劳工统计局的数据，5月份最终需求生产者价格环比上涨1.1%，与上月上涨1.1%的涨幅相同。 经济学家预测中值为上升0.7%，47位经济学家的预测区间为0.3%至1.2%。 最终需求PPI同比上升6.5%；预期为6.4%。 剔除食品和能源后的最终需求PPI环比上升0.4%；预期为0.5%。 剔除食品和能源后的最终需求PPI同比上升4.9%；预期为5.4%。 不含食品、能源
 
 ## 正文
 
-新华社北京4月29日电 十四届全国人大常委会第六十六次委员长会议29日上午在北京人民大会堂举行。
+根据美国劳工统计局的数据，5月份最终需求生产者价格环比上涨1.1%，与上月上涨1.1%的涨幅相同。
 
-赵乐际委员长主持。
+经济学家预测中值为上升0.7%，47位经济学家的预测区间为0.3%至1.2%。
 
-会议听取了全国人大宪法和法律委员会主任委员信春鹰作的关于监狱法修订草案修改意见的汇报、关于社会救助法草案修改意见的汇报，审议了相关草案修改稿。
+最终需求PPI同比上升6.5%；预期为6.4%。
 
-会议听取了全国人大外事委员会主任委员娄勤俭作的关于《中华人民共和国和阿塞拜疆共和国关于刑事司法协助的条约》《中华人民共和国和哈萨克斯坦共和国、吉尔吉斯共和国、塔吉克斯坦共和国、土库曼斯坦、乌兹别克斯坦共和国永久睦邻友好合作条约》审议情况的汇报，审议了关于批准条约的决定草案代拟稿。
+剔除食品和能源后的最终需求PPI环比上升0.4%；预期为0.5%。
 
-会议听取了全国人大常委会秘书长刘奇作的关于个别代表的代表资格的报告和任免案审议情况的汇报等。
+剔除食品和能源后的最终需求PPI同比上升4.9%；预期为5.4%。
 
-会议听取了全国人大常委会副秘书长刘俊臣作的关于新增人事任免事项的汇报。
+不含食品、能源和贸易服务的最终需求PPI环比上升0.8%，同比上升5.1%。
 
-委员长会议决定，将上述草案修改稿等提交常委会会议审议。
-
-全国人大常委会副委员长李鸿忠、王东明、肖捷、郑建邦、丁仲礼、郝明金、蔡达峰、何维、武维华、铁凝、彭清华、张庆伟、洛桑江村、雪克来提·扎克尔出席会议。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 02:15 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 02:21 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 02:07 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-30 01:58 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 02:03 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 02:08 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-30 02:21 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-30 02:23 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 02:23 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 02:06 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 02:16 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 02:01 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 02:14 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 02:27 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 02:08 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 02:04 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 02:00 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 02:13 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 02:15 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 02:15 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 02:08 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/4724682228.shtml)
-- 2026-06-30 02:02 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/976078198.shtml)
-- 2026-06-30 02:01 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/96265568.shtml)
-- 2026-06-30 02:04 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/782627375.shtml)
-- 2026-06-30 02:08 - [电影后室值得看吗](https://www.share.minike.top/Article/details/9932404678.shtml)
-- 2026-06-30 02:14 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/0331213.shtml)
-- 2026-06-30 01:55 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/6357519976.shtml)
-- 2026-06-30 02:03 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/540728776681.shtml)
-- 2026-06-30 02:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/60220577031.shtml)
-- 2026-06-30 02:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/36985.shtml)
-- 2026-06-30 02:12 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/9569793628.shtml)
-- 2026-06-30 02:09 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/783364782.shtml)
-- 2026-06-30 02:19 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/6056840.shtml)
-- 2026-06-30 02:05 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/72222.shtml)
-- 2026-06-30 02:00 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/83761.shtml)
+- 2026-06-30 02:21 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/901646521911.shtml)
+- 2026-06-30 02:01 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/9362466.shtml)
+- 2026-06-30 02:17 - [沙丘](http://www.share.kurohicncr.top/Article/details/5670215163.shtml)
+- 2026-06-30 02:21 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/880523.shtml)
+- 2026-06-30 02:19 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/22458425.shtml)
+- 2026-06-30 02:21 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/228574.shtml)
+- 2026-06-30 02:09 - [电影后室值得看吗](https://www.share.minike.top/Article/details/007024.shtml)
+- 2026-06-30 02:01 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/68290136970.shtml)
+- 2026-06-30 02:23 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/0856589341.shtml)
+- 2026-06-30 02:04 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/1483406.shtml)
+- 2026-06-30 02:04 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/728505886502.shtml)
+- 2026-06-30 02:27 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/1619914506.shtml)
+- 2026-06-30 02:07 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/09037763.shtml)
+- 2026-06-30 02:08 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/2431345.shtml)
+- 2026-06-30 02:21 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/29781901.shtml)

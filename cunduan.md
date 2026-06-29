@@ -1,58 +1,52 @@
-# 国产机车，凭何逆袭？
+# 公安部：我国电诈案件发案已连续8个月同比下降
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中国成为最大摩托车产销国，中国品牌在全球摩托车赛事上夺冠——国产机车，凭何逆袭？ 当地时间2026年3月28日至29日，葡萄牙阿尔加维赛道见证了中国摩托车产业的历史性时刻。在世界超级摩托车锦标赛(WSBK)葡萄牙站SSP组别双回合正赛中，法国车手瓦伦丁·德比斯驾驶张雪机车820RR-RS连续夺冠，首回合更以近4秒的压倒性优势率先冲过终点。而他一路甩开的，正是长期垄断国际顶级赛事
+记者从公安部今天(12日)召开的新闻发布会上获悉，从2025年10月以来，我国电诈案件发案已连续8个月实现同比下降。 从诈骗手法来看，当前最高发的诈骗类型有10类，分别是：刷单返利、虚假购物服务、虚假网络投资理财、冒充电商物流客服、贷款征信、网络游戏虚假交易、网络婚恋交友、冒充公检法、冒充领导熟人和机票退改签诈骗。这10类案件就占了全部电诈案件的85%。其中，刷单返利诈骗发案最
 
 ## 正文
 
-中国成为最大摩托车产销国，中国品牌在全球摩托车赛事上夺冠——国产机车，凭何逆袭？
+记者从公安部今天(12日)召开的新闻发布会上获悉，从2025年10月以来，我国电诈案件发案已连续8个月实现同比下降。
 
-当地时间2026年3月28日至29日，葡萄牙阿尔加维赛道见证了中国摩托车产业的历史性时刻。
+从诈骗手法来看，当前最高发的诈骗类型有10类，分别是：刷单返利、虚假购物服务、虚假网络投资理财、冒充电商物流客服、贷款征信、网络游戏虚假交易、网络婚恋交友、冒充公检法、冒充领导熟人和机票退改签诈骗。
 
-在世界超级摩托车锦标赛(WSBK)葡萄牙站SSP组别双回合正赛中，法国车手瓦伦丁·德比斯驾驶张雪机车820RR-RS连续夺冠，首回合更以近4秒的压倒性优势率先冲过终点。
+这10类案件就占了全部电诈案件的85%。
 
-而他一路甩开的，正是长期垄断国际顶级赛事和高端市场的欧美日摩托车品牌。
+其中，刷单返利诈骗发案最高，占所有电诈案件的25%；虚假网络投资理财诈骗损失最高，约占全部电诈案件损失的40%，损失百万、千万以上的案件大多是这种类型。
 
-这是中国摩托车品牌首次在顶级赛事中登顶，打破了欧美日品牌对WSBK赛事该组别数十年的垄断。
+另外，当前电信网络诈骗出现一些新特点和新手法： 一是犯罪分子主要通过网络平台寻找作案目标；二是犯罪分子大量使用小众通联软件对被害人进行深度洗脑； 三是犯罪分子使用专门诈骗App实施远程盗刷； 四是犯罪分子大量利用现金或者黄金等贵重物品获取、转移涉诈资金。
 
-一家年轻的中国企业，何以在世界赛道上力压群雄？
-
-这场胜利背后，折射出的是国产机车在技术、产业链与政策协同下的全面突围。
-
-4秒领先 量产车跑出的冠军实力 理解这枚金牌的含金量，需要先读懂WSBK的赛制逻辑。
+(总台央视记者 李可婧)
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 02:09 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 02:18 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-30 02:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 01:59 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-30 02:11 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 01:54 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 02:03 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 02:04 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 02:22 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 02:11 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 02:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 02:02 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 02:18 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 02:09 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 02:22 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 02:12 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 02:09 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 02:08 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 02:00 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 02:13 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 02:17 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:09 - [85花告别古偶](http://www.share.minike.top/Article/details/855464502940.shtml)
-- 2026-06-30 02:23 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/399782363.shtml)
-- 2026-06-30 02:12 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/135900.shtml)
-- 2026-06-30 01:59 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/947475448.shtml)
-- 2026-06-30 01:55 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/618052.shtml)
-- 2026-06-30 02:00 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/9913886.shtml)
-- 2026-06-30 02:17 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/692522353211.shtml)
-- 2026-06-30 02:22 - [毒液2](https://www.blog.minike.top/Article/details/1656763.shtml)
-- 2026-06-30 02:19 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/832094.shtml)
-- 2026-06-30 02:08 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/405719773.shtml)
-- 2026-06-30 01:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/72390.shtml)
-- 2026-06-30 02:16 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/227895.shtml)
-- 2026-06-30 01:54 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/857029751527.shtml)
-- 2026-06-30 02:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/2265288170.shtml)
-- 2026-06-30 02:19 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/2700745070.shtml)
+- 2026-06-30 02:21 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/67212402229.shtml)
+- 2026-06-30 02:28 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/7868945.shtml)
+- 2026-06-30 02:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/570943.shtml)
+- 2026-06-30 02:03 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/1264864.shtml)
+- 2026-06-30 02:03 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/62096.shtml)
+- 2026-06-30 02:25 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/676529.shtml)
+- 2026-06-30 02:07 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/77018.shtml)
+- 2026-06-30 02:06 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/598547932.shtml)
+- 2026-06-30 02:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/457220741572.shtml)
+- 2026-06-30 02:23 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/461111.shtml)
+- 2026-06-30 02:27 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/229970568.shtml)
+- 2026-06-30 02:17 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/7756093.shtml)
+- 2026-06-30 02:25 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/10861776.shtml)
+- 2026-06-30 02:04 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/2931374817.shtml)
+- 2026-06-30 02:19 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/524532898.shtml)

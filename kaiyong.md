@@ -1,57 +1,51 @@
-# 国际锐评丨中国何以成为全球汽车业的“健身房”？
+# 狮腾控股与美亚娱乐联手推出AI驱动品牌“MASYN”
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-充电5分钟续航增加400公里、遇到障碍物自动减速、车窗秒变触控大屏、不带方向盘自动驾驶……在2026(第十九届)北京国际汽车展览会上，各种黑科技集中亮相，不断拓宽人们对汽车的想象空间。德国大众汽车集团管理董事会主席奥博穆与《国际锐评》交流说，这次他们带来了10款车型、其中4款全球首发，“都是中国本土主导研发”。中国是汽车创新的“引力中心”、中国是全球汽车业的“健身房”……对于这
+狮腾控股（02562）发布公告，本公司与美亚娱乐资讯集团有限公司（美亚娱乐，00391）今日宣布达成战略合作，携手推出全新AI驱动品牌MASYN。双方将结合AI内容、数据验证、及跨境电商运营，共同探索消费品牌孵化模式，以及东南亚跨境电商市场的增长机遇。 是次合作结合两项各具优势且高度互补的产业能力：美亚娱乐于AI内容、创意叙事及供应链整合方面的优势，以及Synagie的AI商务
 
 ## 正文
 
-充电5分钟续航增加400公里、遇到障碍物自动减速、车窗秒变触控大屏、不带方向盘自动驾驶……在2026(第十九届)北京国际汽车展览会上，各种黑科技集中亮相，不断拓宽人们对汽车的想象空间。
+狮腾控股（02562）发布公告，本公司与美亚娱乐资讯集团有限公司（美亚娱乐，00391）今日宣布达成战略合作，携手推出全新AI驱动品牌MASYN。
 
-德国大众汽车集团管理董事会主席奥博穆与《国际锐评》交流说，这次他们带来了10款车型、其中4款全球首发，“都是中国本土主导研发”。
+双方将结合AI内容、数据验证、及跨境电商运营，共同探索消费品牌孵化模式，以及东南亚跨境电商市场的增长机遇。
 
-中国是汽车创新的“引力中心”、中国是全球汽车业的“健身房”……对于这个世界规模最大的车展，外媒与外企都高度关注，认为中国正成为引领全球汽车业技术创新的风向标。
+是次合作结合两项各具优势且高度互补的产业能力：美亚娱乐于AI内容、创意叙事及供应链整合方面的优势，以及Synagie的AI商务基建、电商营运能力及东南亚市场经验。
 
-今年，来自21个国家和地区的超2000家供应链与科技企业参展，覆盖全品类、全领域、全层级；1451台车辆展出，包括181台首发车、71台概念车；中国品牌集中发布42项核心技术，数量创历史新高。
+双方将携手打造更具轻资产、低风险及规模效益的崭新AI驱动产品IP模式。
 
-中国车企比亚迪告诉《国际锐评》，公司这次展示了智能辅助驾驶、电池与闪充技术等前沿成果，反映了中国汽车工业发展的跃升。
-
-在科技浓度超高的北京车展上，有两大技术亮点尤为吸睛。
-
-一方面，动力电池技术不断攻克续航和补能难题，为汽车打造强劲“四肢”；一方面，人工智能的大规模应用，让汽车拥有了“聪明”大脑。
-
-如今，汽车早已不再只是交通工具，而是融合车身、动力、信息娱乐和驾驶辅助等多个系统的“移动智能生命体”。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:10 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 02:23 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 01:55 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 02:17 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 01:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 01:56 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-30 02:20 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 02:06 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 02:19 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 02:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 02:09 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 02:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 02:10 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 02:21 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 02:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 02:12 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 02:27 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 02:26 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 02:23 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 02:26 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 02:01 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 02:11 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:02 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/044512400.shtml)
-- 2026-06-30 01:54 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/07540.shtml)
-- 2026-06-30 02:17 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/1318463344.shtml)
-- 2026-06-30 02:11 - [国常会听取人工智能发展情况汇报](https://www.blog.kurohicncr.top/Article/details/6831510582.shtml)
-- 2026-06-30 02:14 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/778925166380.shtml)
-- 2026-06-30 02:13 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/041721673860.shtml)
-- 2026-06-30 02:12 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/93386.shtml)
-- 2026-06-30 01:56 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/55971310.shtml)
-- 2026-06-30 02:18 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/4924011813.shtml)
-- 2026-06-30 02:15 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/9837827.shtml)
-- 2026-06-30 02:15 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/976633.shtml)
-- 2026-06-30 02:14 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/73240.shtml)
-- 2026-06-30 01:59 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/948699.shtml)
-- 2026-06-30 01:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/788823896.shtml)
-- 2026-06-30 01:56 - [青春环游记第三季](http://www.share.minike.top/Article/details/7620561.shtml)
+- 2026-06-30 02:06 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/72123152.shtml)
+- 2026-06-30 02:04 - [送你一朵小红花](https://www.blog.minike.top/Article/details/5014020.shtml)
+- 2026-06-30 02:04 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/17103708.shtml)
+- 2026-06-30 02:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/05777999770.shtml)
+- 2026-06-30 02:14 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/6027238.shtml)
+- 2026-06-30 02:04 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/0969335.shtml)
+- 2026-06-30 02:03 - [千香](http://www.share.minike.top/Article/details/5166243.shtml)
+- 2026-06-30 02:14 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/218342.shtml)
+- 2026-06-30 02:00 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/990656950234.shtml)
+- 2026-06-30 02:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/9608065.shtml)
+- 2026-06-30 02:15 - [青春环游记第三季](http://www.blog.minike.top/Article/details/52576258.shtml)
+- 2026-06-30 02:28 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/778970.shtml)
+- 2026-06-30 02:14 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/6668907.shtml)
+- 2026-06-30 02:20 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/442996.shtml)
+- 2026-06-30 02:27 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/44894.shtml)

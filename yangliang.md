@@ -1,59 +1,56 @@
-# 静守景气，慢越周期，详解华夏行业景气混合业绩长青密码
+# 3000余斤“碱泡牛羊肚”流向餐桌 检察建议推动源头治理
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-在A股市场结构分化持续加剧、热点轮动节奏不断加快的当下，普通投资者想要精准把握赛道机会愈发困难。一方面，人工智能、数字经济等成长赛道持续释放高增长红利，成为市场核心主线；另一方面，市场波动与外部不确定性交织，盲目追涨杀跌往往难以获得理想回报。在此背景下，能够精准捕捉高景气成长机会、又能通过严谨投资框架控制风险，力求让高增长更可持续的投资能力，显得尤为珍贵。市场需要的，不是跟随热
+用工业烧碱浸泡过的牛肚和羊肚，不仅看着白，还能吸收水分增重。靠着这门“手艺”，甘肃酒泉的一对夫妻在一年多时间里，将3000余斤问题牛羊肚送上百姓餐桌。 2023年5月起，张某某、丁某某夫妻二人在酒泉市肃州区城乡接合部的自建房内设立加工点，使用自购的片状氢氧化钠(俗称“工业烧碱”)浸泡、清洗牛肚、羊肚，再对外销售。而强碱残留会严重灼伤人体的口腔和消化道黏膜，长期摄入危害极大。 2
 
 ## 正文
 
-在A股市场结构分化持续加剧、热点轮动节奏不断加快的当下，普通投资者想要精准把握赛道机会愈发困难。
+用工业烧碱浸泡过的牛肚和羊肚，不仅看着白，还能吸收水分增重。
 
-一方面，人工智能、数字经济等成长赛道持续释放高增长红利，成为市场核心主线；另一方面，市场波动与外部不确定性交织，盲目追涨杀跌往往难以获得理想回报。
+靠着这门“手艺”，甘肃酒泉的一对夫妻在一年多时间里，将3000余斤问题牛羊肚送上百姓餐桌。
 
-在此背景下，能够精准捕捉高景气成长机会、又能通过严谨投资框架控制风险，力求让高增长更可持续的投资能力，显得尤为珍贵。
+2023年5月起，张某某、丁某某夫妻二人在酒泉市肃州区城乡接合部的自建房内设立加工点，使用自购的片状氢氧化钠(俗称“工业烧碱”)浸泡、清洗牛肚、羊肚，再对外销售。
 
-市场需要的，不是跟随热点的追风者，而是能够深入产业肌理、独立挖掘价值的“成长猎手”。
+而强碱残留会严重灼伤人体的口腔和消化道黏膜，长期摄入危害极大。
 
-01深耕阿尔法，构筑跨周期硬实力 在投资的世界里，短期爆发或许源于机遇，但长期的卓越必定源于实力。
+2024年11月，行政执法部门在食品安全联合执法检查中发现，该作坊加工条件简陋、疑似使用非食用化学品处理肉品，遂现场查封尚未售出的牛肚、羊肚、加工用水及涉案工业烧碱，并委托有资质的第三方检测机构进行检验。
 
-评判一只基金的核心标尺，绝非一两个季度的涨跌，而是其跨越牛熊、历经风格转换后的持续表现。
+结果显示：被查获的牛、羊肚样品中pH值>10(即呈强碱性)的占三分之二，加工用水中pH值>10的占九分之五。
 
-华夏行业景气混合（A类：003567 ；C类：025542），正是这样一位经过时间淬炼的“长跑健将”。
+结合现场物证，张某某、丁某某已涉嫌生产、销售有毒、有害食品罪。
 
-基金定期报告数据显示，截至2026年3月31日，华夏行业景气混合A近一年净值增长率67.76% ，同期业绩比较基准收益率为11.96% ；成立以来净值增长率更是高达437.55%，同期业绩比较基准收益率仅为0.93%，跑赢业绩基准400.13个百分点，长期业绩表现尤为突出。
+随后，案件被移送公安机关立案侦查。
 
 ## 相关推荐
 
-- 2026-06-30 02:00 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 02:23 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 01:57 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 02:05 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 01:58 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 02:01 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 02:18 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 02:02 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 02:22 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-30 02:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 02:03 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 02:07 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 02:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 02:10 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 02:16 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-30 02:22 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 02:13 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 02:17 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 02:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 02:22 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 02:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 02:27 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 02:10 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/557550132616.shtml)
-- 2026-06-30 02:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/11545774253.shtml)
-- 2026-06-30 02:09 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/884420840.shtml)
-- 2026-06-30 02:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/014148388.shtml)
-- 2026-06-30 02:08 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/48716.shtml)
-- 2026-06-30 02:05 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/17784298872.shtml)
-- 2026-06-30 02:01 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/129748.shtml)
-- 2026-06-30 02:00 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/501564.shtml)
-- 2026-06-30 02:14 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/9870667.shtml)
-- 2026-06-30 01:54 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/003404.shtml)
-- 2026-06-30 02:08 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/756114.shtml)
-- 2026-06-30 02:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/94640520.shtml)
-- 2026-06-30 02:16 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/14115819.shtml)
-- 2026-06-30 02:22 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/9411284427.shtml)
-- 2026-06-30 02:16 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/341594.shtml)
+- 2026-06-30 02:03 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/3587860.shtml)
+- 2026-06-30 02:13 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/57546.shtml)
+- 2026-06-30 02:06 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/12737.shtml)
+- 2026-06-30 02:29 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/422506.shtml)
+- 2026-06-30 02:18 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/04541715.shtml)
+- 2026-06-30 02:24 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/98074.shtml)
+- 2026-06-30 02:08 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/2077647.shtml)
+- 2026-06-30 02:15 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/96967657.shtml)
+- 2026-06-30 02:20 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/56881694.shtml)
+- 2026-06-30 02:25 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/2133741388.shtml)
+- 2026-06-30 02:03 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/52508.shtml)
+- 2026-06-30 02:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/15940.shtml)
+- 2026-06-30 02:29 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/957517078272.shtml)
+- 2026-06-30 02:19 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/920809.shtml)
+- 2026-06-30 02:17 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/51440.shtml)

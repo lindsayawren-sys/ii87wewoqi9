@@ -1,57 +1,60 @@
-# 中国光谷创设“拨投贷”组合政策招引创业人才
+# 江西井冈山市推进红色基因传承 让井冈山精神放射出新的时代光芒
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新网武汉4月28日电 (曾宪雯 王梦媛)武汉东湖高新区(又称“中国光谷”)28日启动“光谷3551创业人才”政策申报，首次创设“拨投贷”组合支持方式，单个项目扶持最高可达6000万元，旨在面向全球引育支持一批具有高成长潜力的人才初创企业。 光谷创新推出的“拨投贷”结合方式，提供“资金支持+股权投资+信用贷款”的组合政策，为创业人才送上“硬核”政策礼包。认定创业人才后，光谷将提
+江西井冈山市推进红色基因传承—— 让井冈山精神放射出新的时代光芒(牢记初心使命 奋进复兴征程) 巍巍井冈山，不朽英雄气。 江西吉安市井冈山风景名胜区，一支身着校服的学生队伍拾级而上，走向八角楼、黄洋界、神山村……在行走中聆听历史回响。这是“我的井冈行”思政实践活动的现场。活动自2025年启动以来，已接待学生22批次、6.73万人。 习近平总书记强调：“井冈山是中国革命的摇篮。井
 
 ## 正文
 
-中新网武汉4月28日电 (曾宪雯 王梦媛)武汉东湖高新区(又称“中国光谷”)28日启动“光谷3551创业人才”政策申报，首次创设“拨投贷”组合支持方式，单个项目扶持最高可达6000万元，旨在面向全球引育支持一批具有高成长潜力的人才初创企业。
+江西井冈山市推进红色基因传承—— 让井冈山精神放射出新的时代光芒(牢记初心使命 奋进复兴征程) 巍巍井冈山，不朽英雄气。
 
-光谷创新推出的“拨投贷”结合方式，提供“资金支持+股权投资+信用贷款”的组合政策，为创业人才送上“硬核”政策礼包。
+江西吉安市井冈山风景名胜区，一支身着校服的学生队伍拾级而上，走向八角楼、黄洋界、神山村……在行走中聆听历史回响。
 
-认定创业人才后，光谷将提供100万元资金支持，5年内还可根据企业发展积分提供持续支持，最高可达1000万元。
+这是“我的井冈行”思政实践活动的现场。
 
-此外，光谷还将汇聚合伙人基金等各类天使基金资源，畅通项目推荐渠道，常态化组织投融资对接活动，通过“人才返投”制度设计，引导基金投向创业人才企业，单个企业最高可获得2000万元投资。
+活动自2025年启动以来，已接待学生22批次、6.73万人。
 
-目前，光谷合伙人基金与清控银杏、英诺天使等国内知名机构合作设立了12只子基金，累计投资人才项目450余个，撬动近50亿元社会资本参与投资。
+习近平总书记强调：“井冈山是中国革命的摇篮。
 
-针对初创企业普遍存在的资金周转难题，交通银行股份有限公司武汉东湖新技术开发区支行专门定制“3551创业人才贷”金融产品。
+井冈山时期留给我们最为宝贵的财富，就是跨越时空的井冈山精神。
 
-该产品立足人才企业早期“轻资产、低收入、融资急”的核心痛点，通过数据互通实现“即评即贷”——人才认定通过当天，贷款审批即可同步完成，最快3天放款。
+今天，我们要结合新的时代条件，坚持坚定执着追理想、实事求是闯新路、艰苦奋斗攻难关、依靠群众求胜利，让井冈山精神放射出新的时代光芒。
 
-额度按照不低于政策资助的3倍核定，最高可达3000万元，且为纯信用无抵押贷款，直击科技成果转化早期的资金周转痛点。
+” 井冈山拥有保存完好的革命旧居遗址100多处，近年来，井冈山市深入贯彻落实习近平总书记重要指示精神，把宝贵财富转化为育人资源，多措并举引导广大青少年传承红色基因，增长知识本领，磨练意志品质。
 
 ## 相关推荐
 
-- 2026-06-30 02:04 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 02:02 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 02:21 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 01:54 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 02:05 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-30 01:59 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 02:06 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 02:12 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 02:21 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 02:09 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 02:03 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 02:05 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 02:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 02:23 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 02:11 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 02:10 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 02:17 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-30 02:17 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 02:06 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 02:12 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 02:05 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 02:22 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 02:23 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 02:03 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 02:25 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:02 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/60465513.shtml)
-- 2026-06-30 01:58 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/409504248.shtml)
-- 2026-06-30 02:05 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/387106263291.shtml)
-- 2026-06-30 02:13 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/09698158.shtml)
-- 2026-06-30 02:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/4612935.shtml)
-- 2026-06-30 02:11 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/811668809.shtml)
-- 2026-06-30 02:17 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/985242422179.shtml)
-- 2026-06-30 02:10 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/334283893620.shtml)
-- 2026-06-30 02:01 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/08897664941.shtml)
-- 2026-06-30 02:05 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/460316.shtml)
-- 2026-06-30 02:17 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/093327.shtml)
-- 2026-06-30 02:08 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/1135167052.shtml)
-- 2026-06-30 02:04 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/748967.shtml)
-- 2026-06-30 02:00 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/87586814057.shtml)
-- 2026-06-30 02:10 - [乔家的儿女](https://www.blog.minike.top/Article/details/91338648.shtml)
+- 2026-06-30 02:09 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/35540444.shtml)
+- 2026-06-30 02:04 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/176281.shtml)
+- 2026-06-30 02:00 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/4821211.shtml)
+- 2026-06-30 02:04 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/75514123.shtml)
+- 2026-06-30 02:00 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/090493.shtml)
+- 2026-06-30 02:28 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/351023844.shtml)
+- 2026-06-30 02:20 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/613003.shtml)
+- 2026-06-30 02:11 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/284256574.shtml)
+- 2026-06-30 02:00 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/5500036.shtml)
+- 2026-06-30 02:14 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/662137735893.shtml)
+- 2026-06-30 02:20 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/1497819520.shtml)
+- 2026-06-30 02:22 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/63450097345.shtml)
+- 2026-06-30 02:10 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/181594.shtml)
+- 2026-06-30 02:22 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/73697398.shtml)
+- 2026-06-30 02:16 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/085360161.shtml)

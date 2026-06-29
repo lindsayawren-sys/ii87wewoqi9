@@ -1,60 +1,57 @@
-# FCC下令提前审查迪士尼旗下八家ABC电视台执照，特朗普与媒体战火重燃
+# 《习近平外交文选》第一卷、第二卷主要篇目介绍
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-在特朗普夫妇公开呼吁解雇ABC深夜脱口秀主持人吉米·金梅尔后，美国联邦通信委员会已下令对迪士尼旗下八家ABC自有电视台的广播执照启动提前审查。这标志着特朗普政府与这家媒体巨头之间的紧张关系出现了戏剧性的升级。 这些电视台的执照原本要到2028年才到期续签。而如今，FCC已指示迪士尼必须在30天内（即5月28日前）提交这些电视台的续期申请。 此举被视为特朗普政府对ABC播出金梅尔
+新华社北京6月11日电 中共中央党史和文献研究院编辑的《习近平外交文选》第一卷、第二卷，收入习近平同志2013年1月至2025年11月期间关于对外工作最重要、最基本的著作，共有报告、讲话、演讲、致辞等134篇。其中，第一卷收入2013年1月至2018年6月期间的著作63篇，第二卷收入2018年6月至2025年11月期间的著作71篇。现将《习近平外交文选》第一卷、第二卷主要篇目介
 
 ## 正文
 
-在特朗普夫妇公开呼吁解雇ABC深夜脱口秀主持人吉米·金梅尔后，美国联邦通信委员会已下令对迪士尼旗下八家ABC自有电视台的广播执照启动提前审查。
+新华社北京6月11日电 中共中央党史和文献研究院编辑的《习近平外交文选》第一卷、第二卷，收入习近平同志2013年1月至2025年11月期间关于对外工作最重要、最基本的著作，共有报告、讲话、演讲、致辞等134篇。
 
-这标志着特朗普政府与这家媒体巨头之间的紧张关系出现了戏剧性的升级。
+其中，第一卷收入2013年1月至2018年6月期间的著作63篇，第二卷收入2018年6月至2025年11月期间的著作71篇。
 
-这些电视台的执照原本要到2028年才到期续签。
+现将《习近平外交文选》第一卷、第二卷主要篇目介绍如下。
 
-而如今，FCC已指示迪士尼必须在30天内（即5月28日前）提交这些电视台的续期申请。
+《顺应时代前进潮流，促进世界和平发展》(2013年3月23日)这是习近平同志在俄罗斯莫斯科国际关系学院的演讲。
 
-此举被视为特朗普政府对ABC播出金梅尔节目并抗拒总统施压的一种报复形式。
+文中指出：这个世界越来越成为你中有我、我中有你的命运共同体。
 
-争议的导火索是金梅尔在上周四模仿白宫记者晚宴的一档节目中，调侃第一夫人梅拉尼娅·特朗普“散发着待嫁寡妇般的光芒”。
+要跟上时代前进步伐，就不能身体已进入二十一世纪，而脑袋还停留在过去，停留在殖民扩张的旧时代里，停留在冷战思维、零和博弈的老框框内。
 
-两天后的周六，白宫记者晚宴现场发生枪击事件，总统夫妇紧急撤离。
+面对国际形势的深刻变化和世界各国同舟共济的客观要求，各国应该共同推动建立以合作共赢为核心的新型国际关系，各国人民应该一起来维护世界和平、促进共同发展。
 
-随后，特朗普夫妇公开要求迪士尼和ABC立即解雇金梅尔。
+《永远做可靠朋友和真诚伙伴》(2013年3月25日)这是习近平同志在坦桑尼亚尼雷尔国际会议中心的演讲。
 
 ## 相关推荐
 
-- 2026-06-30 02:17 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-30 02:10 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 02:06 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 02:09 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 01:59 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 02:14 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 02:08 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 02:13 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 02:02 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 02:05 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 02:10 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 02:08 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 02:12 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-30 02:18 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 02:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 02:04 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 02:09 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 02:28 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 02:01 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 02:05 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 02:18 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 02:09 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 02:03 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 02:24 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 02:13 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/7644578941.shtml)
-- 2026-06-30 02:15 - [美人鱼](https://www.share.kurohicncr.top/Article/details/08206879.shtml)
-- 2026-06-30 02:02 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/206777952.shtml)
-- 2026-06-30 02:20 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/260569.shtml)
-- 2026-06-30 02:21 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/32770717.shtml)
-- 2026-06-30 01:54 - [日本领先巴西](http://www.share.minike.top/Article/details/70745493426.shtml)
-- 2026-06-30 02:21 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/64663.shtml)
-- 2026-06-30 02:11 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/62616167.shtml)
-- 2026-06-30 02:11 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/272677968887.shtml)
-- 2026-06-30 02:14 - [斗破苍穹](https://www.share.minike.top/Article/details/82364.shtml)
-- 2026-06-30 02:04 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/00376661978.shtml)
-- 2026-06-30 01:59 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/954205.shtml)
-- 2026-06-30 02:16 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/647921831709.shtml)
-- 2026-06-30 02:14 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/224730.shtml)
-- 2026-06-30 02:03 - [月亮](http://www.share.minike.top/Article/details/76850.shtml)
+- 2026-06-30 02:19 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/08111129.shtml)
+- 2026-06-30 02:02 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/1889978871.shtml)
+- 2026-06-30 02:12 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/71231703.shtml)
+- 2026-06-30 02:08 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/8795667.shtml)
+- 2026-06-30 02:13 - [沙丘](https://www.share.minike.top/Article/details/71189226246.shtml)
+- 2026-06-30 02:15 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/44015706697.shtml)
+- 2026-06-30 02:04 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/80699.shtml)
+- 2026-06-30 02:02 - [起风了](https://www.blog.kurohicncr.top/Article/details/860638509.shtml)
+- 2026-06-30 02:21 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/31224.shtml)
+- 2026-06-30 02:02 - [起风了](http://www.share.minike.top/Article/details/706790478279.shtml)
+- 2026-06-30 02:01 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/44103.shtml)
+- 2026-06-30 02:26 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/9049188.shtml)
+- 2026-06-30 02:12 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/2292115.shtml)
+- 2026-06-30 02:21 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/960983014.shtml)
+- 2026-06-30 02:28 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/464591652.shtml)

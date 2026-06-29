@@ -1,58 +1,56 @@
-# 安井食品绩后高开近10% 第一季度归母净利润同比增长42.74%
+# 黑色星期三！道指重挫近千点，半导体板块跌近4%，特朗普威胁空袭原油飙升
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-安井食品（02648）绩后高开近10%，截至发稿，股价上涨9.52%，现报90.90港元，成交额8738.79万港元。 4月28日，安井食品发布2026年第一季度业绩，营业收入约47.1亿元，同比增长30.84%；归属于上市公司股东的净利润约5.63亿元，同比增长42.74%；基本每股收益1.7元。公告称，营收增长主要系市场需求增加，公司速冻调制食品及速冻菜肴制品营收增长及子公
+【相关阅读】 中东，突传“黑天鹅”！深夜，美股集体杀跌，科技股普跌！国际油价大涨！A股如何走？ 标普500指数科技板块进入技术性回调区间。 *三大股指走弱，纳指跌近2%； *中长期美债收益率上扬，10年期美债报4.54%； *恐慌指数VIX大涨12%。 周三美股全线下挫，美国总统特朗普暗示与伊朗的谈判 “耗时过长”，并威胁采取进一步行动，芯片股延续跌势。标普500指数科技板块收
 
 ## 正文
 
-安井食品（02648）绩后高开近10%，截至发稿，股价上涨9.52%，现报90.90港元，成交额8738.79万港元。
+【相关阅读】 中东，突传“黑天鹅”！
 
-4月28日，安井食品发布2026年第一季度业绩，营业收入约47.1亿元，同比增长30.84%；归属于上市公司股东的净利润约5.63亿元，同比增长42.74%；基本每股收益1.7元。
+深夜，美股集体杀跌，科技股普跌！
 
-公告称，营收增长主要系市场需求增加，公司速冻调制食品及速冻菜肴制品营收增长及子公司鼎味泰增量所致。
+国际油价大涨！
 
-申万宏源认为，2026年一季度安井食品经营超预期。
+A股如何走？
 
-公司不断优化“B端及时跟进、C端升级换代”的新产品研发策略，提升产品力、质价比，渠道端重构定制业务，针对不同的商超、新零售、餐饮连锁等渠道提供差异化定制方案，推动小批量多批次柔性生产，25Q4-26Q1收入增长提速。
+标普500指数科技板块进入技术性回调区间。
 
-中长期，公司将通过“安斋”品牌布局清真食品板块，同时布局东南亚出海需求。
+*三大股指走弱，纳指跌近2%； *中长期美债收益率上扬，10年期美债报4.54%； *恐慌指数VIX大涨12%。
 
-餐饮供应链行业竞争已触底，且公司具备长期竞争力。
+周三美股全线下挫，美国总统特朗普暗示与伊朗的谈判 “耗时过长”，并威胁采取进一步行动，芯片股延续跌势。
 
-责任编辑：卢昱君
+标普500指数科技板块收盘点位较6月2日创下的历史收盘高点下跌11%，正式进入技术性回调区间。
 
 ## 相关推荐
 
-- 2026-06-30 02:01 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 02:19 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 02:10 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 02:05 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 02:17 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 01:59 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 02:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-30 01:59 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 02:08 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 02:09 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 02:20 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-30 02:18 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 02:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 02:24 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 02:19 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 02:19 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 02:25 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 02:05 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 02:23 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 02:28 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 02:14 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 02:20 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:06 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/0145204377.shtml)
-- 2026-06-30 02:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/09536829.shtml)
-- 2026-06-30 02:11 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/88714.shtml)
-- 2026-06-30 02:06 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/42502816438.shtml)
-- 2026-06-30 02:12 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/26799211.shtml)
-- 2026-06-30 02:14 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/610689.shtml)
-- 2026-06-30 02:01 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/1799827967.shtml)
-- 2026-06-30 02:11 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/093198310.shtml)
-- 2026-06-30 02:15 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/396020262004.shtml)
-- 2026-06-30 02:04 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/946593.shtml)
-- 2026-06-30 02:12 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/46933407980.shtml)
-- 2026-06-30 02:11 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/069069952182.shtml)
-- 2026-06-30 02:06 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/87036989234.shtml)
-- 2026-06-30 02:02 - [请回答王牌2019](http://www.share.minike.top/Article/details/72570973222.shtml)
-- 2026-06-30 02:23 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/67953788.shtml)
+- 2026-06-30 02:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/5279242604.shtml)
+- 2026-06-30 02:00 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/89708965.shtml)
+- 2026-06-30 02:20 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/03123145.shtml)
+- 2026-06-30 02:15 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/33323.shtml)
+- 2026-06-30 02:06 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/79429997.shtml)
+- 2026-06-30 02:13 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/370034914589.shtml)
+- 2026-06-30 02:23 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/79718560959.shtml)
+- 2026-06-30 02:28 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/769522911526.shtml)
+- 2026-06-30 02:13 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/54376722.shtml)
+- 2026-06-30 02:19 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/278433.shtml)
+- 2026-06-30 02:27 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/834833.shtml)
+- 2026-06-30 02:25 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/888003334651.shtml)
+- 2026-06-30 02:13 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/14493.shtml)
+- 2026-06-30 02:01 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/66280988.shtml)
+- 2026-06-30 02:03 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/1610774766.shtml)

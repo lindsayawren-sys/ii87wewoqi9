@@ -1,56 +1,59 @@
-# 你给商家的差评，正在被明码标价删除，删一条差评60-1500元
+# 企业从新加坡迁至成本更低、空间更充裕的马来西亚
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-夏宇岩（化名）在一家川菜馆用餐后，因吃出菜品异味还出现了腹泻，他给这家餐厅打了一星差评。但近日他想找出这条评价时，却发现差评已经消失了。中国新闻网《民生调查局》调查发现，消费者反映多个平台存在差评“消失”的情况。消费者留下的真实评价究竟去了哪里？记者就此展开调查。 某社交媒体平台，存在不少指导商家处理差评的话题帖，评论区里多位用户留言表示“可以删，私信我”。 真实差评不翼而飞
+核心要点 近数月来，大批企业陆续将业务从新加坡转移至马来西亚，这折射出一股全球性产业布局流动浪潮：各大企业纷纷选择运营成本更低、享有税收优惠、市场体量更大的地区落地经营。 服装巨头海恩斯莫里斯（H&M）5 月宣布，将东南亚总部从新加坡搬迁至吉隆坡，本次调整涉及 78 个岗位。喜力啤酒则在 3 月透露，旗下亚太酿酒新加坡工厂的大规模生产业务，将转移至马来西亚与越南的区域酿造基地。
 
 ## 正文
 
-夏宇岩（化名）在一家川菜馆用餐后，因吃出菜品异味还出现了腹泻，他给这家餐厅打了一星差评。
+核心要点 近数月来，大批企业陆续将业务从新加坡转移至马来西亚，这折射出一股全球性产业布局流动浪潮：各大企业纷纷选择运营成本更低、享有税收优惠、市场体量更大的地区落地经营。
 
-但近日他想找出这条评价时，却发现差评已经消失了。
+服装巨头海恩斯莫里斯（H&M）5 月宣布，将东南亚总部从新加坡搬迁至吉隆坡，本次调整涉及 78 个岗位。
 
-中国新闻网《民生调查局》调查发现，消费者反映多个平台存在差评“消失”的情况。
+喜力啤酒则在 3 月透露，旗下亚太酿酒新加坡工厂的大规模生产业务，将转移至马来西亚与越南的区域酿造基地。
 
-消费者留下的真实评价究竟去了哪里？
+新加坡管理大学社会学副教授林伟文表示：“这一系列搬迁举措意义重大，外迁节奏明显加快。
 
-记者就此展开调查。
+2026 年初开始，我们能清晰看到企业扎堆迁往马来西亚的浪潮。
 
-某社交媒体平台，存在不少指导商家处理差评的话题帖，评论区里多位用户留言表示“可以删，私信我”。
+政策导向叠加成本压力双重作用下，今年这一趋势远比 2025 年突出。
 
-真实差评不翼而飞 “到店消费半年后，我那条真实差评不见了。
+” 他通过邮件向 CNBC 作出上述表态。
 
-”夏宇岩回忆，“朋友说想去吃那家川菜，我就跟他讲了当时糟糕的用餐经历，结果想去翻出原来的评论，才发现已经找不到了。
+林伟文指出，企业迁移的核心驱动力是租金、人力薪资、整体运营层面巨大的成本差价套利空间。
 
 ## 相关推荐
 
-- 2026-06-30 02:21 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-30 02:18 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 02:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 01:59 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 02:21 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 02:15 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 02:02 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 01:59 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 01:54 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-30 01:56 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 02:00 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 02:06 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 02:03 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 02:25 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 02:06 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 02:19 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 02:19 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 02:21 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 02:09 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 02:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 02:05 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 02:21 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 02:23 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:02 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/4186044173.shtml)
-- 2026-06-30 01:55 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/82934006636.shtml)
-- 2026-06-30 01:57 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/8760860146.shtml)
-- 2026-06-30 02:00 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/18602.shtml)
-- 2026-06-30 02:22 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/69941446806.shtml)
-- 2026-06-30 02:17 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/636510066025.shtml)
-- 2026-06-30 02:16 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/403114.shtml)
-- 2026-06-30 02:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/317146517410.shtml)
-- 2026-06-30 02:01 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/56817520643.shtml)
-- 2026-06-30 02:11 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/601316511005.shtml)
-- 2026-06-30 01:56 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/34914912881.shtml)
-- 2026-06-30 01:59 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/129393006610.shtml)
-- 2026-06-30 01:54 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/9483915.shtml)
-- 2026-06-30 02:07 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/86181334483.shtml)
-- 2026-06-30 02:16 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/94924827599.shtml)
+- 2026-06-30 02:15 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/379814.shtml)
+- 2026-06-30 02:03 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/47798864.shtml)
+- 2026-06-30 02:21 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/8479452284.shtml)
+- 2026-06-30 02:16 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/74927583.shtml)
+- 2026-06-30 02:19 - [美人鱼](https://www.share.kurohicncr.top/Article/details/644539445.shtml)
+- 2026-06-30 02:03 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/059279145588.shtml)
+- 2026-06-30 02:22 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/7355901262.shtml)
+- 2026-06-30 02:18 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/0817782720.shtml)
+- 2026-06-30 02:20 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/907001.shtml)
+- 2026-06-30 02:22 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/543744606.shtml)
+- 2026-06-30 02:29 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/6623472.shtml)
+- 2026-06-30 02:12 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/60673879.shtml)
+- 2026-06-30 02:17 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/927658426839.shtml)
+- 2026-06-30 02:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/90219844259.shtml)
+- 2026-06-30 02:03 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/316237800483.shtml)

@@ -1,59 +1,51 @@
-# 广东举办“终身学习，人人出彩”主题宣讲活动
+# 6月12日“农产品批发价格200指数”比昨天下降0.06个点
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新网广州4月29日电 (记者 程景伟)由广东省委宣传部主办、广州市委宣传部协办的“终身学习，人人出彩”主题宣讲活动，28日在广州举行。 深耕一线的大国工匠、技能报国的世界冠军、扎根基层的育人典范……在宣讲活动现场，10组来自各行各业的宣讲员用亲身经历，讲述“学习点亮人生、奋斗成就梦想”的故事。 广州市浩洋电子股份有限公司董事长兼总经理蒋伟楷分享了自己的学习历程与创业故事。多年
+中新网6月12日电 据农业农村部网站消息，据农业农村部监测，6月12日“农产品批发价格200指数”为113.53，比昨天下降0.06个点，“菜篮子”产品批发价格指数为113.64，比昨天下降0.02个点。 截至今日14:00时，全国农产品批发市场猪肉平均价格为14.56元/公斤，比昨天上升0.4%；牛肉66.73元/公斤，比昨天上升0.2%；羊肉63.79元/公斤，比昨天下降0
 
 ## 正文
 
-中新网广州4月29日电 (记者 程景伟)由广东省委宣传部主办、广州市委宣传部协办的“终身学习，人人出彩”主题宣讲活动，28日在广州举行。
+中新网6月12日电 据农业农村部网站消息，据农业农村部监测，6月12日“农产品批发价格200指数”为113.53，比昨天下降0.06个点，“菜篮子”产品批发价格指数为113.64，比昨天下降0.02个点。
 
-深耕一线的大国工匠、技能报国的世界冠军、扎根基层的育人典范……在宣讲活动现场，10组来自各行各业的宣讲员用亲身经历，讲述“学习点亮人生、奋斗成就梦想”的故事。
+截至今日14:00时，全国农产品批发市场猪肉平均价格为14.56元/公斤，比昨天上升0.4%；牛肉66.73元/公斤，比昨天上升0.2%；羊肉63.79元/公斤，比昨天下降0.7%；鸡蛋10.78元/公斤，与昨天持平；白条鸡17.25元/公斤，比昨天下降0.1%。
 
-广州市浩洋电子股份有限公司董事长兼总经理蒋伟楷分享了自己的学习历程与创业故事。
+重点监测的28种蔬菜平均价格为4.30元/公斤，比昨天下降0.7%；重点监测的6种水果平均价格为7.53元/公斤，与昨天持平。
 
-多年前，蒋伟楷在广州番禺南村的一间小房里创办了舞台灯光器材厂，开启创业之路。
+鲫鱼20.12元/公斤，比昨天下降2.2%；鲤鱼14.72元/公斤，比昨天下降0.9%；白鲢鱼10.30元/公斤，比昨天下降1.1%；大带鱼40.58元/公斤，比昨天下降1.0%。
 
-2002年，他带着4款产品亮相意大利国际灯光音响展，用英语宣讲产品、洽谈合作，成功拿下多个国家的订单，公司国际化之路就此开启。
-
-以《鸡舍里的学习之旅》为题，温氏食品集团股份有限公司高级畜牧师刘松柏分享了在求学路与鸡舍间走过的历程。
-
-博士毕业后，刘松柏选择成为一名扎根生产一线的“养鸡人”，他带领团队建立中华土鸡数据库，成功研究基于净能体系的低蛋白日粮技术，每年创造了数亿元的经济效益。
-
-“虽然我学过裁缝，却因为不会操作电动缝纫机，被车间的流水线拒之门外。
+今日，国内鲜活农产品批发市场重点监测的46个品种中，与昨天相比价格升幅前五名的是富士苹果、西瓜、菜花、茄子和猪肉，幅度分别为2.7%、0.8%、0.8%、0.5%和0.4%；价格降幅前五名的是香蕉、白萝卜、鲫鱼、香菇和生姜，幅度分别为2.3%、2.2%、2.2%、2.1%和2.1%。
 
 ## 相关推荐
 
-- 2026-06-30 02:20 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 01:59 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 01:59 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 02:08 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 02:20 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-30 02:00 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 02:07 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 02:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 02:17 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 02:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 02:21 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 02:07 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 02:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 02:22 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 02:05 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 02:26 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 02:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 02:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-30 02:11 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 02:06 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-30 02:05 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 02:08 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 02:04 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 02:23 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:18 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/608292022264.shtml)
-- 2026-06-30 02:10 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/842183037.shtml)
-- 2026-06-30 01:57 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/395699926.shtml)
-- 2026-06-30 02:11 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/963509.shtml)
-- 2026-06-30 02:21 - [新官上任三把火](https://www.share.minike.top/Article/details/12283.shtml)
-- 2026-06-30 02:23 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/8650805.shtml)
-- 2026-06-30 02:02 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/98406037.shtml)
-- 2026-06-30 02:13 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/8586298163.shtml)
-- 2026-06-30 01:54 - [女心理师](https://www.share.kurohicncr.top/Article/details/922606351524.shtml)
-- 2026-06-30 02:04 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/951483796021.shtml)
-- 2026-06-30 02:05 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/624078393.shtml)
-- 2026-06-30 02:05 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/39659.shtml)
-- 2026-06-30 01:58 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/46066.shtml)
-- 2026-06-30 02:17 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/2450451323.shtml)
-- 2026-06-30 02:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/3247954.shtml)
+- 2026-06-30 02:10 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/694325299.shtml)
+- 2026-06-30 02:14 - [美人鱼](http://www.share.kurohicncr.top/Article/details/1464275.shtml)
+- 2026-06-30 02:04 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/90963005.shtml)
+- 2026-06-30 02:20 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/128518969.shtml)
+- 2026-06-30 02:25 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/43875123.shtml)
+- 2026-06-30 02:20 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/24224.shtml)
+- 2026-06-30 02:23 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/903102.shtml)
+- 2026-06-30 02:27 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/00637832026.shtml)
+- 2026-06-30 02:12 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/89334632062.shtml)
+- 2026-06-30 02:11 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/0048161702.shtml)
+- 2026-06-30 02:03 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/9065695796.shtml)
+- 2026-06-30 02:20 - [勇敢的心第二部](https://www.share.minike.top/Article/details/9404459289.shtml)
+- 2026-06-30 02:02 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/1536852.shtml)
+- 2026-06-30 02:28 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/03605921524.shtml)
+- 2026-06-30 02:08 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/27482.shtml)

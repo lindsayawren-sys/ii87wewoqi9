@@ -1,57 +1,59 @@
-# 红星美凯龙绩后高开逾7% 第一季度归母净利润4767.76万元
+# 依托AI技术及“双万兆”网络 上海加速打造“智慧商业体”
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-红星美凯龙（01528）绩后高开逾7%，截至发稿，股价上涨7.41%，现报1.45港元，成交额144.73万港元。 4月27日，红星美凯龙发布截至2026年3月31日止3个月业绩，该集团取得营业收入15.48亿元，同比减少4.15%；归属于母公司股东的净利润4767.76万元，去年同期则取得亏损5.13亿元；基本每股收益0.01元。 营业收入减少主要是商场数量较上年同期相比有所
+中新网上海6月11日电 (记者 郑莹莹)迈入智能互联时代，上海正加快推动人工智能技术赋能消费场景创新，大力培育智能消费增长新动能。11日，沪上知名商业地标上海环球港宣布从“5G+双千兆第一港”升级为“双万兆第一港”，并借助AI技术打造智慧商业体。 现场相关AI智慧观赛团队工作人员马先生告知，2026年美加墨世界杯期间，该商业体内将开辟观赛“第二现场”，借助“双万兆”网络、AI技
 
 ## 正文
 
-红星美凯龙（01528）绩后高开逾7%，截至发稿，股价上涨7.41%，现报1.45港元，成交额144.73万港元。
+中新网上海6月11日电 (记者 郑莹莹)迈入智能互联时代，上海正加快推动人工智能技术赋能消费场景创新，大力培育智能消费增长新动能。
 
-4月27日，红星美凯龙发布截至2026年3月31日止3个月业绩，该集团取得营业收入15.48亿元，同比减少4.15%；归属于母公司股东的净利润4767.76万元，去年同期则取得亏损5.13亿元；基本每股收益0.01元。
+11日，沪上知名商业地标上海环球港宣布从“5G+双千兆第一港”升级为“双万兆第一港”，并借助AI技术打造智慧商业体。
 
-营业收入减少主要是商场数量较上年同期相比有所减少，另外公司其他业务板块项目进度放缓，总体影响了报告期的营业收入。
+现场相关AI智慧观赛团队工作人员马先生告知，2026年美加墨世界杯期间，该商业体内将开辟观赛“第二现场”，借助“双万兆”网络、AI技术，为用户带来更流畅、更具交互性的观赛体验。
 
-但随着商场租赁及运营业务的租金单价已出现止跌企稳，出租率持续提升，公司主业的经营改善，单体商场的经营质量已明显提升。
+上海市经济和信息化委员会方面表示，当前，数字经济已成为上海城市高质量发展的核心引擎。
 
-受到以上因素的影响，较上年同期相比，营业收入整体变动较小。
+上海在“十四五”期间建成了全国领先的“双千兆”网络，5G基站密度、千兆光网覆盖率位居全国首位。
 
-责任编辑：卢昱君
+6年前，业界在上海环球港见证了上海“5G+双千兆第一港”的诞生。
+
+6年间，上海信息基础设施实现从“双千兆”到“双万兆”的跨越，数实融合从单点探索走向全域深化。
+
+“双万兆”是继“双千兆”之后通信基础设施的新升级形态。
 
 ## 相关推荐
 
-- 2026-06-30 01:54 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-30 02:04 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 02:14 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 02:12 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 02:00 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 02:23 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 02:23 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-30 02:01 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-30 02:07 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 02:19 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 02:00 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-30 02:18 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 01:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 02:21 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 02:18 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 02:26 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 02:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 02:23 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 02:09 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 02:06 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 02:22 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 02:03 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 02:06 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-30 02:04 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 02:23 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 02:14 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 02:08 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 02:19 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:59 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/3007682.shtml)
-- 2026-06-30 01:59 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/4651304986.shtml)
-- 2026-06-30 02:04 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/128572370.shtml)
-- 2026-06-30 02:07 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/312734936742.shtml)
-- 2026-06-30 02:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/6307174.shtml)
-- 2026-06-30 02:00 - [斛珠夫人](http://www.blog.minike.top/Article/details/37294.shtml)
-- 2026-06-30 02:23 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/3917899.shtml)
-- 2026-06-30 02:10 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/76995184.shtml)
-- 2026-06-30 01:57 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/877141.shtml)
-- 2026-06-30 02:02 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/5603830212.shtml)
-- 2026-06-30 02:08 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/204719.shtml)
-- 2026-06-30 02:06 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/999366.shtml)
-- 2026-06-30 02:01 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/011545359505.shtml)
-- 2026-06-30 01:55 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/7698014935.shtml)
-- 2026-06-30 02:02 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/5461161.shtml)
+- 2026-06-30 02:28 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/7413251.shtml)
+- 2026-06-30 02:19 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/4790942.shtml)
+- 2026-06-30 02:08 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/4667175478.shtml)
+- 2026-06-30 02:00 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/771988088392.shtml)
+- 2026-06-30 02:07 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/6889481875.shtml)
+- 2026-06-30 02:14 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/2639882.shtml)
+- 2026-06-30 02:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/811491946964.shtml)
+- 2026-06-30 02:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/886399.shtml)
+- 2026-06-30 02:18 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/852323475718.shtml)
+- 2026-06-30 02:12 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/8090089.shtml)
+- 2026-06-30 02:23 - [日本进球](https://www.share.kurohicncr.top/Article/details/99969975825.shtml)
+- 2026-06-30 02:23 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/13841680.shtml)
+- 2026-06-30 02:16 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/144983362256.shtml)
+- 2026-06-30 02:26 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/987016904311.shtml)
+- 2026-06-30 02:10 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/2361632400.shtml)

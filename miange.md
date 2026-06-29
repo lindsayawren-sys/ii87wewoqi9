@@ -1,61 +1,46 @@
-# 阿联酋将于 5 月 1 日正式退出石油输出国组织
+# 6月11日央行开展1885亿元7天期逆回购操作
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-核心要点 阿联酋即将于 5 月 1 日脱离欧佩克，这对该石油联盟构成重大打击。欧佩克主要协调全球、尤其是中东主要产油国的原油生产政策。 本次重磅消息于周二官宣。此前数周，阿联酋持续遭受同属欧佩克的伊朗发动的导弹与无人机袭击；伊朗针对霍尔木兹海峡航运的打击行动，也严重限制了阿联酋的原油出口能力，动摇其经济根基。 过去近六十年来，阿联酋在欧佩克各项决策中拥有重要话语权。今年 2 月
+中新网6月11日电 据央行网站消息，2026年6月11日中国人民银行以固定利率、数量招标方式开展了1885亿元7天期逆回购操作，全额满足了一级交易商需求。具体情况如下：
 
 ## 正文
 
-核心要点 阿联酋即将于 5 月 1 日脱离欧佩克，这对该石油联盟构成重大打击。
+中新网6月11日电 据央行网站消息，2026年6月11日中国人民银行以固定利率、数量招标方式开展了1885亿元7天期逆回购操作，全额满足了一级交易商需求。
 
-欧佩克主要协调全球、尤其是中东主要产油国的原油生产政策。
-
-本次重磅消息于周二官宣。
-
-此前数周，阿联酋持续遭受同属欧佩克的伊朗发动的导弹与无人机袭击；伊朗针对霍尔木兹海峡航运的打击行动，也严重限制了阿联酋的原油出口能力，动摇其经济根基。
-
-过去近六十年来，阿联酋在欧佩克各项决策中拥有重要话语权。
-
-今年 2 月，该国原油产量位列组织内第三名，仅次于沙特、伊拉克。
-
-这个海湾国家于 1967 年加入欧佩克，距该组织成立仅相隔七年。
-
-阿联酋并未明确说明当下退出欧佩克的具体原因。
+具体情况如下：
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 02:21 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 01:58 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 02:07 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 02:23 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 01:57 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 02:09 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 02:14 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 02:20 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 02:02 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 02:16 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 01:57 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-30 02:01 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 01:57 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 01:59 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 02:22 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 02:20 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 02:29 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 02:23 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 02:04 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 02:12 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 02:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 02:18 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 02:18 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 02:07 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 02:18 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 02:17 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/387136740.shtml)
-- 2026-06-30 02:17 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/1137238.shtml)
-- 2026-06-30 01:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/293136.shtml)
-- 2026-06-30 02:08 - [世界杯](https://www.blog.kurohicncr.top/Article/details/225425992186.shtml)
-- 2026-06-30 02:09 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/53089778244.shtml)
-- 2026-06-30 02:18 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/3898101432.shtml)
-- 2026-06-30 02:20 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/166968058375.shtml)
-- 2026-06-30 02:14 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/33579994169.shtml)
-- 2026-06-30 02:12 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/690959.shtml)
-- 2026-06-30 02:07 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/70980149125.shtml)
-- 2026-06-30 02:20 - [沉睡花园](https://www.blog.minike.top/Article/details/7589175.shtml)
-- 2026-06-30 02:17 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/388598.shtml)
-- 2026-06-30 02:04 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/793274679.shtml)
-- 2026-06-30 01:55 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/7142771.shtml)
-- 2026-06-30 02:15 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/05952586.shtml)
+- 2026-06-30 02:00 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/6853982.shtml)
+- 2026-06-30 02:05 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/9615971.shtml)
+- 2026-06-30 02:11 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/2961541932.shtml)
+- 2026-06-30 02:16 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/582775371.shtml)
+- 2026-06-30 02:30 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/14455648.shtml)
+- 2026-06-30 02:15 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/11543670.shtml)
+- 2026-06-30 02:22 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/6594482418.shtml)
+- 2026-06-30 02:02 - [美股](http://www.share.kurohicncr.top/Article/details/20057923.shtml)
+- 2026-06-30 02:18 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/5740961.shtml)
+- 2026-06-30 02:17 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/924678.shtml)
+- 2026-06-30 02:20 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/807961844543.shtml)
+- 2026-06-30 02:11 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/542046703773.shtml)
+- 2026-06-30 02:16 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/42999.shtml)
+- 2026-06-30 02:22 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/945326.shtml)
+- 2026-06-30 02:16 - [沙丘](http://www.blog.kurohicncr.top/Article/details/3061202.shtml)

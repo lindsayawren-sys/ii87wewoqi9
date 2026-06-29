@@ -1,61 +1,56 @@
-# 报告聚焦建筑业转型：人才、技术、交付模式为三大支点
+# “天下奶娘回祖庙”活动福建古田举行 海内外陈靖姑信众虔诚拜谒
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新网北京4月28日电 (记者 张素)近日发布的一份报告认为，从“好房子”建设到城市更新行动，从智能建造到可持续发展，建筑行业将迎来不可多得的结构性机遇。 《2025/2026年度全球建筑业调查》展现了全球建筑业“需求上涨与风险偏好走低，转型迫在眉睫”的现状，并提出一系列可持续发展建议。 “面对人才短缺、技术能力差距和供应链不稳等挑战，转型已不再是企业的可选之举，而是为了增强韧
+发布时间：2026年06月11日 21:05 来源：中国新闻网 6月11日上午，第十八届海峡论坛·陈靖姑文化活动周系列活动之一的第二届“天下奶娘回祖庙”活动在福建省宁德市古田县临水宫祖庙举行。海内外共计78家宫庙以及协会的1000余名代表齐聚一堂，共溯陈靖姑信俗文化之源，同感传统文化之韵。 随着擂鼓声，活动拉开序幕。各宫庙代表队伍怀抱奶娘金身有序入场，随后竖幡挂灯、谒祖进香、颁
 
 ## 正文
 
-中新网北京4月28日电 (记者 张素)近日发布的一份报告认为，从“好房子”建设到城市更新行动，从智能建造到可持续发展，建筑行业将迎来不可多得的结构性机遇。
+发布时间：2026年06月11日 21:05 来源：中国新闻网 6月11日上午，第十八届海峡论坛·陈靖姑文化活动周系列活动之一的第二届“天下奶娘回祖庙”活动在福建省宁德市古田县临水宫祖庙举行。
 
-《2025/2026年度全球建筑业调查》展现了全球建筑业“需求上涨与风险偏好走低，转型迫在眉睫”的现状，并提出一系列可持续发展建议。
+海内外共计78家宫庙以及协会的1000余名代表齐聚一堂，共溯陈靖姑信俗文化之源，同感传统文化之韵。
 
-“面对人才短缺、技术能力差距和供应链不稳等挑战，转型已不再是企业的可选之举，而是为了增强韧性、提升竞争力并实现长期增长的必然选择。
+随着擂鼓声，活动拉开序幕。
 
-”毕马威中国客户与业务发展主管合伙人江立勤说。
+各宫庙代表队伍怀抱奶娘金身有序入场，随后竖幡挂灯、谒祖进香、颁发回祖庙纪念证书等环节依序进行，整个过程庄重有序，尽显对奶娘的崇敬与文化传承的诚意。
 
-报告显示，全球71%的建筑业高管对行业发展前景表示乐观，较2023年有所上升。
+临水夫人陈靖姑被誉为“救产、护胎、佑民”的“妇女儿童保护神”，是福建最有影响力的陆上女神。
 
-同时，企业面临原材料成本上涨、供应链不稳定和监管趋严等多重压力。
+古田临水宫作为世界陈靖姑信俗文化的发祥地，目前分布在世界各地的临水宫分宫分庙有5000余座，信众逾1.2亿人。
 
-全球90%的受访者表示客户对可持续发展提出了更高要求，四分之三的受访企业面临供应链风险的不断扩大带来的合规负担加重。
+其中，台湾主祀陈靖姑的宫庙有500多座，配祀的宫庙3000多座，信众逾千万人。
 
-报告认为，在建筑业加速转型的进程中，人才、技术、交付模式是转型三大支点。
+(吴晟炜 詹圣 视频来源 古田县融媒体中心） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 02:06 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 02:19 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 02:06 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 01:56 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 02:20 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 02:16 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 02:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 02:16 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 02:08 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 01:55 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 02:12 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 02:04 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 02:13 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 02:17 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 01:57 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 02:28 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 02:27 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 02:07 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 02:08 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 02:19 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 02:24 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 02:08 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 02:16 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 02:21 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 02:09 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/313008495672.shtml)
-- 2026-06-30 02:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/978515588.shtml)
-- 2026-06-30 02:15 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/3290967.shtml)
-- 2026-06-30 01:57 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/92353320.shtml)
-- 2026-06-30 01:57 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/791646096252.shtml)
-- 2026-06-30 01:57 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/04965.shtml)
-- 2026-06-30 02:21 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/940124236422.shtml)
-- 2026-06-30 02:07 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/90377119410.shtml)
-- 2026-06-30 02:04 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/855383.shtml)
-- 2026-06-30 02:04 - [斗破苍穹](http://www.share.minike.top/Article/details/12540.shtml)
-- 2026-06-30 02:06 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/8623359273.shtml)
-- 2026-06-30 02:21 - [内马尔替补](http://www.share.minike.top/Article/details/30815545.shtml)
-- 2026-06-30 02:08 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/5339088767.shtml)
-- 2026-06-30 02:13 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/1370059914.shtml)
-- 2026-06-30 02:09 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/0786464641.shtml)
+- 2026-06-30 02:21 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/365797918.shtml)
+- 2026-06-30 02:24 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/5155379.shtml)
+- 2026-06-30 02:01 - [明星大侦探第一季](https://www.share.minike.top/Article/details/60100518.shtml)
+- 2026-06-30 02:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/5393516.shtml)
+- 2026-06-30 02:14 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/93706974743.shtml)
+- 2026-06-30 02:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/8893571.shtml)
+- 2026-06-30 02:20 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/778929663314.shtml)
+- 2026-06-30 02:23 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/170383.shtml)
+- 2026-06-30 02:14 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/51229091114.shtml)
+- 2026-06-30 02:26 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/278380.shtml)
+- 2026-06-30 02:03 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/82431746223.shtml)
+- 2026-06-30 02:09 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/619399917007.shtml)
+- 2026-06-30 02:25 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/401525326106.shtml)
+- 2026-06-30 02:08 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/5499619115.shtml)
+- 2026-06-30 02:25 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/758795432.shtml)

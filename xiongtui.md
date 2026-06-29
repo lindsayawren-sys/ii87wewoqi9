@@ -1,56 +1,50 @@
-# 《全国数据资源调查报告（2025年）》发布 数据赋能千行百业成效凸显
+# 巴西：5月份食糖出口量下降12%
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新网福州4月29日电 (叶艺琳)《全国数据资源调查报告(2025年)》29日在第九届数字中国建设峰会主论坛上正式发布。报告显示，中国数据要素市场化、价值化进程显著提速，数据资源供给体系、数据流通体系和数据开发利用体系协同演进，正从数据资源规模扩张向数据要素价值释放加快跃升。2025年，中国数据生产总量达52.26ZB(泽字节)，同比增长27.28%，约占全球生产总量的27.4
+生意社06月11日讯 据巴西工贸部最新数据，2026年5月巴西食糖出口量为197万吨，同比下降11.9%。1-5月巴西累计出口食糖920万吨，同比下降3.5%。 （文章来源：生意社）责任编辑：李铁民
 
 ## 正文
 
-中新网福州4月29日电 (叶艺琳)《全国数据资源调查报告(2025年)》29日在第九届数字中国建设峰会主论坛上正式发布。
+生意社06月11日讯 据巴西工贸部最新数据，2026年5月巴西食糖出口量为197万吨，同比下降11.9%。
 
-报告显示，中国数据要素市场化、价值化进程显著提速，数据资源供给体系、数据流通体系和数据开发利用体系协同演进，正从数据资源规模扩张向数据要素价值释放加快跃升。
+1-5月巴西累计出口食糖920万吨，同比下降3.5%。
 
-2025年，中国数据生产总量达52.26ZB(泽字节)，同比增长27.28%，约占全球生产总量的27.44%。
-
-中国数据存储总量达2.53ZB(泽字节)，活跃数据总量1.67ZB(泽字节)。
-
-中国智算总规模达到159万PFlops(每秒执行千万亿次浮点运算)，八大国家算力枢纽(含十大集群)智算规模占全国比重超过80%，通用算力向智能算力的代际更替加速。
-
-中国日均词元调用量从年初的超万亿增长到年末的100万亿，呈现指数级增长；全年词元累计调用量达到约21100万亿。
-
-数据赋能千行百业成效凸显。
-
-报告显示，农业领域，用于人工智能的数据量同比增长近15%，智慧农业加速发展；工业领域，工业数据生产量约占企业数据生产总量的1/4，数字化转型赋能效应持续提升。
+（文章来源：生意社）责任编辑：李铁民
 
 ## 相关推荐
 
-- 2026-06-30 02:17 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 02:15 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 02:18 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 01:58 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 02:13 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 02:13 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 01:56 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 02:16 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 02:15 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 02:16 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 02:09 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 02:10 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 02:20 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 02:18 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 02:29 - [电影后室值得看吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 02:06 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 02:22 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 02:07 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 02:16 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 02:07 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 02:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 02:17 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 02:19 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 02:13 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:15 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/2884819.shtml)
-- 2026-06-30 01:59 - [极限挑战第一季](https://www.blog.minike.top/Article/details/481641.shtml)
-- 2026-06-30 02:02 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/11894674.shtml)
-- 2026-06-30 02:09 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/261106001108.shtml)
-- 2026-06-30 02:18 - [美股](https://www.blog.minike.top/Article/details/8774239.shtml)
-- 2026-06-30 02:01 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/099135415679.shtml)
-- 2026-06-30 01:55 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/2104834.shtml)
-- 2026-06-30 02:19 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/16014941.shtml)
-- 2026-06-30 02:05 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/724888253.shtml)
-- 2026-06-30 01:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/343208996.shtml)
-- 2026-06-30 02:19 - [房价什么时候能涨](https://www.share.minike.top/Article/details/64897714732.shtml)
-- 2026-06-30 02:14 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/893675055.shtml)
-- 2026-06-30 02:02 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/173767555665.shtml)
-- 2026-06-30 02:03 - [金刚川](https://www.blog.kurohicncr.top/Article/details/27289.shtml)
-- 2026-06-30 02:07 - [天道](https://www.share.kurohicncr.top/Article/details/01685.shtml)
+- 2026-06-30 02:17 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/6537619.shtml)
+- 2026-06-30 02:11 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/7687878.shtml)
+- 2026-06-30 02:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/46792018.shtml)
+- 2026-06-30 02:27 - [田曦薇没招了](https://www.blog.minike.top/Article/details/97088773.shtml)
+- 2026-06-30 02:26 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/174844883.shtml)
+- 2026-06-30 02:13 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/719323544281.shtml)
+- 2026-06-30 02:21 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/3748148978.shtml)
+- 2026-06-30 02:02 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/8251652.shtml)
+- 2026-06-30 02:06 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/02399122.shtml)
+- 2026-06-30 02:14 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/37613221187.shtml)
+- 2026-06-30 02:05 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/00014.shtml)
+- 2026-06-30 02:15 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/21723566.shtml)
+- 2026-06-30 02:21 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/22973.shtml)
+- 2026-06-30 02:26 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/6774209.shtml)
+- 2026-06-30 02:12 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/861019532199.shtml)

@@ -1,60 +1,61 @@
-# 伊朗储油空间最快12天填满，5月中旬前或再减产150万桶/日
+# AI基础设施投入过大引发市场担忧 甲骨文股价盘后大跌10%
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十 能源分析机构Kpler在周一发布报告称，伊朗当前可用的原油储存能力正在快速消耗，剩余空间仅能支撑约12至22天。这一变化意味着，这个曾是欧佩克第二大产油国的国家，可能在短期内被迫进一步压缩产量。 报告指出，若库存压力持续，伊朗或需在5月中旬之前对其当前产量再削减150万桶/日，即从目前水平下降一
+甲骨文公司（Oracle）日前发布2026财年第四季度及全年财报。尽管该公司第四季度营业收入与净利润均超华尔街预期，且合同储备创下历史新高，但由于人工智能（AI）基础设施资本支出激增导致全年自由现金流转负，引发投资者对运营成本的担忧。受此影响，甲骨文股价在周三盘后交易中剧烈下挫10%。 财报显示，甲骨文第四季度营业收入同比增长21%，达到191.8亿美元，高于市场预期的191亿
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+甲骨文公司（Oracle）日前发布2026财年第四季度及全年财报。
 
-来源：金十 能源分析机构Kpler在周一发布报告称，伊朗当前可用的原油储存能力正在快速消耗，剩余空间仅能支撑约12至22天。
+尽管该公司第四季度营业收入与净利润均超华尔街预期，且合同储备创下历史新高，但由于人工智能（AI）基础设施资本支出激增导致全年自由现金流转负，引发投资者对运营成本的担忧。
 
-这一变化意味着，这个曾是欧佩克第二大产油国的国家，可能在短期内被迫进一步压缩产量。
+受此影响，甲骨文股价在周三盘后交易中剧烈下挫10%。
 
-报告指出，若库存压力持续，伊朗或需在5月中旬之前对其当前产量再削减150万桶/日，即从目前水平下降一半以上，到5月中旬降至每日120至130万桶之间。
+财报显示，甲骨文第四季度营业收入同比增长21%，达到191.8亿美元，高于市场预期的191亿美元；调整后每股收益为2.11美元，亦超过预期的1.96美元。
 
-储存空间趋紧，正在成为限制其继续生产的重要约束因素。
+在剩余履约义务（RPO，即尚未转化为收入的签约合同价值）方面，甲骨文第四季度表现亮眼，总RPO规模达6380亿美元，显著高于市场预期的6010亿美元。
 
-此前，高盛集团上周表示，伊朗的每日原油产量已减少了多达250万桶。
+然而，强劲的营收突破未能打消资本市场对AI转型成本的疑虑。
 
-该投行还指出，波斯湾地区的石油供应将需要“数月”时间才能恢复。
+数据显示，甲骨文2026财年全年资本支出高达556.6亿美元，远超华尔街预期的508.5亿美元。
 
-自2月28日冲突爆发以来，沙特、伊拉克、科威特和阿联酋等邻国产油国也不得不减少了产出。
+受大规模AI基础设施投资拖累，公司财年结束时自由现金流恶化至负236.9亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 02:00 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 02:13 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 02:07 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 01:59 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 02:14 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 02:05 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 02:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 02:02 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 02:11 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-30 02:14 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 02:21 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-30 02:07 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-30 02:01 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 02:21 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 02:18 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 02:02 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 02:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 02:17 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 02:27 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 02:02 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 02:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 02:00 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 02:28 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 02:00 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 02:29 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 02:08 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 02:15 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 02:20 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 02:26 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:17 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/4173367.shtml)
-- 2026-06-30 02:10 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/4130678.shtml)
-- 2026-06-30 02:12 - [第一炉香](https://www.share.minike.top/Article/details/92755.shtml)
-- 2026-06-30 02:16 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/7815706.shtml)
-- 2026-06-30 02:15 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/197183327646.shtml)
-- 2026-06-30 02:21 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/155136078881.shtml)
-- 2026-06-30 02:01 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/7441571866.shtml)
-- 2026-06-30 02:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/6187547.shtml)
-- 2026-06-30 02:19 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/126822.shtml)
-- 2026-06-30 02:14 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/39628377695.shtml)
-- 2026-06-30 02:01 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/054015.shtml)
-- 2026-06-30 02:22 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/13156.shtml)
-- 2026-06-30 01:56 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/10631.shtml)
-- 2026-06-30 02:11 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/94519.shtml)
-- 2026-06-30 02:11 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/649353671964.shtml)
+- 2026-06-30 02:23 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/363557.shtml)
+- 2026-06-30 02:21 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/710267453.shtml)
+- 2026-06-30 02:09 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/74978938591.shtml)
+- 2026-06-30 02:12 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/354969.shtml)
+- 2026-06-30 02:01 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/76729999152.shtml)
+- 2026-06-30 02:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/383066511.shtml)
+- 2026-06-30 02:21 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/349803075.shtml)
+- 2026-06-30 02:03 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/107485809348.shtml)
+- 2026-06-30 02:13 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/69670.shtml)
+- 2026-06-30 02:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/62100.shtml)
+- 2026-06-30 02:24 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/06055206647.shtml)
+- 2026-06-30 02:26 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/164375953.shtml)
+- 2026-06-30 02:29 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/04869292179.shtml)
+- 2026-06-30 02:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/68885.shtml)
+- 2026-06-30 02:21 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/38434771.shtml)

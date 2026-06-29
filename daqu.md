@@ -1,60 +1,59 @@
-# 又一券商被并购！这家券商整合后将跻身行业前十
+# 美加贸易摩擦拖累戈迪・豪国际大桥通车计划推迟
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文丨杨练 编辑丨李恒春 东方证券收购同城上海证券，意味着未来地方金融国资整合会持续推进，同城、同区域同类券商整合将成为常态化操作。 4月19日，东方证券发布公告称，拟通过发行A股股份及支付现金的方式收购上海证券100%股权，这是年内继东吴证券收购东海证券后的第二起券商合并案例，标志着证券行业新一轮并购重组浪
+温莎 - 底特律大桥管理局称，美加两国已达成共识，决定暂缓大桥启用 这座连通底特律与加拿大安大略省温莎市的大桥，已成为两国数次激烈贸易争端的矛盾焦点。 美加两国贸易摩擦持续发酵，一座耗资数十亿美元、旨在缓解北美最繁忙陆路口岸拥堵的新建跨境大桥，通车计划被迫延后。 负责修建戈迪・豪国际大桥、连接美国底特律与加拿大安大略省温莎市的加拿大官方机构温莎 - 底特律大桥管理局表示，美加双
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+温莎 - 底特律大桥管理局称，美加两国已达成共识，决定暂缓大桥启用 这座连通底特律与加拿大安大略省温莎市的大桥，已成为两国数次激烈贸易争端的矛盾焦点。
 
-文丨杨练 编辑丨李恒春 东方证券收购同城上海证券，意味着未来地方金融国资整合会持续推进，同城、同区域同类券商整合将成为常态化操作。
+美加两国贸易摩擦持续发酵，一座耗资数十亿美元、旨在缓解北美最繁忙陆路口岸拥堵的新建跨境大桥，通车计划被迫延后。
 
-4月19日，东方证券发布公告称，拟通过发行A股股份及支付现金的方式收购上海证券100%股权，这是年内继东吴证券收购东海证券后的第二起券商合并案例，标志着证券行业新一轮并购重组浪潮持续深化，行业资源加速向头部集聚，“大而强、专而精”的新格局正加速形成。
+负责修建戈迪・豪国际大桥、连接美国底特律与加拿大安大略省温莎市的加拿大官方机构温莎 - 底特律大桥管理局表示，美加双方一致同意，现阶段暂不启用这座大桥。
 
-资产规模跻身行业前列 本次收购完成后，东方证券的资本实力将实现质的飞跃。
+管理局今年多次表态，这条总长 1.5 英里的跨境通道原本计划于今年春季、最晚 6 月 21 日前通车。
 
-以上海证券2025年年报数据测算，其总资产为958亿元，归母净资产为198亿元，净利润为13亿元（同比增长39%）。
+管理局称，此次推迟是为了解决两国之间所有尚未敲定的分歧。
 
-合并后，东方证券归母净资产将达1025亿元，稳居上市券商第11名，总资产有望突破6000亿元，跻身行业前十。
+管理局发言人并未回应记者关于新通车时间节点的追问。
 
-这不仅补足了东方证券的资本短板，更显著提升其抵御风险与开展重资本业务的能力，实现规模跃升与业务协同的双赢，为长期高质量发展筑牢根基。
+记者周四分别向白宫与加拿大总理办公室求证，暂未得到回复。
 
-东方证券在财富管理转型方面行业领先，截至2025年三季度末，上海证券拥有72家营业部。
+这座大桥以加拿大传奇冰球明星戈迪・豪命名，上世纪 50 年代他曾带领底特律红翼队多次斩获斯坦利杯。
 
 ## 相关推荐
 
-- 2026-06-30 02:04 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 02:15 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 01:54 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 01:57 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 02:08 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 02:14 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 02:23 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-30 02:15 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 02:11 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 02:06 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 02:09 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 01:57 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-30 01:56 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 02:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 02:28 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 02:06 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 02:18 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 02:08 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 02:20 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 02:24 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 02:20 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 02:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 02:07 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 02:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-30 02:25 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 02:25 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 02:06 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:05 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/57403996777.shtml)
-- 2026-06-30 02:01 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/055348.shtml)
-- 2026-06-30 02:18 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/9320008.shtml)
-- 2026-06-30 02:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/43407.shtml)
-- 2026-06-30 02:07 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/50683.shtml)
-- 2026-06-30 02:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/03073276945.shtml)
-- 2026-06-30 02:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/72026870271.shtml)
-- 2026-06-30 02:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/221564440469.shtml)
-- 2026-06-30 02:12 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/8217604.shtml)
-- 2026-06-30 02:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/17771918335.shtml)
-- 2026-06-30 02:17 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/504189.shtml)
-- 2026-06-30 02:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/829184527489.shtml)
-- 2026-06-30 02:17 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/806593748.shtml)
-- 2026-06-30 01:55 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/353339749684.shtml)
-- 2026-06-30 02:21 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/718872768183.shtml)
+- 2026-06-30 02:26 - [请回答王牌2019](https://www.share.minike.top/Article/details/36504.shtml)
+- 2026-06-30 02:02 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/12471.shtml)
+- 2026-06-30 02:11 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/49551426.shtml)
+- 2026-06-30 02:14 - [啊啊啊](http://www.blog.minike.top/Article/details/579275.shtml)
+- 2026-06-30 02:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/16005617547.shtml)
+- 2026-06-30 02:26 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/0252022207.shtml)
+- 2026-06-30 02:23 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/5566054525.shtml)
+- 2026-06-30 02:02 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/54254.shtml)
+- 2026-06-30 02:29 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/921738.shtml)
+- 2026-06-30 02:11 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/142789761714.shtml)
+- 2026-06-30 02:28 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/79878432.shtml)
+- 2026-06-30 02:16 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/457688501016.shtml)
+- 2026-06-30 02:25 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/114512248.shtml)
+- 2026-06-30 02:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/85243391099.shtml)
+- 2026-06-30 02:28 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/21593536.shtml)

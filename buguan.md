@@ -1,45 +1,59 @@
-# 先导智能将派发末期股息每10股2.87元
+# 因人工智能涨势存疑 外国人连续第二周抛售日股
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-先导智能（00470）发布公告，该公司将派发截至2025年12月31日止年度的末期股息每10股2.87元。责任编辑：卢昱君
+周四公布的数据显示，截至6月6日，海外投资者已连续第二周抛售日本股票。此前，博通 公布的财报表现不及预期，加剧了市场对科技股领涨行情已过头的担忧，投资者因此选择在估值较高的科技股中获利了结。此外，美国就业报告表现强劲，可能促使美联储更长时间保持鹰派立场，以及中东局势 持续紧张，也对市场情绪构成压力。根据日本财务省的数据，本周外国投资者净抛售了7，010亿日元（43.7亿美元）的
 
 ## 正文
 
-先导智能（00470）发布公告，该公司将派发截至2025年12月31日止年度的末期股息每10股2.87元。
+周四公布的数据显示，截至6月6日，海外投资者已连续第二周抛售日本股票。
 
-责任编辑：卢昱君
+此前，博通 公布的财报表现不及预期，加剧了市场对科技股领涨行情已过头的担忧，投资者因此选择在估值较高的科技股中获利了结。
+
+此外，美国就业报告表现强劲，可能促使美联储更长时间保持鹰派立场，以及中东局势 持续紧张，也对市场情绪构成压力。
+
+根据日本财务省的数据，本周外国投资者净抛售了7，010亿日元（43.7亿美元）的日本股票，较前一周4，915亿日元的净抛售额大幅增加。
+
+日经指数较上周创下的68，786.49点历史高点已下跌约7.3%。
+
+尽管近期出现净抛售，但今年迄今为止，外国投资者仍向日本股市注入了约10.63万亿日元，而去年同期仅买入约1.26万亿日元。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 02:07 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 02:00 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 02:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 01:56 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 02:21 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-30 01:59 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 02:06 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 02:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 02:18 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 02:21 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 01:54 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 02:25 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 02:17 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 02:10 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 02:04 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 02:18 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 02:10 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 02:04 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 02:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 02:03 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-30 02:28 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 02:10 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 02:16 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 02:00 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 02:29 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 02:23 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/28503.shtml)
-- 2026-06-30 02:18 - [周生如故](https://www.blog.kurohicncr.top/Article/details/55891401.shtml)
-- 2026-06-30 02:04 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/238436407697.shtml)
-- 2026-06-30 02:17 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/90419668.shtml)
-- 2026-06-30 02:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/666639306443.shtml)
-- 2026-06-30 02:12 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/815978964.shtml)
-- 2026-06-30 02:13 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/7310887939.shtml)
-- 2026-06-30 02:22 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/265817272.shtml)
-- 2026-06-30 02:06 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/30505244.shtml)
-- 2026-06-30 01:56 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/32331620.shtml)
-- 2026-06-30 01:54 - [扬名立万](http://www.blog.minike.top/Article/details/44928.shtml)
-- 2026-06-30 02:00 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/033889.shtml)
-- 2026-06-30 02:04 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/37622661.shtml)
-- 2026-06-30 02:01 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/510469.shtml)
-- 2026-06-30 02:05 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/411155356.shtml)
+- 2026-06-30 02:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/75373842.shtml)
+- 2026-06-30 02:01 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/26325231.shtml)
+- 2026-06-30 02:06 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/7687783227.shtml)
+- 2026-06-30 02:00 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/9036573.shtml)
+- 2026-06-30 02:03 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/5650712163.shtml)
+- 2026-06-30 02:21 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/54512673288.shtml)
+- 2026-06-30 02:01 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/86354185.shtml)
+- 2026-06-30 02:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/360314050.shtml)
+- 2026-06-30 02:10 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/1819887.shtml)
+- 2026-06-30 02:22 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/97206873789.shtml)
+- 2026-06-30 02:06 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/082077.shtml)
+- 2026-06-30 02:21 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/61414.shtml)
+- 2026-06-30 02:27 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/8697823078.shtml)
+- 2026-06-30 02:24 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/16711.shtml)
+- 2026-06-30 02:08 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/0868948.shtml)

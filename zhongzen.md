@@ -1,57 +1,45 @@
-# 大陆打拼十五载 台青获“湖北青年五四奖章”
+# 普洛药业：2026年6月29日召开2026年第一次临时股东会
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新社武汉4月29日电 (记者 马芙蓉)2026年“湖北青年五四奖章”评选结果29日公布，武汉市中心医院泌尿外科主治医师、35岁台青甘家骅是获奖者之一。甘家骅表示，这是对他15年打拼的认可，也是激励他继续前行的动力。 2011年，他从台湾来到华中科技大学同济医学院学医，2022年入职武汉市中心医院。 2018年以来，大陆先后出台系列惠台措施，为台胞学习、创业、就业、生活提供同等
+证券日报网讯 6月11日，普洛药业发布公告称，公司将于2026年6月29日召开2026年第一次临时股东会。（文章来源：证券日报）
 
 ## 正文
 
-中新社武汉4月29日电 (记者 马芙蓉)2026年“湖北青年五四奖章”评选结果29日公布，武汉市中心医院泌尿外科主治医师、35岁台青甘家骅是获奖者之一。
+证券日报网讯 6月11日，普洛药业发布公告称，公司将于2026年6月29日召开2026年第一次临时股东会。
 
-甘家骅表示，这是对他15年打拼的认可，也是激励他继续前行的动力。
-
-2011年，他从台湾来到华中科技大学同济医学院学医，2022年入职武汉市中心医院。
-
-2018年以来，大陆先后出台系列惠台措施，为台胞学习、创业、就业、生活提供同等待遇。
-
-“我是惠台措施的直接受益者。
-
-”甘家骅说，从考取执业医师资格证、完成住院医师规范化培训，到主导科研项目、考取中级卫生专业技术资格证、晋升主治医师，一路畅通无阻。
-
-甘家骅参与完成的“前列腺癌早期诊断及治疗新策略的技术创新与应用”项目，获2025年湖北省科学技术进步奖二等奖。
-
-正在主持开展的“前列腺癌穿刺平台建设”项目，是武汉市科技创新局重点项目之一。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-30 02:23 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 02:21 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 01:57 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-30 02:22 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 01:54 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 02:06 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-30 02:23 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 02:15 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 02:21 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 01:56 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 01:56 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 02:06 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 02:27 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 02:09 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 02:09 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 02:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 02:29 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 02:22 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 02:16 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 02:25 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 02:27 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 02:09 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:07 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/460915428.shtml)
-- 2026-06-30 02:13 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/42850853.shtml)
-- 2026-06-30 02:06 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/90980314.shtml)
-- 2026-06-30 02:09 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/5883967.shtml)
-- 2026-06-30 02:04 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/801723341000.shtml)
-- 2026-06-30 02:19 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/417534503476.shtml)
-- 2026-06-30 02:00 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/68208.shtml)
-- 2026-06-30 02:18 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/79551891.shtml)
-- 2026-06-30 02:17 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/64462335.shtml)
-- 2026-06-30 02:04 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/9129693314.shtml)
-- 2026-06-30 02:16 - [张凌赫 客串](https://www.share.minike.top/Article/details/38708818492.shtml)
-- 2026-06-30 02:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/093953.shtml)
-- 2026-06-30 02:23 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/245012662903.shtml)
-- 2026-06-30 02:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/79057160.shtml)
-- 2026-06-30 02:13 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/84792023.shtml)
+- 2026-06-30 02:04 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/0311096245.shtml)
+- 2026-06-30 02:21 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/5110608.shtml)
+- 2026-06-30 02:29 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/3313016.shtml)
+- 2026-06-30 02:22 - [时光音乐会](https://www.share.minike.top/Article/details/108651764683.shtml)
+- 2026-06-30 02:14 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/263001675937.shtml)
+- 2026-06-30 02:27 - [金牌调解](https://www.share.kurohicncr.top/Article/details/96483.shtml)
+- 2026-06-30 02:10 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/0818758261.shtml)
+- 2026-06-30 02:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/44932133.shtml)
+- 2026-06-30 02:08 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/92443095676.shtml)
+- 2026-06-30 02:03 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/392774.shtml)
+- 2026-06-30 02:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/75675.shtml)
+- 2026-06-30 02:26 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/30070.shtml)
+- 2026-06-30 02:27 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/73905854.shtml)
+- 2026-06-30 02:10 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/76647024314.shtml)
+- 2026-06-30 02:04 - [一见倾心](https://www.share.minike.top/Article/details/9763406770.shtml)

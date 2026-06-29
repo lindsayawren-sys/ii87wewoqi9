@@ -1,49 +1,56 @@
-# “穿越”大明 南京闲置空间文旅融合华丽转身
+# 真相丨忙着抹黑新疆？不如带走一只“富贵小羊”
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月28日 16:05 来源：中国新闻网 4月27日，“开局之年看中国·遇见不一样的江苏”网络主题宣传活动走进南京市秦淮区金陵长乐坊。在这个由闲置超市改造而成的文化空间里，一步一景，生动展现了明代科举文化和市井文化，实现了文旅融合发展。(张传明） 责任编辑：【周驰】
+发布时间：2026年06月11日 11:39 来源：中国新闻网 这两天，装扮着各种民族元素的新疆“手搓”“富贵小羊”走红，订单源源不断。不止新疆，“西藏版 Jellycat”毛绒玩偶、马斯克小儿子的壮族织锦虎头包等等，各具特色的民族文创火遍海内外。 但一些西方政客对此视而不见。前不久，欧洲议会再次炒作涉华议题，将中国推广国家通用语言文字、推进民族团结进步促进法，污蔑成所谓“同化
 
 ## 正文
 
-发布时间：2026年04月28日 16:05 来源：中国新闻网 4月27日，“开局之年看中国·遇见不一样的江苏”网络主题宣传活动走进南京市秦淮区金陵长乐坊。
+发布时间：2026年06月11日 11:39 来源：中国新闻网 这两天，装扮着各种民族元素的新疆“手搓”“富贵小羊”走红，订单源源不断。
 
-在这个由闲置超市改造而成的文化空间里，一步一景，生动展现了明代科举文化和市井文化，实现了文旅融合发展。
+不止新疆，“西藏版 Jellycat”毛绒玩偶、马斯克小儿子的壮族织锦虎头包等等，各具特色的民族文创火遍海内外。
 
-(张传明） 责任编辑：【周驰】
+但一些西方政客对此视而不见。
+
+前不久，欧洲议会再次炒作涉华议题，将中国推广国家通用语言文字、推进民族团结进步促进法，污蔑成所谓“同化少数民族”。
+
+欧洲议会经常在人权、民族等话题上对中国指指点点，究其根源，要么是选择性失明，对中国抱持极深的意识形态偏见；要么是别有居心，通过编造谎言迎合反华势力。
+
+当然还有不少人根本就没来过我们新疆、西藏等地，却在那里指手画脚。
+
+其实我特别想送他们一只可爱的“富贵小羊”，让他们感受中国民族事业的发展。
+
+翻开下月即将施行的民族团结进步促进法，规定“国家尊重和保障少数民族语言文字的学习和使用”“鼓励各民族互相欣赏优秀传统文化”，明明是立法守护中华民族多元一体的大家庭，却被这些政客们歪曲解读，这是阅读理解出了问题。
 
 ## 相关推荐
 
-- 2026-06-30 01:55 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 02:02 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 01:59 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 02:01 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 02:14 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 01:56 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-30 02:17 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 02:10 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 02:22 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 02:10 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-30 02:05 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 02:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 02:02 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 02:04 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 02:08 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 02:15 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 02:06 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 02:21 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 02:25 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-30 02:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-30 02:14 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 02:01 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 02:17 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:55 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/090123199995.shtml)
-- 2026-06-30 02:14 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/0933410343.shtml)
-- 2026-06-30 02:07 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/4365746029.shtml)
-- 2026-06-30 02:01 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/457183393.shtml)
-- 2026-06-30 02:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/90125086029.shtml)
-- 2026-06-30 02:15 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/2316121328.shtml)
-- 2026-06-30 02:21 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/141972.shtml)
-- 2026-06-30 02:19 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/0899943.shtml)
-- 2026-06-30 02:07 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/92671016.shtml)
-- 2026-06-30 02:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/16482075732.shtml)
-- 2026-06-30 02:16 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/15769.shtml)
-- 2026-06-30 02:05 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/038700.shtml)
-- 2026-06-30 02:23 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/966781.shtml)
-- 2026-06-30 02:21 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/92755.shtml)
-- 2026-06-30 02:16 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/04534.shtml)
+- 2026-06-30 02:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/743853198.shtml)
+- 2026-06-30 02:27 - [内马尔替补](http://www.blog.minike.top/Article/details/311614034049.shtml)
+- 2026-06-30 02:22 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/61151981.shtml)
+- 2026-06-30 02:02 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/110800870539.shtml)
+- 2026-06-30 02:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/96507.shtml)
+- 2026-06-30 02:19 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/71671447.shtml)
+- 2026-06-30 02:27 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/96238.shtml)
+- 2026-06-30 02:19 - [日本进球](https://www.share.kurohicncr.top/Article/details/4641193.shtml)
+- 2026-06-30 02:07 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/33697.shtml)
+- 2026-06-30 02:16 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/249772321.shtml)
+- 2026-06-30 02:10 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/737233759600.shtml)
+- 2026-06-30 02:14 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/9684516.shtml)
+- 2026-06-30 02:17 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/3080066.shtml)
+- 2026-06-30 02:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/19420322992.shtml)
+- 2026-06-30 02:16 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/0389852271.shtml)

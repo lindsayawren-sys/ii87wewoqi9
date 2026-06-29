@@ -1,59 +1,53 @@
-# 佳话现场丨“体验经济”激发市场活力 “指尖”技艺点亮消费新场景
+# 新华保险午后涨超5% 提名黄耿为非执行董事候选人
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-“学校组织过非遗手工活动，我觉得挺有意思。这次自己来，想更深入体验下。”在北京一家手工体验店，正在体验掐丝珐琅工艺的消费者小程说，“相比直接买成品，亲手做的东西更有特殊性。” 如今，越来越多年轻人愿意为指尖上的体验买单，消费重心正从“买什么”向“体验什么”转变。今年1月，国办印发的《加快培育服务消费新增长点工作方案》对培育服务消费新增长点作出部署，提出要支持建设若干消费带动作用
+新华保险（01336）盘中涨超6%，截至发稿，股价上涨5.13%，现报51.45港元，成交额6.64亿港元。 近日，新华保险发布公告，根据《新华人寿保险股份有限公司章程》的规定，单独或者合并持有本公司百分之三以上有表决权股份的股东可以提名非独立董事候选人，截至本公告日期，中央汇金投资有限责任公司持有本公司31.34%的股份，提名黄耿为本公司第九届董事会非执行董事候选人。 本公司
 
 ## 正文
 
-“学校组织过非遗手工活动，我觉得挺有意思。
+新华保险（01336）盘中涨超6%，截至发稿，股价上涨5.13%，现报51.45港元，成交额6.64亿港元。
 
-这次自己来，想更深入体验下。
+近日，新华保险发布公告，根据《新华人寿保险股份有限公司章程》的规定，单独或者合并持有本公司百分之三以上有表决权股份的股东可以提名非独立董事候选人，截至本公告日期，中央汇金投资有限责任公司持有本公司31.34%的股份，提名黄耿为本公司第九届董事会非执行董事候选人。
 
-”在北京一家手工体验店，正在体验掐丝珐琅工艺的消费者小程说，“相比直接买成品，亲手做的东西更有特殊性。
+本公司于2026年6月10日召开的第九届董事会第八次会议，审议通过了《关于提名黄耿先生为第九届董事会非执行董事候选人的议案》，同意提名黄耿先生为第九届董事会非执行董事候选人。
 
-” 如今，越来越多年轻人愿意为指尖上的体验买单，消费重心正从“买什么”向“体验什么”转变。
+上述议案须经本公司股东会审议。
 
-今年1月，国办印发的《加快培育服务消费新增长点工作方案》对培育服务消费新增长点作出部署，提出要支持建设若干消费带动作用强的情绪式、体验式服务消费新场景。
+待股东会审议通过后，黄耿先生的董事任职资格尚需监管机构核准。
 
-从指尖技艺到产业活力，从文化传承到情绪满足，体验经济的蓬勃发展，正彰显出新的消费趋势。
-
-年轻人爱上“亲手造物”周末午后，北京一家手工体验店坐满了年轻人。
-
-记者走进店内，看到一位顾客专注地将细细的金丝沿着图案轮廓弯折、固定，制作一个掐丝珐琅杯垫。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:21 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 02:07 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 02:15 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 02:21 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-30 02:20 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 02:12 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 02:22 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 02:15 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 02:21 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 02:09 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 02:06 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 02:17 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 02:07 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 02:28 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 02:05 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 02:22 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 02:11 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 02:13 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 02:25 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 02:06 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 02:05 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 02:24 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 02:24 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 02:27 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:16 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/67700473.shtml)
-- 2026-06-30 02:10 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/774990605926.shtml)
-- 2026-06-30 02:03 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/5555316852.shtml)
-- 2026-06-30 02:23 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/640710601632.shtml)
-- 2026-06-30 02:06 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/9241827.shtml)
-- 2026-06-30 02:09 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/931198.shtml)
-- 2026-06-30 02:06 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/99152805151.shtml)
-- 2026-06-30 02:16 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/32247257.shtml)
-- 2026-06-30 01:55 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/93695249.shtml)
-- 2026-06-30 01:54 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/88186823904.shtml)
-- 2026-06-30 02:12 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/048214022.shtml)
-- 2026-06-30 02:23 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/38612.shtml)
-- 2026-06-30 02:18 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/67618317116.shtml)
-- 2026-06-30 02:17 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/177098.shtml)
-- 2026-06-30 02:08 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/4989628.shtml)
+- 2026-06-30 02:04 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/028275961332.shtml)
+- 2026-06-30 02:11 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/093901.shtml)
+- 2026-06-30 02:15 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/7252947875.shtml)
+- 2026-06-30 02:30 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/4470122291.shtml)
+- 2026-06-30 02:03 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/34076327336.shtml)
+- 2026-06-30 02:15 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/275773878585.shtml)
+- 2026-06-30 02:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/82802529.shtml)
+- 2026-06-30 02:25 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/44510019482.shtml)
+- 2026-06-30 02:08 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/508529.shtml)
+- 2026-06-30 02:04 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/961361.shtml)
+- 2026-06-30 02:15 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/724622.shtml)
+- 2026-06-30 02:02 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/2961873.shtml)
+- 2026-06-30 02:00 - [周生如故](https://www.blog.kurohicncr.top/Article/details/5615304063.shtml)
+- 2026-06-30 02:10 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/289838682555.shtml)
+- 2026-06-30 02:16 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/04121490.shtml)

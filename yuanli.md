@@ -1,57 +1,57 @@
-# 百傲化学（603360）被证监会立案调查，受损股民可索赔
+# 操盘必读：影响股市利好或利空消息_2026年6月12日_财经新闻
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月27日晚间，百傲化学（维权）发布《关于收到中国证券监督管理委员会立案告知书的公告》。公告显示：大连百傲化学股份有限公司于近日收到中国证券监督管理委员会《立案告知书》。因涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案调查。目前具体违法事由尚未披露。
+宏观新闻 1、国务院总理李强6月11日主持召开国务院常务会议。会议听取关于贯彻落实全国科技大会精神情况汇报。会议指出，要锚定科技强国建设目标，高效组织实施国家重大科技任务，促进重大设施高效利用，强化国家战略科技力量体系化协同攻关，充分发挥科技创新对中国式现代化建设的战略支撑作用。 2、据外交部官网，菲律宾国防部长特奥多罗多次发表涉华谬论，损害中方正当利益，破坏中菲两国关系。为维
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月27日晚间，百傲化学（维权）发布《关于收到中国证券监督管理委员会立案告知书的公告》。
+宏观新闻 1、国务院总理李强6月11日主持召开国务院常务会议。
 
-公告显示：大连百傲化学股份有限公司于近日收到中国证券监督管理委员会《立案告知书》。
+会议听取关于贯彻落实全国科技大会精神情况汇报。
 
-因涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案调查。
+会议指出，要锚定科技强国建设目标，高效组织实施国家重大科技任务，促进重大设施高效利用，强化国家战略科技力量体系化协同攻关，充分发挥科技创新对中国式现代化建设的战略支撑作用。
 
-目前具体违法事由尚未披露。
+2、据外交部官网，菲律宾国防部长特奥多罗多次发表涉华谬论，损害中方正当利益，破坏中菲两国关系。
 
-上海百悦律师事务所牛彬律师表示，百傲化学遭证监会立案，投资者或可索赔。
+为维护中国国家主权、安全、发展利益，中方决定，禁止特奥多罗及其配偶、子女入境中国内地和香港、澳门，禁止中国境内的组织、个人与特奥多罗及其配偶、子女进行任何交易、合作等活动。
 
-暂定：于2026年4月28日之前买入百傲化学，且在2026年4月28日之后卖出或持有该股票的亏损投资者符合索赔条件。
+3、外交部发言人林剑主持例行记者会。
 
-初步索赔范围：上市后到2026年4月27日之间买入股票，且在2026年4月28日收盘时卖出或仍持有。
+记者提问称，据报道，由于贸易紧张局势加剧，中国已取消了本月份与欧盟的高层会晤。
 
-（最终以法院裁决为准）（百傲化学维权入口） 索赔材料： 一、买卖百傲化学（603360）股票的对账单原件 （1）对账单原件需要加盖证券公司营业部印章； （2）对账单从第一次买入百傲化学（603360）股票开始打到打印日当天，所有该股票的交易记录，目前仍持有该股票的投资者还须显示剩余持股总数。
+林剑表示，据目前了解，中欧双方就相关对话保持着沟通。
 
 ## 相关推荐
 
-- 2026-06-30 02:20 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 02:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 02:01 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 02:09 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 02:10 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 02:13 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 02:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-30 02:09 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-30 02:03 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 02:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 01:56 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 02:11 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 02:24 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 02:09 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 02:29 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 02:23 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-30 02:23 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 02:15 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 02:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 02:01 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 02:18 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 02:04 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:11 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/9803879.shtml)
-- 2026-06-30 02:11 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/21076820.shtml)
-- 2026-06-30 02:19 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/31340.shtml)
-- 2026-06-30 02:03 - [刘宇宁 好听](http://www.share.minike.top/Article/details/770796892.shtml)
-- 2026-06-30 02:18 - [我们的少年时代2](http://www.share.minike.top/Article/details/03253180.shtml)
-- 2026-06-30 02:07 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/02966476.shtml)
-- 2026-06-30 02:13 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/80562575355.shtml)
-- 2026-06-30 02:17 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/061959756279.shtml)
-- 2026-06-30 02:00 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/02329962957.shtml)
-- 2026-06-30 01:54 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/77545.shtml)
-- 2026-06-30 02:03 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/889491690180.shtml)
-- 2026-06-30 02:07 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/87047.shtml)
-- 2026-06-30 02:05 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/38764983326.shtml)
-- 2026-06-30 02:20 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/677383008.shtml)
-- 2026-06-30 01:59 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/75311.shtml)
+- 2026-06-30 02:16 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/098131839566.shtml)
+- 2026-06-30 02:08 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/46499932.shtml)
+- 2026-06-30 02:05 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/708244134867.shtml)
+- 2026-06-30 02:25 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/782140230.shtml)
+- 2026-06-30 02:18 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/765363320113.shtml)
+- 2026-06-30 02:25 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/2739869828.shtml)
+- 2026-06-30 02:04 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/916801279.shtml)
+- 2026-06-30 02:04 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/6321974.shtml)
+- 2026-06-30 02:03 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/1059050272.shtml)
+- 2026-06-30 02:03 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/468080154911.shtml)
+- 2026-06-30 02:06 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/4939059516.shtml)
+- 2026-06-30 02:11 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/71635328.shtml)
+- 2026-06-30 02:09 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/081601.shtml)
+- 2026-06-30 02:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/19376456504.shtml)
+- 2026-06-30 02:03 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/67490153689.shtml)

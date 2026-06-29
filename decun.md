@@ -1,59 +1,56 @@
-# “十四五”时期重庆行政审判、行政复议工作成效显著
+# 满足多元化配置需求，这只FOF为什么值得关注？
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新网重庆4月29日电 (梁钦卿)重庆市高级人民法院、重庆市司法局29日联合召开重庆市行政审判与行政复议新闻发布会。会上透露，“十四五”时期，重庆法院共新收各类行政诉讼案件67452件，重庆各级行政复议机构办理复议案件56101件。重庆市高级人民法院党组成员、副院长孙海龙回顾了“十四五”时期全市行政诉讼总体情况。“十四五”时期，重庆法院共新收各类行政诉讼案件67452件。其中，
+近一年来，光模块、存储等AI相关资产虽然持续上涨，但上涨背后的高波动让很多投资者心生怯意——涨起来眼馋，跌起来心慌。与此同时，国内利率中枢不断下移，债券收益越来越薄；海外地缘冲突反复、美联储降息预期忽左忽右，连传统的股债+黄金搭配，也开始显得“扛不住”。这时候，越来越多投资者把目光投向——多元化配置。 具有天然多元配置属性的FOF正受到越来越多的关注。Wind数据显示，截至5月
 
 ## 正文
 
-中新网重庆4月29日电 (梁钦卿)重庆市高级人民法院、重庆市司法局29日联合召开重庆市行政审判与行政复议新闻发布会。
+近一年来，光模块、存储等AI相关资产虽然持续上涨，但上涨背后的高波动让很多投资者心生怯意——涨起来眼馋，跌起来心慌。
 
-会上透露，“十四五”时期，重庆法院共新收各类行政诉讼案件67452件，重庆各级行政复议机构办理复议案件56101件。
+与此同时，国内利率中枢不断下移，债券收益越来越薄；海外地缘冲突反复、美联储降息预期忽左忽右，连传统的股债+黄金搭配，也开始显得“扛不住”。
 
-重庆市高级人民法院党组成员、副院长孙海龙回顾了“十四五”时期全市行政诉讼总体情况。
+这时候，越来越多投资者把目光投向——多元化配置。
 
-“十四五”时期，重庆法院共新收各类行政诉讼案件67452件。
+具有天然多元配置属性的FOF正受到越来越多的关注。
 
-其中，一审43084件、二审18534件、申请再审5834件，分别占比63.87%、27.48%、8.65%。
+Wind数据显示，截至5月27日，今年已有77只FOF新品成立，发行规模合计994.36亿元，较去年同期的240.41亿元，增长313.61%。
 
-2025年，一审收案9200件，同比上升10.03%，但与2021年峰值相比，下降9.32%。
+业绩表现层面，偏股混合型FOF基金指数过去1年累计上涨40.59%，跑赢中证全指、纳斯达克100和伦敦金等大类资产的同时，-9.87%的最大回撤表现也优于上述任一资产。
 
-为推进行政争议实质化解，重庆市高级人民法院联合重庆市检察院、重庆市司法局出台工作意见，率先在省级层面构建起司法、行政、检察“三位一体”行政争议实质化解机制，加强执法、复议、诉讼衔接，防止程序空转。
+（数据来源：Wind，偏股混合型基金代表性指数指的是万得偏股混合型FOF指数，中证全指、纳斯达克100和伦敦金现货近1年的涨幅和最大回撤分别为35.34%/-10.55%、39.97%/-12.12%、35.01%/-19.10%） 经济周期分化加剧波动，多元配置增强组合韧性 “当前全球宏观格局呈现显著的错位特征，中国进入经济增长与通胀上升的早期阶段，美国和欧元区处于滞胀困境，而日本处于复苏但动能减弱的阶段。
 
-2025年，协调化解一审行政案件2314件，协调化解率27.24%。
+”在景顺长城盈景积极配置6个月持有FOF拟任基金经理江虹看来，各国经济发展周期的错位为分散配置提供了条件。
 
 ## 相关推荐
 
-- 2026-06-30 02:10 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 01:56 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 02:11 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 02:15 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 02:20 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 02:18 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 01:59 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 01:57 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 02:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 02:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 02:11 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 01:57 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-30 02:21 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 02:19 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 02:08 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 02:18 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 02:04 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 02:01 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 02:19 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 02:16 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 02:28 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 02:13 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 02:19 - [巴西扳平比分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/6632664.shtml)
-- 2026-06-30 01:56 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/92800918609.shtml)
-- 2026-06-30 02:07 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/28338691315.shtml)
-- 2026-06-30 02:00 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/63757936.shtml)
-- 2026-06-30 02:00 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/3309893.shtml)
-- 2026-06-30 02:18 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/205974551269.shtml)
-- 2026-06-30 02:15 - [周生如故](http://www.share.minike.top/Article/details/3429307.shtml)
-- 2026-06-30 02:21 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/96747.shtml)
-- 2026-06-30 02:04 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/266038.shtml)
-- 2026-06-30 02:22 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/24149885.shtml)
-- 2026-06-30 02:01 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/0317102.shtml)
-- 2026-06-30 01:54 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/67514.shtml)
-- 2026-06-30 02:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/292037.shtml)
-- 2026-06-30 02:10 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/909704540.shtml)
-- 2026-06-30 02:07 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/07952893.shtml)
+- 2026-06-30 02:07 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/3162003.shtml)
+- 2026-06-30 02:27 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/6544661531.shtml)
+- 2026-06-30 02:06 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/375135.shtml)
+- 2026-06-30 02:27 - [新官上任三把火](http://www.blog.minike.top/Article/details/4871941081.shtml)
+- 2026-06-30 02:19 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/78604558526.shtml)
+- 2026-06-30 02:28 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/864883462810.shtml)
+- 2026-06-30 02:27 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/4972419.shtml)
+- 2026-06-30 02:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/933840411784.shtml)
+- 2026-06-30 02:18 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/653019577.shtml)
+- 2026-06-30 02:15 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/30767.shtml)
+- 2026-06-30 02:26 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/529266.shtml)
+- 2026-06-30 02:10 - [田曦薇没招了](http://www.share.minike.top/Article/details/31523653717.shtml)
+- 2026-06-30 02:22 - [锐评T1零封KC](https://www.share.minike.top/Article/details/082222.shtml)
+- 2026-06-30 02:16 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/548390.shtml)
+- 2026-06-30 02:15 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/608192396272.shtml)

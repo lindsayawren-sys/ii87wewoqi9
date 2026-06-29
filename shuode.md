@@ -1,51 +1,60 @@
-# 2026年全球贸易投资促进峰会将于5月18日在北京举办
+# 加大支持力度 四部门部署实施创业模式引领行动
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新网4月29日电 中国贸促会4月29日举行例行新闻发布会，新闻发言人王冠男在会上介绍，经国务院批准，5月18日，中国贸促会将在北京举办2026年全球贸易投资促进峰会。 王冠男介绍，本届峰会以“向新而行，链接未来”为主题，将举行开幕式、全体会议及两场平行论坛，突出三个关键字：一是“新”，聚焦“十五五”规划纲要关于引领发展新质生产力的新部署、新要求和当前世界经济发展的新趋势、新热
+近日，人力资源社会保障部等四部门发布《通知》，提出加大创业支持力度，实施创业模式引领行动。《通知》中提到了科技人才和返乡创业人员，将支持他们积极创业，以创业带动就业。 加大创业支持力度 以创业带动就业 《通知》提出，支持龙头企业、前沿领域高新技术企业领军人才和青年科技人才创新创业，大力培育科技型企业家；支持和鼓励高校、科研院所事业单位科研人员，通过离岗创办科技型企业等方式开展科
 
 ## 正文
 
-中新网4月29日电 中国贸促会4月29日举行例行新闻发布会，新闻发言人王冠男在会上介绍，经国务院批准，5月18日，中国贸促会将在北京举办2026年全球贸易投资促进峰会。
+近日，人力资源社会保障部等四部门发布《通知》，提出加大创业支持力度，实施创业模式引领行动。
 
-王冠男介绍，本届峰会以“向新而行，链接未来”为主题，将举行开幕式、全体会议及两场平行论坛，突出三个关键字：一是“新”，聚焦“十五五”规划纲要关于引领发展新质生产力的新部署、新要求和当前世界经济发展的新趋势、新热点。
+《通知》中提到了科技人才和返乡创业人员，将支持他们积极创业，以创业带动就业。
 
-二是“智”，关注人工智能浪潮，助力贸易投资创新发展。
+加大创业支持力度 以创业带动就业 《通知》提出，支持龙头企业、前沿领域高新技术企业领军人才和青年科技人才创新创业，大力培育科技型企业家；支持和鼓励高校、科研院所事业单位科研人员，通过离岗创办科技型企业等方式开展科技研发和成果转化活动；推广按照先使用后付费方式，把科技成果许可给中小微企业使用，驱动科技人才创新成果转化和产业化。
 
-三是“融”，落实最新颁布的《国务院关于推进服务业扩能提质的意见》，探讨促进服务业与制造业深度融合，激发产业升级新活力。
+对于返乡创业，提出要发挥“田秀才”“土专家”“农创客”和乡村工匠等致富带头人的作用，引导有创业能力的外出务工人员挖掘乡村资源要素优势，把适合的产业转移到县域乡村再创业、再发展。
 
-峰会期间将发布《2026年全球贸易投资促进峰会北京倡议》，呼吁全球工商界携手培育世界经济增长新引擎，共创互利共赢、更具韧性与可持续的发展新格局。
+人力资源社会保障部就业促进司二级巡视员 娄权超：大力培育乡村产业促进返乡创业，支持县域乡村发展配套产业和特色乡土产业，鼓励各类返乡入乡人员领办、创办新型农业经营主体。
+
+推动技能培训与创业培训深度融合 这次创业模式引领行动也特别提出，要推动技能培训与创业培训深度融合，引导劳动者将职业技能转化为创业技能。
+
+《通知》提出，要打造技能培训与创业培训相衔接的培训链条，广泛开展梯次化的创业训练营、研学班、精英班等创业能力提升活动。
+
+面向初创期、成长期、发展期等不同阶段的技能创业者，开展创办企业、改善企业、扩大企业等基础培训，拓展市场调查、经营管理、增长战略等延伸培训，培养一批技能创业带头人，带动和孵化更多劳动者学习技能、依托技能实现创业。
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 02:06 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 01:57 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 02:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 02:08 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 02:23 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 01:58 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 02:18 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-30 02:07 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 01:55 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 01:59 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 02:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 02:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 02:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 02:19 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 02:01 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 02:11 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 02:07 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 02:22 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 02:18 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 02:15 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 02:25 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 02:02 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 02:23 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 02:20 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:09 - [扫黑风暴](https://www.blog.minike.top/Article/details/164488843.shtml)
-- 2026-06-30 02:20 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/11947261.shtml)
-- 2026-06-30 02:04 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/146530658535.shtml)
-- 2026-06-30 02:03 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/746080806.shtml)
-- 2026-06-30 02:13 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/30346713994.shtml)
-- 2026-06-30 01:59 - [毒液2](http://www.share.kurohicncr.top/Article/details/765421609.shtml)
-- 2026-06-30 02:00 - [我们的少年时代2](http://www.share.minike.top/Article/details/45214679.shtml)
-- 2026-06-30 01:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/52912.shtml)
-- 2026-06-30 02:19 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/01450.shtml)
-- 2026-06-30 01:57 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/52011344.shtml)
-- 2026-06-30 02:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/748425797844.shtml)
-- 2026-06-30 01:54 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/3701990.shtml)
-- 2026-06-30 02:23 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/3441385489.shtml)
-- 2026-06-30 02:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/1287840.shtml)
-- 2026-06-30 02:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/1836931.shtml)
+- 2026-06-30 02:20 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/874620453973.shtml)
+- 2026-06-30 02:24 - [沙丘](https://www.share.minike.top/Article/details/949432437.shtml)
+- 2026-06-30 02:17 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/0365483.shtml)
+- 2026-06-30 02:26 - [周生如故](http://www.blog.minike.top/Article/details/68017683.shtml)
+- 2026-06-30 02:04 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/891776745072.shtml)
+- 2026-06-30 02:24 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/80266046311.shtml)
+- 2026-06-30 02:04 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/590096.shtml)
+- 2026-06-30 02:07 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/096857287.shtml)
+- 2026-06-30 02:04 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/6755719617.shtml)
+- 2026-06-30 02:21 - [月亮](https://www.share.kurohicncr.top/Article/details/86703117963.shtml)
+- 2026-06-30 02:11 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/68777.shtml)
+- 2026-06-30 02:07 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/32807557497.shtml)
+- 2026-06-30 02:13 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/150225.shtml)
+- 2026-06-30 02:18 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/631262350.shtml)
+- 2026-06-30 02:21 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/59158.shtml)

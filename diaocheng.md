@@ -1,55 +1,55 @@
-# 火箭超级工厂竣工投产 力箭二号运载火箭迈入批量化生产阶段
+# 东北亚具身智能创新合作联盟在长春成立
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-今天(4月28日)，位于浙江绍兴的力箭二号大型液体运载火箭超级工厂全面竣工。该工厂的建成投用，标志着力箭二号运载火箭迈入批量化生产阶段，也是我国商业航天产业从技术验证迈向规模化生产的重要里程碑。 力箭二号是我国首款“通用助推器核心”(简称“CBC”构型)的运载火箭，今年3月30日成功首飞，参与我国新一代天地货物运输体系的建设，将轻舟初样试飞船及2颗卫星精准送入预定轨道。后续，力
+中新网长春6月11日电 (记者 郭佳)24家中韩企业、高校及行业协会11日齐聚吉林长春，揭牌成立东北亚具身智能创新合作联盟，持续深化具身智能领域国际合作。 该联盟由中韩(长春)国际合作示范区牵头成立，旨在打造立足中国东北、辐射东北亚的具身智能协同创新高地、跨境算力服务枢纽与合规数据流通示范基地。联盟计划用一到三年时间建成集联合攻关、产业对接、人才交流与数字服务于一体的平台，为区
 
 ## 正文
 
-今天(4月28日)，位于浙江绍兴的力箭二号大型液体运载火箭超级工厂全面竣工。
+中新网长春6月11日电 (记者 郭佳)24家中韩企业、高校及行业协会11日齐聚吉林长春，揭牌成立东北亚具身智能创新合作联盟，持续深化具身智能领域国际合作。
 
-该工厂的建成投用，标志着力箭二号运载火箭迈入批量化生产阶段，也是我国商业航天产业从技术验证迈向规模化生产的重要里程碑。
+该联盟由中韩(长春)国际合作示范区牵头成立，旨在打造立足中国东北、辐射东北亚的具身智能协同创新高地、跨境算力服务枢纽与合规数据流通示范基地。
 
-力箭二号是我国首款“通用助推器核心”(简称“CBC”构型)的运载火箭，今年3月30日成功首飞，参与我国新一代天地货物运输体系的建设，将轻舟初样试飞船及2颗卫星精准送入预定轨道。
+联盟计划用一到三年时间建成集联合攻关、产业对接、人才交流与数字服务于一体的平台，为区域发展注入新动能。
 
-后续，力箭二号还将满足低轨通信卫星星座组网、中高轨卫星等发射需求。
+该联盟中方发起人、立腾科技(吉林)有限公司总经理崔敏豪表示，联盟将推进跨境技术协同攻关、绿色算力基础设施与数据要素流通体系建设、产业项目对接及人才交流合作，推动具身智能技术在汽车制造、装备工业、光电信息、低空经济和文旅服务等领域应用。
 
-火箭超级工厂集总装测试、核心部段加工于一体，涵盖了火箭贮箱、管路阀门、级间段、导管等液体运载火箭关键部件生产区域，可全面满足力箭二号运载火箭批量生产需求，进一步构建自主可控的液体运载火箭全链条生产供应体系。
+该联盟韩方牵头人、韩国高丽大学商学院名誉教授李斗熙表示，韩国在智能机器人整机、核心零部件、精密传动与智能传感技术等领域具有技术积累，中国则在算力供给、应用场景和产业配套方面优势明显，联盟将有利于推动建立制度化合作机制，促进技术与产业资源对接。
 
-工厂成熟运营后，将具备年产12发力箭二号液体运载火箭的能力。
+当天，活动现场还举行了合作协议签约仪式，内容涵盖算力建设、数据流通、技术研发及产业化应用等多个领域。
 
-(总台央视记者 崔霞 陶嘉树)
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:13 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 02:08 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 01:55 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 02:11 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 01:59 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-30 02:05 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 02:21 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 02:19 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 02:08 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 02:12 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 02:05 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 02:27 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 02:09 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 02:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 02:09 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 02:10 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 02:01 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 02:28 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 02:06 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 02:28 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 02:14 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 02:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:56 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/794085.shtml)
-- 2026-06-30 02:18 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/97837.shtml)
-- 2026-06-30 02:19 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/946462503701.shtml)
-- 2026-06-30 01:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/773175432973.shtml)
-- 2026-06-30 01:55 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/52565119.shtml)
-- 2026-06-30 02:01 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/138619.shtml)
-- 2026-06-30 02:10 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/30151495022.shtml)
-- 2026-06-30 01:56 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/099650254.shtml)
-- 2026-06-30 02:02 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/546971.shtml)
-- 2026-06-30 01:59 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/49446583.shtml)
-- 2026-06-30 02:10 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/107604703862.shtml)
-- 2026-06-30 02:14 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/861630708.shtml)
-- 2026-06-30 02:06 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/3525373661.shtml)
-- 2026-06-30 02:05 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/3519319447.shtml)
-- 2026-06-30 02:17 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/650457832041.shtml)
+- 2026-06-30 02:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/128224.shtml)
+- 2026-06-30 02:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/99270.shtml)
+- 2026-06-30 02:04 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/0972212150.shtml)
+- 2026-06-30 02:11 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/239873.shtml)
+- 2026-06-30 02:02 - [恋与深空 日服](https://www.share.minike.top/Article/details/486055225.shtml)
+- 2026-06-30 02:16 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/29534.shtml)
+- 2026-06-30 02:09 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/24776487942.shtml)
+- 2026-06-30 02:27 - [美人鱼](https://www.share.kurohicncr.top/Article/details/71670.shtml)
+- 2026-06-30 02:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/57795.shtml)
+- 2026-06-30 02:03 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/81231582.shtml)
+- 2026-06-30 02:19 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/8569494937.shtml)
+- 2026-06-30 02:24 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/0533804.shtml)
+- 2026-06-30 02:25 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/5165767.shtml)
+- 2026-06-30 02:02 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/578103.shtml)
+- 2026-06-30 02:05 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/8673342.shtml)

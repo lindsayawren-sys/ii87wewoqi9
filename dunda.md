@@ -1,59 +1,57 @@
-# 爱奇艺的“AI赌局”：当降本逻辑撞上内容本质
+# 沃尔玛与Wing无人机配送扩展至七个新都会区
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-2026年4月20日，爱奇艺世界大会上，陈哲远、丞磊、曾舜晞等100多位艺人的名字被打上AI艺人库的标签，宣告着一个大胆而充满争议的产业实验正式启幕。然而，短短数小时后，张若昀、于和伟、王楚然等艺人纷纷通过工作室发声否认签约AI授权，舆论瞬间翻转，“爱奇艺穷疯了也得有底线”等词条登上微博热搜。凌晨紧急发布的澄清说明中，爱奇艺表示入驻仅代表合作意愿，具体项目需单独商谈授权，流程与
+沃尔玛与Alphabet旗下无人机配送公司Wing本周宣布，将其无人机配送服务扩展至全美七个新都会区，作为双方到2027年建成270多家门店配送网络计划的一部分。Wing已累计完成超过100万次商业配送。 此次新增市场包括孟菲斯、新奥尔良、费城、菲尼克斯、圣地亚哥、旧金山湾区以及盐湖城，双方配送服务覆盖范围由此扩大至全美近20个市场。新市场的首批配送预计将于明年初启动。 Win
 
 ## 正文
 
-2026年4月20日，爱奇艺世界大会上，陈哲远、丞磊、曾舜晞等100多位艺人的名字被打上AI艺人库的标签，宣告着一个大胆而充满争议的产业实验正式启幕。
+沃尔玛与Alphabet旗下无人机配送公司Wing本周宣布，将其无人机配送服务扩展至全美七个新都会区，作为双方到2027年建成270多家门店配送网络计划的一部分。
 
-然而，短短数小时后，张若昀、于和伟、王楚然等艺人纷纷通过工作室发声否认签约AI授权，舆论瞬间翻转，“爱奇艺穷疯了也得有底线”等词条登上微博热搜。
+Wing已累计完成超过100万次商业配送。
 
-凌晨紧急发布的澄清说明中，爱奇艺表示入驻仅代表合作意愿，具体项目需单独商谈授权，流程与真人影视合作一致。
+此次新增市场包括孟菲斯、新奥尔良、费城、菲尼克斯、圣地亚哥、旧金山湾区以及盐湖城，双方配送服务覆盖范围由此扩大至全美近20个市场。
 
-一夜之间，一场技术创新的高调发布，演变成关乎行业伦理、艺人权益与平台战略的全民辩论。
+新市场的首批配送预计将于明年初启动。
 
-这场辩论折射出的，远不止一次公关危机的应对得失。
+Wing首席商务官表示，与沃尔玛的合作表明，无人机配送并非一时新鲜事物，而是许多客户每周多次依赖的服务。
 
-它像一个多棱镜，从不同侧面折射出长视频平台在存量时代的生存焦虑、资本对技术降本的本能追逐，以及艺术创作与技术效率之间恒久存在的张力。
+她透露，公司已着手在七个新市场与当地社区合作，目标是为全美4000万居民提供超快速配送服务。
 
-降本困局与数据困境：AI艺人库的双重驱动 要理解爱奇艺为何如此急切地推出AI艺人库，必须先看清其面临的财务与竞争双重压力。
+据介绍，Wing的无人机飞行速度最高可达每小时60英里，使用系绳将包裹直接降至顾客的院子或车道，最快可在30分钟内完成配送。
 
-财务上，增收不增利的尴尬持续加剧。
+服务上线后，配送范围内的沃尔玛顾客可通过沃尔玛应用程序或网站看到该选项，也可通过Wing应用直接下单。
 
 ## 相关推荐
 
-- 2026-06-30 02:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 02:01 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 01:59 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 02:08 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 02:12 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 02:06 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 02:16 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 02:09 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 02:01 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 02:14 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 01:58 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 02:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 02:04 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 02:25 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 02:03 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 02:17 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 02:29 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 02:07 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 02:25 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 02:17 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 02:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 02:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 02:15 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 02:08 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:18 - [美股](http://www.blog.kurohicncr.top/Article/details/85296202796.shtml)
-- 2026-06-30 01:57 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/6890804.shtml)
-- 2026-06-30 02:14 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/716394.shtml)
-- 2026-06-30 02:13 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/245975119522.shtml)
-- 2026-06-30 02:20 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/89859.shtml)
-- 2026-06-30 02:18 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/271790.shtml)
-- 2026-06-30 02:12 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/3343052.shtml)
-- 2026-06-30 02:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/56541326.shtml)
-- 2026-06-30 02:21 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/7211501.shtml)
-- 2026-06-30 01:59 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/30801779113.shtml)
-- 2026-06-30 02:01 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/0102271675.shtml)
-- 2026-06-30 02:17 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/0500890111.shtml)
-- 2026-06-30 02:01 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/52779.shtml)
-- 2026-06-30 01:54 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/67181543.shtml)
-- 2026-06-30 01:56 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/064083290.shtml)
+- 2026-06-30 02:00 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/5732430.shtml)
+- 2026-06-30 02:03 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/334016441811.shtml)
+- 2026-06-30 02:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/171768.shtml)
+- 2026-06-30 02:17 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/192518.shtml)
+- 2026-06-30 02:14 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/226204.shtml)
+- 2026-06-30 02:27 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/5082638.shtml)
+- 2026-06-30 02:05 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/3685044.shtml)
+- 2026-06-30 02:09 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/08310395676.shtml)
+- 2026-06-30 02:16 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/24684.shtml)
+- 2026-06-30 02:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/7857655483.shtml)
+- 2026-06-30 02:20 - [沉睡花园](https://www.blog.minike.top/Article/details/08283301438.shtml)
+- 2026-06-30 02:01 - [周生如故](https://www.share.kurohicncr.top/Article/details/923748366.shtml)
+- 2026-06-30 02:10 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/602277165375.shtml)
+- 2026-06-30 02:23 - [青春环游记第三季](https://www.share.minike.top/Article/details/6141825.shtml)
+- 2026-06-30 02:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/719924370.shtml)

@@ -1,55 +1,57 @@
-# 中俄跨贸新生态新疆产业基地揭牌
+# 日本散户大军蜂拥认购SpaceX股票
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新社乌鲁木齐4月28日电 (胡嘉琛 苟继鹏)中俄跨贸新生态新疆产业基地28日在乌鲁木齐多式联运中心揭牌。该基地功能涵盖货源集聚、跨境电商、物流集散、供应链服务、产业孵化，为中俄乃至亚欧的跨境贸易提供一站式服务。新疆陆港贸易服务有限责任公司董事长、总经理韩天宇说，基地将依托乌鲁木齐国际陆港区、临空经济区以及综合保税区的功能优势，有效降低企业跨境贸易成本、压缩通关物流时效、拓宽双
+日本家庭金融资产规模约15万亿美元，当地投资热情极度高涨，SpaceX近期将日本募资目标上调四分之一，至25亿美元。自2018年软银巨型上市之后，日本本土仅有一笔规模达到或超过该水准的IPO，这笔认购机会十分稀缺。 SpaceX本次IPO总募资规模750亿美元，其中划出30%份额面向个人投资者发售。尽管近期美股科技股遭遇抛售震荡，但大量民众将其视作一代人一遇的投资良机，掀起抢筹
 
 ## 正文
 
-中新社乌鲁木齐4月28日电 (胡嘉琛 苟继鹏)中俄跨贸新生态新疆产业基地28日在乌鲁木齐多式联运中心揭牌。
+日本家庭金融资产规模约15万亿美元，当地投资热情极度高涨，SpaceX近期将日本募资目标上调四分之一，至25亿美元。
 
-该基地功能涵盖货源集聚、跨境电商、物流集散、供应链服务、产业孵化，为中俄乃至亚欧的跨境贸易提供一站式服务。
+自2018年软银巨型上市之后，日本本土仅有一笔规模达到或超过该水准的IPO，这笔认购机会十分稀缺。
 
-新疆陆港贸易服务有限责任公司董事长、总经理韩天宇说，基地将依托乌鲁木齐国际陆港区、临空经济区以及综合保税区的功能优势，有效降低企业跨境贸易成本、压缩通关物流时效、拓宽双向贸易渠道，进一步集聚优质外贸市场主体、丰富对外贸易业态。
+SpaceX本次IPO总募资规模750亿美元，其中划出30%份额面向个人投资者发售。
 
-新疆商贸物流(集团)有限公司副总经理卡依沙尔介绍，集团将以基地为核心建立亚欧智慧物流调度中心，拓展至俄罗斯及欧洲精品线路，依托跨境公路运输体系深化多式联运模式，逐步开拓“铁路+跨境电商”模式。
+尽管近期美股科技股遭遇抛售震荡，但大量民众将其视作一代人一遇的投资良机，掀起抢筹热潮。
 
-“基地将以数字化、智能化打造‘一站式、一单制、一体化’跨境服务，力争通关效率提升50%、综合物流成本降低20%至30%，让中国制造借新疆速度高效走向国际市场，吸引俄方及中亚优质资源集聚，构建双向互动、优势互补的跨境贸易新生态。
+知情人士透露，整体认购需求已经达到发行份额的四倍以上；面向机构投资者的认购通道将于纽约时间周三截止。
 
-”卡依沙尔说。
+市场热度空前，各家券商已出台管控措施，阻止交易者在多个平台重复下单。
 
-(完)
+据测算，按募资目标计算，日本投资者将贡献总募资额的约3%，在个人认购份额里占比会更高。
+
+虽然机构也可申购这一档份额，但受部分监管规定约束，日本本土股票基金经理不得投资海外股票，因此大部分额度将分给散户。
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 02:01 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 02:15 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 01:59 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 02:07 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 02:14 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 01:55 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 02:20 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 02:09 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 02:16 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 02:10 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 02:18 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 02:07 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 02:06 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 02:27 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 02:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 02:28 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 02:25 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 02:05 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 02:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 02:08 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 02:24 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:06 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/175944612.shtml)
-- 2026-06-30 02:07 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/562012914.shtml)
-- 2026-06-30 02:12 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/1846442.shtml)
-- 2026-06-30 02:13 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/60998033872.shtml)
-- 2026-06-30 02:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/25616.shtml)
-- 2026-06-30 01:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/1279160383.shtml)
-- 2026-06-30 01:59 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/96839437.shtml)
-- 2026-06-30 02:09 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/6966908444.shtml)
-- 2026-06-30 02:03 - [急先锋](http://www.share.kurohicncr.top/Article/details/66949593383.shtml)
-- 2026-06-30 02:07 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/563791.shtml)
-- 2026-06-30 02:07 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/52043011.shtml)
-- 2026-06-30 02:13 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/37307095097.shtml)
-- 2026-06-30 02:02 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/0795317337.shtml)
-- 2026-06-30 02:07 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/018827807958.shtml)
-- 2026-06-30 01:58 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/5389954244.shtml)
+- 2026-06-30 02:05 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/803529631.shtml)
+- 2026-06-30 02:08 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/14779268.shtml)
+- 2026-06-30 02:22 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/484376.shtml)
+- 2026-06-30 02:23 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/9207071227.shtml)
+- 2026-06-30 02:29 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/56507920463.shtml)
+- 2026-06-30 02:27 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/48855870140.shtml)
+- 2026-06-30 02:13 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/912847272962.shtml)
+- 2026-06-30 02:08 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/195760.shtml)
+- 2026-06-30 02:24 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/931258802341.shtml)
+- 2026-06-30 02:04 - [起风了](http://www.blog.kurohicncr.top/Article/details/35494135887.shtml)
+- 2026-06-30 02:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/238803.shtml)
+- 2026-06-30 02:23 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/43262405.shtml)
+- 2026-06-30 02:06 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/270851756.shtml)
+- 2026-06-30 02:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/9102889655.shtml)
+- 2026-06-30 02:21 - [日本领先巴西](https://www.share.minike.top/Article/details/532122931.shtml)

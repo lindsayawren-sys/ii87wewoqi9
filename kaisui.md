@@ -1,59 +1,51 @@
-# 中钢协：以钢结构推广为主攻方向拓展钢铁材料应用空间
+# 北京动物园：萌兰等5只大熊猫将搬至新馆，期间不对外展示
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-4月29日，中国钢铁工业协会召开信息发布会，中钢协表示，后期要扩需求，以钢结构推广为主攻方向拓展钢铁材料应用空间。 坚持供需两端协同发力、促进高水平动态平衡是当前和未来解决钢铁市场供强需弱矛盾的有效途径。一方面，在供给端管住增量、优化存量、调控产量；另一方面，在需求端挖掘钢铁消费潜力，开拓新市场、新用途，推进钢铁及配套材料迭代升级。钢结构建筑推广应用是拓展钢材应用空间的重点领域
+中新网6月11日电 据“北京动物园”微信公众号消息，北京动物园管理处11日发布公告称，为更好地饲养展示大熊猫，北京动物园近期计划将萌兰等5只大熊猫陆续转移至大熊猫馆新馆适应环境。期间不对外展示。亚运馆、奥运馆每天均展示2只大熊猫，待新馆正式开馆后，将按计划开展饲养展示、场地轮换等工作。
 
 ## 正文
 
-4月29日，中国钢铁工业协会召开信息发布会，中钢协表示，后期要扩需求，以钢结构推广为主攻方向拓展钢铁材料应用空间。
+中新网6月11日电 据“北京动物园”微信公众号消息，北京动物园管理处11日发布公告称，为更好地饲养展示大熊猫，北京动物园近期计划将萌兰等5只大熊猫陆续转移至大熊猫馆新馆适应环境。
 
-坚持供需两端协同发力、促进高水平动态平衡是当前和未来解决钢铁市场供强需弱矛盾的有效途径。
+期间不对外展示。
 
-一方面，在供给端管住增量、优化存量、调控产量；另一方面，在需求端挖掘钢铁消费潜力，开拓新市场、新用途，推进钢铁及配套材料迭代升级。
-
-钢结构建筑推广应用是拓展钢材应用空间的重点领域之一，钢铁协会正着力推动钢结构建筑产业链融合发展，促进全产业链协同创新、交流合作。
-
-一是联合住建部门与房地产企业优化用钢设计方案，推动制定高性能钢材专项推广计划。
-
-二是搭建钢结构建筑创新成果推广会等交流平台，促进供需精准对接，研究开发钢结构部品部件线上交易系统，支持商贸企业建设“一站式”服务基地，引导各地结合资源禀赋建设专业化钢结构产业园区。
-
-三是加快标准制修订，破解热轧H型钢、耐候钢、高强钢在钢结构建筑领域的应用障碍，推广高性能钢材。
-
-四是聚焦新能源、城市更新等重点领域需求，推动钢结构规模化应用，鼓励钢铁企业在自有厂房、公辅设施、员工宿舍等建设中，应用尽用钢结构。
+亚运馆、奥运馆每天均展示2只大熊猫，待新馆正式开馆后，将按计划开展饲养展示、场地轮换等工作。
 
 ## 相关推荐
 
-- 2026-06-30 02:20 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-30 02:10 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 02:20 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 02:06 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 02:02 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 01:56 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 02:08 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 02:08 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 02:08 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 02:04 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 02:19 - [张凌赫 客串](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 02:23 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 02:21 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 02:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 02:07 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 02:23 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 02:28 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 02:00 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 02:29 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 02:04 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 02:14 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 02:10 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 02:13 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 02:26 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 02:14 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 02:06 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-30 02:01 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 02:29 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:04 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/019032.shtml)
-- 2026-06-30 02:03 - [点菜也要教吗](http://www.blog.minike.top/Article/details/009369.shtml)
-- 2026-06-30 02:21 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/8162147896.shtml)
-- 2026-06-30 01:56 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/30183106.shtml)
-- 2026-06-30 02:15 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/279505701.shtml)
-- 2026-06-30 02:18 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/53692.shtml)
-- 2026-06-30 02:20 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/974611.shtml)
-- 2026-06-30 02:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/357262.shtml)
-- 2026-06-30 02:15 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/4555868417.shtml)
-- 2026-06-30 02:02 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/0168802.shtml)
-- 2026-06-30 02:10 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/62250165.shtml)
-- 2026-06-30 02:11 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/169083.shtml)
-- 2026-06-30 02:11 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/41271509.shtml)
-- 2026-06-30 02:07 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/31449924967.shtml)
-- 2026-06-30 02:08 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/412279785478.shtml)
+- 2026-06-30 02:27 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/94088726.shtml)
+- 2026-06-30 02:09 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/832555.shtml)
+- 2026-06-30 02:14 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/93952102.shtml)
+- 2026-06-30 02:03 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/871926.shtml)
+- 2026-06-30 02:10 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/217110677.shtml)
+- 2026-06-30 02:04 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/5628154932.shtml)
+- 2026-06-30 02:22 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/84078826803.shtml)
+- 2026-06-30 02:10 - [日本进球](http://www.share.minike.top/Article/details/518380914.shtml)
+- 2026-06-30 02:00 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/057464647168.shtml)
+- 2026-06-30 02:29 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/276932815.shtml)
+- 2026-06-30 02:30 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/0694331077.shtml)
+- 2026-06-30 02:23 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/70424.shtml)
+- 2026-06-30 02:29 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/235849989288.shtml)
+- 2026-06-30 02:11 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/44386393500.shtml)
+- 2026-06-30 02:06 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/40834.shtml)

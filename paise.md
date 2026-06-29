@@ -1,60 +1,57 @@
-# “好奇”号火星车新发现：多种有机分子首次确认存在于火星
+# 前员工起诉xAI和SpaceX 称因质疑AI安全遭公司解雇
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-新华社洛杉矶4月27日电(记者谭晶晶)美国航空航天局近日发布公报说，在“好奇”号火星车采集的一块岩石样本中，研究人员发现迄今在火星探测到的种类最丰富的一组有机分子，其中多种有机分子为首次在火星上发现。该成果进一步表明，远古火星具备支持生命存在的化学条件。公报介绍说，这块岩石样本由“好奇”号火星车于2020年在火星夏普山区域采集。该区域数十亿年前曾存在湖泊和溪流，富含有利于保存有
+埃隆·马斯克旗下xAI的一名前工程师将xAI及其母公司SpaceX告上法庭，指控自己因提出人工智能安全相关质疑而遭到解雇。 Devin Kim于2025年9月从xAI离职，他于周二在加州州法院提起诉讼。此时距离SpaceX上市仅剩数日，这场IPO有望成为史上规模最大的首次公开募股。 Devin Kim在职期间参与研发xAI旗下AI聊天机器人Grok，一直积极呼吁重视AI安全。他
 
 ## 正文
 
-新华社洛杉矶4月27日电(记者谭晶晶)美国航空航天局近日发布公报说，在“好奇”号火星车采集的一块岩石样本中，研究人员发现迄今在火星探测到的种类最丰富的一组有机分子，其中多种有机分子为首次在火星上发现。
+埃隆·马斯克旗下xAI的一名前工程师将xAI及其母公司SpaceX告上法庭，指控自己因提出人工智能安全相关质疑而遭到解雇。
 
-该成果进一步表明，远古火星具备支持生命存在的化学条件。
+Devin Kim于2025年9月从xAI离职，他于周二在加州州法院提起诉讼。
 
-公报介绍说，这块岩石样本由“好奇”号火星车于2020年在火星夏普山区域采集。
+此时距离SpaceX上市仅剩数日，这场IPO有望成为史上规模最大的首次公开募股。
 
-该区域数十亿年前曾存在湖泊和溪流，富含有利于保存有机化合物的黏土矿物。
+Devin Kim在职期间参与研发xAI旗下AI聊天机器人Grok，一直积极呼吁重视AI安全。
 
-有机分子是含碳化合物，被认为是构成生命的基本物质。
+他多次指出，xAI在Grok的研发过程中并未将安全问题放在首位。
 
-该岩石样本被命名为“玛丽·安宁3号”，以纪念英国化石收藏家和古生物学家玛丽·安宁。
+这款产品后续也因多项安全问题和不当输出行为遭到广泛批评。
 
-在样本中检测出的21种含碳分子中，有7种为首次在火星上发现。
+Devin Kim尤其担忧，Grok可能滋生歧视言论，还会被用于传播大规模杀伤性武器相关信息。
 
-新发现的分子中包括一种含氮杂环化合物，其环状分子结构中除了碳原子，还含有氮原子。
+诉状中写道：“后续事态印证了Devin Kim的观点，Grok多次发布极具攻击性的仇恨言论，甚至将自己比作希特勒，自称‘MechaHitler’。
 
 ## 相关推荐
 
-- 2026-06-30 02:11 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 02:18 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 02:07 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-30 02:11 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 02:08 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 02:22 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 02:03 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 02:16 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 02:04 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 02:11 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 02:05 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 01:54 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 01:57 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-30 02:00 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 02:09 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-30 02:10 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 02:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 02:09 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 02:22 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 02:24 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 02:24 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 02:15 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 02:07 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 02:26 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 02:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:00 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/634976936582.shtml)
-- 2026-06-30 01:58 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/870183507.shtml)
-- 2026-06-30 02:20 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/60100.shtml)
-- 2026-06-30 02:09 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/82074.shtml)
-- 2026-06-30 02:15 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/3791926503.shtml)
-- 2026-06-30 02:12 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/281593089210.shtml)
-- 2026-06-30 02:18 - [流金岁月](http://www.blog.minike.top/Article/details/99454970479.shtml)
-- 2026-06-30 02:00 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/940483015.shtml)
-- 2026-06-30 02:09 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/09996394376.shtml)
-- 2026-06-30 02:05 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/650764053.shtml)
-- 2026-06-30 02:16 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/62854.shtml)
-- 2026-06-30 02:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/3421524.shtml)
-- 2026-06-30 02:09 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/369975.shtml)
-- 2026-06-30 02:16 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/866298.shtml)
-- 2026-06-30 01:56 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/783320457.shtml)
+- 2026-06-30 02:27 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/187352068.shtml)
+- 2026-06-30 02:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/619446268.shtml)
+- 2026-06-30 02:07 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/27162.shtml)
+- 2026-06-30 02:10 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/42893.shtml)
+- 2026-06-30 02:18 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/03721977018.shtml)
+- 2026-06-30 02:04 - [金刚川](https://www.blog.kurohicncr.top/Article/details/30689.shtml)
+- 2026-06-30 02:20 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/37905714.shtml)
+- 2026-06-30 02:19 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/2775908.shtml)
+- 2026-06-30 02:21 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/39528683380.shtml)
+- 2026-06-30 02:16 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/251232.shtml)
+- 2026-06-30 02:29 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/459642541212.shtml)
+- 2026-06-30 02:09 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/87169293433.shtml)
+- 2026-06-30 02:04 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/82741809840.shtml)
+- 2026-06-30 02:04 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/705621443.shtml)
+- 2026-06-30 02:13 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/0290620114.shtml)

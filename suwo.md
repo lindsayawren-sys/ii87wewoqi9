@@ -1,60 +1,59 @@
-# 蒋某某故意杀人、强奸案一审宣判
+# Frigidaire调查：美国人每周扔掉大量剩菜
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-新华社昆明4月28日电 4月28日，云南省曲靖市中级人民法院一审公开宣判被告人蒋某某故意杀人、强奸一案，以故意杀人罪、强奸罪判处蒋某某无期徒刑，剥夺政治权利终身。 经审理查明，被告人蒋某某(时年14岁)与被害人方某某(殁年15岁)系同学。2025年7月6日晚至7日凌晨，蒋某某采用暴力手段企图对方某某实施奸淫，后恐罪行败露用双手掐住方某某颈部致其死亡。 曲靖市中级人民法院认为，被
+尽管大多数美国人怀揣节约食物和节省开支的美好愿望，但现实情况却截然相反。Frigidaire最新发布的一项全国性调查揭示了一个令人困扰的矛盾：高达74%的美国成年人表示，他们每周至少会扔掉一次冰箱里的剩菜。 调查显示，美国人保存剩菜的动机非常明确：64%的人希望避免食物浪费，52%的人是为了省钱。然而，这些良好意愿并未转化为实际行动，食物常常被遗忘在冰箱角落，最终被丢弃，这常常
 
 ## 正文
 
-新华社昆明4月28日电 4月28日，云南省曲靖市中级人民法院一审公开宣判被告人蒋某某故意杀人、强奸一案，以故意杀人罪、强奸罪判处蒋某某无期徒刑，剥夺政治权利终身。
+尽管大多数美国人怀揣节约食物和节省开支的美好愿望，但现实情况却截然相反。
 
-经审理查明，被告人蒋某某(时年14岁)与被害人方某某(殁年15岁)系同学。
+Frigidaire最新发布的一项全国性调查揭示了一个令人困扰的矛盾：高达74%的美国成年人表示，他们每周至少会扔掉一次冰箱里的剩菜。
 
-2025年7月6日晚至7日凌晨，蒋某某采用暴力手段企图对方某某实施奸淫，后恐罪行败露用双手掐住方某某颈部致其死亡。
+调查显示，美国人保存剩菜的动机非常明确：64%的人希望避免食物浪费，52%的人是为了省钱。
 
-曲靖市中级人民法院认为，被告人蒋某某的行为分别构成强奸罪、故意杀人罪，依法应数罪并罚。
+然而，这些良好意愿并未转化为实际行动，食物常常被遗忘在冰箱角落，最终被丢弃，这常常让消费者感到内疚。
 
-蒋某某犯罪情节特别恶劣，后果严重，应依法严惩。
+对于部分家庭而言，这种浪费带来了显著的经济损失，超过五分之一的美国人估计，他们每年因此浪费的金钱高达1200美元。
 
-蒋某某犯罪时不满十八周岁，依法不适用死刑。
+Frigidaire品牌经理Hannah Humphreys指出：“调查的特别之处在于，人们在保存食物方面确实怀有最好的意图，但在实践中，他们要么把食物推到冰箱最里面忘掉了，要么开始怀疑它们是否还新鲜。
 
-根据其犯罪事实、性质、情节和对社会的危害程度，遂作出上述判决。
+” 为应对这一挑战，Frigidaire宣布推出名为“Frankie by Frigidaire”的AI助手。
 
-被害人家属，部分人大代表、政协委员，新闻媒体记者旁听了宣判。
+该工具旨在帮助用户利用冰箱中的剩菜创造新的食谱，并提供个性化的加热指南，从而节省时间并减轻食品开支压力。
 
 ## 相关推荐
 
-- 2026-06-30 01:56 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 02:12 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 02:17 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 01:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-30 02:11 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 02:07 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 02:11 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 02:12 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 02:17 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 02:04 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-30 02:10 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 02:20 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 02:13 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 02:12 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 02:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 02:11 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 02:05 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 02:07 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 02:02 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 02:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 02:05 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 02:05 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 02:08 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 02:13 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 02:16 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 02:11 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 02:14 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:59 - [内马尔替补](http://www.share.minike.top/Article/details/15491418.shtml)
-- 2026-06-30 01:59 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/51696741503.shtml)
-- 2026-06-30 02:00 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/00811060990.shtml)
-- 2026-06-30 02:20 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/2593512.shtml)
-- 2026-06-30 02:02 - [恋与深空 日服](http://www.share.minike.top/Article/details/728325066539.shtml)
-- 2026-06-30 02:08 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/5077522.shtml)
-- 2026-06-30 02:11 - [演员都来上音综的原因](http://www.share.kurohicncr.top/Article/details/681231230.shtml)
-- 2026-06-30 02:16 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/383119667.shtml)
-- 2026-06-30 02:22 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/6070300454.shtml)
-- 2026-06-30 02:02 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/9612868969.shtml)
-- 2026-06-30 01:54 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/89520.shtml)
-- 2026-06-30 02:13 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/174504.shtml)
-- 2026-06-30 02:19 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/46459658963.shtml)
-- 2026-06-30 02:03 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/933473023372.shtml)
-- 2026-06-30 01:56 - [沙丘](http://www.share.minike.top/Article/details/428750715277.shtml)
+- 2026-06-30 02:19 - [请回答王牌2019](http://www.blog.minike.top/Article/details/67704968142.shtml)
+- 2026-06-30 02:19 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/1973538.shtml)
+- 2026-06-30 02:23 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/6349408.shtml)
+- 2026-06-30 02:29 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/46224978241.shtml)
+- 2026-06-30 02:06 - [千香](http://www.share.kurohicncr.top/Article/details/189435594.shtml)
+- 2026-06-30 02:04 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/5639638586.shtml)
+- 2026-06-30 02:05 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/047612.shtml)
+- 2026-06-30 02:12 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/2008730.shtml)
+- 2026-06-30 02:19 - [流金岁月](https://www.blog.minike.top/Article/details/21872845.shtml)
+- 2026-06-30 02:02 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/24730572553.shtml)
+- 2026-06-30 02:17 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/48866823255.shtml)
+- 2026-06-30 02:20 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/030605677.shtml)
+- 2026-06-30 02:14 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/390864.shtml)
+- 2026-06-30 02:18 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/29476291294.shtml)
+- 2026-06-30 02:13 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/029861085742.shtml)

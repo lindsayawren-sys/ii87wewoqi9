@@ -1,56 +1,58 @@
-# 金鹰基金田啸：节后行情值得期待 短期交易节奏不改三大方向
+# 英国推动能源投资，向700多个项目提供电网接入许可
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-上周A股呈现典型的“前扬后抑”走势。市值风格上，与前两周小盘股领涨不同，大盘价值风格占优，两市日均成交额约2.6万亿元，维持高位，主力资金全周净流入约1504亿元，市场人气依然旺盛。 行业层面分化显著，申万一级行业中，12涨19跌。煤炭（+3.93%）、电子（+3.11%）、石油石化（+2.66%）领涨，受益于原油价格上行及一季报业绩兑现；农林牧渔（-3.15%）、综合（-3.
+英国电力规划机构周三表示，根据一项经过改革的电网接入分配体系，英国已向700多个项目提供了电网接入许可。预计这一新体系将有助于每年释放高达400亿英镑的清洁能源投资。 英国国家能源系统运营商表示，此次电网接入许可的分配是在近期改革之后进行的。此前的“先到先得”接入体系导致了严重的项目积压和接入瓶颈。 国家能源系统运营商首席运营官凯特·奥尼尔在一份声明中表示：“这些接入许可为开发
 
 ## 正文
 
-上周A股呈现典型的“前扬后抑”走势。
+英国电力规划机构周三表示，根据一项经过改革的电网接入分配体系，英国已向700多个项目提供了电网接入许可。
 
-市值风格上，与前两周小盘股领涨不同，大盘价值风格占优，两市日均成交额约2.6万亿元，维持高位，主力资金全周净流入约1504亿元，市场人气依然旺盛。
+预计这一新体系将有助于每年释放高达400亿英镑的清洁能源投资。
 
-行业层面分化显著，申万一级行业中，12涨19跌。
+英国国家能源系统运营商表示，此次电网接入许可的分配是在近期改革之后进行的。
 
-煤炭（+3.93%）、电子（+3.11%）、石油石化（+2.66%）领涨，受益于原油价格上行及一季报业绩兑现；农林牧渔（-3.15%）、综合（-3.00%）、传媒（-2.69%）跌幅居前，临近一季报密集披露期，资金主动规避业绩偏弱板块。
+此前的“先到先得”接入体系导致了严重的项目积压和接入瓶颈。
 
-金鹰基金田啸分析表示，一季报业绩密集披露期，“四月决断”效应凸显。
+国家能源系统运营商首席运营官凯特·奥尼尔在一份声明中表示：“这些接入许可为开发商提供了投资所需的确定性，有助于支持经济增长。
 
-AI产业链业绩爆发最为突出——龙头业绩兑现叠加海外专注光学和光子技术的高科技上市公司订单排满至2028年的催化，共同支撑光通信主线行情。
+” 国家能源系统运营商称，在2030年输电管线项目库中的1223个项目中，有713个获得了接入许可，这些项目涵盖海上风电、陆上风电、太阳能、电池储能、天然气和水电。
 
-但部分高位标的业绩不及预期引发抛售，市场对景气板块的定价开始出现分歧。
+这些项目的总装机容量约为37吉瓦。
 
-同时，全球风险偏好回暖，美股纳斯达克、日经、韩综上周均创历史新高，外围市场走强带动A股前三日连涨。
+而国家能源系统运营商表示，要实现英国的目标——即到2030年基本实现电力行业脱碳——需要达到132吉瓦的装机容量，目前该国已有约111吉瓦的已安装容量。
 
 ## 相关推荐
 
-- 2026-06-30 02:11 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 02:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 02:09 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 02:02 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 02:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 02:13 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-30 02:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 01:54 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 02:17 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 02:13 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 02:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 02:03 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-30 02:01 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 02:00 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 02:00 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 02:20 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 02:16 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 02:15 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 02:08 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 02:26 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 02:19 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 02:11 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:00 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/12629.shtml)
-- 2026-06-30 02:21 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/63332.shtml)
-- 2026-06-30 02:23 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/676348.shtml)
-- 2026-06-30 02:23 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/61701.shtml)
-- 2026-06-30 02:15 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/853304961.shtml)
-- 2026-06-30 02:21 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/1968422.shtml)
-- 2026-06-30 01:59 - [点菜也要教吗](http://www.blog.minike.top/Article/details/75917.shtml)
-- 2026-06-30 02:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/2376095.shtml)
-- 2026-06-30 02:00 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/36310.shtml)
-- 2026-06-30 02:04 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/59709973.shtml)
-- 2026-06-30 02:16 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/77445.shtml)
-- 2026-06-30 02:12 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/460879783175.shtml)
-- 2026-06-30 02:22 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/963353.shtml)
-- 2026-06-30 02:23 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/361544.shtml)
-- 2026-06-30 01:57 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/572430796410.shtml)
+- 2026-06-30 02:14 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/61882.shtml)
+- 2026-06-30 02:06 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/452312.shtml)
+- 2026-06-30 02:29 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/2990332377.shtml)
+- 2026-06-30 02:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/42775.shtml)
+- 2026-06-30 02:26 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/7487667307.shtml)
+- 2026-06-30 02:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/603156610059.shtml)
+- 2026-06-30 02:18 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/510158.shtml)
+- 2026-06-30 02:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/447497.shtml)
+- 2026-06-30 02:09 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/422975.shtml)
+- 2026-06-30 02:15 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/092176773.shtml)
+- 2026-06-30 02:12 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/268946769331.shtml)
+- 2026-06-30 02:18 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/22175164507.shtml)
+- 2026-06-30 02:27 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/60241021.shtml)
+- 2026-06-30 02:21 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/141714121.shtml)
+- 2026-06-30 02:00 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/9742425.shtml)

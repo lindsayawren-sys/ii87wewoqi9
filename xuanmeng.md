@@ -1,60 +1,60 @@
-# 中方：巴勒斯坦问题在任何情况下都不应被边缘化
+# 6月12日收盘：美股收高道指上涨930点，特朗普称美伊很快将签署协议
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新社联合国4月28日电 联合国安理会28日举行中东问题高级别公开辩论会。中国常驻联合国代表傅聪在会上强调，巴勒斯坦问题始终是中东问题的核心，在任何情况下都不应被边缘化。 傅聪说，一段时间以来，中东局势急剧升温，影响持续扩散蔓延，严重冲击地区稳定，影响世界经济和能源安全。当前局势来到战和转换的关键阶段，中方呼吁各方抓住和平窗口，保持最大克制，拿出最大诚意，坚持政治解决方向不动摇
+北京时间6月12日凌晨，美股周四大幅收高，道指上涨约930点。美国总统特朗普称已取消原定于今晚对伊朗发动的打击行动，并表示美国即将与伊朗签署一项协议。油价大幅下跌。芯片股反弹。 道指涨929.97点，涨幅为1.86%，报50848.75点；纳指涨640.16点，涨幅为2.54%，报25809.66点；标普500指数涨127.30点，涨幅为1.75%，报7394.29点。 美国总
 
 ## 正文
 
-中新社联合国4月28日电 联合国安理会28日举行中东问题高级别公开辩论会。
+北京时间6月12日凌晨，美股周四大幅收高，道指上涨约930点。
 
-中国常驻联合国代表傅聪在会上强调，巴勒斯坦问题始终是中东问题的核心，在任何情况下都不应被边缘化。
+美国总统特朗普称已取消原定于今晚对伊朗发动的打击行动，并表示美国即将与伊朗签署一项协议。
 
-傅聪说，一段时间以来，中东局势急剧升温，影响持续扩散蔓延，严重冲击地区稳定，影响世界经济和能源安全。
+油价大幅下跌。
 
-当前局势来到战和转换的关键阶段，中方呼吁各方抓住和平窗口，保持最大克制，拿出最大诚意，坚持政治解决方向不动摇，保持停火和谈判势头不倒退，争取早日恢复中东和海湾地区稳定。
+芯片股反弹。
 
-傅聪表示，几十年来巴以冲突循环往复，根本症结在于“两国方案”只实现了一半，以色列国早已建立，而巴勒斯坦国仍遥不可及。
+道指涨929.97点，涨幅为1.86%，报50848.75点；纳指涨640.16点，涨幅为2.54%，报25809.66点；标普500指数涨127.30点，涨幅为1.75%，报7394.29点。
 
-如今激烈冲突虽已停止，但巴勒斯坦人民仍被迫与死亡和苦难为伴，巴勒斯坦被占领土局势仍在持续恶化，“两国方案”基础面临被掏空风险。
+美国总统特朗普周四在白宫椭圆形办公室对记者表示：“我们已有一项确保伊朗永远不会拥有核武器的协议。
 
-动荡与战争不是巴勒斯坦人民的宿命，国际社会必须拿出最大的紧迫感，扭转负面局势，纠正巴勒斯坦遭受的历史不公。
+”他接着说：“我们很快就要签署协议，文件已基本定稿。
 
-傅聪说，加沙不是永久战场，必须立即结束平民苦难。
+这件事应该会完成，而且应该会很快完成。
 
 ## 相关推荐
 
-- 2026-06-30 02:06 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 02:14 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 02:04 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 01:56 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 01:54 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 01:58 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 02:17 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-30 02:22 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 02:23 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 02:13 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 01:57 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 02:16 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 02:15 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 02:19 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 02:20 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 02:03 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 02:29 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 02:22 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 02:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 02:03 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-30 02:05 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 02:27 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 02:28 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 02:25 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 02:03 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 02:29 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 02:10 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 02:12 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:16 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/52648.shtml)
-- 2026-06-30 02:22 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/774617.shtml)
-- 2026-06-30 01:55 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/10311.shtml)
-- 2026-06-30 02:21 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/152845902087.shtml)
-- 2026-06-30 02:08 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/653478181.shtml)
-- 2026-06-30 01:55 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/33261.shtml)
-- 2026-06-30 01:59 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/03472.shtml)
-- 2026-06-30 01:57 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/236301969.shtml)
-- 2026-06-30 01:56 - [月亮](http://www.share.kurohicncr.top/Article/details/2454754937.shtml)
-- 2026-06-30 02:12 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/6033579331.shtml)
-- 2026-06-30 02:08 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/355912.shtml)
-- 2026-06-30 02:06 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/08071856539.shtml)
-- 2026-06-30 01:57 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/745665.shtml)
-- 2026-06-30 02:03 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/5797215.shtml)
-- 2026-06-30 02:11 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/0896922.shtml)
+- 2026-06-30 02:19 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/990447657656.shtml)
+- 2026-06-30 02:04 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/8997883418.shtml)
+- 2026-06-30 02:10 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/935128236322.shtml)
+- 2026-06-30 02:22 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/40427385614.shtml)
+- 2026-06-30 02:03 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/369282.shtml)
+- 2026-06-30 02:08 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/641752933.shtml)
+- 2026-06-30 02:07 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/4287241.shtml)
+- 2026-06-30 02:10 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/8234454.shtml)
+- 2026-06-30 02:19 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/6407806448.shtml)
+- 2026-06-30 02:11 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/563191.shtml)
+- 2026-06-30 02:07 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/12494694686.shtml)
+- 2026-06-30 02:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/2956529.shtml)
+- 2026-06-30 02:07 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/75843696.shtml)
+- 2026-06-30 02:17 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/8475861989.shtml)
+- 2026-06-30 02:22 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/033325210.shtml)

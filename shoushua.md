@@ -1,56 +1,61 @@
-# 借力“中间走廊”深化合作 多国客商抢抓中欧班列机遇
+# 讯飞创投董事长徐景明：贪婪和恐惧是很难克服的，专业机构更要坚守底线
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-【欧洲专线】借力“中间走廊”深化合作 多国客商抢抓中欧班列机遇 中新社成都4月28日电 (单鹏)2026“中间走廊”国际客商成都行活动28日在成都举行。来自土耳其、哈萨克斯坦、阿塞拜疆等国的数十名客商及机构代表走进成都国际铁路港，围绕钢贸五金、装备制造、通道贸易等进行洽谈，达成多项合作意向。 “中间走廊”即跨里海国际运输走廊，是连接亚欧的黄金新通道。今年4月，伊兹密尔到成都回程
+专题：2026投资界SuperLink大会 2026投资界SuperLink大会于6月10日-6月11日在苏州举行。讯飞创投董事长徐景明表示，投资本质随主体视角不同而不同，核心是各司其职。 “不同主体从不同角度对客体的观察会得出不同的结论。从一个投资机构的角度来说，本质是代人理财，把事做好，保证安全，能有收益；从政府平台的角度来说，财政的钱投出去，要对地方有所贡献；从国家的角度
 
 ## 正文
 
-【欧洲专线】借力“中间走廊”深化合作 多国客商抢抓中欧班列机遇 中新社成都4月28日电 (单鹏)2026“中间走廊”国际客商成都行活动28日在成都举行。
+专题：2026投资界SuperLink大会 2026投资界SuperLink大会于6月10日-6月11日在苏州举行。
 
-来自土耳其、哈萨克斯坦、阿塞拜疆等国的数十名客商及机构代表走进成都国际铁路港，围绕钢贸五金、装备制造、通道贸易等进行洽谈，达成多项合作意向。
+讯飞创投董事长徐景明表示，投资本质随主体视角不同而不同，核心是各司其职。
 
-“中间走廊”即跨里海国际运输走廊，是连接亚欧的黄金新通道。
+“不同主体从不同角度对客体的观察会得出不同的结论。
 
-今年4月，伊兹密尔到成都回程班列开通。
+从一个投资机构的角度来说，本质是代人理财，把事做好，保证安全，能有收益；从政府平台的角度来说，财政的钱投出去，要对地方有所贡献；从国家的角度来说，本质是要通过投资解决硬、卡、替问题，在激烈的全球科技竞争中形成优势。
 
-截至目前，成都中欧班列已累计开行超2.1万列，联通境外城市135个。
+”他指出，投资的本质就是各自做好分内的事情。
 
-土耳其驻华大使馆首席商务参赞阿塔坎·奥兹德米尔在活动中表示，“中间走廊”的物流通道效率远超传统海运，成都国际铁路港作为联通亚欧的物流枢纽，通道优势显著、产业基础扎实；未来将依托中欧班列“中间走廊”，拓宽双向贸易通道，助力更多土耳其优质产品进入中国市场，并推动更多成都产品走向土耳其及欧洲。
+徐景明表示，“当下的市场环境，一方面应积极拥抱大趋势，另一方面应对项目谨慎评估。
 
-国际客商同样看好中欧班列优势。
+”他认为，贪婪和恐惧是很难克服的，专业机构更要坚守底线，“作为专业机构，首先应该守住的是下限，至于未来有没有更大收益，这是人努力天帮忙的事情。
 
-国际客商巴里什·梅莱克认为，“中间走廊”与“一带一路”倡议相辅相成，两条倡议相互赋能，惠及沿线国家、企业与民众。
+” 新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
 ## 相关推荐
 
-- 2026-06-30 02:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 02:02 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 02:16 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 02:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 02:04 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 02:04 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 02:12 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-30 02:20 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-30 02:18 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 02:14 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 02:04 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 02:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 02:04 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 02:06 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 02:21 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 02:23 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 02:26 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 02:07 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 02:07 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 02:07 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 02:05 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 02:05 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 02:02 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 02:28 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 02:15 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:58 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/0508359.shtml)
-- 2026-06-30 01:54 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/30912953077.shtml)
-- 2026-06-30 02:08 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/612458.shtml)
-- 2026-06-30 02:20 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/790054.shtml)
-- 2026-06-30 02:19 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/230512296877.shtml)
-- 2026-06-30 02:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/286285831746.shtml)
-- 2026-06-30 02:06 - [美人鱼](https://www.share.minike.top/Article/details/4211689.shtml)
-- 2026-06-30 02:02 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/359031.shtml)
-- 2026-06-30 02:10 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/084257.shtml)
-- 2026-06-30 02:20 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/60411112806.shtml)
-- 2026-06-30 02:16 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/92845657108.shtml)
-- 2026-06-30 01:55 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/32175808940.shtml)
-- 2026-06-30 02:08 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/7178507915.shtml)
-- 2026-06-30 02:00 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/194618208.shtml)
-- 2026-06-30 02:05 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/26207358473.shtml)
+- 2026-06-30 02:26 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/319937386.shtml)
+- 2026-06-30 02:09 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/729157867.shtml)
+- 2026-06-30 02:14 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/95226.shtml)
+- 2026-06-30 02:18 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/663773.shtml)
+- 2026-06-30 02:03 - [沉睡花园](http://www.blog.minike.top/Article/details/5105405222.shtml)
+- 2026-06-30 02:16 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/7040898.shtml)
+- 2026-06-30 02:18 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/53379.shtml)
+- 2026-06-30 02:06 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/85178525190.shtml)
+- 2026-06-30 02:08 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/70743.shtml)
+- 2026-06-30 02:07 - [金刚川](https://www.blog.minike.top/Article/details/2982618.shtml)
+- 2026-06-30 02:24 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/552025263462.shtml)
+- 2026-06-30 02:22 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/784689351.shtml)
+- 2026-06-30 02:28 - [扫黑风暴](http://www.blog.minike.top/Article/details/41963.shtml)
+- 2026-06-30 02:12 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/7171434.shtml)
+- 2026-06-30 02:06 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/224265872554.shtml)

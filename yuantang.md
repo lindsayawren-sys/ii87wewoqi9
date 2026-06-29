@@ -1,59 +1,55 @@
-# 未来盈利走势如何？北京银行行长戴炜：压力依然存在，但是拐点已经到来
+# 公安部公布一起涉高考网络谣言典型案例 造谣者已被行拘
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-4月29日金融一线消息，北京银行今日召开2025年年度暨2026年第一季度业绩说明会。行长戴炜回应2025年利润下降的主要原因，一是基于审慎性和一致性的原则，对各类资产严格进行减值准备，同比增加了51.47亿元，增幅达到25.6%。二是受到市场利率震荡上行的影响，公允价值的损益变动有所下降，从一定程度上影响净利润。 戴炜表示，敬畏市场，穿越周期，银行的本质就是经营风险。我们始终
+中新网6月11日电 据“公安部网安局”微信公众号消息，公安部网安局11日公布了一起涉高考网络谣言典型案例。2026年6月5日，高考前夕，网络自媒体博主“方***倾听”发布一则信息，谎称“广东惠州一孤女模拟考648分，却遭亲舅舅烧书阻止参加高考”，该信息在社交媒体广泛传播，引发大量网民关注和讨论。经查，自媒体从业人员黄某(女，41岁)为蹭高考热度、博取关注、吸粉增流，实现引流带货
 
 ## 正文
 
-4月29日金融一线消息，北京银行今日召开2025年年度暨2026年第一季度业绩说明会。
+中新网6月11日电 据“公安部网安局”微信公众号消息，公安部网安局11日公布了一起涉高考网络谣言典型案例。
 
-行长戴炜回应2025年利润下降的主要原因，一是基于审慎性和一致性的原则，对各类资产严格进行减值准备，同比增加了51.47亿元，增幅达到25.6%。
+2026年6月5日，高考前夕，网络自媒体博主“方***倾听”发布一则信息，谎称“广东惠州一孤女模拟考648分，却遭亲舅舅烧书阻止参加高考”，该信息在社交媒体广泛传播，引发大量网民关注和讨论。
 
-二是受到市场利率震荡上行的影响，公允价值的损益变动有所下降，从一定程度上影响净利润。
+经查，自媒体从业人员黄某(女，41岁)为蹭高考热度、博取关注、吸粉增流，实现引流带货牟利的目的，通过策划撰写剧本，雇用虚假连麦人员，编造上述不实信息，并在自媒体账号“方***倾听”发布，引发网民热议。
 
-戴炜表示，敬畏市场，穿越周期，银行的本质就是经营风险。
+经审讯，黄某对其违法行为供认不讳。
 
-我们始终对市场和风险保持敬畏，坚信银行经营的底层逻辑就是要具备穿越产业周期的能力，而不是说某一年的利润增速。
+目前，属地公安机关已依法对黄某予以行政拘留。
 
-2025年加大计提就好比加满了油，蓄满了力，是为了更好的接下来跳得更高，甩掉历史包袱，才能轻装上阵。
+网警提醒：网络空间并非法外之地，网络发言须严守法律法规。
 
-谈及未来的盈利走势，戴炜表示，我的判断是压力依然存在，但是拐点已经到来。
-
-责任编辑：李琳琳
+针对编造、传播网络谣言，扰乱公共秩序的行为，公安机关将依法严肃处理，坚决维护清朗网络空间。
 
 ## 相关推荐
 
-- 2026-06-30 02:17 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 02:22 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 02:01 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 01:56 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 02:05 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 01:56 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 02:01 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 02:19 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 02:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 02:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 02:09 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 01:58 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 02:00 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 02:18 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 02:12 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 02:25 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 02:26 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 02:26 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 02:12 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 02:22 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 02:17 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 02:12 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 02:03 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 02:04 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/5108979384.shtml)
-- 2026-06-30 02:06 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/22628206294.shtml)
-- 2026-06-30 02:09 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/365583561397.shtml)
-- 2026-06-30 02:16 - [刘念回应](http://www.share.minike.top/Article/details/258161624.shtml)
-- 2026-06-30 01:55 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/1237981068.shtml)
-- 2026-06-30 02:03 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/0606743842.shtml)
-- 2026-06-30 02:16 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/04155.shtml)
-- 2026-06-30 02:02 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/602339887131.shtml)
-- 2026-06-30 02:19 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/5872902799.shtml)
-- 2026-06-30 02:19 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/75978.shtml)
-- 2026-06-30 01:54 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/5939266424.shtml)
-- 2026-06-30 02:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/180983440643.shtml)
-- 2026-06-30 02:05 - [毒液2](http://www.share.kurohicncr.top/Article/details/7868373264.shtml)
-- 2026-06-30 02:00 - [金牌调解](https://www.share.minike.top/Article/details/422532.shtml)
-- 2026-06-30 01:58 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/8676874932.shtml)
+- 2026-06-30 02:21 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/582964.shtml)
+- 2026-06-30 02:21 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/69037728723.shtml)
+- 2026-06-30 02:01 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/10991524.shtml)
+- 2026-06-30 02:08 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/45381.shtml)
+- 2026-06-30 02:10 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/273766651.shtml)
+- 2026-06-30 02:10 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/85447698454.shtml)
+- 2026-06-30 02:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/312321880.shtml)
+- 2026-06-30 02:14 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/02055003258.shtml)
+- 2026-06-30 02:15 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/15935736.shtml)
+- 2026-06-30 02:14 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/0928556.shtml)
+- 2026-06-30 02:03 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/336968425.shtml)
+- 2026-06-30 02:17 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/1977448847.shtml)
+- 2026-06-30 02:07 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/693947.shtml)
+- 2026-06-30 02:27 - [斛珠夫人](https://www.share.minike.top/Article/details/943328328114.shtml)
+- 2026-06-30 02:25 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/12548.shtml)

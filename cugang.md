@@ -1,55 +1,58 @@
-# 强对流、大风预警继续发布 局地有8级以上雷暴大风
+# 被立案调查，极兔冤吗？丢件不赔、私自签收，单票收入持续承压
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新网4月29日电 据中央气象台网站消息，中央气象台4月29日6时继续发布大风蓝色预警和强对流天气蓝色预警。 中央气象台4月29日6时继续发布大风蓝色预警： 预计，4月29日8时至30日8时，新疆北部和东部、内蒙古西部和中部偏北地区、甘肃西部、黑龙江东部、西藏西部等地部分地区有5~6级风，阵风7~8级，其中，新疆北部和东部等地部分地区风力可达7~8级，阵风9-10级。东海西部海
+专题：极兔速递，被立案调查！股价大跌 文 | 《BUG》栏目 徐苑蕾 今日，国家邮政局依法对极兔速递有限公司立案调查。国家邮政局指出，今年以来，使用“极兔速递”商标、字号、快递运单经营快递业务的企业多发生产安全事故，场所内多次被检查发现生产安全事故隐患。极兔速递有限公司对极兔速递相关企业安全生产管理缺位，未按规定实行安全保障统一管理。 消息一出，资本市场迅速做出反应。极兔速递环
 
 ## 正文
 
-中新网4月29日电 据中央气象台网站消息，中央气象台4月29日6时继续发布大风蓝色预警和强对流天气蓝色预警。
+专题：极兔速递，被立案调查！
 
-中央气象台4月29日6时继续发布大风蓝色预警： 预计，4月29日8时至30日8时，新疆北部和东部、内蒙古西部和中部偏北地区、甘肃西部、黑龙江东部、西藏西部等地部分地区有5~6级风，阵风7~8级，其中，新疆北部和东部等地部分地区风力可达7~8级，阵风9-10级。
+股价大跌 文 | 《BUG》栏目 徐苑蕾 今日，国家邮政局依法对极兔速递有限公司立案调查。
 
-东海西部海域、浙江南部沿岸海域、福建沿岸海域、台湾海峡将有7~8级、阵风9~10级的大风。
+国家邮政局指出，今年以来，使用“极兔速递”商标、字号、快递运单经营快递业务的企业多发生产安全事故，场所内多次被检查发现生产安全事故隐患。
 
-中央气象台4月29日6时继续发布强对流天气蓝色预警： 预计4月29日8时至30日8时，广东中南部、海南岛西南部等地的局地将有8级以上雷暴大风或冰雹天气；华南东南部、西南地区西南部等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其中，广东中南部和西南部沿海等地的局地小时雨量大于50毫米，最大可达60毫米以上。
+极兔速递有限公司对极兔速递相关企业安全生产管理缺位，未按规定实行安全保障统一管理。
 
-预计，强对流的主要影响时段为今天白天。
+消息一出，资本市场迅速做出反应。
+
+极兔速递环球有限公司股价盘中一度大跌超过10%。
+
+极兔方面则回应称，安全生产是不可逾越的红线，公司高度重视，并将全面整改。
+
+自2020年进入中国市场以来，极兔速递凭借与电商平台的深度合作以及低至“8毛发全国”的价格策略，在六年内从“无名之辈”一跃成为行业第五，2025年包裹量高达220.7亿件。
 
 ## 相关推荐
 
-- 2026-06-30 02:05 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 01:59 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 01:54 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 02:22 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 01:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 02:05 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 02:23 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 01:55 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 02:05 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 01:56 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 02:10 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 02:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 02:18 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 02:23 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 02:09 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 02:09 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 02:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 02:25 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 02:10 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 02:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 02:29 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 02:20 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 02:01 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 02:06 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 02:26 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 02:20 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 02:05 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:59 - [斛珠夫人](https://www.blog.minike.top/Article/details/66348227359.shtml)
-- 2026-06-30 02:04 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/11065898.shtml)
-- 2026-06-30 01:56 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/895450149526.shtml)
-- 2026-06-30 02:16 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/4104659.shtml)
-- 2026-06-30 02:14 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/4238847090.shtml)
-- 2026-06-30 02:06 - [女心理师](http://www.share.kurohicncr.top/Article/details/39636.shtml)
-- 2026-06-30 02:17 - [一见倾心](http://www.share.kurohicncr.top/Article/details/776055776028.shtml)
-- 2026-06-30 02:11 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/848407191.shtml)
-- 2026-06-30 02:08 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/846511736.shtml)
-- 2026-06-30 02:13 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/5640886.shtml)
-- 2026-06-30 02:18 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/68263862195.shtml)
-- 2026-06-30 02:04 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/100860229934.shtml)
-- 2026-06-30 02:01 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/590328.shtml)
-- 2026-06-30 02:05 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/59168345.shtml)
-- 2026-06-30 02:14 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/554999221969.shtml)
+- 2026-06-30 02:04 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/13003896.shtml)
+- 2026-06-30 02:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/3452735.shtml)
+- 2026-06-30 02:10 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/59869668.shtml)
+- 2026-06-30 02:16 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/38016783.shtml)
+- 2026-06-30 02:14 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/05040195750.shtml)
+- 2026-06-30 02:03 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/932052148.shtml)
+- 2026-06-30 02:14 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/6899820432.shtml)
+- 2026-06-30 02:22 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/080434.shtml)
+- 2026-06-30 02:09 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/3594884845.shtml)
+- 2026-06-30 02:18 - [天道](http://www.blog.minike.top/Article/details/590352593.shtml)
+- 2026-06-30 02:15 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/77819.shtml)
+- 2026-06-30 02:28 - [速度与激情9](https://www.share.minike.top/Article/details/30399311.shtml)
+- 2026-06-30 02:11 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/660803241.shtml)
+- 2026-06-30 02:03 - [扬名立万](https://www.blog.minike.top/Article/details/2348209912.shtml)
+- 2026-06-30 02:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/530484472377.shtml)

@@ -1,58 +1,56 @@
-# 截至4月28日，今年全国共发生7次大范围强对流天气过程
+# SpaceX创下全球最大IPO纪录，马斯克影响力进一步提升
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新网4月29日电 中国气象局29日召开5月新闻发布会。国家气象中心副主任黄卓介绍，今年以来，截至4月28日，我国南方地区共发生7次区域性强对流天气过程，具有出现时间偏晚、极端性强、局地频发等特点。 首次过程发生偏晚、过程次数略偏多。今年首次强对流天气过程发生在3月29—31日，较过去5年平均偏晚约半个月，较2025年首次强对流天气过程偏晚将近1个月。截至4月28日，全国共发生
+专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 马斯克旗下航天与卫星企业SpaceX正式敲定首次公开募股发行价，成功完成全球规模最大的新股上市。这一成绩，也印证了这位科技巨头的影响力，以及市场对其商业愿景的认可。 据公司公告，SpaceX于周四确认，本次IPO发行价定为每股135美元，总计发行逾5.55亿股。据此计算，公司此次募资规模约750亿美元，整体
 
 ## 正文
 
-中新网4月29日电 中国气象局29日召开5月新闻发布会。
+专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 马斯克旗下航天与卫星企业SpaceX正式敲定首次公开募股发行价，成功完成全球规模最大的新股上市。
 
-国家气象中心副主任黄卓介绍，今年以来，截至4月28日，我国南方地区共发生7次区域性强对流天气过程，具有出现时间偏晚、极端性强、局地频发等特点。
+这一成绩，也印证了这位科技巨头的影响力，以及市场对其商业愿景的认可。
 
-首次过程发生偏晚、过程次数略偏多。
+据公司公告，SpaceX于周四确认，本次IPO发行价定为每股135美元，总计发行逾5.55亿股。
 
-今年首次强对流天气过程发生在3月29—31日，较过去5年平均偏晚约半个月，较2025年首次强对流天气过程偏晚将近1个月。
+据此计算，公司此次募资规模约750亿美元，整体估值达1.77万亿美元。
 
-截至4月28日，全国共发生7次大范围强对流天气过程，与过去5年同期平均相比(约6次)略偏多。
+该数据一举打破此前由沙特阿美创下的IPO纪录。
 
-雷暴大风、冰雹和强降水极端性强。
+这家沙特国有石油企业在2019年上市时，估值为1.7万亿美元，募资额超290亿美元。
 
-浙江、福建、广西、广东等多地出现10级以上雷暴大风、直径2厘米以上冰雹等极端强对流天气。
+SpaceX股票将于周五正式挂牌交易，股票代码为SPCX。
 
-4月9日夜间浙江舟山定海灰鳖山站出现极端大风，最大风力达16级(54.8m/s)；4月19日20时，贵州黔西南晴隆鸡场最大1小时降雨量达104.2毫米。
+SpaceX发言人暂未就此作出回应。
 
 ## 相关推荐
 
-- 2026-06-30 01:58 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 02:11 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 02:05 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 02:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 02:05 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 02:00 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 02:15 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-30 02:13 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 02:07 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-30 01:54 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 01:55 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 02:09 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 02:07 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 02:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 02:21 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-30 02:19 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 02:02 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 02:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 02:03 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 02:10 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 02:29 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 02:28 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:15 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/555315877.shtml)
-- 2026-06-30 02:08 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/6592334927.shtml)
-- 2026-06-30 02:12 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/9246040.shtml)
-- 2026-06-30 02:09 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/087327054475.shtml)
-- 2026-06-30 02:14 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/1459361338.shtml)
-- 2026-06-30 01:56 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/41554878.shtml)
-- 2026-06-30 02:19 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/15015804047.shtml)
-- 2026-06-30 02:16 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/3580862986.shtml)
-- 2026-06-30 02:14 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/04544.shtml)
-- 2026-06-30 02:07 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/27085380130.shtml)
-- 2026-06-30 02:12 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/623269636722.shtml)
-- 2026-06-30 01:59 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/30289.shtml)
-- 2026-06-30 02:12 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/345811.shtml)
-- 2026-06-30 01:57 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/378675808700.shtml)
-- 2026-06-30 02:17 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/1341180.shtml)
+- 2026-06-30 02:01 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/076731.shtml)
+- 2026-06-30 02:28 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/87872949406.shtml)
+- 2026-06-30 02:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/5830485466.shtml)
+- 2026-06-30 02:02 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/81511960.shtml)
+- 2026-06-30 02:20 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/00589.shtml)
+- 2026-06-30 02:10 - [小娘惹](http://www.share.kurohicncr.top/Article/details/1045382791.shtml)
+- 2026-06-30 02:01 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/0128773357.shtml)
+- 2026-06-30 02:01 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/905543333.shtml)
+- 2026-06-30 02:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/048880331.shtml)
+- 2026-06-30 02:25 - [田曦薇没招了](https://www.blog.minike.top/Article/details/07183793.shtml)
+- 2026-06-30 02:14 - [点菜也要教吗](http://www.share.minike.top/Article/details/9335493.shtml)
+- 2026-06-30 02:02 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/918075.shtml)
+- 2026-06-30 02:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/362090695742.shtml)
+- 2026-06-30 02:24 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/611331831.shtml)
+- 2026-06-30 02:14 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/111620914.shtml)

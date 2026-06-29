@@ -1,57 +1,48 @@
-# “增减缓急”并举 专家析中国高校本科专业设置之变
+# 消息人士称美国五角大楼被封锁
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新社北京4月28日电 (记者 曾玥)中国高校本科专业“扩容”和“瘦身”话题近年热度不减。此前多所高校撤销部分本科专业的消息引发讨论，近日《普通高等学校本科专业目录(2026年)》增设38种新专业的变化亦备受关注。受访专家指出，本科专业设置“增减缓急”并举，反映其在国家战略、社会发展和产业变革牵引下的结构优化，折射出中国高等教育正加快实现从规模扩张向提质增效、从被动适应向主动引
+据美国方面11日援引消息人士的话称，五角大楼已被封锁，危险品处理小组正在赶往现场。五角大楼内人员已被疏散。 (央视新闻客户端)
 
 ## 正文
 
-中新社北京4月28日电 (记者 曾玥)中国高校本科专业“扩容”和“瘦身”话题近年热度不减。
+据美国方面11日援引消息人士的话称，五角大楼已被封锁，危险品处理小组正在赶往现场。
 
-此前多所高校撤销部分本科专业的消息引发讨论，近日《普通高等学校本科专业目录(2026年)》增设38种新专业的变化亦备受关注。
+五角大楼内人员已被疏散。
 
-受访专家指出，本科专业设置“增减缓急”并举，反映其在国家战略、社会发展和产业变革牵引下的结构优化，折射出中国高等教育正加快实现从规模扩张向提质增效、从被动适应向主动引领转变。
-
-新目录除增设新专业之外，还在“交叉学科”门类中首批列入未来机器人等11种已有专业和脑机科学与技术等4种新设专业。
-
-目前，本科专业目录共涵盖13个门类、92个专业类、883种专业。
-
-更加科学完善的目录体系，是中国高校本科专业调整持续走深的结果。
-
-据统计，“十四五”期间，全国高校新增本科专业布点1.02万个、撤销或停招1.22万个。
-
-专业调整幅度持续增大，累计调整比例超30%。
+(央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-30 02:08 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-30 02:10 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 02:02 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 02:01 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 02:15 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 01:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 01:58 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 02:06 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 02:04 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 02:15 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 02:07 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 02:05 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 02:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 02:00 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 02:16 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 02:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 02:26 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 02:26 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-30 02:15 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 02:00 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 02:27 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 02:06 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-30 02:02 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:57 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/56779.shtml)
-- 2026-06-30 02:19 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/76895162.shtml)
-- 2026-06-30 01:57 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/09809.shtml)
-- 2026-06-30 01:58 - [千香](http://www.share.kurohicncr.top/Article/details/461604.shtml)
-- 2026-06-30 02:04 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/639312496.shtml)
-- 2026-06-30 02:15 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/861830938.shtml)
-- 2026-06-30 01:54 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/412780851.shtml)
-- 2026-06-30 02:17 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/66204728454.shtml)
-- 2026-06-30 02:19 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/915625009822.shtml)
-- 2026-06-30 02:22 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/263072.shtml)
-- 2026-06-30 02:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/816994191569.shtml)
-- 2026-06-30 02:05 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/8221711.shtml)
-- 2026-06-30 02:20 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/84695620.shtml)
-- 2026-06-30 02:01 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/285553.shtml)
-- 2026-06-30 02:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/02011.shtml)
+- 2026-06-30 02:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/7345365289.shtml)
+- 2026-06-30 02:28 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/93378613438.shtml)
+- 2026-06-30 02:15 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/801421033.shtml)
+- 2026-06-30 02:16 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/4995373751.shtml)
+- 2026-06-30 02:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/22926.shtml)
+- 2026-06-30 02:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/8176352702.shtml)
+- 2026-06-30 02:29 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/028265274.shtml)
+- 2026-06-30 02:29 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/126265711001.shtml)
+- 2026-06-30 02:00 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/876827534.shtml)
+- 2026-06-30 02:06 - [《贺子珍》](http://www.blog.minike.top/Article/details/60249865.shtml)
+- 2026-06-30 02:11 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/193201.shtml)
+- 2026-06-30 02:07 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/2482333649.shtml)
+- 2026-06-30 02:04 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/69472975.shtml)
+- 2026-06-30 02:05 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/9233032.shtml)
+- 2026-06-30 02:08 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/597010456878.shtml)

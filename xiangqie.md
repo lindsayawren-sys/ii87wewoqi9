@@ -1,60 +1,61 @@
-# 从老建筑到古运河 扬州这样“有机”生长
+# “青聚香江”话机遇 台湾青年看好粤港澳大湾区发展
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-【开局之年看中国·遇见不一样的江苏】从老建筑到古运河 扬州这样“有机”生长 央广网扬州4月27日消息(记者吕倩媛)运河千年流韵，盐商文脉绵长。扬州因运河而兴，因盐商而盛。运河文化与盐商文化，交织成这座古城极具辨识度的底色。近日，“开局之年看中国·遇见不一样的江苏”网络主题宣传活动走进扬州，探寻古城文脉如何焕发新生。 “十五五”规划纲要明确提出“高质量推进城市更新”。扬州《202
+中新社香港6月11日电 (刘玥晴 郑欣怡)“同心筑梦·青聚香江”海峡两岸暨港澳青年融合发展主题交流活动11日在香港举行。与会台湾青年接受中新社采访时表示，看好粤港澳大湾区发展前景，期待大湾区为两岸交流搭建平台，让更多年轻人在两岸融合发展中实现个人价值。智能匹配灵活用工平台“小包智工”创始人之一、台湾青年徐韬在北京创业9年，业务已逐步拓宽至粤港澳大湾区内地城市。他认为，大陆市场广
 
 ## 正文
 
-【开局之年看中国·遇见不一样的江苏】从老建筑到古运河 扬州这样“有机”生长 央广网扬州4月27日消息(记者吕倩媛)运河千年流韵，盐商文脉绵长。
+中新社香港6月11日电 (刘玥晴 郑欣怡)“同心筑梦·青聚香江”海峡两岸暨港澳青年融合发展主题交流活动11日在香港举行。
 
-扬州因运河而兴，因盐商而盛。
+与会台湾青年接受中新社采访时表示，看好粤港澳大湾区发展前景，期待大湾区为两岸交流搭建平台，让更多年轻人在两岸融合发展中实现个人价值。
 
-运河文化与盐商文化，交织成这座古城极具辨识度的底色。
+智能匹配灵活用工平台“小包智工”创始人之一、台湾青年徐韬在北京创业9年，业务已逐步拓宽至粤港澳大湾区内地城市。
 
-近日，“开局之年看中国·遇见不一样的江苏”网络主题宣传活动走进扬州，探寻古城文脉如何焕发新生。
+他认为，大陆市场广阔，政策环境友善，商业氛围蓬勃向好，大湾区更是一片活力满满的热土，为海峡两岸暨港澳青年创新创业提供广阔舞台。
 
-“十五五”规划纲要明确提出“高质量推进城市更新”。
+“很多台湾朋友可能没有留意到，其实大湾区引才政策力度很大，入驻各创业园区的成本可控，能有效减轻初创企业压力。
 
-扬州《2026年城市建设和环境提升重点工程项目计划》也指出，城市更新工程聚焦空间优化与文化传承，让城市更具魅力。
+”徐韬结合自身经历说，许多园区内设涉台及港澳相关服务部门，共享政策信息，让意向入驻者充分了解相关政策的覆盖面和普惠性，契合台青实际需求。
 
-“广陵有盐”街区是扬州广陵路更新工程的先导性项目。
+近年来，粤港澳大湾区律师执业试点深入实施，目前已有逾650名港澳律师取得粤港澳大湾区律师执业证书、在大湾区内地九市的190多家律所“落户”执业。
 
-位于老城区的广陵路，浓缩着扬州的辉煌历史和盐商记忆，正所谓“一条广陵盐商路，半部扬州发展史”。
+在上海交通大学就读法律相关专业的台生陈恒毅直言，他十分认可大湾区为规则衔接、机制对接所做的努力。
 
 ## 相关推荐
 
-- 2026-06-30 02:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 02:09 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 02:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 02:12 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 01:57 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-30 02:15 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 02:13 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 02:16 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 02:20 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 02:05 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 02:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 02:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 02:23 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 02:19 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 02:14 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 02:16 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 02:03 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 02:18 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 02:26 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 02:22 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-30 02:29 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 02:02 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 02:16 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 02:10 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 02:21 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-30 02:02 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 02:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 02:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 02:29 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:04 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/379172.shtml)
-- 2026-06-30 02:05 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/85724.shtml)
-- 2026-06-30 01:54 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/6058454.shtml)
-- 2026-06-30 02:11 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/8463842.shtml)
-- 2026-06-30 01:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/318647.shtml)
-- 2026-06-30 02:02 - [日本领先巴西](https://www.share.minike.top/Article/details/48645125431.shtml)
-- 2026-06-30 02:07 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/6097930699.shtml)
-- 2026-06-30 02:09 - [我和我的家乡](https://www.share.minike.top/Article/details/838276222827.shtml)
-- 2026-06-30 02:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/0574627890.shtml)
-- 2026-06-30 02:08 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/78299200559.shtml)
-- 2026-06-30 02:03 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/64204913406.shtml)
-- 2026-06-30 02:00 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/542531564.shtml)
-- 2026-06-30 01:55 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/1733295.shtml)
-- 2026-06-30 02:14 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/28056.shtml)
-- 2026-06-30 02:19 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/25926.shtml)
+- 2026-06-30 02:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/9369180.shtml)
+- 2026-06-30 02:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/1825072994.shtml)
+- 2026-06-30 02:23 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/67010190.shtml)
+- 2026-06-30 02:14 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/46927613.shtml)
+- 2026-06-30 02:22 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/05092314.shtml)
+- 2026-06-30 02:15 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/62691864650.shtml)
+- 2026-06-30 02:14 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/93083.shtml)
+- 2026-06-30 02:14 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/2152461849.shtml)
+- 2026-06-30 02:10 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/20226.shtml)
+- 2026-06-30 02:17 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/564401355.shtml)
+- 2026-06-30 02:05 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/82834.shtml)
+- 2026-06-30 02:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/460512.shtml)
+- 2026-06-30 02:03 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/5678462.shtml)
+- 2026-06-30 02:09 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/08903197099.shtml)
+- 2026-06-30 02:05 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/825693085.shtml)

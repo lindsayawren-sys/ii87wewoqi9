@@ -1,59 +1,59 @@
-# 新疆：天山脚下狮腾跃 少年胸中梦起航
+# 佳鑫国际资源早盘涨近9% 机构称重视钨板块战略重估
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐4月28日电 (胡嘉琛)铿锵锣鼓声响起，18岁的阿不都艾则孜·阿地力双手稳稳托举起色彩斑斓的狮头，腾、挪、闪、扑，每一个动作都充满力量与美感。 “舞狮让我知道，再难的事，只要勇敢，就赢了一半。”这位来自新疆喀什地区疏附县的少年28日接受中新网采访时说。 2018年，在广东省对口支援新疆工作前方指挥部推动下，广州体育学院通过“集中培训—校本实践—赛事检验”模式，让传
+佳鑫国际资源（03858）早盘涨近9%，截至发稿，股价上涨2.70%，现报89.30港元，成交额1.07亿港元。 钨企长单释放市场维稳信号。6月10日，广东翔鹭钨业公布6月上半月钨原料长单采购价，55%黑钨精矿、55%白钨精矿较5月下半月均上涨超过25%，仲钨酸铵价格上涨18.18%。 长江证券指出，钨价触底反弹，重视钨板块战略重估。钨价自3月高位回调，时间空间均较为充分，本周
 
 ## 正文
 
-中新网乌鲁木齐4月28日电 (胡嘉琛)铿锵锣鼓声响起，18岁的阿不都艾则孜·阿地力双手稳稳托举起色彩斑斓的狮头，腾、挪、闪、扑，每一个动作都充满力量与美感。
+佳鑫国际资源（03858）早盘涨近9%，截至发稿，股价上涨2.70%，现报89.30港元，成交额1.07亿港元。
 
-“舞狮让我知道，再难的事，只要勇敢，就赢了一半。
+钨企长单释放市场维稳信号。
 
-”这位来自新疆喀什地区疏附县的少年28日接受中新网采访时说。
+6月10日，广东翔鹭钨业公布6月上半月钨原料长单采购价，55%黑钨精矿、55%白钨精矿较5月下半月均上涨超过25%，仲钨酸铵价格上涨18.18%。
 
-2018年，在广东省对口支援新疆工作前方指挥部推动下，广州体育学院通过“集中培训—校本实践—赛事检验”模式，让传统民俗舞狮在疏附县的中小学校遍地开花。
+长江证券指出，钨价触底反弹，重视钨板块战略重估。
 
-“初一那年，我被喧天的锣鼓声吸引进学校龙狮队。
+钨价自3月高位回调，时间空间均较为充分，本周已呈现触底反弹。
 
-”阿不都艾则孜回忆，初学舞狮时，端不稳狮头，练马步时腿发抖。
+钨供给刚性未改，新兴需求加持长期增长乐观，看好战略属性加持下价格中枢上行。
 
-但他没有放弃，经过不懈苦练，逐渐成长为校园小有名气的“狮王”，屡次在当地赛事中获奖。
+同时刀具前期钨价高位顺价已完成，钨价企稳或利于一体化公司利润释放。
 
-据悉，伽师县已组建起100多支龙狮队伍，覆盖校园、乡村和社区。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:20 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 01:58 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 02:22 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 02:04 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-30 02:01 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 01:56 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 02:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 02:17 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 01:57 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 01:57 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 02:19 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 02:03 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 02:08 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-30 02:07 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 02:14 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 02:21 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 02:08 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 02:09 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 02:15 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 02:26 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 02:06 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 02:14 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 02:25 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 02:27 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 02:25 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 02:21 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:01 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/48851000717.shtml)
-- 2026-06-30 02:18 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/4967610032.shtml)
-- 2026-06-30 01:59 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/967702.shtml)
-- 2026-06-30 01:58 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/9950560.shtml)
-- 2026-06-30 02:17 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/86843032667.shtml)
-- 2026-06-30 02:14 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/735688390644.shtml)
-- 2026-06-30 02:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/711671664.shtml)
-- 2026-06-30 02:06 - [日本16强魔咒](http://www.share.minike.top/Article/details/006121.shtml)
-- 2026-06-30 02:06 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/6213991.shtml)
-- 2026-06-30 02:11 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/7347545.shtml)
-- 2026-06-30 02:18 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/948410612.shtml)
-- 2026-06-30 02:19 - [孙兴慜道歉](https://www.share.minike.top/Article/details/275377645.shtml)
-- 2026-06-30 02:14 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/07185497.shtml)
-- 2026-06-30 02:02 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/61655143.shtml)
-- 2026-06-30 02:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/376568956.shtml)
+- 2026-06-30 02:24 - [美人鱼](http://www.share.minike.top/Article/details/35275.shtml)
+- 2026-06-30 02:23 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/70730493747.shtml)
+- 2026-06-30 02:22 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/65171380.shtml)
+- 2026-06-30 02:20 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/11344241256.shtml)
+- 2026-06-30 02:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/810247.shtml)
+- 2026-06-30 02:12 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/493019632.shtml)
+- 2026-06-30 02:06 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/27610.shtml)
+- 2026-06-30 02:16 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/52799850.shtml)
+- 2026-06-30 02:24 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/60917945468.shtml)
+- 2026-06-30 02:25 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/529981316.shtml)
+- 2026-06-30 02:06 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/453391004756.shtml)
+- 2026-06-30 02:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/6604304152.shtml)
+- 2026-06-30 02:04 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/7313576662.shtml)
+- 2026-06-30 02:27 - [月亮](https://www.share.minike.top/Article/details/3254842.shtml)
+- 2026-06-30 02:16 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/91726019.shtml)

@@ -1,54 +1,60 @@
-# 赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报
+# 联合国总部举办庆祝“文明对话国际日”主题活动
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-赣锋锂业（01772）盘中涨超7%，截至发稿，股价上涨6.31%，现报83.45港元，成交额7.41亿港元。 4月29日，赣锋锂业将发布2026年首季度财报。此前赣锋锂业发盈喜，花旗指出，公司今年首季净利润转正，介乎16亿至21亿元人民币（下同），以中值计算核心净利润为15亿元，符合预期。业绩主要受惠于平均售价急升，期内碳酸锂均价为每吨15.4万元，按季增长75%。 值得一提的
+中新网联合国6月11日电 中国常驻联合国代表团10日在纽约联合国总部举办“文明对话国际日”主题活动。活动以“共话文明互鉴新路径，书写全球治理新篇章”为主题，亚美尼亚、哥伦比亚、埃塞俄比亚、希腊、印度尼西亚、伊拉克、墨西哥常驻团及联合国文明联盟、教科文组织等参与合办，各国高级别代表、联合国官员等近300人出席。 中共中央政治局委员、外交部长王毅视频致辞表示，设立“文明对话国际日”
 
 ## 正文
 
-赣锋锂业（01772）盘中涨超7%，截至发稿，股价上涨6.31%，现报83.45港元，成交额7.41亿港元。
+中新网联合国6月11日电 中国常驻联合国代表团10日在纽约联合国总部举办“文明对话国际日”主题活动。
 
-4月29日，赣锋锂业将发布2026年首季度财报。
+活动以“共话文明互鉴新路径，书写全球治理新篇章”为主题，亚美尼亚、哥伦比亚、埃塞俄比亚、希腊、印度尼西亚、伊拉克、墨西哥常驻团及联合国文明联盟、教科文组织等参与合办，各国高级别代表、联合国官员等近300人出席。
 
-此前赣锋锂业发盈喜，花旗指出，公司今年首季净利润转正，介乎16亿至21亿元人民币（下同），以中值计算核心净利润为15亿元，符合预期。
+中共中央政治局委员、外交部长王毅视频致辞表示，设立“文明对话国际日”是落实全球文明倡议的重要举措，要坚持相互尊重，推动不同文明和谐相处；坚持以人为本，厚植文明交流根基；坚持传承创新，增强文明进步动力；坚持交流互鉴，完善文明对话机制。
 
-业绩主要受惠于平均售价急升，期内碳酸锂均价为每吨15.4万元，按季增长75%。
+联合国秘书长古特雷斯书面致辞表示，应通过文明对话增进团结，推动构建更加公正、和平的世界。
 
-值得一提的是，在供应端，中国银河证券表示，津巴布韦此前2月的禁止锂矿出口或将在5月逐步影响国内锂盐的原料供应，此前公示换证的四家核心江西锂云母矿或将在5-6月停产进入换证审批流程，且IGO将格林布什锂矿2026财年的产量指引下调近18万吨。
+文明联盟高级代表莫拉蒂诺斯呼吁以对话弥合分歧，推进合作。
 
-供应的扰动与需求边际上行或将使国内碳酸锂供需缺口在度打开，进行库存去化，支撑锂价的上涨。
+第80届联大主席办公室主任博尔赫斯代表联大主席表示，文明对话是捍卫《联合国宪章》的应有之义。
 
-责任编辑：卢昱君
+哥伦比亚总统佩特罗强调应通过文明对话汲取应对全球挑战的智慧。
+
+各方赞赏中国提出全球文明倡议及为促进文明对话所作贡献，一致认为应以交流凝聚共识，合力开创美好未来。
 
 ## 相关推荐
 
-- 2026-06-30 02:18 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 01:55 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 02:13 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 01:55 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 02:22 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 02:02 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 01:54 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 02:03 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-30 02:12 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 02:04 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 02:15 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 02:28 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 02:19 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 02:03 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 02:10 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 02:08 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 02:29 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 02:01 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 02:10 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 02:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 02:24 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 02:19 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 02:13 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 02:23 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:09 - [张凌赫 客串](http://www.share.minike.top/Article/details/50972.shtml)
-- 2026-06-30 01:56 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/308134603084.shtml)
-- 2026-06-30 02:16 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/64609843.shtml)
-- 2026-06-30 02:01 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/72582721174.shtml)
-- 2026-06-30 01:54 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/175479.shtml)
-- 2026-06-30 02:05 - [日本反击率先破门](https://www.blog.minike.top/Article/details/34602506044.shtml)
-- 2026-06-30 02:20 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/02187435.shtml)
-- 2026-06-30 02:15 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/6867100127.shtml)
-- 2026-06-30 02:05 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/192332124719.shtml)
-- 2026-06-30 01:54 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/73785912731.shtml)
-- 2026-06-30 02:23 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/44157400.shtml)
-- 2026-06-30 02:09 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/22743440.shtml)
-- 2026-06-30 02:10 - [扬名立万](https://www.share.kurohicncr.top/Article/details/1565638.shtml)
-- 2026-06-30 02:00 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/37583.shtml)
-- 2026-06-30 01:57 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/057290361639.shtml)
+- 2026-06-30 02:10 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/244335.shtml)
+- 2026-06-30 02:12 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/402593397379.shtml)
+- 2026-06-30 02:12 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/1455165.shtml)
+- 2026-06-30 02:11 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/687208594.shtml)
+- 2026-06-30 02:20 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/23338312308.shtml)
+- 2026-06-30 02:16 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/037614239.shtml)
+- 2026-06-30 02:15 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/9961160.shtml)
+- 2026-06-30 02:10 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/357867568295.shtml)
+- 2026-06-30 02:08 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/5566705051.shtml)
+- 2026-06-30 02:17 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/8133168.shtml)
+- 2026-06-30 02:17 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/847298976.shtml)
+- 2026-06-30 02:19 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/936046166979.shtml)
+- 2026-06-30 02:02 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/103795.shtml)
+- 2026-06-30 02:30 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/9744009896.shtml)
+- 2026-06-30 02:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/072985146530.shtml)

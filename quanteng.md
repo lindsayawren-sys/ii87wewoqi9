@@ -1,61 +1,57 @@
-# 渝昆高铁川滇段无砟轨道施工全部完成
+# 欧洲央行接近三年来首次加息 拉加德警告通胀扩散风险
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新网成都4月28日电 (记者 刘忠俊)4月28日，随着最后一段无砟轨道道床板的浇筑完成，渝昆高铁宜宾至盐津南段(简称“渝昆高铁川滇段”)无砟轨道施工顺利收官，为该条线路按期通车奠定了坚实基础。 渝昆高铁是中国“八纵八横”高铁网京昆通道的重要组成部分，线路起自重庆西站，途经重庆、四川、贵州、云南四省市，终至昆明南站，全长约700公里，设计时速350公里，全线分三段建设。渝宜段(
+欧洲央行在接近三年来首次加息，行长克里斯蒂娜·拉加德警告称，由伊朗战争引发的通胀正在扩散，不再局限于能源领域。 存款利率从2%上调至2.25%，符合经济学家和投资者的预期，他们预计9月份还会再加息25个基点。欧洲央行重申不会预先承诺未来行动，但表示仍处于有利位置，能够应对当前的不可预测性。 行长拉加德在法兰克福对记者表示，冲击正开始“在整个经济中”扩散，“直接成本显而易见，间接
 
 ## 正文
 
-中新网成都4月28日电 (记者 刘忠俊)4月28日，随着最后一段无砟轨道道床板的浇筑完成，渝昆高铁宜宾至盐津南段(简称“渝昆高铁川滇段”)无砟轨道施工顺利收官，为该条线路按期通车奠定了坚实基础。
+欧洲央行在接近三年来首次加息，行长克里斯蒂娜·拉加德警告称，由伊朗战争引发的通胀正在扩散，不再局限于能源领域。
 
-渝昆高铁是中国“八纵八横”高铁网京昆通道的重要组成部分，线路起自重庆西站，途经重庆、四川、贵州、云南四省市，终至昆明南站，全长约700公里，设计时速350公里，全线分三段建设。
+存款利率从2%上调至2.25%，符合经济学家和投资者的预期，他们预计9月份还会再加息25个基点。
 
-渝宜段(重庆西至宜宾)已于2024年9月29日开通运营；川滇段(宜宾至盐津南)、云南段(盐津南至昆明南站)正有序推进。
+欧洲央行重申不会预先承诺未来行动，但表示仍处于有利位置，能够应对当前的不可预测性。
 
-无砟轨道施工是高铁铺轨前的关键工序，施工精度高、工艺复杂，直接决定列车运行平稳性和乘客舒适度。
+行长拉加德在法兰克福对记者表示，冲击正开始“在整个经济中”扩散，“直接成本显而易见，间接成本也在显现”。
 
-“相较于传统有砟轨道，无砟轨道稳定性、平顺度更优，使用寿命更长、运维成本更低，对钢筋绑扎、模板安装、混凝土浇筑等工序要求极高，轨面标高测量精度达‘毫米级’。
+她反驳了有关周四一致作出的加息决定属于预防性举措的说法。
 
-”中铁八局渝昆高铁项目部常务副经理邓磊介绍。
+她说：“主要风险将是不作出这类决定，因为如果你任由通胀开始不受控制地上升，那么要把它带回价格稳定水平，就会变成困难得多的局面。
 
-京昆高铁西昆公司宜宾指挥部副指挥长袁小树表示，渝昆高铁川滇段设宜宾、高县、筠连、盐津南4个车站。
+” 欧洲央行宣布决定后，欧洲债券维持涨势。
 
-其中，筠连至盐津南段59公里的无砟轨道施工任务由中铁八局承担，该区段地处四川盆地向云贵高原过渡地带，桥隧比高，施工难度较大。
+欧元兑美元汇率持稳于1.1538美元。
 
 ## 相关推荐
 
-- 2026-06-30 02:22 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 02:09 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 02:22 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-30 02:15 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 02:00 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 02:17 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 02:15 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 02:06 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-30 02:12 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 02:02 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-30 01:58 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 02:15 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 02:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-30 02:19 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 02:04 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 02:08 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 02:15 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 02:17 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 02:17 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 02:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 02:10 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 02:26 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 02:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 02:27 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 02:16 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 02:11 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/44155.shtml)
-- 2026-06-30 02:04 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/477182826073.shtml)
-- 2026-06-30 01:56 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/07480963548.shtml)
-- 2026-06-30 02:12 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/8728816.shtml)
-- 2026-06-30 01:56 - [巴西vs日本](https://www.share.minike.top/Article/details/8836159.shtml)
-- 2026-06-30 02:21 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/627500135.shtml)
-- 2026-06-30 01:55 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/225742315206.shtml)
-- 2026-06-30 02:19 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/938480.shtml)
-- 2026-06-30 02:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/0740205.shtml)
-- 2026-06-30 02:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/1993124968.shtml)
-- 2026-06-30 02:01 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/5828678604.shtml)
-- 2026-06-30 02:13 - [美人鱼](https://www.share.minike.top/Article/details/118249.shtml)
-- 2026-06-30 02:17 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/411737674466.shtml)
-- 2026-06-30 02:04 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/770813.shtml)
-- 2026-06-30 01:59 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/34766.shtml)
+- 2026-06-30 02:09 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/2843870253.shtml)
+- 2026-06-30 02:07 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/01136.shtml)
+- 2026-06-30 02:24 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/7045241497.shtml)
+- 2026-06-30 02:21 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/0439142669.shtml)
+- 2026-06-30 02:02 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/68218.shtml)
+- 2026-06-30 02:23 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/1824908719.shtml)
+- 2026-06-30 02:19 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/078234.shtml)
+- 2026-06-30 02:29 - [美股](http://www.blog.minike.top/Article/details/8574959534.shtml)
+- 2026-06-30 02:03 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/277584.shtml)
+- 2026-06-30 02:17 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/25793021.shtml)
+- 2026-06-30 02:19 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/5273496.shtml)
+- 2026-06-30 02:25 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/615414151.shtml)
+- 2026-06-30 02:16 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/71472940.shtml)
+- 2026-06-30 02:26 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/52563625561.shtml)
+- 2026-06-30 02:12 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/11266491.shtml)

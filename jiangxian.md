@@ -1,58 +1,61 @@
-# 白宫枪击案后 美参议员欲修建安全宴会厅
+# 杜邦宣布美国医疗保健生产基地全面使用100%可再生电力
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-由美国南卡罗来纳州参议员林赛·格雷厄姆牵头的一批参议院共和党人正在推动一项法案，计划拨款在白宫修建一个占地9万平方英尺的安全宴会厅。他们表示，在周六一名枪手试图冲击白宫记者协会晚宴现场后，这一项目对国家安全至关重要。 格雷厄姆及其盟友表示，该项目的费用将通过国家公园使用费和海关规费来抵消，并且法案将授权在宴会厅下方建设与国家安全相关的基础设施，包括特勤局的附属设施。 格雷厄姆说
+杜邦公司于6月10日宣布，其在美国境内的12家医疗保健制造基地已通过购买可再生能源证书，实现100%可再生电力供应。这一举措是杜邦推进2035年可持续发展目标及2050年净零碳排放承诺的重要组成部分。 此次转型覆盖了杜邦在美国的12个医疗保健相关生产基地，每年约3万千瓦时的电力消耗已与美国本土的可再生能源发电相匹配，此举将有效减少这些设施因使用电网电力而产生的范围二温室气体排放
 
 ## 正文
 
-由美国南卡罗来纳州参议员林赛·格雷厄姆牵头的一批参议院共和党人正在推动一项法案，计划拨款在白宫修建一个占地9万平方英尺的安全宴会厅。
+杜邦公司于6月10日宣布，其在美国境内的12家医疗保健制造基地已通过购买可再生能源证书，实现100%可再生电力供应。
 
-他们表示，在周六一名枪手试图冲击白宫记者协会晚宴现场后，这一项目对国家安全至关重要。
+这一举措是杜邦推进2035年可持续发展目标及2050年净零碳排放承诺的重要组成部分。
 
-格雷厄姆及其盟友表示，该项目的费用将通过国家公园使用费和海关规费来抵消，并且法案将授权在宴会厅下方建设与国家安全相关的基础设施，包括特勤局的附属设施。
+此次转型覆盖了杜邦在美国的12个医疗保健相关生产基地，每年约3万千瓦时的电力消耗已与美国本土的可再生能源发电相匹配，此举将有效减少这些设施因使用电网电力而产生的范围二温室气体排放。
 
-格雷厄姆说：“要让一群重要人物聚集在同一个地方，除非那个地方非常、非常安全，否则相当困难。
+杜邦医疗保健解决方案副总裁兼总经理Dean Childers表示，为这些美国医疗保健制造基地引入可再生电力，是公司践行可持续发展承诺的重要一步，这有助于为客户和患者构建更具可持续性的医疗保健供应链。
 
-我们生活的时代非同寻常。
+杜邦首席可持续发展官Scott J Collick指出，目前公司全球总用电量中已有超过一半来自可再生能源，此次公告进一步推动了杜邦对RE100倡议的履约进程。
 
-我在这里已经待了一段时间，从未像今天这样感受到如此强烈的威胁。
+杜邦在美国的生产基地主要制造医疗包装材料，以及用于医疗器械和制药领域的相关组件。
 
-” 他指出，除了特朗普总统外，副总统J·D·万斯和众议院议长迈克·约翰逊（路易斯安那州共和党人）——分别是总统继任顺序中的第二和第三顺位——周六均在晚宴现场。
+这一进展建立在杜邦持续脱碳战略的基础上。
 
-当时一名31岁男子持有一把霰弹枪、一把手枪和多把刀具，试图闯入宴会厅，后被特勤局人员制服。
+该公司此前已设定目标，到2035年将范围一和范围二的温室气体排放量在2019年基础上减少75%。
 
 ## 相关推荐
 
-- 2026-06-30 02:15 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 02:17 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 02:14 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 02:13 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 02:16 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 02:03 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 02:10 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 01:59 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 02:21 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 01:58 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 02:12 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 02:09 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 02:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 02:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 02:04 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 02:12 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 02:05 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 02:08 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 02:18 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 02:10 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-30 02:17 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 02:03 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 02:14 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 02:24 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 02:23 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 02:16 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 02:25 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:18 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/110735.shtml)
-- 2026-06-30 02:11 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/51259.shtml)
-- 2026-06-30 02:03 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/76373.shtml)
-- 2026-06-30 02:11 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/411452686761.shtml)
-- 2026-06-30 02:23 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/177628964005.shtml)
-- 2026-06-30 02:05 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/528023.shtml)
-- 2026-06-30 01:59 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/2366309514.shtml)
-- 2026-06-30 02:08 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/249813117901.shtml)
-- 2026-06-30 02:16 - [日本反击率先破门](https://www.share.minike.top/Article/details/39111135.shtml)
-- 2026-06-30 02:00 - [《贺子珍》](https://www.share.minike.top/Article/details/4186462.shtml)
-- 2026-06-30 01:58 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/345797.shtml)
-- 2026-06-30 01:56 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/11416068.shtml)
-- 2026-06-30 01:57 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/65611902.shtml)
-- 2026-06-30 02:21 - [日本进球](https://www.share.kurohicncr.top/Article/details/712158.shtml)
-- 2026-06-30 02:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/962720013696.shtml)
+- 2026-06-30 02:21 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/492841039.shtml)
+- 2026-06-30 02:18 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/1315896.shtml)
+- 2026-06-30 02:28 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/9074528971.shtml)
+- 2026-06-30 02:20 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/506051292801.shtml)
+- 2026-06-30 02:02 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/26617.shtml)
+- 2026-06-30 02:26 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/0810404250.shtml)
+- 2026-06-30 02:26 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/233331891.shtml)
+- 2026-06-30 02:12 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/8896614683.shtml)
+- 2026-06-30 02:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/74101107.shtml)
+- 2026-06-30 02:20 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/694579.shtml)
+- 2026-06-30 02:12 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/3973890302.shtml)
+- 2026-06-30 02:13 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/79329034.shtml)
+- 2026-06-30 02:11 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/84393542568.shtml)
+- 2026-06-30 02:09 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/656128982.shtml)
+- 2026-06-30 02:28 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/8495998322.shtml)

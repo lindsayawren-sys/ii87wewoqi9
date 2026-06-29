@@ -1,60 +1,57 @@
-# 多部门协同发力 上海出台14项举措助力民营经济高质量发展
+# 从实验室走向生产线 天津北辰推动北大生物医学前沿创新中心首批项目落地
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新网上海4月28日电(范宇斌)上海市委统战部、中国人民银行上海总部、上海市工商联(总商会)27日召开金融支持民营企业高质量发展暨“政会银企”机制推进会。上海市委常委、统战部部长陈通出席会议并讲话。 会上，九部门发布《2026年上海金融助力民营经济高质量发展工作指引》，围绕积极运用新设结构性货币政策工具、强化财政金融协同力度、丰富民营企业增信渠道等方面推出14项具体举措。会上还
+中新网天津6月11日电 (薛淳月 江莹)天津市政府新闻办10日举行“开局起步‘十五五’”系列主题新闻发布会——北辰区专场。天津市北辰区委书记倪斌介绍，北京大学京津冀生物医学前沿创新中心已在北辰启用，聚焦科研攻关、成果转化与人才培养，将推动首批肿瘤抗体药物等3个成熟项目在北辰转化落地。 据了解，北京大学京津冀生物医学前沿创新中心是北京大学批准设立的产学研医一体化研发机构。倪斌介绍
 
 ## 正文
 
-中新网上海4月28日电(范宇斌)上海市委统战部、中国人民银行上海总部、上海市工商联(总商会)27日召开金融支持民营企业高质量发展暨“政会银企”机制推进会。
+中新网天津6月11日电 (薛淳月 江莹)天津市政府新闻办10日举行“开局起步‘十五五’”系列主题新闻发布会——北辰区专场。
 
-上海市委常委、统战部部长陈通出席会议并讲话。
+天津市北辰区委书记倪斌介绍，北京大学京津冀生物医学前沿创新中心已在北辰启用，聚焦科研攻关、成果转化与人才培养，将推动首批肿瘤抗体药物等3个成熟项目在北辰转化落地。
 
-会上，九部门发布《2026年上海金融助力民营经济高质量发展工作指引》，围绕积极运用新设结构性货币政策工具、强化财政金融协同力度、丰富民营企业增信渠道等方面推出14项具体举措。
+据了解，北京大学京津冀生物医学前沿创新中心是北京大学批准设立的产学研医一体化研发机构。
 
-会上还成立了上海市工商联民营经济金融服务实体阵地，将在G60科创走廊、张江科学城等重点园区及相关金融机构布设18个服务站点，引入AI数字员工，为民营企业免费提供政策查询、融资对接、产品匹配等一站式服务。
+倪斌介绍，该中心将聚焦单细胞组学、基因测序、癌症诊疗等前沿领域深化关键核心技术攻关，同时抢抓人工智能发展机遇，高水平打造“数据驱动的创新肿瘤诊疗实验室”。
 
-会议指出，上海着力破解民营企业融资难题，不断深化“政会银企”合作机制建设，以优质金融服务赋能民营经济高质量发展。
+在成果转化方面，创新中心孵化运营公司已正式成立，将精准复制知名企业孵化模式。
 
-如何持续深化“政会银企”合作机制？
+同时，北辰区将以该中心为支点，进一步链接北京大学肿瘤医院、AI医疗头部企业、基金投融资机构等资源，组建前沿生物医学产业联盟，推动政产学研金协同联动。
 
-本次会议对进一步提升民营经济金融服务精准度提出要求：要更加精准地打破信息壁垒，畅通银企信息交流渠道，加大“商会批次贷”工作力度，引导民营企业规范治理、加强信息披露，提升民营企业融资的可得性；要更加精准地贴近企业需求，用好中小微企业贴息、民间投资担保、“随申融”应用等惠企政策与服务阵地，健全覆盖企业全生命周期的金融服务体系，以科技赋能提升民营企业获得感；要更加精准地用好科技金融政策，强化科技创新金融支持，共同打造“科技、产业、金融”协同发展的良好局面，更好地推动上海民营企业科技创新和高质量发展。
+北辰经济技术开发区管委会主任杨金碧表示，将紧盯首都资源，推动北京大学京津冀生物医学前沿创新中心、北斗伏羲低空经济全国研发总部等落地项目加快从“实验室走向生产线”。
 
-(完)
+人才集聚效应也在加速显现。
 
 ## 相关推荐
 
-- 2026-06-30 01:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 02:06 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 02:03 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 02:14 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-30 01:56 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-30 02:02 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 02:13 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 01:59 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 02:16 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 02:05 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 02:02 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 02:20 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 02:03 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 02:20 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 02:27 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 02:00 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 02:06 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-30 02:00 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 02:03 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 02:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 02:07 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 02:06 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 02:10 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 02:29 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 02:28 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/9507617.shtml)
-- 2026-06-30 02:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/317145872.shtml)
-- 2026-06-30 02:21 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/2721626.shtml)
-- 2026-06-30 02:20 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/1468095.shtml)
-- 2026-06-30 02:11 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/336161598.shtml)
-- 2026-06-30 01:59 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/46304947605.shtml)
-- 2026-06-30 02:14 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/24212527794.shtml)
-- 2026-06-30 02:10 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/203428835.shtml)
-- 2026-06-30 01:58 - [青春环游记第三季](https://www.share.minike.top/Article/details/830461399.shtml)
-- 2026-06-30 02:18 - [周生如故](https://www.blog.kurohicncr.top/Article/details/574954.shtml)
-- 2026-06-30 02:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/83859806.shtml)
-- 2026-06-30 02:15 - [时光音乐会](https://www.share.minike.top/Article/details/32710054622.shtml)
-- 2026-06-30 02:06 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/4239636.shtml)
-- 2026-06-30 02:06 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/777965.shtml)
-- 2026-06-30 02:09 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/335237.shtml)
+- 2026-06-30 02:25 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/27699234184.shtml)
+- 2026-06-30 02:07 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/47732.shtml)
+- 2026-06-30 02:15 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/113312.shtml)
+- 2026-06-30 02:13 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/629114.shtml)
+- 2026-06-30 02:16 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/68223818304.shtml)
+- 2026-06-30 02:26 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/0544586509.shtml)
+- 2026-06-30 02:04 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/397441.shtml)
+- 2026-06-30 02:20 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/145169.shtml)
+- 2026-06-30 02:22 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/62497.shtml)
+- 2026-06-30 02:14 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/299680.shtml)
+- 2026-06-30 02:14 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/97779950.shtml)
+- 2026-06-30 02:13 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/6819448781.shtml)
+- 2026-06-30 02:05 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/578108.shtml)
+- 2026-06-30 02:04 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/87828332646.shtml)
+- 2026-06-30 02:15 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/95760851262.shtml)

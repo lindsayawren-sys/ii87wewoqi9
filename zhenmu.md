@@ -1,59 +1,56 @@
-# 美国2月房价涨幅放缓
+# 阿里云创始人王坚：AI不会替代人类，就像狗鼻子比人灵敏但从未构成伤害
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-受购房负担压力影响，美国2月房价涨幅有所放缓。 衡量全美房价走势的标普凯斯-席勒全国房价指数数据显示，截至2月的12个月里，房价同比上涨**0.7%**，而1月同比涨幅为0.8%。 标普道琼斯指数公司分析师表示：“2月，美国超半数主要都市圈房价同比下跌，这表明楼市降温态势已不再局限于阳光地带，而是呈现大范围蔓延之势。” 报告指出，美国通胀涨幅已连续九个月超过全国房价涨幅。 在本
+专题：2026北京智源大会 6月12日至13日，2026第八届北京智源大会在北京中关村国际创新中心举行。之江实验室主任、阿里云创始人王坚出席并对话。 王坚指出，尽管图灵奖得主惠特菲尔德·迪菲提到“Artificial Intelligence”一词诞生于美国、而“Machine Intelligence”诞生于英国，但在他看来，这并不只是一个英国与美国之间的事情。 他认为，思考
 
 ## 正文
 
-受购房负担压力影响，美国2月房价涨幅有所放缓。
+专题：2026北京智源大会 6月12日至13日，2026第八届北京智源大会在北京中关村国际创新中心举行。
 
-衡量全美房价走势的标普凯斯-席勒全国房价指数数据显示，截至2月的12个月里，房价同比上涨**0.7%**，而1月同比涨幅为0.8%。
+之江实验室主任、阿里云创始人王坚出席并对话。
 
-标普道琼斯指数公司分析师表示：“2月，美国超半数主要都市圈房价同比下跌，这表明楼市降温态势已不再局限于阳光地带，而是呈现大范围蔓延之势。
+王坚指出，尽管图灵奖得主惠特菲尔德·迪菲提到“Artificial Intelligence”一词诞生于美国、而“Machine Intelligence”诞生于英国，但在他看来，这并不只是一个英国与美国之间的事情。
 
-” 报告指出，美国通胀涨幅已连续九个月超过全国房价涨幅。
+他认为，思考今天所面临的挑战，必须在动物智能（Animal Intelligence）、人类智能（Human Intelligence）和机器智能（Machine Intelligence）这三个框架下进行。
 
-在本次统计的20座城市中，芝加哥2月房价同比涨幅最高，达5.04%；纽约、克利夫兰紧随其后，同比涨幅分别为4.74%、4.15%。
+“因此，我始终不相信今天大家所说的人工智能会替代人类。
 
-丹佛表现垫底，房价同比下跌2.18%。
+”他解释道，“原因很简单，狗的鼻子比人要灵敏得多，可我们从来没有觉得这对自己构成了什么伤害。
 
-责任编辑：何云
+” 他表示，当你有了这样一个思考框架，它会帮助你多想很多问题。
+
+“所以我认为，每个人都应该有一套自己思考问题的方式。
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 01:54 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 02:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 02:03 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 01:59 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 01:54 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 02:10 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 02:05 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 02:12 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 02:22 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 01:56 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 02:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 02:16 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 02:14 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 02:14 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 02:18 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 02:13 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 02:26 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 02:07 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 02:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 02:01 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 02:08 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 02:08 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 02:08 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 02:04 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:06 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/7827445521.shtml)
-- 2026-06-30 01:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/97802489.shtml)
-- 2026-06-30 02:20 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/285319331.shtml)
-- 2026-06-30 01:56 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/2363736405.shtml)
-- 2026-06-30 02:23 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/0826404637.shtml)
-- 2026-06-30 02:16 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/157500559.shtml)
-- 2026-06-30 02:01 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/106865.shtml)
-- 2026-06-30 01:59 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/781615855.shtml)
-- 2026-06-30 02:03 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/1618313982.shtml)
-- 2026-06-30 02:00 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/686828997467.shtml)
-- 2026-06-30 02:00 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/67406.shtml)
-- 2026-06-30 02:09 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/2888632.shtml)
-- 2026-06-30 02:17 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/5026724.shtml)
-- 2026-06-30 01:57 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/29690.shtml)
-- 2026-06-30 02:17 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/55535867996.shtml)
+- 2026-06-30 02:19 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/0466634249.shtml)
+- 2026-06-30 02:03 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/687644.shtml)
+- 2026-06-30 02:18 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/723385616.shtml)
+- 2026-06-30 02:00 - [天道](https://www.share.minike.top/Article/details/600215385.shtml)
+- 2026-06-30 02:08 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/09541.shtml)
+- 2026-06-30 02:08 - [金牌调解](https://www.blog.minike.top/Article/details/7252492.shtml)
+- 2026-06-30 02:24 - [一生一世](http://www.share.kurohicncr.top/Article/details/0369777285.shtml)
+- 2026-06-30 02:19 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/39833585661.shtml)
+- 2026-06-30 02:28 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/6830070321.shtml)
+- 2026-06-30 02:24 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/7614152.shtml)
+- 2026-06-30 02:23 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/126663830.shtml)
+- 2026-06-30 02:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/0458285.shtml)
+- 2026-06-30 02:02 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/3609434163.shtml)
+- 2026-06-30 02:17 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/8666554604.shtml)
+- 2026-06-30 02:24 - [日本16强魔咒](http://www.share.minike.top/Article/details/134228055.shtml)

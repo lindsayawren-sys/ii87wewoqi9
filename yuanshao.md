@@ -1,61 +1,57 @@
-# 内蒙古：来华留学生与乡村小学生共上中文课
+# 中信建投期货：6月11日工业品早报
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-评级展望上调印证中国经济强大韧性新疆连起中亚城市圈，三小时飞遍中亚记者手记：三亚亚沙会，山海间照见世界你给商家的差评，正在被明码标价删除无证也能当领队 户外活动组织乱象频出 记者调查→中东局势冲击全球奢侈品行业深山侗寨为何受联合国旅游组织青睐？万斯先撤、总统跌倒？ 特朗普回应晚宴撤离细节从一碗烟火到一句问候，我们和东盟邻居的“朋友圈”有多暖？“700台机器没日没夜打，月赚10万
+铜：风险偏好回落，铜价偏弱调整 周三晚沪铜主力收跌于103650元，伦铜跌至13447美金，盘中一度跌破1.34万美元。 宏观中性偏空。美国5月CPI同比上涨4.2%，创近三年新高，加息预期升温，同时特朗普威胁对伊朗发起猛烈打击，中东局势再度紧张，原油价格走强，市场风险偏好回落，股商多类权益资产普遍下跌。 基本面偏多。昨日上期所铜仓单增加544吨至9.6万吨，LME铜去库307
 
 ## 正文
 
-评级展望上调印证中国经济强大韧性新疆连起中亚城市圈，三小时飞遍中亚记者手记：三亚亚沙会，山海间照见世界你给商家的差评，正在被明码标价删除无证也能当领队 户外活动组织乱象频出 记者调查→中东局势冲击全球奢侈品行业深山侗寨为何受联合国旅游组织青睐？
+铜：风险偏好回落，铜价偏弱调整 周三晚沪铜主力收跌于103650元，伦铜跌至13447美金，盘中一度跌破1.34万美元。
 
-万斯先撤、总统跌倒？
+宏观中性偏空。
 
-特朗普回应晚宴撤离细节从一碗烟火到一句问候，我们和东盟邻居的“朋友圈”有多暖？
+美国5月CPI同比上涨4.2%，创近三年新高，加息预期升温，同时特朗普威胁对伊朗发起猛烈打击，中东局势再度紧张，原油价格走强，市场风险偏好回落，股商多类权益资产普遍下跌。
 
-“700台机器没日没夜打，月赚10万”，年轻人开始靠3D打印“搞钱”杨某某每天90元扮流浪女 “深山救助”视频摆拍细节公开“我们第一次来，太震撼了”，老外涌入北京车展采茶专列、球迷专列，旅游列车扎堆上新抢占“五一”市场如何从萨迦寺历史看中华民族大一统？
+基本面偏多。
 
-推动海洋经济高质量发展 加快建设海洋强国1.65亿实时人口筑牢广东发展根基从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变餐桌上的泾源风物诗：一块黄牛肉的乡野与醇厚“穿越”大明 南京闲置空间文旅融合华丽转身黑龙江抚远：“华夏东极”的第一缕阳光湖北恩施：绝壁含翠碧水潺流 尽藏山野诗意内蒙古锡林浩特：百鸟翔集绘春图12位志愿军烈士在沈阳安葬 鸣枪12响致敬志愿军烈士寻根黄帝故里！
+昨日上期所铜仓单增加544吨至9.6万吨，LME铜去库3075吨至36.95万吨。
 
-台胞小可的拜祖初体验沈阳塔台迎接志愿军忠烈回家西藏樟木口岸全面复通后出入境人员突破100万人次姐弟组队勇闯吃瓜比赛实拍西汉王后的“硬核”文具惊险！
+现货方面，近期铜价走软，但传统需求处于淡季，且原料库存未消化，下游虽然积极点价但提货较慢，现货需求回暖有限，现货升水维持低位。
 
-买馕忘拉手刹，爱车溜坡撞上绿化带5.2米高！
+总体来看，宏观氛围利空施压，叠加基本面偏紧，价格具备一定支撑，预计短期铜价维持弱势调整，关注美联储利率决议指引。
 
-巨型“潦草小狗”绿植亮相上海9秒登顶！
+今日沪铜主力运行参考10.28万-10.43万元/吨。
 
 ## 相关推荐
 
-- 2026-06-30 01:59 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 02:08 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 02:10 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 02:23 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 02:12 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 02:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 02:05 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 02:10 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 02:11 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 02:17 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 02:14 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 02:19 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 01:59 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 02:23 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 02:01 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 02:03 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 02:27 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 02:09 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 02:28 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 02:19 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-30 02:23 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 02:11 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 02:07 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 02:01 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 02:12 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 02:07 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:17 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/435140.shtml)
-- 2026-06-30 02:15 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/8429360664.shtml)
-- 2026-06-30 02:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/2974350601.shtml)
-- 2026-06-30 02:12 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/84914006.shtml)
-- 2026-06-30 02:22 - [斛珠夫人](https://www.blog.minike.top/Article/details/81008879.shtml)
-- 2026-06-30 02:20 - [这一刀 会很帅](https://www.share.minike.top/Article/details/15627204.shtml)
-- 2026-06-30 02:05 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/15356203.shtml)
-- 2026-06-30 02:18 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/0361401.shtml)
-- 2026-06-30 02:16 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/7631836261.shtml)
-- 2026-06-30 02:16 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/99607.shtml)
-- 2026-06-30 02:08 - [恋与深空致歉](http://www.blog.minike.top/Article/details/2499838.shtml)
-- 2026-06-30 02:06 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/81214.shtml)
-- 2026-06-30 02:09 - [格莱美唱作人锐评歌手第6期](http://www.share.minike.top/Article/details/7135784774.shtml)
-- 2026-06-30 02:18 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/46938433154.shtml)
-- 2026-06-30 02:05 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/37044.shtml)
+- 2026-06-30 02:10 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/173391030982.shtml)
+- 2026-06-30 02:15 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/8007043659.shtml)
+- 2026-06-30 02:19 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/796081.shtml)
+- 2026-06-30 02:11 - [月亮](http://www.blog.minike.top/Article/details/7367969.shtml)
+- 2026-06-30 02:15 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/03369513893.shtml)
+- 2026-06-30 02:00 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/714468.shtml)
+- 2026-06-30 02:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/461119153239.shtml)
+- 2026-06-30 02:08 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/28790288.shtml)
+- 2026-06-30 02:14 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/21498357.shtml)
+- 2026-06-30 02:29 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/071612892486.shtml)
+- 2026-06-30 02:18 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/78100.shtml)
+- 2026-06-30 02:09 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/8896317.shtml)
+- 2026-06-30 02:24 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/8542020490.shtml)
+- 2026-06-30 02:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/26071035599.shtml)
+- 2026-06-30 02:04 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/189310317.shtml)

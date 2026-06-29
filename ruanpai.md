@@ -1,57 +1,58 @@
-# 阿联酋宣布退出欧佩克，结束其长达近六十年的成员国身份，5月1日起生效
+# 纸鸢牵友谊 风寄中俄情——“中国风筝节”在莫斯科盛大启幕
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-阿联酋周二宣布，将于2026年5月1日正式退出石油输出国组织（OPEC）及更广泛的石油输出国组织及其盟友(OPEC+)联盟，结束其长达近六十年的成员国身份。这一决定是在中东地缘冲突持续扰乱全球石油供应的背景下作出的。 决定背景与战略考量 阿联酋官方通讯社WAM发布的声明称，这一决定“反映了阿联酋的长期战略和经济愿景以及不断变化的能源格局”，包括加速对国内能源生产的投资。该决定是
+中新网莫斯科6月12日电 (记者 田冰)“中国风筝节”11日在俄罗斯首都莫斯科全俄展览中心拉开帷幕。本次活动由莫斯科中国文化中心与山东省文化和旅游厅联合主办，潍坊市文化和旅游局承办，是2026年“旅行吧！”国际旅游论坛框架内的一项重要人文交流活动。 赠送风筝：飞向共同未来 开幕式上，中国文化和旅游部副部长卢映川、俄罗斯经济发展部副部长瓦赫鲁科夫、中国驻俄罗斯大使馆公使张伟、山东
 
 ## 正文
 
-阿联酋周二宣布，将于2026年5月1日正式退出石油输出国组织（OPEC）及更广泛的石油输出国组织及其盟友(OPEC+)联盟，结束其长达近六十年的成员国身份。
+中新网莫斯科6月12日电 (记者 田冰)“中国风筝节”11日在俄罗斯首都莫斯科全俄展览中心拉开帷幕。
 
-这一决定是在中东地缘冲突持续扰乱全球石油供应的背景下作出的。
+本次活动由莫斯科中国文化中心与山东省文化和旅游厅联合主办，潍坊市文化和旅游局承办，是2026年“旅行吧！
 
-决定背景与战略考量 阿联酋官方通讯社WAM发布的声明称，这一决定“反映了阿联酋的长期战略和经济愿景以及不断变化的能源格局”，包括加速对国内能源生产的投资。
+”国际旅游论坛框架内的一项重要人文交流活动。
 
-该决定是在对其当前和未来的生产能力进行全面审查后作出的，基于国家利益和有效满足市场需求。
+赠送风筝：飞向共同未来 开幕式上，中国文化和旅游部副部长卢映川、俄罗斯经济发展部副部长瓦赫鲁科夫、中国驻俄罗斯大使馆公使张伟、山东省文化和旅游厅副厅长蒋庆鹏等中俄嘉宾出席并致辞。
 
-阿联酋能源部长表示，这一决定是经过对能源和石油领域战略的仔细审视后作出的，是“主权国家决策”。
+在热烈的气氛中，中方向俄方赠送了“中俄友谊风筝”，不仅传递了两国人民的真挚情谊，更承载着世代友好、合作共赢的美好愿景。
 
-他同时指出，由于霍尔木兹海峡通行受阻，阿联酋选择此时行动是“为了避免对市场造成重大冲击”。
+在文艺演出环节，气势恢宏的民乐《象王行》奏响东方神韵，刚柔并济的太极拳表演诠释中华武术之魂，海南黎族舞蹈《黎家姑娘》以轻盈舞步诉说民族风情，中国舞《月满骏归春》在诗意中寄寓美好祝愿，武术《武韵华章》以矫健身姿展现力量之美，歌舞《庐州月》则以悠扬旋律唤起人们对团圆与和平的共鸣，精彩纷呈的节目赢得现场观众的热烈掌声。
 
-不受配额限制，将逐步增产 退出OPEC+后，阿联酋将不再受联盟产量配额的约束。
+放飞表演：风筝绽放在莫斯科天空 全俄展览中心直升机停机坪上空，形态各异、色彩斑斓的风筝乘风翱翔：长达48米的“龙头蜈蚣”风筝如巨龙腾跃于蓝天之上；柔软轻盈的软体风筝如云朵般飘逸灵动；“哪吒”主题串式风筝活泼俏皮，仿佛神话人物御风而行。
 
-阿联酋目前拥有约485万桶/日的生产能力，但在配额制度下，产量通常被限制在300万至350万桶/日之间。
+此外，象征吉祥与祝福的蝴蝶、仙鹤、金鱼等造型风筝，将莫斯科的天空装点成一幅流动的中国画卷。
 
 ## 相关推荐
 
-- 2026-06-30 02:14 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 02:00 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 01:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 02:12 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 02:05 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 02:13 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 02:19 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 02:02 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 01:59 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 02:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-30 01:55 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 02:12 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 02:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 02:10 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 02:10 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 02:22 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 02:09 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 02:12 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 02:28 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 02:17 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 02:13 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 02:16 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 02:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:58 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/6015207.shtml)
-- 2026-06-30 01:54 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/266668.shtml)
-- 2026-06-30 02:23 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/60573270.shtml)
-- 2026-06-30 02:09 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/4059114493.shtml)
-- 2026-06-30 02:03 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/9401100327.shtml)
-- 2026-06-30 02:04 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/666407684.shtml)
-- 2026-06-30 02:03 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/96170748232.shtml)
-- 2026-06-30 01:58 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/750975.shtml)
-- 2026-06-30 02:09 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/06992.shtml)
-- 2026-06-30 02:07 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/10838.shtml)
-- 2026-06-30 02:11 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/13495.shtml)
-- 2026-06-30 02:12 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/808689970371.shtml)
-- 2026-06-30 02:11 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/99776825.shtml)
-- 2026-06-30 02:05 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/36082705833.shtml)
-- 2026-06-30 02:17 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/2547085560.shtml)
+- 2026-06-30 02:16 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/84570.shtml)
+- 2026-06-30 02:16 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/062408.shtml)
+- 2026-06-30 02:24 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/5425206.shtml)
+- 2026-06-30 02:07 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/171373.shtml)
+- 2026-06-30 02:23 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/800871578.shtml)
+- 2026-06-30 02:22 - [小娘惹](https://www.share.kurohicncr.top/Article/details/8061394413.shtml)
+- 2026-06-30 02:14 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/30984948.shtml)
+- 2026-06-30 02:01 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/54688.shtml)
+- 2026-06-30 02:22 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/6920436855.shtml)
+- 2026-06-30 02:09 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/1435536.shtml)
+- 2026-06-30 02:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/412731200447.shtml)
+- 2026-06-30 02:05 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/93706758.shtml)
+- 2026-06-30 02:11 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/733205216.shtml)
+- 2026-06-30 02:22 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/15308.shtml)
+- 2026-06-30 02:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/12222.shtml)

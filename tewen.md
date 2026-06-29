@@ -1,46 +1,59 @@
-# 财经老王丨下一步经济工作怎么干？更大力度、更实举措
+# 习近平总书记历史性访问，特殊安排彰显中朝情谊
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 15:59 来源：央视新闻客户端 责任编辑：【杨彦宇】
+原标题：习近平总书记历史性访问，这些特殊安排彰显中朝深厚情谊 6月8日至9日，中共中央总书记、国家主席习近平对朝鲜进行国事访问。在热烈友好的氛围中，今年首次出访之旅圆满完成。 习近平总书记同朝鲜劳动党总书记、国务委员长金正恩会谈时说：“时隔7年再次到访美丽的平壤，我感到十分高兴，也格外亲切。” 金正恩总书记说，习近平总书记是“朝鲜人民最尊重的贵宾”，朝方致以“最隆重、最热烈的欢
 
 ## 正文
 
-发布时间：2026年04月29日 15:59 来源：央视新闻客户端 责任编辑：【杨彦宇】
+原标题：习近平总书记历史性访问，这些特殊安排彰显中朝深厚情谊 6月8日至9日，中共中央总书记、国家主席习近平对朝鲜进行国事访问。
+
+在热烈友好的氛围中，今年首次出访之旅圆满完成。
+
+习近平总书记同朝鲜劳动党总书记、国务委员长金正恩会谈时说：“时隔7年再次到访美丽的平壤，我感到十分高兴，也格外亲切。
+
+” 金正恩总书记说，习近平总书记是“朝鲜人民最尊重的贵宾”，朝方致以“最隆重、最热烈的欢迎”。
+
+今年是《中朝友好合作互助条约》签订65周年。
+
+新的历史起点上，习近平总书记此次历史性访朝，一系列特殊安排彰显两国友谊温度。
+
+特殊安排一：金正恩总书记和夫人迎送、陪同 高层交往，在中朝关系发展中历来发挥着最重要的引领和推动作用。
+
+习近平总书记此访期间，金正恩总书记亲自迎送、陪同所有重要活动，中朝两党两国最高领导人友好互动的精彩瞬间一次又一次定格。
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 02:01 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 02:00 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 02:20 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 02:19 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 02:02 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 02:21 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 02:14 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 02:12 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 02:01 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-30 01:58 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 02:19 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 02:19 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 02:06 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 02:20 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 02:10 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 02:29 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-30 02:21 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 02:07 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 02:26 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 02:07 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 02:04 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 02:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 02:03 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 02:09 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 02:15 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 02:01 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:21 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/8740975.shtml)
-- 2026-06-30 01:54 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/9098554881.shtml)
-- 2026-06-30 01:56 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/3350223712.shtml)
-- 2026-06-30 02:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/121162923.shtml)
-- 2026-06-30 02:18 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/33368.shtml)
-- 2026-06-30 02:06 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/426275306.shtml)
-- 2026-06-30 02:00 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/46925392066.shtml)
-- 2026-06-30 01:58 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/427010103439.shtml)
-- 2026-06-30 02:17 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/550775250799.shtml)
-- 2026-06-30 02:22 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/8492967.shtml)
-- 2026-06-30 01:55 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/6243115.shtml)
-- 2026-06-30 01:58 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/458594012.shtml)
-- 2026-06-30 01:57 - [我们的少年时代2](http://www.share.minike.top/Article/details/653931.shtml)
-- 2026-06-30 02:23 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/8832804.shtml)
-- 2026-06-30 02:07 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/198940418.shtml)
+- 2026-06-30 02:25 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/202638135078.shtml)
+- 2026-06-30 02:22 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/421334.shtml)
+- 2026-06-30 02:27 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/70524.shtml)
+- 2026-06-30 02:23 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/971090405500.shtml)
+- 2026-06-30 02:07 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/4832060.shtml)
+- 2026-06-30 02:24 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/764083079.shtml)
+- 2026-06-30 02:01 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/115959219.shtml)
+- 2026-06-30 02:28 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/668268926.shtml)
+- 2026-06-30 02:18 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/57326990.shtml)
+- 2026-06-30 02:00 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/90492.shtml)
+- 2026-06-30 02:27 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/993878.shtml)
+- 2026-06-30 02:19 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/53753860.shtml)
+- 2026-06-30 02:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/5328465743.shtml)
+- 2026-06-30 02:21 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/57639731326.shtml)
+- 2026-06-30 02:28 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/446491.shtml)

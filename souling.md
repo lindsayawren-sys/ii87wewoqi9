@@ -1,59 +1,53 @@
-# 香港北都首个大型运输基建将通车 创多项世界第一
+# 欧洲央行在通胀压力加剧之下自2023年以来首次加息
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新社香港4月29日电 香港特区政府运输署29日表示，香港北部都会区首个落成的大型运输基建项目——粉岭绕道(东段)将于5月3日8时通车，该项目建设过程中引进内地先进技术及物料，创下多项世界第一。 香港特区政府土木工程拓展署介绍，粉岭绕道(东段)全长约4公里，工程2020年2月起分阶段动工，为提升建造效率，团队首次在香港应用桥梁横向转体技术，建造跨越东铁线的绕道桥梁结构，亦创下全
+欧洲央行在接近三年来首次提高利率，认为随着通胀压力加剧，不能再坐等伊朗战争结束。 该行将存款利率从2%上调至2.25%，符合预期。经济学家和投资者还预计9月份也会再加息25个基点。责任编辑：李安桐
 
 ## 正文
 
-中新社香港4月29日电 香港特区政府运输署29日表示，香港北部都会区首个落成的大型运输基建项目——粉岭绕道(东段)将于5月3日8时通车，该项目建设过程中引进内地先进技术及物料，创下多项世界第一。
+欧洲央行在接近三年来首次提高利率，认为随着通胀压力加剧，不能再坐等伊朗战争结束。
 
-香港特区政府土木工程拓展署介绍，粉岭绕道(东段)全长约4公里，工程2020年2月起分阶段动工，为提升建造效率，团队首次在香港应用桥梁横向转体技术，建造跨越东铁线的绕道桥梁结构，亦创下全球最大弯曲度33度转体桥的纪录，整体工期缩短约一年。
+该行将存款利率从2%上调至2.25%，符合预期。
 
-土木工程拓展署提到，工程最艰巨的部分，是在龙跃头交汇处建造复杂的三层式结构，包括地下行车通道、地面回旋处，以及高架人行天桥，而该位置的地底同时铺设了煤气管、高压电缆、水喉等公共设施，增加工程难度。
+经济学家和投资者还预计9月份也会再加息25个基点。
 
-施工团队引入了S960国产超高强钢建造龙跃头交汇处的人行天桥。
-
-S960超高强钢的强度约为一般钢材的3倍，可大幅减少钢材使用量，显著减轻桥梁重量，同时有助于缩短施工时间。
-
-这条天桥也是全球首条应用此物料建造的人行天桥。
-
-土木工程拓展署总工程师张柏坚表示，项目通车后，上水和粉岭地区居民进出九龙可避开区内繁忙道路，预计可节省10分钟左右车程。
-
-(完)
+责任编辑：李安桐
 
 ## 相关推荐
 
-- 2026-06-30 02:00 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 02:24 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 01:55 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 02:20 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 02:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 02:22 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-30 02:02 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 02:15 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 02:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 02:18 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 02:07 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 02:13 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 02:16 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-30 02:29 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 02:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 02:02 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 02:10 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 02:05 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 02:12 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 02:13 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 02:13 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 02:11 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 02:19 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 02:15 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 02:09 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 02:14 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 02:26 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-30 02:29 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:02 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/88891580486.shtml)
-- 2026-06-30 02:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/81118901914.shtml)
-- 2026-06-30 02:14 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/57095.shtml)
-- 2026-06-30 02:18 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/926207146.shtml)
-- 2026-06-30 02:11 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/44602.shtml)
-- 2026-06-30 02:08 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/662019895138.shtml)
-- 2026-06-30 02:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/84979.shtml)
-- 2026-06-30 02:01 - [明星大侦探第四季](http://www.share.minike.top/Article/details/50260276.shtml)
-- 2026-06-30 01:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/298909.shtml)
-- 2026-06-30 02:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/615673606.shtml)
-- 2026-06-30 02:20 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/94092931.shtml)
-- 2026-06-30 02:04 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/83323780841.shtml)
-- 2026-06-30 02:06 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/805725.shtml)
-- 2026-06-30 02:17 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/34557.shtml)
-- 2026-06-30 02:14 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/3166246002.shtml)
+- 2026-06-30 02:25 - [扬名立万](http://www.share.kurohicncr.top/Article/details/65810.shtml)
+- 2026-06-30 02:02 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/880875414.shtml)
+- 2026-06-30 02:25 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/56666.shtml)
+- 2026-06-30 02:24 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/185330691.shtml)
+- 2026-06-30 02:03 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/0251649590.shtml)
+- 2026-06-30 02:14 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/467431477313.shtml)
+- 2026-06-30 02:22 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/93717725.shtml)
+- 2026-06-30 02:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/2837612.shtml)
+- 2026-06-30 02:03 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/67226539.shtml)
+- 2026-06-30 02:29 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/765701320287.shtml)
+- 2026-06-30 02:23 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/3740551.shtml)
+- 2026-06-30 02:27 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/83495432777.shtml)
+- 2026-06-30 02:00 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/239596218.shtml)
+- 2026-06-30 02:06 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/4631600.shtml)
+- 2026-06-30 02:11 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/160219.shtml)

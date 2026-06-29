@@ -1,56 +1,52 @@
-# 光大期货矿钢煤焦类日报4.29
+# 飞速创新拟回购不超过5%公司H股
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面震荡下跌，截止日盘螺纹2610合约收盘价格为3176元/吨，较上一交易收盘价格下跌14元/吨，跌幅为0.44%，持仓减少4.03万手。现货价格稳中有跌，成交回落，唐山地区迁安普方坯价格持平于3020元/吨，杭州市场中天螺纹价格下跌10元/吨至3210元/ 吨，全国建材成交量11.6
+飞速创新（03355）发布公告，于2026年6月10日，董事会通过决议，批准公司在公司股东于2026年5月28日举行的年度股东会上授予董事会的H股回购一般性授权范围内，视乎市况及公司实际情况，不时于香港联交所公开市场回购公司H股。 根据回购授权，公司可回购最多不超过回购授权获批准当日公司已发行及缴足 H股总数（不包括已回购但未注销的H股；不包括库存股份，如有）之5%。 公司拟以
 
 ## 正文
 
-螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面震荡下跌，截止日盘螺纹2610合约收盘价格为3176元/吨，较上一交易收盘价格下跌14元/吨，跌幅为0.44%，持仓减少4.03万手。
+飞速创新（03355）发布公告，于2026年6月10日，董事会通过决议，批准公司在公司股东于2026年5月28日举行的年度股东会上授予董事会的H股回购一般性授权范围内，视乎市况及公司实际情况，不时于香港联交所公开市场回购公司H股。
 
-现货价格稳中有跌，成交回落，唐山地区迁安普方坯价格持平于3020元/吨，杭州市场中天螺纹价格下跌10元/吨至3210元/ 吨，全国建材成交量11.6万吨。
+根据回购授权，公司可回购最多不超过回购授权获批准当日公司已发行及缴足 H股总数（不包括已回购但未注销的H股；不包括库存股份，如有）之5%。
 
-中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。
+公司拟以自有资金及╱或自筹资金为H股回购提供资金。
 
-会议指出要纵深推进全国统一大市场建设，深入整治“内卷式”竞争。
+公司仅可动用根据公司章程、上市规则及适用法律法规合法可作该等用途的资金进行H股回购。
 
-要深入挖掘内需潜力，加强水网、新型电网、算力网、新一代通信网、城市地下管网、物流网等规划建设。
+公司拟动用的回购总金额不超过3.5亿港元。
 
-推动条件成熟的重大工程项目开工。
-
-后期钢铁行业供需两端或均有政策利好预期，对市场情绪有一定提振。
-
-临近五一长假，多空资金均较为谨慎。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:05 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 02:06 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 02:20 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 02:12 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 02:10 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-30 02:07 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 02:09 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 02:06 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 02:14 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 02:06 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 02:09 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 02:27 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 02:00 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 02:13 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 02:28 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 02:26 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 02:13 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 02:01 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 02:21 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 02:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:20 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/389454852198.shtml)
-- 2026-06-30 02:02 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/51389448598.shtml)
-- 2026-06-30 02:05 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/866978562.shtml)
-- 2026-06-30 02:11 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/02724.shtml)
-- 2026-06-30 02:07 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/35034.shtml)
-- 2026-06-30 02:08 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/75797551.shtml)
-- 2026-06-30 02:21 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/7172054.shtml)
-- 2026-06-30 01:54 - [千与千寻](http://www.share.kurohicncr.top/Article/details/17358571107.shtml)
-- 2026-06-30 02:01 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/418274.shtml)
-- 2026-06-30 02:00 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/9193071900.shtml)
-- 2026-06-30 01:56 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/548820555.shtml)
-- 2026-06-30 02:19 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/776775546.shtml)
-- 2026-06-30 02:09 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/4059719.shtml)
-- 2026-06-30 02:13 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/65521.shtml)
-- 2026-06-30 02:01 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/048985.shtml)
+- 2026-06-30 02:14 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/71519244609.shtml)
+- 2026-06-30 02:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/52451272912.shtml)
+- 2026-06-30 02:23 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/6835338.shtml)
+- 2026-06-30 02:05 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/8022536909.shtml)
+- 2026-06-30 02:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/2920483.shtml)
+- 2026-06-30 02:01 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/9455713669.shtml)
+- 2026-06-30 02:29 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/0361405660.shtml)
+- 2026-06-30 02:07 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/716917719.shtml)
+- 2026-06-30 02:05 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/079944.shtml)
+- 2026-06-30 02:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/99088386.shtml)
+- 2026-06-30 02:22 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/4802288191.shtml)
+- 2026-06-30 02:28 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/44425214.shtml)
+- 2026-06-30 02:17 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/3882847.shtml)
+- 2026-06-30 02:28 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/839994.shtml)
+- 2026-06-30 02:27 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/5581843477.shtml)

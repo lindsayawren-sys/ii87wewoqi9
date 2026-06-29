@@ -1,57 +1,60 @@
-# 中坚科技、百傲化学遭证监会立案 投资者或可索赔
+# 百余名香港师生参访广州中医药大学 了解港生升学政策
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月27日晚间，中坚科技（维权）、百傲化学（维权）均发布《关于收到中国证券监督管理委员会立案告知书的公告》。两家公司均表示：因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。 中坚科技2026 年4 月27 日还收到中国证券监督管理委员会浙江监管局
+中新网广州6月12日电 (记者 许青青)据广州中医药大学12日消息，该校近日接连迎来香港大学专业进修学院、香港教师职涯规划考察团共计105名师生来访。作为内地中医学子首选院校之一，学校通过专场讲座、校园参观、面对面座谈等形式，向香港师生展示内地中医药高等教育办学特色，并详细解读针对香港学生的专属升学政策。 香港大学专业进修学院60名中医学副学士学生率先到访。学校举办专场升学讲座
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月27日晚间，中坚科技（维权）、百傲化学（维权）均发布《关于收到中国证券监督管理委员会立案告知书的公告》。
+中新网广州6月12日电 (记者 许青青)据广州中医药大学12日消息，该校近日接连迎来香港大学专业进修学院、香港教师职涯规划考察团共计105名师生来访。
 
-两家公司均表示：因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。
+作为内地中医学子首选院校之一，学校通过专场讲座、校园参观、面对面座谈等形式，向香港师生展示内地中医药高等教育办学特色，并详细解读针对香港学生的专属升学政策。
 
-中坚科技2026 年4 月27 日还收到中国证券监督管理委员会浙江监管局下发的《关于对浙江中坚科技股份有限公司及相关人员采取出具警示函措施的决定》【2026】111 号，浙江证监局在对浙江中坚科技股份有限公司现场检查中发现公司 2025 年度存在相关合作备忘录签署事项信息披露不准确、互动易答复不完整的情况。
+香港大学专业进修学院60名中医学副学士学生率先到访。
 
-（中坚科技维权入口） 在公告遭证监会立案的同时，百傲化学还发布了《关于前期会计差错更正及追溯调整的公告》，公告显示：经公司全面自查，公司控股子公司苏州芯慧联半导体科技有限公司因对收入确认相关会计判断及核算细节不够严谨，根据《公开发行证券的公司信息披露编报规则第 19 号——财务信息的更正及相关披露》以及《企业会计准则第 28 号——会计政策、会计估计变更和差错更正》等相关法律法规、规范性文件的规定，公司对 2024 年度涉及 4，093.60 万元营业收入会计差错事项进行更正。
+学校举办专场升学讲座，重点介绍了香港学生入读途径，并特别详解了面向副学士学历的插班试读机制。
 
-江苏振泽律师事务所合伙人张云律师表示，中坚科技、百傲化学遭证监会立案，投资者或可索赔。
+讲座结束后，学生们参观了广东中医药博物馆。
 
-暂定：于2026年4月27日之前买入中坚科技、百傲化学，且在2026年4月28日之后卖出或持有中坚科技、百傲化学的亏损投资者符合索赔条件。
+“我一直在香港学习中医学相关课程，之前对内地的升学流程非常模糊。
 
-（百傲化学维权入口） （本文由江苏振泽律师事务所合伙人张云律师供稿，不代表新浪财经的观点。
+”在读副学士学生陈奕晞表示：“这次讲座把插班、联考等路径都讲得很清楚，让我一下子有了明确的备考目标。
 
-张云律师，江苏振泽律师事务所合伙人，法学硕士，对证券金融类法律有着深入研究，从事证券诉讼多年，积累大量为投资者胜诉获赔案例）（张云律师专栏）责任编辑：韦子蓉
+我非常希望未来能到广中医学习，深耕中医专业。
 
 ## 相关推荐
 
-- 2026-06-30 02:22 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 02:08 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 02:23 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-30 02:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 01:59 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 02:07 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 02:16 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 02:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 02:21 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 01:57 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 02:10 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 02:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 02:04 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 02:18 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 02:05 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 02:21 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 02:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 02:18 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 02:23 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 02:25 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 02:00 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 02:18 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 02:17 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 02:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 02:13 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:20 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/76679.shtml)
-- 2026-06-30 02:08 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/903414877218.shtml)
-- 2026-06-30 02:12 - [我和我的家乡](https://www.share.minike.top/Article/details/7777469553.shtml)
-- 2026-06-30 01:55 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/10358.shtml)
-- 2026-06-30 01:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/37888787.shtml)
-- 2026-06-30 02:14 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/908925122617.shtml)
-- 2026-06-30 01:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/56709502866.shtml)
-- 2026-06-30 02:00 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/40686160.shtml)
-- 2026-06-30 02:23 - [日本反击率先破门](http://www.blog.minike.top/Article/details/8319391.shtml)
-- 2026-06-30 01:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/54140.shtml)
-- 2026-06-30 02:23 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/579642.shtml)
-- 2026-06-30 02:15 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/12205823.shtml)
-- 2026-06-30 02:16 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/267030.shtml)
-- 2026-06-30 02:10 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/998757347183.shtml)
-- 2026-06-30 01:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/263737.shtml)
+- 2026-06-30 02:11 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/541339489.shtml)
+- 2026-06-30 02:02 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/95637408543.shtml)
+- 2026-06-30 02:12 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/5168318.shtml)
+- 2026-06-30 02:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/739901904.shtml)
+- 2026-06-30 02:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/0708858.shtml)
+- 2026-06-30 02:07 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/66716.shtml)
+- 2026-06-30 02:14 - [第一炉香](https://www.blog.minike.top/Article/details/9645801.shtml)
+- 2026-06-30 02:19 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/53665948.shtml)
+- 2026-06-30 02:14 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/625515.shtml)
+- 2026-06-30 02:22 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/2217426.shtml)
+- 2026-06-30 02:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/906940169.shtml)
+- 2026-06-30 02:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/401091456.shtml)
+- 2026-06-30 02:10 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/566802.shtml)
+- 2026-06-30 02:05 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/966977744.shtml)
+- 2026-06-30 02:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/37752.shtml)

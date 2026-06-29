@@ -1,57 +1,60 @@
-# 世界级明胶工厂在东北小城
+# 今年前5个月京津冀地区进出口同比增长14.4%
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-在全国明胶产业版图中，吉林占据举足轻重的一席。 当小小的胶囊收纳进药盒，Q弹的软糖、爽滑果冻摆满商超货架，鲜少有人知晓，这背后的“隐形粘合剂”，大多出自东北平原上两座安静的小城。 一座是坐拥嘉利达全球最大生产基地的辽源，一座是盘踞着国内头部企业添正生物的蛟河。两座城市，以原料禀赋与智造实力，共同成为全国骨明胶产业的重要组成部分。 今天，我们从这两粒“胶质种子”的生长故事出发，解
+中新社北京6月11日电 (记者 徐婧)北京海关11日发布的数据显示，今年前5个月，京津冀地区进出口值2.09万亿元(人民币，下同)，同比(下同)增长14.4%。其中，出口6308.4亿元、增长11.5%，进口1.46万亿元、增长15.8%。今年以来，京津冀地区进出口值连续5个月保持同比增长。其中，5月份出口1358.9亿元、增长11.7%，进口3484.6亿元、增长28.1%，
 
 ## 正文
 
-在全国明胶产业版图中，吉林占据举足轻重的一席。
+中新社北京6月11日电 (记者 徐婧)北京海关11日发布的数据显示，今年前5个月，京津冀地区进出口值2.09万亿元(人民币，下同)，同比(下同)增长14.4%。
 
-当小小的胶囊收纳进药盒，Q弹的软糖、爽滑果冻摆满商超货架，鲜少有人知晓，这背后的“隐形粘合剂”，大多出自东北平原上两座安静的小城。
+其中，出口6308.4亿元、增长11.5%，进口1.46万亿元、增长15.8%。
 
-一座是坐拥嘉利达全球最大生产基地的辽源，一座是盘踞着国内头部企业添正生物的蛟河。
+今年以来，京津冀地区进出口值连续5个月保持同比增长。
 
-两座城市，以原料禀赋与智造实力，共同成为全国骨明胶产业的重要组成部分。
+其中，5月份出口1358.9亿元、增长11.7%，进口3484.6亿元、增长28.1%，当月出口、进口均创历史同期新高。
 
-今天，我们从这两粒“胶质种子”的生长故事出发，解码吉林如何从黑土地的资源宝库，走向全国产业链的核心舞台，书写一份来自东北的产业答卷。
+前5个月，北京、天津、河北三地进出口值分别增长14.0%、2.1%、33.6%。
 
-谁能想到，辽源，因棉袜闻名全国，却悄悄藏着明胶行业的隐形明星。
+其中，北京进出口值1.44万亿元，占京津冀进出口值的69.0%。
 
-2006年，德国嘉利达(正式落户辽源，起初仅有一条简易生产线。
+京津冀同新兴市场贸易往来更加紧密。
 
-没人想到，二十年间，这里从简陋车间一步步迭代升级，成长为嘉利达集团全球规模最大、产值最高的核心生产基地——年产能可达11000吨，综合实力稳居国内单体工厂第一梯队。
+前5个月，京津冀地区对共建“一带一路”国家进出口值1.13万亿元、增长6.1%；对欧盟、东盟、瑞士、巴西、澳大利亚分别进出口2271.7亿元、1701.7亿元、1512.7亿元、1422.0亿元、1317.1亿元，分别增长1.5%、12.1%、187.3%、58.2%、55.9%；对中国香港地区进出口值959.3亿元、增长63.2%。
 
 ## 相关推荐
 
-- 2026-06-30 02:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 02:11 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-30 02:09 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 01:59 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 02:04 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 01:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 02:12 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-30 02:12 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 02:03 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 02:01 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 02:15 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 02:07 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 02:20 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 02:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 02:23 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 02:26 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 02:10 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 02:28 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 02:20 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 02:12 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 02:09 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 02:14 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 02:28 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 02:09 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 02:21 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:59 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/17993011880.shtml)
-- 2026-06-30 02:16 - [毒液2](https://www.blog.minike.top/Article/details/2601485955.shtml)
-- 2026-06-30 02:02 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/95772377.shtml)
-- 2026-06-30 02:14 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/767547.shtml)
-- 2026-06-30 02:05 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/83849842900.shtml)
-- 2026-06-30 02:13 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/707208424.shtml)
-- 2026-06-30 02:07 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/16813945992.shtml)
-- 2026-06-30 02:00 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/97043777.shtml)
-- 2026-06-30 01:58 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/40152164471.shtml)
-- 2026-06-30 01:54 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/136826.shtml)
-- 2026-06-30 02:06 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/680865309.shtml)
-- 2026-06-30 02:03 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/823252174.shtml)
-- 2026-06-30 02:01 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/086510083.shtml)
-- 2026-06-30 02:22 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/1436733108.shtml)
-- 2026-06-30 02:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/4817732934.shtml)
+- 2026-06-30 02:08 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/12233046.shtml)
+- 2026-06-30 02:06 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/142917112.shtml)
+- 2026-06-30 02:11 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/427752248.shtml)
+- 2026-06-30 02:16 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/45031358.shtml)
+- 2026-06-30 02:08 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/13385893684.shtml)
+- 2026-06-30 02:19 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/9257680772.shtml)
+- 2026-06-30 02:24 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/462644622.shtml)
+- 2026-06-30 02:29 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/35762308575.shtml)
+- 2026-06-30 02:15 - [日本进球](http://www.blog.minike.top/Article/details/0695607.shtml)
+- 2026-06-30 02:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/532389653.shtml)
+- 2026-06-30 02:11 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/756910968.shtml)
+- 2026-06-30 02:28 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/3657771.shtml)
+- 2026-06-30 02:18 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/85460668.shtml)
+- 2026-06-30 02:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/64827683177.shtml)
+- 2026-06-30 02:17 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/8614850.shtml)

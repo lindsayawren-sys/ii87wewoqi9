@@ -1,59 +1,60 @@
-# “五一”假期北京迎出行高峰 8条地铁延时运营
+# 视障者听敦煌：以心观画，指尖感壁画之美
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-记者从北京市交通委获悉，临近“五一”，旅游与市民出游客流叠加，北京市将迎来交通流量高峰。据预测，假期铁路、民航、省际客运、公路自驾进出京日均487.9万人次，较2025年同期上升7.4%，创“五一”新高；5月1日单日客流达544.8万人次，有望刷新单日进出京历史纪录。5月1日0时至5月5日24时，北京市域内所有收费公路对7座以下(含7座)载客车辆免收通行费。 此次假期北京出行呈
+中新网兰州6月11日电 (闫姣 石娇艳)指尖轻触复刻塑像，耳畔聆听细致讲解，肢体模仿壁画舞姿……11日，“寻迹敦煌，点亮心光”残障读者沉浸式文化体验活动在兰州市举办。多名视障读者走出家门，用听觉、触觉与想象力，近距离邂逅敦煌壁画、彩塑艺术，让千年敦煌文化跨越视觉界限。 “三十年前我就曾到访敦煌，将莫高窟里壁画的故事一直记在心里。”视障者王彤与敦煌的缘分跨越三十余载。当年因家人工
 
 ## 正文
 
-记者从北京市交通委获悉，临近“五一”，旅游与市民出游客流叠加，北京市将迎来交通流量高峰。
+中新网兰州6月11日电 (闫姣 石娇艳)指尖轻触复刻塑像，耳畔聆听细致讲解，肢体模仿壁画舞姿……11日，“寻迹敦煌，点亮心光”残障读者沉浸式文化体验活动在兰州市举办。
 
-据预测，假期铁路、民航、省际客运、公路自驾进出京日均487.9万人次，较2025年同期上升7.4%，创“五一”新高；5月1日单日客流达544.8万人次，有望刷新单日进出京历史纪录。
+多名视障读者走出家门，用听觉、触觉与想象力，近距离邂逅敦煌壁画、彩塑艺术，让千年敦煌文化跨越视觉界限。
 
-5月1日0时至5月5日24时，北京市域内所有收费公路对7座以下(含7座)载客车辆免收通行费。
+“三十年前我就曾到访敦煌，将莫高窟里壁画的故事一直记在心里。
 
-此次假期北京出行呈现以下特点： 一是自驾成主力。
+”视障者王彤与敦煌的缘分跨越三十余载。
 
-公路自驾成为市民进出京旅行的首选方式，占进出京客流总量的约六成，日均交通量304.7万辆次。
+当年因家人工作机缘，她得以走进莫高窟，脚下立体的莲花地砖给她留下深刻印象。
 
-二是“前出后进”潮汐特征明显。
+时隔多年，在位于兰州的敦煌艺术馆，借助讲解员细致描述、同伴动作示范，她终于清晰感知到“反弹琵琶”的曼妙姿态。
 
-假期首尾形成“双峰”，4月30日和5月1日为出京高峰；5月4日、5日为返京高峰，单日客流预计超过290万人次。
+活动组织残障读者通过户外行走、深度导览与阅读分享，沉浸式感受敦煌文化魅力，是第六届“陇韵书香季”推动残障群体阅读服务均等化的又一次实践。
 
-三是重点区域压力集中。
+活动中，志愿者全程一对一引导陪护，保障活动安全有序开展。
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 01:59 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 01:57 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 02:15 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-30 02:21 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 01:55 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 02:11 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 02:07 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-30 02:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-30 02:07 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-30 02:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 02:18 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 01:57 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 02:08 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 02:13 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 02:25 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 02:26 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 02:15 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 02:16 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 02:15 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 02:24 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 02:09 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 02:05 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 02:23 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 02:13 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 02:03 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 02:12 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:15 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/167910785268.shtml)
-- 2026-06-30 02:06 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/68635.shtml)
-- 2026-06-30 02:01 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/68157.shtml)
-- 2026-06-30 02:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/921941754.shtml)
-- 2026-06-30 02:22 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/39063889.shtml)
-- 2026-06-30 02:02 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/057546.shtml)
-- 2026-06-30 01:59 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/05738246264.shtml)
-- 2026-06-30 02:07 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/23027558261.shtml)
-- 2026-06-30 01:58 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/15540511103.shtml)
-- 2026-06-30 02:04 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/4518092.shtml)
-- 2026-06-30 02:13 - [时光音乐会](https://www.share.minike.top/Article/details/58045318937.shtml)
-- 2026-06-30 02:21 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/129585.shtml)
-- 2026-06-30 02:07 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/7223654387.shtml)
-- 2026-06-30 02:01 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/37780692.shtml)
-- 2026-06-30 01:58 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/70039467.shtml)
+- 2026-06-30 02:13 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/863547010724.shtml)
+- 2026-06-30 02:22 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/700209.shtml)
+- 2026-06-30 02:03 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/93278.shtml)
+- 2026-06-30 02:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/746227458.shtml)
+- 2026-06-30 02:25 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/520708.shtml)
+- 2026-06-30 02:11 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/6004213.shtml)
+- 2026-06-30 02:26 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/44504.shtml)
+- 2026-06-30 02:25 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/3900620.shtml)
+- 2026-06-30 02:28 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/57978839416.shtml)
+- 2026-06-30 02:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/18620480062.shtml)
+- 2026-06-30 02:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/056056.shtml)
+- 2026-06-30 02:03 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/70254808414.shtml)
+- 2026-06-30 02:28 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/063931745724.shtml)
+- 2026-06-30 02:28 - [千香](https://www.share.kurohicncr.top/Article/details/69795871.shtml)
+- 2026-06-30 02:00 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/93996.shtml)

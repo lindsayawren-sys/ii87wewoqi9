@@ -1,47 +1,54 @@
-# 后巴菲特时代，伯克希尔如何前行？
+# 首批华尔街机构发布SpaceX股票评级推荐
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-专题：巴菲特2026年股东大会重磅来袭 Greg Abel作为伯克希尔·哈撒韦新任CEO，深受巴菲特高度认可。他高度延续巴菲特-芒格的投资与管理哲学，强调纪律、耐心、长期持有与风险控制，同时更注重运营细节与亲力亲为。 责任编辑：王永生
+随着埃隆·马斯克旗下的SpaceX公司准备于周五在纳斯达克市场进行首次公开募股，两家华尔街机构开始对该公司进行评级覆盖。 奥本海默公司首次覆盖SpaceX，给予“跑赢大盘”评级，并设定12至18个月目标价为190美元。这意味着相较于每股135美元的发行价有40%的上涨空间。分析师蒂莫西·霍兰指出，他预计该股将出现波动，但上市初期应会上涨。 纽街研究公司也对SpaceX进行了首次
 
 ## 正文
 
-专题：巴菲特2026年股东大会重磅来袭 Greg Abel作为伯克希尔·哈撒韦新任CEO，深受巴菲特高度认可。
+随着埃隆·马斯克旗下的SpaceX公司准备于周五在纳斯达克市场进行首次公开募股，两家华尔街机构开始对该公司进行评级覆盖。
 
-他高度延续巴菲特-芒格的投资与管理哲学，强调纪律、耐心、长期持有与风险控制，同时更注重运营细节与亲力亲为。
+奥本海默公司首次覆盖SpaceX，给予“跑赢大盘”评级，并设定12至18个月目标价为190美元。
 
-责任编辑：王永生
+这意味着相较于每股135美元的发行价有40%的上涨空间。
+
+分析师蒂莫西·霍兰指出，他预计该股将出现波动，但上市初期应会上涨。
+
+纽街研究公司也对SpaceX进行了首次覆盖，设定12个月目标价为165美元，这意味着较发行价有22%的上涨空间。
+
+该公司未对该股给出具体评级。
+
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 02:01 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 01:57 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 02:12 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-30 02:02 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-30 02:22 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 02:19 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 02:13 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 01:56 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 02:09 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 02:12 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 01:57 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 02:13 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 02:11 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 02:08 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 02:27 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 02:15 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 02:08 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 02:20 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 02:24 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 02:19 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 02:24 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:12 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/918177365246.shtml)
-- 2026-06-30 02:07 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/85839542146.shtml)
-- 2026-06-30 01:58 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/498228379334.shtml)
-- 2026-06-30 02:02 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/16593.shtml)
-- 2026-06-30 02:21 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/20297129.shtml)
-- 2026-06-30 02:12 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/88082282655.shtml)
-- 2026-06-30 01:55 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/50341698459.shtml)
-- 2026-06-30 02:22 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/6386626107.shtml)
-- 2026-06-30 02:18 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/99134153558.shtml)
-- 2026-06-30 02:03 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/423611937.shtml)
-- 2026-06-30 02:14 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/58746274558.shtml)
-- 2026-06-30 02:03 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/2043119962.shtml)
-- 2026-06-30 02:23 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/45847994426.shtml)
-- 2026-06-30 02:06 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/32323445.shtml)
-- 2026-06-30 02:17 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/51139.shtml)
+- 2026-06-30 02:27 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/081802570.shtml)
+- 2026-06-30 02:20 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/2027481.shtml)
+- 2026-06-30 02:07 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/2391905.shtml)
+- 2026-06-30 02:07 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/5968915554.shtml)
+- 2026-06-30 02:14 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/6687470.shtml)
+- 2026-06-30 02:14 - [蔚来车主罚站](http://www.share.minike.top/Article/details/524919649695.shtml)
+- 2026-06-30 02:29 - [孙兴慜道歉](http://www.share.minike.top/Article/details/21114818808.shtml)
+- 2026-06-30 02:20 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/838300926621.shtml)
+- 2026-06-30 02:08 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/601595957.shtml)
+- 2026-06-30 02:13 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/43020.shtml)
+- 2026-06-30 02:06 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/982528.shtml)
+- 2026-06-30 02:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/086332.shtml)
+- 2026-06-30 02:01 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/2302569236.shtml)
+- 2026-06-30 02:16 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/261541780910.shtml)
+- 2026-06-30 02:03 - [世界杯](https://www.share.minike.top/Article/details/326910.shtml)

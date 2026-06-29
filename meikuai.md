@@ -1,59 +1,61 @@
-# 光大期货：4月28日软商品日报
+# 东西问｜在张彭春的故乡，多国专家看见中国人权治理的“根”与“果”
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 白糖：现货报价方面，广西制糖集团报价区间5320~5410元/吨；云南制糖集团报价5150~5230元/吨；加工糖厂主流报价区间为5620~5880元/吨。原糖期价呈现低位小幅反弹，巴西乙醇掺混比例提高2个百分点到32%给市场带来小幅提振。未来关注宏观方面提振。国内方面，现货市场报价平稳，成交温
+中新社天津6月11日电 题：在张彭春的故乡，多国专家看见中国人权治理的“根”与“果” 中新社记者 孙玲玲 近日，来自冈比亚、科特迪瓦、科摩罗、古巴等国的人权专家，在南开大学校史馆的陈列中了解了一位已故南开大学教授与世界人权事业之间的深刻联结——张彭春，70多年前参与起草《世界人权宣言》的关键人物。 “张彭春先生让不同文明坐在同一张桌上，讨论‘人’的权利。”古巴外交部多边总司高级
 
 ## 正文
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 白糖：现货报价方面，广西制糖集团报价区间5320~5410元/吨；云南制糖集团报价5150~5230元/吨；加工糖厂主流报价区间为5620~5880元/吨。
+中新社天津6月11日电 题：在张彭春的故乡，多国专家看见中国人权治理的“根”与“果” 中新社记者 孙玲玲 近日，来自冈比亚、科特迪瓦、科摩罗、古巴等国的人权专家，在南开大学校史馆的陈列中了解了一位已故南开大学教授与世界人权事业之间的深刻联结——张彭春，70多年前参与起草《世界人权宣言》的关键人物。
 
-原糖期价呈现低位小幅反弹，巴西乙醇掺混比例提高2个百分点到32%给市场带来小幅提振。
+“张彭春先生让不同文明坐在同一张桌上，讨论‘人’的权利。
 
-未来关注宏观方面提振。
+”古巴外交部多边总司高级人权专家、多边事务与国际法司司长戴伦·瓦利多·埃斯卡洛纳站在展板前说。
 
-国内方面，现货市场报价平稳，成交温和。
+1947年，张彭春当选为联合国人权委员会副主席，同时担任《世界人权宣言》起草委员会副主席，全程参与起草工作。
 
-市场关注4月产销数据及进口预期。
+他多次提出：人权宣言不能只反映西方文化，应该吸收所有文明的传统。
 
-五一假期在即，用震荡思路对待。
+他曾建议秘书处花几个月先学习儒家思想的基本原理，而不是急于推敲法律条文。
 
-棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周一，ICE美棉上涨0.42%，报收79.69美分/磅，郑棉主力合约环比上涨1.26%，报收16420元/吨，主力合约持仓环比增加42608手至85.82万手，棉花3128B现货价格指数17415元/吨，较前一日增加135元/吨。
+张彭春成功将儒家“仁”的概念引入宣言，解释为“人与人之间的相互感知和换位思考的能力”。
 
-国际市场方面，美国干旱扰动仍在持续，截至4月21日当周，受D1-D4级别干旱影响面积占比为98%，位于绝对高位，但后续德州及美国东南部地区降雨或有增加，干旱问题或有一定缓解。
+这一思想最终体现在《世界人权宣言》第一条中：“人人生而自由，在尊严和权利上一律平等。
 
 ## 相关推荐
 
-- 2026-06-30 02:20 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 02:22 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 02:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 02:00 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 02:05 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 02:01 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 02:07 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 02:08 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 02:01 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 01:55 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 02:12 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 02:14 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 01:57 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 02:14 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 02:19 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 02:00 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 02:06 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 02:28 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 02:25 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 02:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 02:23 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 02:15 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 02:28 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 02:10 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 02:11 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 02:03 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 02:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 02:03 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:20 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/84876953.shtml)
-- 2026-06-30 02:10 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/5555629832.shtml)
-- 2026-06-30 02:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/273232827919.shtml)
-- 2026-06-30 01:54 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/581890343.shtml)
-- 2026-06-30 02:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/08363873.shtml)
-- 2026-06-30 02:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/18437.shtml)
-- 2026-06-30 01:57 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/839911796.shtml)
-- 2026-06-30 02:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/451721313145.shtml)
-- 2026-06-30 02:07 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/17472434.shtml)
-- 2026-06-30 01:56 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/31180179.shtml)
-- 2026-06-30 02:10 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/50389327.shtml)
-- 2026-06-30 02:10 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/306396582902.shtml)
-- 2026-06-30 02:19 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/543570802.shtml)
-- 2026-06-30 02:11 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/690444164.shtml)
-- 2026-06-30 02:17 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/67284766.shtml)
+- 2026-06-30 02:02 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/4813971.shtml)
+- 2026-06-30 02:07 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/2547615.shtml)
+- 2026-06-30 02:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/9912194951.shtml)
+- 2026-06-30 02:17 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/9282309686.shtml)
+- 2026-06-30 02:04 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/53390731333.shtml)
+- 2026-06-30 02:06 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/9226748584.shtml)
+- 2026-06-30 02:05 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/3394989.shtml)
+- 2026-06-30 02:10 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/99159.shtml)
+- 2026-06-30 02:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/506313.shtml)
+- 2026-06-30 02:21 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/5716673593.shtml)
+- 2026-06-30 02:20 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/85627591.shtml)
+- 2026-06-30 02:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/76200.shtml)
+- 2026-06-30 02:24 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/381181015.shtml)
+- 2026-06-30 02:16 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/49350808248.shtml)
+- 2026-06-30 02:20 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/9393420513.shtml)

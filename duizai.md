@@ -1,58 +1,60 @@
-# 光模块CPO回调即机会？高“光”159363近3日吸金超5亿元！英伟达再创新高，算力链有望继续向上突破？
+# 华铁传媒杜劲松：算法主导传播有悖于人性
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-28日早盘，光模块继续回调，天孚通信、中际旭创跌超2%，新易盛跌超1%，重仓光模块龙头的创业板人工智能ETF华宝（159363）场内继续回调2%，资金继续进场抢筹，此前三日资金已抢筹超5亿元！ 当地时间4月27日，芯片巨头英伟达股价单日上涨4%再创新高，收盘价定格在216.61美元的历史高位，市值较半年前的峰值实现跨越式突破。英伟达作为创业板人工智能先行指标，其持续走强不仅反映
+专题：2026IAI传鉴国际创意节 2026IAI传鉴国际创意节于6月12日至13日在北京举办，主题为“聚势新增长”。华铁传媒集团高级副总裁杜劲松在演讲中表示，目前算法主导了整个传播环境。 在他看来，算法主导传播，其实有悖于人性。现在不再是人们想看什么就看什么，而是平台推送什么，大家只能接收什么。这也导致人与人之间的共同话题越来越少，每个人的信息圈层都变得孤立，我们渐渐陷入信息
 
 ## 正文
 
-28日早盘，光模块继续回调，天孚通信、中际旭创跌超2%，新易盛跌超1%，重仓光模块龙头的创业板人工智能ETF华宝（159363）场内继续回调2%，资金继续进场抢筹，此前三日资金已抢筹超5亿元！
+专题：2026IAI传鉴国际创意节 2026IAI传鉴国际创意节于6月12日至13日在北京举办，主题为“聚势新增长”。
 
-当地时间4月27日，芯片巨头英伟达股价单日上涨4%再创新高，收盘价定格在216.61美元的历史高位，市值较半年前的峰值实现跨越式突破。
+华铁传媒集团高级副总裁杜劲松在演讲中表示，目前算法主导了整个传播环境。
 
-英伟达作为创业板人工智能先行指标，其持续走强不仅反映了全球AI算力需求的爆发式增长，也进一步强化了市场对数据中心、光模块等算力产业链的乐观预期。
+在他看来，算法主导传播，其实有悖于人性。
 
-业绩端来看，AI算力驱动光模块一季报集体爆发，光模块龙头中际旭创净利润同比大增262%，天孚通信一季度同比增46%，新易盛同比增77%。
+现在不再是人们想看什么就看什么，而是平台推送什么，大家只能接收什么。
 
-光模块龙头的业绩集体暴涨，印证了AI算力链条正在从预期兑现实打实的业绩释放，产业链高景气度形成一致性共振。
+这也导致人与人之间的共同话题越来越少，每个人的信息圈层都变得孤立，我们渐渐陷入信息茧房。
 
-国盛证券表示，光通信行业处于AI算力驱动的超级景气周期，在全球化交付能力、技术平台化布局、供应链前瞻锁定、资金实力上建立优势的头部企业，有望持续受益于AI带来的长期增长红利，强者恒强的格局仍将延续。
+他谈到，未来AI或许能在一定程度上破解信息茧房，但除此之外，我们也有其他解决路径。
 
-一键布局光模块CPO龙头机会，建议重点关注同类规模、流动性第一的创业板人工智能ETF华宝（159363）及场外联接（A类023407、C类023408），标的指数约七成仓位布局算力（光模块/CPO龙头），“易中天”一网打尽，约三成仓位布局AI应用，不止是算力核心，也是AI应用代表。
+信息茧房对品牌建设十分不利，圈层越来越封闭，品牌就很难建立广泛的大众认知。
 
-数据来源：沪深交易所等。
+“大家可以回想一下，如今我们熟知的国民级大品牌，基本都诞生在五年之前。
 
 ## 相关推荐
 
-- 2026-06-30 02:10 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 01:56 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 02:15 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 02:12 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 02:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-30 02:08 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 02:02 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 02:12 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 02:04 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 02:02 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 02:15 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 02:03 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 02:17 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 02:13 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 02:17 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 02:29 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 02:27 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 02:06 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 02:15 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 02:30 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 02:27 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 02:19 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 02:15 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-30 02:21 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 02:18 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 02:02 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:07 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/5898265319.shtml)
-- 2026-06-30 02:08 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/3062009.shtml)
-- 2026-06-30 02:04 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/14693052.shtml)
-- 2026-06-30 02:08 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/56608.shtml)
-- 2026-06-30 02:08 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/765689.shtml)
-- 2026-06-30 02:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/65573.shtml)
-- 2026-06-30 01:57 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/3355697.shtml)
-- 2026-06-30 01:55 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/256440563.shtml)
-- 2026-06-30 02:03 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/358825977912.shtml)
-- 2026-06-30 02:16 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/27347104529.shtml)
-- 2026-06-30 02:11 - [新官上任三把火](https://www.share.minike.top/Article/details/699346.shtml)
-- 2026-06-30 02:20 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/238322781.shtml)
-- 2026-06-30 01:54 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/680009234.shtml)
-- 2026-06-30 02:18 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/6991262.shtml)
-- 2026-06-30 02:13 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/968504797629.shtml)
+- 2026-06-30 02:19 - [小娘惹](http://www.share.minike.top/Article/details/232811173239.shtml)
+- 2026-06-30 02:15 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/94172998.shtml)
+- 2026-06-30 02:13 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/934512552.shtml)
+- 2026-06-30 02:12 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/76268.shtml)
+- 2026-06-30 02:14 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/32998.shtml)
+- 2026-06-30 02:21 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/532964437172.shtml)
+- 2026-06-30 02:00 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/627519209.shtml)
+- 2026-06-30 02:17 - [流金岁月](http://www.share.minike.top/Article/details/635581.shtml)
+- 2026-06-30 02:03 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/88900395.shtml)
+- 2026-06-30 02:14 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/604071797090.shtml)
+- 2026-06-30 02:21 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/302289701206.shtml)
+- 2026-06-30 02:14 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/75572310830.shtml)
+- 2026-06-30 02:16 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/80367879011.shtml)
+- 2026-06-30 02:14 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/779299310.shtml)
+- 2026-06-30 02:19 - [一见倾心](https://www.blog.minike.top/Article/details/53182717.shtml)

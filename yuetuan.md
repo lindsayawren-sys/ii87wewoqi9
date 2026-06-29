@@ -1,58 +1,60 @@
-# 《浪浪山小妖怪》等两部中国影片入围法国阿讷西国际动画电影节
+# 闻“汛”而动 为爱续航｜富德生命人寿暖心驰援阳江受灾地区
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-新华社巴黎4月29日电(记者张百慧)2026年法国阿讷西国际动画电影节组委会28日公布官方入围影片名单。中国动画片《浪浪山小妖怪》与《小娜》入围主竞赛长片单元，角逐最佳动画长片等奖项。 动画电影《浪浪山小妖怪》于2025年在中国大陆上映，成为当年暑期档的一匹“黑马”。动画电影节组委会评价说，该片讲述了四个半人半妖的奇幻生物展开的一段既滑稽又感人的冒险旅程，影片在中国斩获多项大奖
+近期，广东省阳江市遭遇持续性强降雨天气引发严重暴雨洪涝灾害，当地群众生产生活面临严峻挑战。灾情牵动人心，富德生命人寿主动担当社会责任，捐赠20万元驰援受灾地区，为群众送去温暖关怀与坚实守护。 紧急驰援|暖心物资帮扶，筑牢民生保障 一方有难，八方支援；灾害无情，人间有爱。富德生命人寿高度关注阳江灾情动态，第一时间响应救灾号召，迅速部署公益驰援工作，通过中国儿童少年基金会捐赠一批价
 
 ## 正文
 
-新华社巴黎4月29日电(记者张百慧)2026年法国阿讷西国际动画电影节组委会28日公布官方入围影片名单。
+近期，广东省阳江市遭遇持续性强降雨天气引发严重暴雨洪涝灾害，当地群众生产生活面临严峻挑战。
 
-中国动画片《浪浪山小妖怪》与《小娜》入围主竞赛长片单元，角逐最佳动画长片等奖项。
+灾情牵动人心，富德生命人寿主动担当社会责任，捐赠20万元驰援受灾地区，为群众送去温暖关怀与坚实守护。
 
-动画电影《浪浪山小妖怪》于2025年在中国大陆上映，成为当年暑期档的一匹“黑马”。
+紧急驰援|暖心物资帮扶，筑牢民生保障 一方有难，八方支援；灾害无情，人间有爱。
 
-动画电影节组委会评价说，该片讲述了四个半人半妖的奇幻生物展开的一段既滑稽又感人的冒险旅程，影片在中国斩获多项大奖，并吸引大量观众。
+富德生命人寿高度关注阳江灾情动态，第一时间响应救灾号召，迅速部署公益驰援工作，通过中国儿童少年基金会捐赠一批价值20万元的爱心物资，定向用于广东阳江受灾地区应急救助工作，重点为灾区儿童及受灾家庭纾困解难，用快速、务实的行动为灾区群众送去温暖与希望。
 
-另一部入围作品《小娜》则以亲子关系和对音乐的热爱为核心，讲述了一名年轻姑娘离开上海，前往内蒙古探望患病父亲的故事。
+本次捐赠的全部善款将专款专用，精准采购电饭煲、电水壶、风扇、卫生用品等群众急需的生活物资，全方位贴合受灾家庭的日常起居、饮食清洁、消暑纳凉等刚需，切实解决群众灾后做饭难、饮水不便、生活卫生无保障等实际难题，有效改善受灾儿童及家庭的居住生活条件。
 
-组委会认为，这部影片具有当代气息，在众多取材于本土神话的作品中脱颖而出，令人耳目一新。
+与此同时，富德生命人寿志愿服务队深入受灾一线开展入户走访慰问工作，实地了解受灾群众的生活现状与实际困难，用一句句暖心问候传递企业的真挚关怀。
 
-据组委会介绍，全球动画长片制作正蓬勃发展，目前共有来自26个国家和地区的40余部动画长片入选本届动画电影节官方单元，其中11部入围主竞赛长片单元。
+从资金驰援到物资落地，从需求调研到入户帮扶，富德生命人寿以全链条、精准化的公益行动，切实打通救灾帮扶“最后一公里”，用责任与担当为受灾群众筑牢民生保障防线，助力灾区早日恢复正常生产生活秩序。
 
-法国阿讷西国际动画电影节创办于1960年，被誉为“动画奥斯卡”，是全球最重要的专业动画电影节之一。
+初心不改|深耕公益事业，践行责任担当 作为一家全国性专业寿险公司，富德生命人寿始终秉持“富及民众、德行天下”的企业使命，将社会责任融入企业发展血脉，积极投身社会公益事业，聚焦弱势群体帮扶、自然灾害驰援、青少年健康成长守护等核心领域，持续输出公益力量，用常态化、专业化、精准化的公益行动，彰显金融企业的温度与担当。
 
 ## 相关推荐
 
-- 2026-06-30 02:21 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 02:23 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 01:56 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 02:14 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-30 02:07 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 02:03 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 02:15 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 02:20 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 02:21 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 02:14 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 02:07 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 02:20 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 02:18 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 02:17 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 02:28 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 02:07 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 02:25 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 02:19 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 02:00 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 02:27 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 02:20 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 02:18 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 02:19 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 02:04 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-30 02:21 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 02:03 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:01 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/054220.shtml)
-- 2026-06-30 02:14 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/00215384.shtml)
-- 2026-06-30 02:21 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/926295.shtml)
-- 2026-06-30 01:58 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/76139738123.shtml)
-- 2026-06-30 02:15 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/53312.shtml)
-- 2026-06-30 02:18 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/790638446.shtml)
-- 2026-06-30 02:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/22100626.shtml)
-- 2026-06-30 01:58 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/58381998.shtml)
-- 2026-06-30 02:06 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/5755233943.shtml)
-- 2026-06-30 02:03 - [美股](https://www.share.minike.top/Article/details/83491594767.shtml)
-- 2026-06-30 02:19 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/457846.shtml)
-- 2026-06-30 01:59 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/88243.shtml)
-- 2026-06-30 02:01 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/2358230098.shtml)
-- 2026-06-30 02:11 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/0316701061.shtml)
-- 2026-06-30 02:14 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/348898382242.shtml)
+- 2026-06-30 02:13 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/856963.shtml)
+- 2026-06-30 02:15 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/760771145073.shtml)
+- 2026-06-30 02:14 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/937429276582.shtml)
+- 2026-06-30 02:29 - [美股](https://www.share.minike.top/Article/details/87917485.shtml)
+- 2026-06-30 02:17 - [日本进球](https://www.blog.kurohicncr.top/Article/details/0641449.shtml)
+- 2026-06-30 02:02 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/9815569.shtml)
+- 2026-06-30 02:03 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/6856214.shtml)
+- 2026-06-30 02:28 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/64331.shtml)
+- 2026-06-30 02:11 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/851191864.shtml)
+- 2026-06-30 02:24 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/32655775.shtml)
+- 2026-06-30 02:16 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/25934.shtml)
+- 2026-06-30 02:17 - [天道](https://www.share.minike.top/Article/details/99464031699.shtml)
+- 2026-06-30 02:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/7073517572.shtml)
+- 2026-06-30 02:19 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/81615966698.shtml)
+- 2026-06-30 02:16 - [这一刀 会很帅](https://www.share.minike.top/Article/details/0388707.shtml)

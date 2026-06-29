@@ -1,47 +1,59 @@
-# 2026年度瑞丽海关本级部门预算公开
+# 贵州茅台选举陈华为董事长 王莉代行总经理职责
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-2026年度瑞丽海关本级部门预算公开.pdf
+观点网讯：6月11日，贵州茅台酒股份有限公司第五届董事会2026年度第一次会议在茅台会议中心召开。根据公告，本次会议在全体董事一致同意豁免通知期限的情况下召开，应出席董事7人，实际亲自出席7人，由陈华主持。会议审议通过了《关于选举董事长的议案》，选举陈华为公司第五届董事会董事长，表决结果为7票同意、0票反对、0票弃权。会议同时审议通过了《关于确定董事会专门委员会设置及组成人选的
 
 ## 正文
 
-2026年度瑞丽海关本级部门预算公开.pdf
+观点网讯：6月11日，贵州茅台酒股份有限公司第五届董事会2026年度第一次会议在茅台会议中心召开。
+
+根据公告，本次会议在全体董事一致同意豁免通知期限的情况下召开，应出席董事7人，实际亲自出席7人，由陈华主持。
+
+会议审议通过了《关于选举董事长的议案》，选举陈华为公司第五届董事会董事长，表决结果为7票同意、0票反对、0票弃权。
+
+会议同时审议通过了《关于确定董事会专门委员会设置及组成人选的议案》，确定了战略、审计、风险与合规管理、提名、薪酬与考核五个专门委员会的组成人员。
+
+其中，战略委员会主任委员为陈华，审计委员会主任委员为王鑫，风险与合规管理委员会主任委员为王莉。
+
+高级管理人员聘任方面，会议决定由王莉代行公司总经理职责，聘任涂华彬、向平、钟正强、张旭为公司副总经理，聘任余思明为公司财务总监、董事会秘书。
+
+此外，会议还聘任蔡聪应为证券事务代表，聘任王凤为公司审计部部长。
+
+涂华彬，男，1975年6月生，中共党员，工程硕士。
 
 ## 相关推荐
 
-- 2026-06-30 02:15 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 02:18 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 02:22 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 01:55 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 02:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 02:20 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 02:10 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 02:10 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 02:23 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 02:18 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 02:23 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 02:19 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 01:58 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-30 02:20 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 01:57 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 02:19 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 02:16 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-30 02:00 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 02:04 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 02:15 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 02:08 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 02:00 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 02:09 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 02:19 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 02:28 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 02:25 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 02:24 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 02:14 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:18 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/0113524.shtml)
-- 2026-06-30 02:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/88991.shtml)
-- 2026-06-30 02:00 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/8797860322.shtml)
-- 2026-06-30 02:12 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/49167.shtml)
-- 2026-06-30 02:09 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/0449875.shtml)
-- 2026-06-30 02:03 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/18884786.shtml)
-- 2026-06-30 02:03 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/36756.shtml)
-- 2026-06-30 02:01 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/7323733904.shtml)
-- 2026-06-30 02:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/944588596066.shtml)
-- 2026-06-30 01:59 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/2351868881.shtml)
-- 2026-06-30 02:10 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/14602398521.shtml)
-- 2026-06-30 02:09 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/49498.shtml)
-- 2026-06-30 01:58 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/36895.shtml)
-- 2026-06-30 02:12 - [流金岁月](https://www.share.minike.top/Article/details/13507993966.shtml)
-- 2026-06-30 01:59 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/93010.shtml)
+- 2026-06-30 02:01 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/33378420.shtml)
+- 2026-06-30 02:25 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/367721.shtml)
+- 2026-06-30 02:03 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/567989696.shtml)
+- 2026-06-30 02:26 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/387194.shtml)
+- 2026-06-30 02:28 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/40688.shtml)
+- 2026-06-30 02:00 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/42577164.shtml)
+- 2026-06-30 02:13 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/937731.shtml)
+- 2026-06-30 02:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/970588948.shtml)
+- 2026-06-30 02:03 - [周生如故](http://www.blog.minike.top/Article/details/0407471.shtml)
+- 2026-06-30 02:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/9306262857.shtml)
+- 2026-06-30 02:02 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/19598.shtml)
+- 2026-06-30 02:05 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/675860830932.shtml)
+- 2026-06-30 02:21 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/905448167603.shtml)
+- 2026-06-30 02:23 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/43372.shtml)
+- 2026-06-30 02:25 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/90334665.shtml)

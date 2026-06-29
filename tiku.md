@@ -1,59 +1,56 @@
-# 外国车企警告特朗普政府，若美墨加协定不降低关税将停止在美生产低端车型
+# 金融监管总局办公厅副主任鄢姣：“沪惠保”累计赔付超30亿元 “沪家保”累计承保突破113万单
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-据知情人士称，外国汽车制造商已警告特朗普政府，如果《美墨加协定》（USMCA）未能续签或被大幅削弱，它们可能会将旗下最便宜的车型撤出美国市场。 消息人士称，特朗普的经济顾问已被告知，如果USMCA不复存在，或者续签后的协议未能大幅降低北美制造的汽车及零部件的关税，一些外国汽车制造商可能无法为美国市场生产和销售价格更低的汽车。 汽车行业敦促特朗普政府延长美墨加协定（USMCA），
+6月12日金融一线消息，上海市政府举行市政府新闻发布会，介绍2026陆家嘴论坛有关情况。国家金融监督管理总局办公厅副主任鄢姣指出，过去一年，金融“五篇大文章”工作取得了新进展，绿色金融方面，推动“绿色船舶保险共同体”升级为“绿色航运保险共同体”，截至今年一季度末，落地保障项目11个，风险保障金额超95亿元。指导创设国内首个取水权行政管理服务信托，截至今年5月末，“水信托”累计成
 
 ## 正文
 
-据知情人士称，外国汽车制造商已警告特朗普政府，如果《美墨加协定》（USMCA）未能续签或被大幅削弱，它们可能会将旗下最便宜的车型撤出美国市场。
+6月12日金融一线消息，上海市政府举行市政府新闻发布会，介绍2026陆家嘴论坛有关情况。
 
-消息人士称，特朗普的经济顾问已被告知，如果USMCA不复存在，或者续签后的协议未能大幅降低北美制造的汽车及零部件的关税，一些外国汽车制造商可能无法为美国市场生产和销售价格更低的汽车。
+国家金融监督管理总局办公厅副主任鄢姣指出，过去一年，金融“五篇大文章”工作取得了新进展，绿色金融方面，推动“绿色船舶保险共同体”升级为“绿色航运保险共同体”，截至今年一季度末，落地保障项目11个，风险保障金额超95亿元。
 
-汽车行业敦促特朗普政府延长美墨加协定（USMCA），该协定今年将面临审查。
+指导创设国内首个取水权行政管理服务信托，截至今年5月末，“水信托”累计成交175笔。
 
-汽车公司称这项贸易协定对美国汽车生产至关重要。
+普惠金融方面，“沪系列”普惠金融产品树立品牌标杆。
 
-墨西哥和加拿大一直希望通过USMCA谈判来缓解特朗普去年征收的高额关税带来的压力。
+目前“沪惠保”累计赔付超30亿元，累计参保人次超3300万。
 
-这些关税给高度一体化的北美经济中的汽车制造商和其他行业造成了困难。
+“沪家保”累计承保突破113万单。
 
-美墨加三国原定于7月1日前完成贸易协定的谈判工作，但由于美加两国因特朗普的关税政策而产生的紧张关系，谈判进度受到了影响。
+“沪业保”提质扩面，在已覆盖个体工商户和教培、文娱等行业小微企业的基础上，去年新增为零售行业的小微企业提供差异化专属保险方案。
 
-责任编辑：于健 SF069
+“沪骑保”于去年4月正式上线，强化风险保障，护航电动自行车出行安全，助力打造韧性城市。
 
 ## 相关推荐
 
-- 2026-06-30 02:19 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 01:57 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 02:09 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 02:19 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 02:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 02:19 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 01:54 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-30 02:07 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 02:15 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 02:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 02:09 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 02:16 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 02:09 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 02:25 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 02:08 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 02:16 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 02:24 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 02:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 02:24 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 02:20 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 02:06 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 02:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 02:09 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/89401888.shtml)
-- 2026-06-30 02:13 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/7145923.shtml)
-- 2026-06-30 02:10 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/7684364115.shtml)
-- 2026-06-30 02:08 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/293194894112.shtml)
-- 2026-06-30 02:10 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/9661297.shtml)
-- 2026-06-30 02:10 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/272853.shtml)
-- 2026-06-30 02:20 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/63286.shtml)
-- 2026-06-30 02:01 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/04050961.shtml)
-- 2026-06-30 02:13 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/581277062283.shtml)
-- 2026-06-30 02:04 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/416471664.shtml)
-- 2026-06-30 02:09 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/1862756619.shtml)
-- 2026-06-30 02:19 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/888579906.shtml)
-- 2026-06-30 02:17 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/80087278.shtml)
-- 2026-06-30 02:21 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/7973969475.shtml)
-- 2026-06-30 01:59 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/46043.shtml)
+- 2026-06-30 02:14 - [第一炉香](http://www.share.minike.top/Article/details/15783.shtml)
+- 2026-06-30 02:29 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/36445636.shtml)
+- 2026-06-30 02:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/92809404.shtml)
+- 2026-06-30 02:20 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/15773172218.shtml)
+- 2026-06-30 02:15 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/505744572748.shtml)
+- 2026-06-30 02:15 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/760440.shtml)
+- 2026-06-30 02:11 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/924940282.shtml)
+- 2026-06-30 02:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/80995544151.shtml)
+- 2026-06-30 02:15 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/81387714585.shtml)
+- 2026-06-30 02:01 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/2637452.shtml)
+- 2026-06-30 02:02 - [请回答王牌2019](http://www.share.minike.top/Article/details/43457109704.shtml)
+- 2026-06-30 02:00 - [AI接过张雪峰志愿填报衣钵](https://www.blog.minike.top/Article/details/92401439573.shtml)
+- 2026-06-30 02:01 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/5657094.shtml)
+- 2026-06-30 02:29 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/16551019040.shtml)
+- 2026-06-30 02:25 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/255719803229.shtml)

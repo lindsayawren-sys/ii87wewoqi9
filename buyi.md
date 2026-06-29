@@ -1,48 +1,59 @@
-# 新西兰罗托鲁瓦市市长点赞西安智造
+# 6月12日热门中概股多数上涨，微牛涨9.97%，阿里巴巴跌2.36%
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 08:28 来源：中国新闻网 4月28日，陕西西安，来自埃及、新西兰、约旦等多国城市市长及专家走进吉利“黑灯工厂”参观，近距离感受现代智能制造发展成果。高度自动化、智能化、柔性化的新能源汽车生产场景，给新西兰罗托鲁瓦市市长塔尼亚·塔普塞尔留下深刻印象。她表示，西安在能源高效利用、能效提升领域的实践成效显著，令人赞叹，期待深入了解当地技术创新成果
+6月12日热门中概股多数上涨，纳斯达克中国金龙指数（HXC）收高0.25%。 上涨个股（按市值从高到低）：台积电涨3.02%，日月光半导体涨7.23%，联电涨9.31%，中华电信涨0.88%，贝壳涨2.69%，中通涨0.40%，腾讯音乐涨0.65%，理想汽车涨0.66%，华住酒店集团涨0.85%，富途控股涨2.80%，蔚来涨0.77%，满帮涨1.68%，慧荣科技涨9.00%，哔
 
 ## 正文
 
-发布时间：2026年04月29日 08:28 来源：中国新闻网 4月28日，陕西西安，来自埃及、新西兰、约旦等多国城市市长及专家走进吉利“黑灯工厂”参观，近距离感受现代智能制造发展成果。
+6月12日热门中概股多数上涨，纳斯达克中国金龙指数（HXC）收高0.25%。
 
-高度自动化、智能化、柔性化的新能源汽车生产场景，给新西兰罗托鲁瓦市市长塔尼亚·塔普塞尔留下深刻印象。
+上涨个股（按市值从高到低）：台积电涨3.02%，日月光半导体涨7.23%，联电涨9.31%，中华电信涨0.88%，贝壳涨2.69%，中通涨0.40%，腾讯音乐涨0.65%，理想汽车涨0.66%，华住酒店集团涨0.85%，富途控股涨2.80%，蔚来涨0.77%，满帮涨1.68%，慧荣科技涨9.00%，哔哩哔哩涨1.55%，万国数据涨0.84%，唯品会涨1.35%，BOSS直聘涨3.70%，名创优品涨0.30%，小马智行涨1.47%，微牛涨9.97%，奇景光电涨8.93%，禾赛科技涨3.02%。
 
-她表示，西安在能源高效利用、能效提升领域的实践成效显著，令人赞叹，期待深入了解当地技术创新成果，持续深化多领域交流合作。
+下跌个股（按市值从高到低）：阿里巴巴跌2.36%，拼多多跌0.64%，百度跌1.17%，京东跌1.37%，携程跌1.21%，小鹏汽车跌2.66%，中国新城农村跌1.42%，新东方跌1.96%，亚朵集团跌0.42%，欢聚跌0.12%，金山云跌1.72%。
 
-(党田野 杨英琦 张一辰） 责任编辑：【黄钰涵】
+美股周四大幅收高，道指上涨约930点。
+
+美国总统特朗普称已取消原定于今晚对伊朗发动的打击行动，并表示美国即将与伊朗签署一项协议。
+
+油价大幅下跌。
+
+芯片股反弹。
+
+道指涨929.97点，涨幅为1.86%，报50848.75点；纳指涨640.16点，涨幅为2.54%，报25809.66点；标普500指数涨127.30点，涨幅为1.75%，报7394.29点。
 
 ## 相关推荐
 
-- 2026-06-30 02:19 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 02:01 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 01:58 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 02:09 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 02:04 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 02:23 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-30 02:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 01:54 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 02:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 02:22 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 02:28 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 02:18 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 02:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 02:02 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 02:23 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 02:03 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 02:08 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 02:24 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 02:12 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 02:19 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 02:05 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 02:13 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 02:03 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:12 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/0765189.shtml)
-- 2026-06-30 02:14 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/336460.shtml)
-- 2026-06-30 02:19 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/92572.shtml)
-- 2026-06-30 02:19 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/57144767.shtml)
-- 2026-06-30 02:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/83226019018.shtml)
-- 2026-06-30 01:59 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/8806864076.shtml)
-- 2026-06-30 02:06 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/46610637.shtml)
-- 2026-06-30 02:07 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/595638428.shtml)
-- 2026-06-30 02:11 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/929776.shtml)
-- 2026-06-30 01:56 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/894535499.shtml)
-- 2026-06-30 02:00 - [女心理师](http://www.blog.minike.top/Article/details/170283.shtml)
-- 2026-06-30 02:02 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/1234283.shtml)
-- 2026-06-30 02:09 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/66310425.shtml)
-- 2026-06-30 02:22 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/89351.shtml)
-- 2026-06-30 02:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/333788668339.shtml)
+- 2026-06-30 02:03 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/7681346.shtml)
+- 2026-06-30 02:28 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/58039500494.shtml)
+- 2026-06-30 02:17 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/916345246767.shtml)
+- 2026-06-30 02:01 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/89519.shtml)
+- 2026-06-30 02:27 - [巴西扳平比分](http://www.share.minike.top/Article/details/51388156.shtml)
+- 2026-06-30 02:13 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/4285086693.shtml)
+- 2026-06-30 02:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/21671009196.shtml)
+- 2026-06-30 02:12 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/30718931184.shtml)
+- 2026-06-30 02:17 - [巴西扳平比分](https://www.blog.minike.top/Article/details/22017449.shtml)
+- 2026-06-30 02:28 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/175467695.shtml)
+- 2026-06-30 02:25 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/29226858918.shtml)
+- 2026-06-30 02:27 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/025936699337.shtml)
+- 2026-06-30 02:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/84979049.shtml)
+- 2026-06-30 02:07 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/576907.shtml)
+- 2026-06-30 02:19 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/453972.shtml)

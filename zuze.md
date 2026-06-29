@@ -1,60 +1,60 @@
-# 南京苏州两巨头抢滩无人驾驶：T3出行招股书提及78次，曹操出行计划2027年量产
+# 亚马逊评选泰雅丽·琼斯《Kin》为2026年迄今最佳图书
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：鱼禾财经 4月下旬，来自江苏两大网约车巨头，接连在Robotaxi（无人驾驶出租车）赛道投下重磅消息。 4月24日，在2026北京国际汽车展览会上，苏州曹操出行深度参与定义研发的中国首款原生开发Robotaxi原型车——Eva Cab正式亮相。就在两天前，南京T3出行向港交所递交招股书，宣布IPO募集
+亚马逊近日公布了2026年上半年度最佳图书榜单，泰雅丽·琼斯的长篇小说《Kin》荣登榜首。这是琼斯继2018年《美国式婚姻》之后的又一力作，自今年2月出版以来已收获广泛好评。 亚马逊编辑团队在阅读、讨论和投票后，从海量新书中选出了这份年中书单。亚马逊图书编辑总监萨拉·格尔曼表示，团队成员阅读各类图书、口味各异，很少有哪本书能让所有人达成一致，但《Kin》做到了。琼斯的文字温柔而
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+亚马逊近日公布了2026年上半年度最佳图书榜单，泰雅丽·琼斯的长篇小说《Kin》荣登榜首。
 
-来源：鱼禾财经 4月下旬，来自江苏两大网约车巨头，接连在Robotaxi（无人驾驶出租车）赛道投下重磅消息。
+这是琼斯继2018年《美国式婚姻》之后的又一力作，自今年2月出版以来已收获广泛好评。
 
-4月24日，在2026北京国际汽车展览会上，苏州曹操出行深度参与定义研发的中国首款原生开发Robotaxi原型车——Eva Cab正式亮相。
+亚马逊编辑团队在阅读、讨论和投票后，从海量新书中选出了这份年中书单。
 
-就在两天前，南京T3出行向港交所递交招股书，宣布IPO募集资金将优先用于建设全栈Robotaxi能力。
+亚马逊图书编辑总监萨拉·格尔曼表示，团队成员阅读各类图书、口味各异，很少有哪本书能让所有人达成一致，但《Kin》做到了。
 
-“吉利Robotaxi最重要商业化载体” 曹操出行发布首款原生开发无人驾驶出租车 从硬件上看，曹操出行Eva Cab最抢眼的特征是没有方向盘，这正折射出其与市面上多数Robotaxi在开发逻辑上的不同。
+琼斯的文字温柔而精准，是一个读完很久仍会留在心中的故事。
 
-图源：曹操出行 目前市面上的多数Robotaxi，都采用“后装改制”模式，即采购现成的量产车，通过追加自动驾驶设备，实现测试运营能力。
+《Kin》的故事设定在20世纪中叶的种族隔离时期，聚焦两位从小相伴长大的无母女孩安妮和妮西。
 
-而Eva Cab从设计之初，就以L4级自动驾驶场景为参考，将智驾系统、感知硬件等内嵌到造车环节。
+两人一起在路易斯安那州霍尼萨克镇度过童年，却因人生选择不同而渐行渐远——妮西前往亚特兰大求学，安妮则执意踏上寻找母亲的旅途。
 
-据曹操出行披露，这款定制化车型计划于2027年实现量产，长远目标是到2030年累计投放10万辆，逐步推进规模化运营。
+小说深刻探讨了友谊、阶级、种族、身份认同等主题，展现了超越血缘的女性情谊。
 
 ## 相关推荐
 
-- 2026-06-30 02:05 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 02:17 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 02:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 02:02 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 02:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 01:56 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 02:03 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-30 02:06 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 02:00 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 02:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 02:19 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 02:05 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 02:05 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-30 02:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 02:21 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 02:08 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 02:09 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 02:20 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 02:01 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-30 02:03 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 02:27 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 02:23 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-30 02:10 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 02:10 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 02:00 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 02:06 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 02:20 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 02:26 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/819183084.shtml)
-- 2026-06-30 02:18 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/0388451387.shtml)
-- 2026-06-30 02:01 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/99782.shtml)
-- 2026-06-30 02:07 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/10745.shtml)
-- 2026-06-30 01:57 - [恋与深空回应争议](https://www.share.minike.top/Article/details/583692387481.shtml)
-- 2026-06-30 02:15 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/05326700.shtml)
-- 2026-06-30 01:55 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/0565667240.shtml)
-- 2026-06-30 01:55 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/68401482.shtml)
-- 2026-06-30 02:19 - [日本16强魔咒](http://www.blog.minike.top/Article/details/3172606.shtml)
-- 2026-06-30 02:20 - [沉睡花园](https://www.share.minike.top/Article/details/250689814.shtml)
-- 2026-06-30 02:06 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/5138869631.shtml)
-- 2026-06-30 02:03 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/055483379610.shtml)
-- 2026-06-30 02:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/333637546464.shtml)
-- 2026-06-30 02:20 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/182579903915.shtml)
-- 2026-06-30 02:00 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/1394003632.shtml)
+- 2026-06-30 02:07 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/154335957.shtml)
+- 2026-06-30 02:22 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/50639322107.shtml)
+- 2026-06-30 02:04 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/048148334.shtml)
+- 2026-06-30 02:19 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/359002.shtml)
+- 2026-06-30 02:05 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/76586.shtml)
+- 2026-06-30 02:26 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/989700194.shtml)
+- 2026-06-30 02:09 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/829921960863.shtml)
+- 2026-06-30 02:08 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/297981.shtml)
+- 2026-06-30 02:01 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/179998147740.shtml)
+- 2026-06-30 02:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/6193955871.shtml)
+- 2026-06-30 02:05 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/138307.shtml)
+- 2026-06-30 02:14 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/16595391.shtml)
+- 2026-06-30 02:22 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/7456132.shtml)
+- 2026-06-30 02:21 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/085639224738.shtml)
+- 2026-06-30 02:06 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/31421.shtml)

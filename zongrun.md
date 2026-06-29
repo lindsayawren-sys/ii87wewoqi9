@@ -1,56 +1,56 @@
-# 2026“理响中国”精品分享会：专家以“苏超”喻理论传播
+# 三任董事长接连落马！湖南建筑巨头陷反腐漩涡
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新网南京4月28日电 (记者 徐珊珊)2026“理响中国”党的创新理论网络传播精品分享会27日在江苏南京举行。会上发布了“党校微讲堂”第三季、《文献中的党史密码》理论微纪录片等八项“理响中国”系列重点品牌项目，以及“梧桐论语·V来五年”“江南燕·有理有Young”等六项江苏重点理论网宣项目。 本次分享会由中央网信办网络传播局、中央党校(国家行政学院)科研部、中央党史和文献研究
+中国房地产报 中房报记者 许倩丨北京报道 这场跨越十余年的反腐风暴背后，真正需要拆除的，正是那张盘踞在中间层的利益网络。 湖南千亿级建筑巨头，正遭遇前所未有的反腐冲击。 6月9日，湖南省纪委监委发布消息：湖南建设投资集团有限责任公司（以下简称“湖南建投”）党委书记、董事长蔡典维涉嫌严重违纪违法，目前正接受纪律审查和监察调查。 当日，湖南建投发布公告称，截至公告日，公司未获悉具体
 
 ## 正文
 
-中新网南京4月28日电 (记者 徐珊珊)2026“理响中国”党的创新理论网络传播精品分享会27日在江苏南京举行。
+中国房地产报 中房报记者 许倩丨北京报道 这场跨越十余年的反腐风暴背后，真正需要拆除的，正是那张盘踞在中间层的利益网络。
 
-会上发布了“党校微讲堂”第三季、《文献中的党史密码》理论微纪录片等八项“理响中国”系列重点品牌项目，以及“梧桐论语·V来五年”“江南燕·有理有Young”等六项江苏重点理论网宣项目。
+湖南千亿级建筑巨头，正遭遇前所未有的反腐冲击。
 
-本次分享会由中央网信办网络传播局、中央党校(国家行政学院)科研部、中央党史和文献研究院第七研究部、中国社会科学院科研局、江苏省委网信办联合主办。
+6月9日，湖南省纪委监委发布消息：湖南建设投资集团有限责任公司（以下简称“湖南建投”）党委书记、董事长蔡典维涉嫌严重违纪违法，目前正接受纪律审查和监察调查。
 
-活动现场，来自多方的代表围绕党的创新理论网络传播展开交流分享。
+当日，湖南建投发布公告称，截至公告日，公司未获悉具体情形，相关行为暂未发现与公司生产经营活动相关。
 
-南京大学新闻传播学院执行院长张红军以“苏超”出圈为案例，提出理论传播的新思路。
+目前公司日常运营正常，上述事项对财务状况及偿债能力无重大不利影响，后续将依规落实该岗位人选继任。
 
-他在分享中指出，“苏超”观众热情高涨，“他们买的不是球票，是城市的归属感和荣誉感”。
+这一事件颇显突然。
 
-常州烧烤、南京盐水鸭、宿迁项羽等地方符号之所以火爆，背后是情感共鸣。
+就在一个月前，蔡典维仍频繁现身公开活动，先后带队赴云南对接城市更新与新能源产业合作，前往广东广新控股集团洽谈战略协同，并出席了高校毕业生专场招聘活动。
 
-因此，理论传播也要找到“情感的开关”，不能只摆数据、说概念，要把大道理讲成家乡情、奋斗志。
+值得注意的是，这是近9年间，湖南建投及其前身企业第三位被查处的一把手。
 
 ## 相关推荐
 
-- 2026-06-30 01:54 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 02:21 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 02:00 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 02:14 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-30 02:19 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-30 02:16 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 02:05 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 02:23 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 02:15 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 01:58 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 02:24 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 02:00 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 02:15 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 02:13 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 02:22 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 02:28 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 02:07 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 02:03 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 02:26 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 02:29 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:55 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/08490137888.shtml)
-- 2026-06-30 02:14 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/25413060.shtml)
-- 2026-06-30 02:01 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/3513086531.shtml)
-- 2026-06-30 02:17 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/447605352024.shtml)
-- 2026-06-30 02:02 - [沙丘](https://www.blog.kurohicncr.top/Article/details/92454.shtml)
-- 2026-06-30 01:59 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/734605948199.shtml)
-- 2026-06-30 02:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/99087536.shtml)
-- 2026-06-30 02:18 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/943860.shtml)
-- 2026-06-30 02:21 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/0382085.shtml)
-- 2026-06-30 02:06 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/46445261.shtml)
-- 2026-06-30 02:22 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/45669665788.shtml)
-- 2026-06-30 01:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/23050061.shtml)
-- 2026-06-30 02:15 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/41015.shtml)
-- 2026-06-30 01:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/491664337460.shtml)
-- 2026-06-30 02:00 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/880170743.shtml)
+- 2026-06-30 02:24 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/2575772.shtml)
+- 2026-06-30 02:11 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/000094184.shtml)
+- 2026-06-30 02:01 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/95035.shtml)
+- 2026-06-30 02:20 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/05880327650.shtml)
+- 2026-06-30 02:10 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/10918773.shtml)
+- 2026-06-30 02:09 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/242955236.shtml)
+- 2026-06-30 02:07 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/9500891.shtml)
+- 2026-06-30 02:04 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/938663456484.shtml)
+- 2026-06-30 02:28 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/08088.shtml)
+- 2026-06-30 02:01 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/1659873260.shtml)
+- 2026-06-30 02:24 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/7551128.shtml)
+- 2026-06-30 02:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/455205.shtml)
+- 2026-06-30 02:01 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/30425648112.shtml)
+- 2026-06-30 02:23 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/6270682.shtml)
+- 2026-06-30 02:06 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/12333594344.shtml)

@@ -1,59 +1,54 @@
-# 银发族“上学记”：浙江探索“老有所学”进阶路
+# 新疆乌恰：绵羊掉进下水道，辅警钻入井中紧急施救
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新网杭州4月29日电(张煜欢)社区学堂里，老人戴着老花镜跟着老师学习拍摄短视频，并学着用AI工具剪辑；绿水青山间，老年研学团触摸诗画浙江中的人文底蕴；文化礼堂内，“银龄弦歌”艺术团的排练声此起彼伏……在浙江，如此场景每天都在上演。 当银发浪潮悄然涌来，如何让老年人实现“老有所学、老有所乐、老有所为”？作为人口老龄化程度较高的省份之一，浙江用一张覆盖城乡的老年教育网络，给出自己
+发布时间：2026年06月12日 09:18 来源：中国新闻网 6月11日，新疆克州乌恰县辖区群众在路边放牧时，一只羊不慎坠入近3米深的下水道，乌恰县公安局乌恰镇派出所黑孜苇小学便民警务站接到求助电话，派辖区巡逻辅警快速出警，合力完成紧急救援。辅警艾合麦提江·麦麦图日荪将救援绳捆绑在腰腹，进入下水道，成功将小羊救出，辅警谢飞将下水道井盖恢复原位。群众向两名辅警连连道谢：“我年纪
 
 ## 正文
 
-中新网杭州4月29日电(张煜欢)社区学堂里，老人戴着老花镜跟着老师学习拍摄短视频，并学着用AI工具剪辑；绿水青山间，老年研学团触摸诗画浙江中的人文底蕴；文化礼堂内，“银龄弦歌”艺术团的排练声此起彼伏……在浙江，如此场景每天都在上演。
+发布时间：2026年06月12日 09:18 来源：中国新闻网 6月11日，新疆克州乌恰县辖区群众在路边放牧时，一只羊不慎坠入近3米深的下水道，乌恰县公安局乌恰镇派出所黑孜苇小学便民警务站接到求助电话，派辖区巡逻辅警快速出警，合力完成紧急救援。
 
-当银发浪潮悄然涌来，如何让老年人实现“老有所学、老有所乐、老有所为”？
+辅警艾合麦提江·麦麦图日荪将救援绳捆绑在腰腹，进入下水道，成功将小羊救出，辅警谢飞将下水道井盖恢复原位。
 
-作为人口老龄化程度较高的省份之一，浙江用一张覆盖城乡的老年教育网络，给出自己的答案。
+群众向两名辅警连连道谢：“我年纪大了，看着羊掉下去一点办法都没有，心里又慌又着急。
 
-从“有学上”到“上好学”，浙江正以法治保障筑牢根基，探索一条老年教育的“进阶之路”。
+多亏你们来得这么快，太感谢你们了。
 
-15分钟，打造“家门口”的幸福学堂 走进浙江宁波镇海招宝山街道的新三宝服务社老年学堂，不时传来一阵阵悠扬的乐曲声。
-
-老年学堂电吹管班的学员正为即将到来的文艺汇演进行最后排练。
-
-“老年学堂开课以来，每次报名都很火爆，我们针对部分热门课程进行了扩班。
-
-”新三宝服务社党支部书记黄冠冠说。
+”(作者：孟庆峰） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 02:21 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 02:17 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 02:09 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 01:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 01:54 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 01:58 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 02:08 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-30 02:23 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 02:06 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 01:57 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 02:03 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 02:02 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 02:14 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 02:20 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 02:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 02:01 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 02:12 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 02:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-30 02:06 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 02:23 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 02:24 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 02:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 02:19 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 02:17 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 02:06 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 02:12 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 02:15 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:58 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/0844131273.shtml)
-- 2026-06-30 01:56 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/980615.shtml)
-- 2026-06-30 02:03 - [急先锋](https://www.blog.minike.top/Article/details/92499137700.shtml)
-- 2026-06-30 02:05 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/9711102846.shtml)
-- 2026-06-30 02:13 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/25088763.shtml)
-- 2026-06-30 02:23 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/043959582374.shtml)
-- 2026-06-30 01:56 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/825324269.shtml)
-- 2026-06-30 01:58 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/57387823740.shtml)
-- 2026-06-30 02:23 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/70619233676.shtml)
-- 2026-06-30 02:11 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/22426997.shtml)
-- 2026-06-30 02:09 - [恋与深空致歉](https://www.blog.minike.top/Article/details/4950364.shtml)
-- 2026-06-30 02:08 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/083745994598.shtml)
-- 2026-06-30 02:16 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/53853498.shtml)
-- 2026-06-30 02:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/30046325846.shtml)
-- 2026-06-30 02:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/422066307921.shtml)
+- 2026-06-30 02:04 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/74773455453.shtml)
+- 2026-06-30 02:17 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/8466387902.shtml)
+- 2026-06-30 02:05 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/485043.shtml)
+- 2026-06-30 02:08 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/892035756215.shtml)
+- 2026-06-30 02:09 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/467508056098.shtml)
+- 2026-06-30 02:16 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/1458000201.shtml)
+- 2026-06-30 02:06 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/49419153573.shtml)
+- 2026-06-30 02:14 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/762748208.shtml)
+- 2026-06-30 02:18 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/336512348895.shtml)
+- 2026-06-30 02:17 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/13472.shtml)
+- 2026-06-30 02:16 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/85732711404.shtml)
+- 2026-06-30 02:17 - [孙兴慜道歉](https://www.share.minike.top/Article/details/19348674.shtml)
+- 2026-06-30 02:00 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/3493037138.shtml)
+- 2026-06-30 02:04 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/155388.shtml)
+- 2026-06-30 02:19 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/2534345625.shtml)

@@ -1,49 +1,61 @@
-# 我国自2026年5月1日起对所有非洲建交国实施零关税
+# 数据资产ABS申报收紧 严防城投变相“假融资”
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-国务院关税税则委员会发布公告，自2026年5月1日至2028年4月30日，对同中国建交的20个不属于最不发达国家的非洲国家以特惠税率形式实施零关税；其中关税配额产品仅将配额内关税税率降为零，配额外关税税率不变。2年实施期内，中方将继续推动与相关非洲国家商签共同发展经济伙伴关系协定。 对于同中国建交的33个非洲最不发达国家，中方已自2024年12月1日起对其100%税目产品实施零
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：债券杂志 近日，数据资产ABS（资产支持证券）市场传出阶段性收紧信号。多名市场人士表示，监管端对数据资产ABS相关项目作出窗口指导，项目申报及备案发行等环节均有所放缓。 业内人士认为，本轮申报收紧并非否定数据资产ABS创新，而是针对部分项目“贴数据标签、行债务融资之实”的倾向进行纠偏。对于数据资产AB
 
 ## 正文
 
-国务院关税税则委员会发布公告，自2026年5月1日至2028年4月30日，对同中国建交的20个不属于最不发达国家的非洲国家以特惠税率形式实施零关税；其中关税配额产品仅将配额内关税税率降为零，配额外关税税率不变。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-2年实施期内，中方将继续推动与相关非洲国家商签共同发展经济伙伴关系协定。
+来源：债券杂志 近日，数据资产ABS（资产支持证券）市场传出阶段性收紧信号。
 
-对于同中国建交的33个非洲最不发达国家，中方已自2024年12月1日起对其100%税目产品实施零关税。
+多名市场人士表示，监管端对数据资产ABS相关项目作出窗口指导，项目申报及备案发行等环节均有所放缓。
 
-此次进一步对其余20个非洲建交国实施零关税，体现了中国扩大高水平对外开放的积极姿态，对加强中非经贸合作纽带、推动共筑新时代全天候中非命运共同体将发挥重要作用。
+业内人士认为，本轮申报收紧并非否定数据资产ABS创新，而是针对部分项目“贴数据标签、行债务融资之实”的倾向进行纠偏。
+
+对于数据资产ABS而言，关键不在于是否冠以数据资产名义，而在于底层资产能否形成真实、稳定、可验证的现金流。
+
+数据资产ABS申报趋严 作为资产证券化领域的新兴产品，数据资产ABS近两年受到市场关注。
+
+其基本逻辑是，将合规确权、能够产生未来现金流的数据资产，通过结构化设计转化为资产支持证券，从而盘活数据资源、拓宽企业融资渠道。
+
+在数据要素市场化、数据资产入表等政策背景下，不少地方国企和城投平台开始探索数据资产ABS。
 
 ## 相关推荐
 
-- 2026-06-30 02:12 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 02:01 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 02:10 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 02:09 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 02:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 02:12 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 01:57 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-30 01:58 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-30 02:03 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 02:03 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 02:10 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 02:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 02:10 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 02:20 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 02:29 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 02:18 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 02:09 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-30 02:20 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 02:03 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 02:17 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 02:06 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 02:03 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 02:08 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 02:03 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 02:21 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 02:17 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:58 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/13827104.shtml)
-- 2026-06-30 02:07 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/49868.shtml)
-- 2026-06-30 02:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/81436065.shtml)
-- 2026-06-30 02:20 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/94950172.shtml)
-- 2026-06-30 01:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/862579912146.shtml)
-- 2026-06-30 02:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/122529557.shtml)
-- 2026-06-30 02:17 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/69044039.shtml)
-- 2026-06-30 01:57 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/12697.shtml)
-- 2026-06-30 02:11 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/043773566.shtml)
-- 2026-06-30 02:19 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/77486.shtml)
-- 2026-06-30 01:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/34658754.shtml)
-- 2026-06-30 01:59 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/692905.shtml)
-- 2026-06-30 01:55 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/949442416.shtml)
-- 2026-06-30 02:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/229891275.shtml)
-- 2026-06-30 01:56 - [千香](http://www.blog.minike.top/Article/details/978717330.shtml)
+- 2026-06-30 02:05 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/7452379.shtml)
+- 2026-06-30 02:15 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/0235358107.shtml)
+- 2026-06-30 02:25 - [金刚川](http://www.share.kurohicncr.top/Article/details/536631757.shtml)
+- 2026-06-30 02:05 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/880682.shtml)
+- 2026-06-30 02:09 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/7870674375.shtml)
+- 2026-06-30 02:06 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/44090363659.shtml)
+- 2026-06-30 02:21 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/077479.shtml)
+- 2026-06-30 02:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/55771713.shtml)
+- 2026-06-30 02:06 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/369809245810.shtml)
+- 2026-06-30 02:26 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/57371851689.shtml)
+- 2026-06-30 02:27 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/2530094.shtml)
+- 2026-06-30 02:23 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/3787524336.shtml)
+- 2026-06-30 02:17 - [第一炉香](http://www.share.minike.top/Article/details/3375448.shtml)
+- 2026-06-30 02:12 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/317540414175.shtml)
+- 2026-06-30 02:16 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/599842.shtml)

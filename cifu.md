@@ -1,59 +1,60 @@
-# 谷歌DeepMind首席执行官访韩，会见现代汽车和LG集团负责人
+# 欧元区一季度经济萎缩凸显滞胀风险 欧洲央行本周加息箭在弦上引发“政策失误”质疑
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-据业内人士透露，谷歌DeepMind联合创始人兼首席执行官德米斯·哈萨比斯（Demis Hassabis）周二分别会见了韩国主要企业集团的负责人，其中包括现代汽车集团和LG集团。 知情人士称，哈萨比斯当天早些时候会见了现代汽车集团执行会长郑义宣，随后访问了LG集团总部，并与会长具光模会面。 消息人士称，哈萨比斯和具光模预计将在闭门会议上讨论如何进一步加强在人工智能领域的合作。L
+欧洲央行（ECB）理事会将于本周四召开货币政策会议。目前市场已完全消化了加息预期。然而，在欧元区一季度经济萎缩、中东局势升级导致能源供应持续受阻的背景下，多位主流经济学家和分析师警告称，此时加息恐将加剧经济衰退风险。 市场预计：97%加息概率已现，或为近三年来首次收紧 根据伦敦证券交易所集团（LSEG）收集的数据显示，交易员目前预计欧洲央行本周加息的概率高达97%，不加息的概率
 
 ## 正文
 
-据业内人士透露，谷歌DeepMind联合创始人兼首席执行官德米斯·哈萨比斯（Demis Hassabis）周二分别会见了韩国主要企业集团的负责人，其中包括现代汽车集团和LG集团。
+欧洲央行（ECB）理事会将于本周四召开货币政策会议。
 
-知情人士称，哈萨比斯当天早些时候会见了现代汽车集团执行会长郑义宣，随后访问了LG集团总部，并与会长具光模会面。
+目前市场已完全消化了加息预期。
 
-消息人士称，哈萨比斯和具光模预计将在闭门会议上讨论如何进一步加强在人工智能领域的合作。
+然而，在欧元区一季度经济萎缩、中东局势升级导致能源供应持续受阻的背景下，多位主流经济学家和分析师警告称，此时加息恐将加剧经济衰退风险。
 
-LG集团旗下LG电子公司及其人工智能研究实验室的高管也出席了此次会议。
+市场预计：97%加息概率已现，或为近三年来首次收紧 根据伦敦证券交易所集团（LSEG）收集的数据显示，交易员目前预计欧洲央行本周加息的概率高达97%，不加息的概率仅为3%。
 
-消息人士称，哈萨比斯自周一以来一直在首尔，这是他十年来首次到访韩国。
+若本周四如期加息，这将是欧洲央行自2023年9月以来的首次加息。
 
-在与韩国科学技术部签署谅解备忘录 （MOU） 的仪式上，哈萨比斯暗示可能会与韩国主要企业集团会面，并表示 DeepMind计划扩大和深化与韩国本土企业集团的现有合作关系。
+上一次加息周期主要由俄乌冲突爆发后引发的能源价格飙升所推动。
 
-责任编辑：于健 SF069
+目前，交易员普遍预计欧洲央行年内可能将累计加息约三次。
+
+与欧洲形成对比的是，主要发达经济体在政策上呈现分化趋势。
 
 ## 相关推荐
 
-- 2026-06-30 02:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 02:01 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 02:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 02:08 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 02:13 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-30 02:14 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 02:11 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 02:10 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 02:05 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 02:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 02:15 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 02:05 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 01:59 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-30 02:12 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 02:08 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-30 02:27 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 02:07 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 02:05 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 02:19 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-30 02:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 02:18 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 02:06 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 02:29 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 02:24 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-30 02:24 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 02:27 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 02:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 02:28 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 02:23 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:07 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/420588372.shtml)
-- 2026-06-30 02:22 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/4365430398.shtml)
-- 2026-06-30 02:14 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/4749558158.shtml)
-- 2026-06-30 01:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/6933978.shtml)
-- 2026-06-30 02:17 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/207636.shtml)
-- 2026-06-30 01:58 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/595164558901.shtml)
-- 2026-06-30 02:09 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/14964754494.shtml)
-- 2026-06-30 01:57 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/13482.shtml)
-- 2026-06-30 01:56 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/20815480439.shtml)
-- 2026-06-30 02:11 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/1005965.shtml)
-- 2026-06-30 01:55 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/939833306.shtml)
-- 2026-06-30 02:12 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/168731589.shtml)
-- 2026-06-30 01:58 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/22390518247.shtml)
-- 2026-06-30 01:55 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/505530869.shtml)
-- 2026-06-30 02:12 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/45066.shtml)
+- 2026-06-30 02:01 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/00223977878.shtml)
+- 2026-06-30 02:23 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/9636098.shtml)
+- 2026-06-30 02:20 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/324592762487.shtml)
+- 2026-06-30 02:22 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/887146560059.shtml)
+- 2026-06-30 02:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/43592070582.shtml)
+- 2026-06-30 02:18 - [乔家的儿女](http://www.blog.minike.top/Article/details/51176.shtml)
+- 2026-06-30 02:25 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/50825311909.shtml)
+- 2026-06-30 02:05 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/71522.shtml)
+- 2026-06-30 02:29 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/163152483.shtml)
+- 2026-06-30 02:01 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/2654248.shtml)
+- 2026-06-30 02:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/3164124.shtml)
+- 2026-06-30 02:29 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/502463054.shtml)
+- 2026-06-30 02:06 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/19832827053.shtml)
+- 2026-06-30 02:20 - [日本反击率先破门](https://www.blog.minike.top/Article/details/09712654107.shtml)
+- 2026-06-30 02:06 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/312842.shtml)

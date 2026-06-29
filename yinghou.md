@@ -1,57 +1,57 @@
-# 全国五一劳动奖章获得者程艳：科技兴农践初心
+# 中欧基金叶英聪：美元存款高息背后有风险，汇率变动或侵蚀收益
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-中新网咸宁4月28日电 题：全国五一劳动奖章获得者程艳：科技兴农践初心 作者 胡传林 马丽娅 4月28日，2026年全国五一劳动奖评选结果揭晓。湖北隽青农业科技有限公司技术员程艳，同时荣获全国五一劳动奖章与全国五一巾帼标兵两项殊荣。这位“80后”新农人，告别都市白领身份，返乡十二载、创业六年，扎根乡土，深耕科技农业，用实干盘活撂荒土地，带动乡邻共富，以脚步书写乡村振兴答卷。 2
+南方财经 21世纪经济报道记者 张伟泽 深圳报道“投资人一定要先考虑清楚的是，自己对于流动性的需求，以及到底能够承受多大的风险。因为海外资产普遍波动性很高，你可以把它想象成一个弹性更大的球。”中欧基金国际投资总监叶英聪对21世纪经济报道记者表示。5月29日，由21世纪经济报道、广东粤港澳大湾区研究院主办的2026湾区财富大会及湾区金融大咖会在深圳举行，大会以“在不确定性中寻找确
 
 ## 正文
 
-中新网咸宁4月28日电 题：全国五一劳动奖章获得者程艳：科技兴农践初心 作者 胡传林 马丽娅 4月28日，2026年全国五一劳动奖评选结果揭晓。
+南方财经 21世纪经济报道记者 张伟泽 深圳报道“投资人一定要先考虑清楚的是，自己对于流动性的需求，以及到底能够承受多大的风险。
 
-湖北隽青农业科技有限公司技术员程艳，同时荣获全国五一劳动奖章与全国五一巾帼标兵两项殊荣。
+因为海外资产普遍波动性很高，你可以把它想象成一个弹性更大的球。
 
-这位“80后”新农人，告别都市白领身份，返乡十二载、创业六年，扎根乡土，深耕科技农业，用实干盘活撂荒土地，带动乡邻共富，以脚步书写乡村振兴答卷。
+”中欧基金国际投资总监叶英聪对21世纪经济报道记者表示。
 
-2010年大学毕业后，程艳曾远赴上海、深圳等地打拼，从基层品管员成长为区域销售经理，拥有稳定收入。
+5月29日，由21世纪经济报道、广东粤港澳大湾区研究院主办的2026湾区财富大会及湾区金融大咖会在深圳举行，大会以“在不确定性中寻找确定性”为主题，汇聚境内外首席经济学家和策略分析师，围绕长期资产配置、港股投资等热门议题，展开了一场高水平、深层次的对话。
 
-然而，看到家乡青壮年外流、良田撂荒的景象，她决定辞去城市工作返乡，并当选吴城村妇联主席。
+在谈及多元化全球资产配置时，叶英聪指出，在当前国内居民存款搬家的宏观背景下，资金出海的首要考量因素应是安全性。
 
-为破解低效种植难题，2019年，程艳创办隽青家庭农场。
+许多投资者往往只关注海外资产（如美元存款）的较高利率，却忽视了其中潜在的外汇波动风险。
 
-创业之初举步维艰，她抵押房产、车辆，多方筹措资金，在荒田搭起简易棚屋，吃住在田间。
+若算上人民币汇率的升值因素，投资者最终可能会面临亏损。
 
-传统种植附加值低，让她坚定了科技兴农的信念。
+这一风险在近两年已有现实案例可循。
 
 ## 相关推荐
 
-- 2026-06-30 02:02 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 02:07 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 02:21 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 02:14 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 01:54 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 02:18 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 01:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-30 02:23 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-30 02:01 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 02:12 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 02:17 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 02:06 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 02:06 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 02:20 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 02:12 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 02:03 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 02:04 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 02:01 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 02:08 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 02:26 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 02:27 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 02:24 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:59 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/578170085.shtml)
-- 2026-06-30 01:56 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/453373.shtml)
-- 2026-06-30 02:12 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/9520687.shtml)
-- 2026-06-30 02:01 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/91449437.shtml)
-- 2026-06-30 01:59 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/24407467108.shtml)
-- 2026-06-30 02:07 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/818080292300.shtml)
-- 2026-06-30 01:59 - [世界杯](http://www.share.kurohicncr.top/Article/details/2603508078.shtml)
-- 2026-06-30 02:05 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/1308647231.shtml)
-- 2026-06-30 02:08 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/7533786.shtml)
-- 2026-06-30 02:12 - [急先锋](https://www.share.kurohicncr.top/Article/details/634548.shtml)
-- 2026-06-30 02:23 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/544173071134.shtml)
-- 2026-06-30 01:59 - [女心理师](https://www.share.kurohicncr.top/Article/details/804714819108.shtml)
-- 2026-06-30 02:17 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/6427402954.shtml)
-- 2026-06-30 01:54 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/420829176280.shtml)
-- 2026-06-30 02:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/54026938.shtml)
+- 2026-06-30 02:28 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/5275204423.shtml)
+- 2026-06-30 02:29 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/1400796414.shtml)
+- 2026-06-30 02:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/1419113.shtml)
+- 2026-06-30 02:00 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/38326063571.shtml)
+- 2026-06-30 02:08 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/107537309.shtml)
+- 2026-06-30 02:18 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/095115659463.shtml)
+- 2026-06-30 02:11 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/113999.shtml)
+- 2026-06-30 02:26 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/019966326.shtml)
+- 2026-06-30 02:16 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/5512598.shtml)
+- 2026-06-30 02:28 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/580656824.shtml)
+- 2026-06-30 02:30 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/68987505.shtml)
+- 2026-06-30 02:09 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/354957948273.shtml)
+- 2026-06-30 02:21 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/6328093963.shtml)
+- 2026-06-30 02:02 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/8706918702.shtml)
+- 2026-06-30 02:13 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/933506428.shtml)

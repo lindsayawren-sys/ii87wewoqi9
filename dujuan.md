@@ -1,59 +1,54 @@
-# 城堡据悉已获批在迪拜开始运营
+# 茅台董事长陈华正面回应“拆股”：目前暂无计划
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-知情人士表示，城堡已获得监管部门批准，准备开始在迪拜这个新兴对冲基金中心开展业务。 其中一位知情人士表示，此举将使该公司首批交易员能够开始在迪拜国际金融中心办公。知情人士透露，2023年加入城堡的投资组合经理Yash Gupta已经搬到了迪拜。 截至4月1日，该公司资产管理规模达670亿美元。Gupta和迪拜金融服务管理局的代表也未能立即回应置评请求。 城堡去年年底披露了在迪拜
+专题：贵州茅台2025年度股东大会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月11日，贵州茅台酒股份有限公司2025年度股东会召开。 会上，关于备受争议的“拆股”问题，茅台集团党委书记、董事长陈华从正面进行回应：“关于拆股问题，股东观点目前非常分化。同时我们也关注到不少大咖也在讨论茅台是否应该拆股，大家的意见建议我们都收到和关注到了，感谢大家对
 
 ## 正文
 
-知情人士表示，城堡已获得监管部门批准，准备开始在迪拜这个新兴对冲基金中心开展业务。
+专题：贵州茅台2025年度股东大会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-其中一位知情人士表示，此举将使该公司首批交易员能够开始在迪拜国际金融中心办公。
+6月11日，贵州茅台酒股份有限公司2025年度股东会召开。
 
-知情人士透露，2023年加入城堡的投资组合经理Yash Gupta已经搬到了迪拜。
+会上，关于备受争议的“拆股”问题，茅台集团党委书记、董事长陈华从正面进行回应：“关于拆股问题，股东观点目前非常分化。
 
-截至4月1日，该公司资产管理规模达670亿美元。
+同时我们也关注到不少大咖也在讨论茅台是否应该拆股，大家的意见建议我们都收到和关注到了，感谢大家对茅台发展的关心与支持。
 
-Gupta和迪拜金融服务管理局的代表也未能立即回应置评请求。
+” 陈华表示：“从目前来看的话，公司暂无拆股计划。
 
-城堡去年年底披露了在迪拜设立办公室的计划，成为较晚在阿联酋设点的大型对冲基金之一。
-
-然而，今年美以对伊朗发动战争，震动金融市场，也让外界对迪拜及邻近的阿布扎比作为新兴金融中心的吸引力产生疑问。
-
-责任编辑：丁文武
+”责任编辑：孙同怀
 
 ## 相关推荐
 
-- 2026-06-30 01:58 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 02:09 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 02:02 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 02:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-30 01:55 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 01:55 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 02:22 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 02:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 02:13 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 02:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 02:12 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 01:56 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 02:19 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 02:24 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 02:28 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 02:18 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 02:13 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 02:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 02:27 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 02:14 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 02:03 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 02:09 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 02:00 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 02:14 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 02:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/560291263157.shtml)
-- 2026-06-30 02:11 - [沉睡花园](https://www.share.minike.top/Article/details/43503688.shtml)
-- 2026-06-30 01:56 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/497776.shtml)
-- 2026-06-30 02:07 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/281356.shtml)
-- 2026-06-30 02:13 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/97648518378.shtml)
-- 2026-06-30 02:08 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/15594327591.shtml)
-- 2026-06-30 02:06 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/67629.shtml)
-- 2026-06-30 01:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/1246769.shtml)
-- 2026-06-30 01:55 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/5459874226.shtml)
-- 2026-06-30 02:20 - [恋与深空 巧合](http://www.share.minike.top/Article/details/24203052.shtml)
-- 2026-06-30 02:23 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/0505597881.shtml)
-- 2026-06-30 02:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/00988674120.shtml)
-- 2026-06-30 01:56 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/526919.shtml)
-- 2026-06-30 02:15 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/82083109.shtml)
-- 2026-06-30 01:57 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/5140074265.shtml)
+- 2026-06-30 02:01 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/11624882.shtml)
+- 2026-06-30 02:03 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/1229612551.shtml)
+- 2026-06-30 02:10 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/52188826.shtml)
+- 2026-06-30 02:08 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/355946.shtml)
+- 2026-06-30 02:24 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/868234108.shtml)
+- 2026-06-30 02:14 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/221642154.shtml)
+- 2026-06-30 02:04 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/85876.shtml)
+- 2026-06-30 02:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/33069.shtml)
+- 2026-06-30 02:27 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/4304902.shtml)
+- 2026-06-30 02:05 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/71856.shtml)
+- 2026-06-30 02:15 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/01968757.shtml)
+- 2026-06-30 02:08 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/7844338.shtml)
+- 2026-06-30 02:18 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/51132788.shtml)
+- 2026-06-30 02:25 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/16688200696.shtml)
+- 2026-06-30 02:00 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/060437893.shtml)

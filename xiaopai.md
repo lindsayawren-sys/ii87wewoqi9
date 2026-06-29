@@ -1,56 +1,49 @@
-# 巴西Compass启动5亿美元股票公开发售
+# OPEC数据显示伊朗上个月石油产量下降19%
 
-> 更新时间：2026-06-30 02:24:02 UTC+8
+> 更新时间：2026-06-30 02:30:03 UTC+8
 
 ## 摘要
 
-巴西天然气分销商Compass Gás e Energia周二宣布，将启动约8930万股普通股的二次公开发售，预计募集资金至少25亿雷亚尔（约合5.02亿美元）。此次发售将帮助其母公司Cosan集团通过出售股权筹集资金，以缓解财务压力。 发售结构与定价区间 Compass在提交给巴西证券交易委员会的文件中披露，每股发行价格区间设定为28至35雷亚尔。最终发行价将于5月7日通过簿
+根据OPEC的数据，伊朗上个月原油产量下降19%。在此期间，美国在与伊朗的持续冲突中封锁了该国的港口。 根据OPEC周四发布的月度报告，伊朗石油日产量下降54.6万桶，至233万桶。责任编辑：李安桐
 
 ## 正文
 
-巴西天然气分销商Compass Gás e Energia周二宣布，将启动约8930万股普通股的二次公开发售，预计募集资金至少25亿雷亚尔（约合5.02亿美元）。
+根据OPEC的数据，伊朗上个月原油产量下降19%。
 
-此次发售将帮助其母公司Cosan集团通过出售股权筹集资金，以缓解财务压力。
+在此期间，美国在与伊朗的持续冲突中封锁了该国的港口。
 
-发售结构与定价区间 Compass在提交给巴西证券交易委员会的文件中披露，每股发行价格区间设定为28至35雷亚尔。
+根据OPEC周四发布的月度报告，伊朗石油日产量下降54.6万桶，至233万桶。
 
-最终发行价将于5月7日通过簿记建档程序确定，股票预计于5月11日在B3证券交易所上市交易，股票代码为PASS3。
-
-此次发售的卖家股东包括Cosan、Atmos、Bradesco、Brasil Capital以及Bussola集团等。
-
-Cosan在另一份文件中表示，可能出售其所持Compass约15%的股份。
-
-BTG Pactual、美国银行、Bradesco BBI、花旗、Itaú BBA、桑坦德银行、摩根大通、XP、法国巴黎银行和瑞银BB担任此次发行的协调人。
-
-上市背景与市场意义 此次上市将是巴西股市近五年来首次IPO。
+责任编辑：李安桐
 
 ## 相关推荐
 
-- 2026-06-30 01:58 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 02:08 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-30 02:20 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 01:54 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 02:00 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 02:09 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 02:21 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 02:10 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 02:06 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 02:19 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 02:29 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 02:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-30 02:11 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 02:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 02:13 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 02:01 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 02:26 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 02:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 02:04 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 02:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 02:15 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:21 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/70941478035.shtml)
-- 2026-06-30 02:06 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/53775150100.shtml)
-- 2026-06-30 02:20 - [周生如故](https://www.blog.minike.top/Article/details/267281071955.shtml)
-- 2026-06-30 02:19 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/536444.shtml)
-- 2026-06-30 02:14 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/2273416.shtml)
-- 2026-06-30 01:58 - [沙丘](https://www.blog.kurohicncr.top/Article/details/0238852467.shtml)
-- 2026-06-30 02:11 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/2814196.shtml)
-- 2026-06-30 02:12 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/2018788636.shtml)
-- 2026-06-30 02:06 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/50880631535.shtml)
-- 2026-06-30 02:19 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/975285.shtml)
-- 2026-06-30 02:10 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/09571007589.shtml)
-- 2026-06-30 02:14 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/2886838.shtml)
-- 2026-06-30 02:08 - [流金岁月](https://www.blog.minike.top/Article/details/11183314007.shtml)
-- 2026-06-30 02:03 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/014240658.shtml)
-- 2026-06-30 02:02 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/860171850810.shtml)
+- 2026-06-30 02:10 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/154384000572.shtml)
+- 2026-06-30 02:08 - [青春环游记第三季](http://www.share.minike.top/Article/details/426713394.shtml)
+- 2026-06-30 02:15 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/412713.shtml)
+- 2026-06-30 02:21 - [日本进球](http://www.share.kurohicncr.top/Article/details/44148487366.shtml)
+- 2026-06-30 02:24 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/18800657.shtml)
+- 2026-06-30 02:21 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/14444.shtml)
+- 2026-06-30 02:09 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/2001708962.shtml)
+- 2026-06-30 02:23 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/020183.shtml)
+- 2026-06-30 02:09 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/17014781958.shtml)
+- 2026-06-30 02:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/37260308.shtml)
+- 2026-06-30 02:00 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/25568.shtml)
+- 2026-06-30 02:12 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/11542910.shtml)
+- 2026-06-30 02:09 - [千与千寻](http://www.blog.minike.top/Article/details/28105607.shtml)
+- 2026-06-30 02:16 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/36942.shtml)
+- 2026-06-30 02:24 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/68330890200.shtml)
