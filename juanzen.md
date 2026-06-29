@@ -1,58 +1,58 @@
-# Happy Horse横空出世，力压Seedance2.0？同类规模最大港股通信息技术ETF（159131）暴涨后小步回调
+# 李书福：将有序关停并转吉利汽车集团相关冗余主体
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-4月9日，AH市场在昨日高能反弹后迎来温和回调，港股硬科技方面，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）小幅低开后震荡盘整，现跌1.2%，仍坚守20日线上方，实时成交额1.39亿元。 消息面上，近日一款名为HappyHorse-1.0的视频生成模型横空出世，在权威第三方AI评测网站Artificial Analysis的榜单上表现抢眼，并引发AI圈与
+专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，吉利控股集团董事长李书福通过视频发表演讲。 李书福表示，为了做好吉利的传承工作，多年前就已经规划了战略路线图，从企业治理架构、人事调整、内生人才培养、企业战略转型，到《台州宣言》的发布，吉利已经有序展开了企业传承的各项工作。 李书福透露，接下来将在《台州宣言》战略框架下，进一
 
 ## 正文
 
-4月9日，AH市场在昨日高能反弹后迎来温和回调，港股硬科技方面，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）小幅低开后震荡盘整，现跌1.2%，仍坚守20日线上方，实时成交额1.39亿元。
+专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，吉利控股集团董事长李书福通过视频发表演讲。
 
-消息面上，近日一款名为HappyHorse-1.0的视频生成模型横空出世，在权威第三方AI评测网站Artificial Analysis的榜单上表现抢眼，并引发AI圈与资本市场热议。
+李书福表示，为了做好吉利的传承工作，多年前就已经规划了战略路线图，从企业治理架构、人事调整、内生人才培养、企业战略转型，到《台州宣言》的发布，吉利已经有序展开了企业传承的各项工作。
 
-中邮证券指出，近年来，国内AI产业规模持续扩张，核心产业规模已突破万亿，企业数量与生态体系日趋完善。
+李书福透露，接下来将在《台州宣言》战略框架下，进一步落实好五大战略支柱，理顺吉利汽车集团有限公司与吉利汽车控股有限公司的关系。
 
-中国大模型市场同样保持高增长，2024-2026复合增长预计达58.5%，技术突破与产业落地形成共振，AI赛道投资价值持续凸显。
+“将有序关停并转吉利汽车集团有限公司相关冗余的主体，集中优势资源筑强吉利汽车控股有限公司这个上市公司的核心上市平台，从而构建治理架构更加清晰、权责更加明确、运转高效、全球合规的现代企业运营体系。
 
-伴随AI算力需求爆发，上游芯片半导体行业景气持续提升。
+” 李书福表示，这将让“一个吉利”从战略共识全面转化为体系优势、治理优势、全球生存能力优势。
 
-据国信证券，根据SIA的数据，2026年2月全球半导体销售额为887.8亿美元（YoY +61.8%，QoQ +7.6%），连续28个月同比正增长。
+他将继续集中精力做强做大一个吉利，创造良好的治理环境。
 
-支持T+0交易！
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-直指港股芯片超级周期——同类规模最大、全市场首只聚焦“港股芯片”产业链的港股通信息技术ETF华宝（159131），场外联接基金代码026755，标的指数由“70%硬件+30%软件”构成，重仓港股“半导体+电子+计算机软件”，涵盖50只港股硬科技公司，其中小米集团-W权重13.25%，中芯国际权重达12.54%，联想集团权重达9.04%，华虹半导体权重7.09%；不含阿里巴巴、腾讯、美团等大市值互联网企业，锐度更高，更易捕捉港股AI硬科技行情。
+责任编辑：李昂
 
 ## 相关推荐
 
-- 2026-06-30 03:09 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 03:08 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 03:15 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 03:06 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 03:07 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 03:11 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 03:21 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 03:09 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 03:32 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 03:15 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 03:36 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 03:23 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 03:21 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 03:22 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 03:13 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 03:21 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 03:27 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 03:19 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 03:14 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 03:23 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 03:20 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 03:36 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 03:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 03:21 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/988531690.shtml)
-- 2026-06-30 03:31 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/4043035.shtml)
-- 2026-06-30 03:17 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/6026395755.shtml)
-- 2026-06-30 03:16 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/1032435776.shtml)
-- 2026-06-30 03:29 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/617455983.shtml)
-- 2026-06-30 03:27 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/247352332688.shtml)
-- 2026-06-30 03:25 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/547824.shtml)
-- 2026-06-30 03:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/2750535395.shtml)
-- 2026-06-30 03:09 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/321756379974.shtml)
-- 2026-06-30 03:32 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/185343145471.shtml)
-- 2026-06-30 03:15 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/60059991.shtml)
-- 2026-06-30 03:10 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/058273357.shtml)
-- 2026-06-30 03:10 - [青春环游记第三季](http://www.share.minike.top/Article/details/39333463.shtml)
-- 2026-06-30 03:18 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/62090015.shtml)
-- 2026-06-30 03:31 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/4948800.shtml)
+- 2026-06-30 03:25 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/876365.shtml)
+- 2026-06-30 03:12 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/86319.shtml)
+- 2026-06-30 03:32 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/779520906.shtml)
+- 2026-06-30 03:20 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/433777.shtml)
+- 2026-06-30 03:16 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/6837519946.shtml)
+- 2026-06-30 03:31 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/80126075669.shtml)
+- 2026-06-30 03:23 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/527642.shtml)
+- 2026-06-30 03:34 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/209415.shtml)
+- 2026-06-30 03:34 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/675018499.shtml)
+- 2026-06-30 03:24 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/0880745.shtml)
+- 2026-06-30 03:26 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/380138.shtml)
+- 2026-06-30 03:36 - [急先锋](http://www.share.minike.top/Article/details/163602155.shtml)
+- 2026-06-30 03:37 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/38945855.shtml)
+- 2026-06-30 03:23 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/41803409281.shtml)
+- 2026-06-30 03:28 - [第一炉香](https://www.blog.minike.top/Article/details/974484.shtml)

@@ -1,43 +1,60 @@
-# 伊朗媒体称：霍尔木兹海峡已完全关闭 油轮被迫返航
+# （美加墨世界杯）加拿大扳平波黑 获队史世界杯首分
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月09日 08:17 来源：央视新闻客户端 责任编辑：【王祎】
+中新社多伦多6月12日电 当地时间12日在多伦多进行的美加墨世界杯加拿大赛区揭幕战中，东道主加拿大队凭借拉林的进球，1:1扳平波黑队，斩获队史世界杯赛场的首个积分。 加拿大开幕式和揭幕战的举办地是坐落于安大略湖畔的多伦多体育场，这也是加拿大首座专业足球场。 开幕式以“马赛克拼贴画”为核心创意，融入本土音乐与艺术，展现多元包容的北美风情。但开幕式的主题秀却出现尴尬情况，“马赛克”
 
 ## 正文
 
-发布时间：2026年04月09日 08:17 来源：央视新闻客户端 责任编辑：【王祎】
+中新社多伦多6月12日电 当地时间12日在多伦多进行的美加墨世界杯加拿大赛区揭幕战中，东道主加拿大队凭借拉林的进球，1:1扳平波黑队，斩获队史世界杯赛场的首个积分。
+
+加拿大开幕式和揭幕战的举办地是坐落于安大略湖畔的多伦多体育场，这也是加拿大首座专业足球场。
+
+开幕式以“马赛克拼贴画”为核心创意，融入本土音乐与艺术，展现多元包容的北美风情。
+
+但开幕式的主题秀却出现尴尬情况，“马赛克”大力神杯装置亮相时发生了故障。
+
+随后，加拿大队与波黑队打响B组揭幕战。
+
+本届世界杯B组由加拿大、瑞士、波黑和卡塔尔四队组成。
+
+虽无传统豪门，但球队各有亮点，让对战充满变数。
+
+这是加拿大队的第三次世界杯之旅，此役全力冲击队史首胜；波黑队时隔12年重返世界杯，力图延续在世预赛连克威尔士、意大利的黑马奇迹。
 
 ## 相关推荐
 
-- 2026-06-30 03:29 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 03:29 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-30 03:31 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 03:35 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 03:17 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 03:09 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 03:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 03:26 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 03:18 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 03:35 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 03:19 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 03:24 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 03:12 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 03:24 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 03:33 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 03:36 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 03:18 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 03:16 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 03:35 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 03:17 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 03:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 03:31 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-30 03:14 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 03:13 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 03:30 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:11 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/90765116408.shtml)
-- 2026-06-30 03:34 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/296326684609.shtml)
-- 2026-06-30 03:20 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/94345.shtml)
-- 2026-06-30 03:11 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/0238851747.shtml)
-- 2026-06-30 03:14 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/7376638.shtml)
-- 2026-06-30 03:26 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/65279124750.shtml)
-- 2026-06-30 03:22 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/20250.shtml)
-- 2026-06-30 03:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/02619380.shtml)
-- 2026-06-30 03:27 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/61029340.shtml)
-- 2026-06-30 03:30 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/10784.shtml)
-- 2026-06-30 03:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/02559380.shtml)
-- 2026-06-30 03:13 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/007915.shtml)
-- 2026-06-30 03:16 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/55505129416.shtml)
-- 2026-06-30 03:21 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/8951231.shtml)
-- 2026-06-30 03:15 - [爱很美味](https://www.blog.minike.top/Article/details/19764.shtml)
+- 2026-06-30 03:39 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/89760749.shtml)
+- 2026-06-30 03:15 - [爱很美味](http://www.share.minike.top/Article/details/371856316158.shtml)
+- 2026-06-30 03:30 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/80253.shtml)
+- 2026-06-30 03:33 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/24882018.shtml)
+- 2026-06-30 03:22 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/42592417987.shtml)
+- 2026-06-30 03:23 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/1630878.shtml)
+- 2026-06-30 03:24 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/578861.shtml)
+- 2026-06-30 03:39 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/43866147935.shtml)
+- 2026-06-30 03:23 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/04860485.shtml)
+- 2026-06-30 03:41 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/7801262268.shtml)
+- 2026-06-30 03:17 - [毒液2](http://www.blog.minike.top/Article/details/992565.shtml)
+- 2026-06-30 03:40 - [田曦薇没招了](http://www.share.minike.top/Article/details/17021.shtml)
+- 2026-06-30 03:35 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/16478517.shtml)
+- 2026-06-30 03:30 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/486935.shtml)
+- 2026-06-30 03:21 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/96857.shtml)

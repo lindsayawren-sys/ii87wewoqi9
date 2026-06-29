@@ -1,58 +1,61 @@
-# 万国邮联首评世界最佳邮票 中国邮票摘得桂冠
+# 新任澳门经济财政司司长吴惠娴：将致力提升澳门经济韧性
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-中新社北京4月9日电 据中国邮政9日消息，2025年世界最佳邮票评选结果近日揭晓。中国邮政发行的《世界文化遗产——北京中轴线》特种邮票第5枚《钟鼓楼》摘得“2025年世界最佳邮票”桂冠和“最佳混合印刷邮票”类别第1名。 该评选由万国邮政联盟、世界集邮发展协会、南非集邮联合会共同举办。万国邮政联盟于2025年首次在全球范围推出世界最佳邮票评选活动，来自该联盟66个成员国家(地区)
+中新社澳门6月15日电 依照《中华人民共和国澳门特别行政区基本法》的有关规定，根据澳门特别行政区行政长官岑浩辉的提名，国务院2026年6月10日决定：任命吴惠娴(女)为经济财政司司长。岑浩辉15日在澳门特区政府总部主持吴惠娴的宣誓就职仪式。宣誓就职仪式当日9时30分举行。奏唱国歌后，在行政长官监誓下，吴惠娴根据《就职宣誓法》规定宣读誓词，宣誓就职。 吴惠娴表示，她和团队在行政长
 
 ## 正文
 
-中新社北京4月9日电 据中国邮政9日消息，2025年世界最佳邮票评选结果近日揭晓。
+中新社澳门6月15日电 依照《中华人民共和国澳门特别行政区基本法》的有关规定，根据澳门特别行政区行政长官岑浩辉的提名，国务院2026年6月10日决定：任命吴惠娴(女)为经济财政司司长。
 
-中国邮政发行的《世界文化遗产——北京中轴线》特种邮票第5枚《钟鼓楼》摘得“2025年世界最佳邮票”桂冠和“最佳混合印刷邮票”类别第1名。
+岑浩辉15日在澳门特区政府总部主持吴惠娴的宣誓就职仪式。
 
-该评选由万国邮政联盟、世界集邮发展协会、南非集邮联合会共同举办。
+宣誓就职仪式当日9时30分举行。
 
-万国邮政联盟于2025年首次在全球范围推出世界最佳邮票评选活动，来自该联盟66个成员国家(地区)以及联合国邮局的共计195枚邮票(纪念张)参加评选。
+奏唱国歌后，在行政长官监誓下，吴惠娴根据《就职宣誓法》规定宣读誓词，宣誓就职。
 
-评选活动设立“最佳创新邮票”“最佳纪念张”“最佳凹版印刷邮票”“最佳胶版印刷邮票”和“最佳混合印刷邮票”5个类别，每个类别分别评出前3名。
+吴惠娴表示，她和团队在行政长官的带领下，将继续秉持“奋发同行、持正革新”的理念，以解决问题为导向，全力落实各项工作，完成各项施政目标。
 
-国际评审团由世界集邮发展协会指定的学术专家、设计艺术家和国际集邮联合会认可的集邮评审员组成，在每个类别的获奖邮票(纪念张)中最终选出1枚“世界最佳邮票”。
+“我们将积极推动及落实经济适度多元发展，致力提升澳门经济的韧性，同时积极对接国家‘十五五’规划，执行特区政府正筹划的第三个五年规划工作”。
 
-(完)
+澳门特区政府公布的资料显示，吴惠娴1999年进入公职，于劳工事务局担任高级技术员职务。
+
+2020年6月起，先后担任行政公职局副局长、局长。
 
 ## 相关推荐
 
-- 2026-06-30 03:16 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 03:06 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 03:31 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 03:21 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 03:23 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 03:30 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 03:33 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 03:28 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-30 03:19 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 03:31 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 03:07 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 03:34 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 03:06 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-30 03:23 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 03:16 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 03:40 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 03:12 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 03:12 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 03:30 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 03:12 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 03:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 03:39 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-30 03:30 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 03:31 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 03:21 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 03:14 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 03:38 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 03:35 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 03:30 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:29 - [女心理师](https://www.blog.kurohicncr.top/Article/details/9189207360.shtml)
-- 2026-06-30 03:11 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/5127374.shtml)
-- 2026-06-30 03:11 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/143299.shtml)
-- 2026-06-30 03:22 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/6004508100.shtml)
-- 2026-06-30 03:16 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/28917959557.shtml)
-- 2026-06-30 03:16 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/32978787.shtml)
-- 2026-06-30 03:06 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/6645327813.shtml)
-- 2026-06-30 03:06 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/90616.shtml)
-- 2026-06-30 03:22 - [日本领先巴西](http://www.blog.minike.top/Article/details/65770.shtml)
-- 2026-06-30 03:07 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/760757780.shtml)
-- 2026-06-30 03:23 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/40971548633.shtml)
-- 2026-06-30 03:10 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/134879789700.shtml)
-- 2026-06-30 03:23 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/567261.shtml)
-- 2026-06-30 03:32 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/8257959897.shtml)
-- 2026-06-30 03:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/462362.shtml)
+- 2026-06-30 03:41 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/26841.shtml)
+- 2026-06-30 03:24 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/23868039176.shtml)
+- 2026-06-30 03:26 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/67144799405.shtml)
+- 2026-06-30 03:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/23192990.shtml)
+- 2026-06-30 03:14 - [月亮](https://www.blog.kurohicncr.top/Article/details/7409545855.shtml)
+- 2026-06-30 03:21 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/93711192.shtml)
+- 2026-06-30 03:32 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/874496411844.shtml)
+- 2026-06-30 03:23 - [85花告别古偶](http://www.blog.minike.top/Article/details/6994999563.shtml)
+- 2026-06-30 03:31 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/725425.shtml)
+- 2026-06-30 03:37 - [极限挑战第一季](http://www.share.minike.top/Article/details/89423562949.shtml)
+- 2026-06-30 03:20 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/57395295.shtml)
+- 2026-06-30 03:41 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/405684965174.shtml)
+- 2026-06-30 03:25 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/16971374.shtml)
+- 2026-06-30 03:31 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/259653556991.shtml)
+- 2026-06-30 03:27 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/2830989556.shtml)

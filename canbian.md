@@ -1,61 +1,57 @@
-# 酒价内参4月9日价格发布，水晶剑南春保持不变
+# 启境汽车刘嘉铭：汽车智能化已经从“有没有”到“优不优”，国内供应链天时地利人和
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月9日延续回调走势。如果主要单品各取一瓶整体打包售卖，今日总售价为9924元，较昨日下跌9元，创下近13天以来新低。市场涨跌分化特征延续，价格在低位区间反复波动，短期仍以震荡整理为主。 今日白酒市场11大单品四涨五跌二平。上涨方面，洋河梦之蓝M6+上涨6元/瓶，渠道补货带动价格修复；青花汾20
+专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，启境汽车CEO刘嘉铭出席并演讲。 刘嘉铭表示，汽车智能化的下半场已经吹响明哨，无论是大模型、高算力芯片还是新的电子电气架构，都已经开始上车。经过这几年的发展，行业已经从“有没有”进入到“优不优”的阶段，同时，消费者对座舱和辅助驾驶的要求也同样从“有没有”升级到“优不优”。 他
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月9日延续回调走势。
+专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，启境汽车CEO刘嘉铭出席并演讲。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9924元，较昨日下跌9元，创下近13天以来新低。
+刘嘉铭表示，汽车智能化的下半场已经吹响明哨，无论是大模型、高算力芯片还是新的电子电气架构，都已经开始上车。
 
-市场涨跌分化特征延续，价格在低位区间反复波动，短期仍以震荡整理为主。
+经过这几年的发展，行业已经从“有没有”进入到“优不优”的阶段，同时，消费者对座舱和辅助驾驶的要求也同样从“有没有”升级到“优不优”。
 
-今日白酒市场11大单品四涨五跌二平。
+他回顾了自己从1998年毕业至今的经历，从4S店到主机厂到集团机关，经历了行业的多个周期。
 
-上涨方面，洋河梦之蓝M6+上涨6元/瓶，渠道补货带动价格修复；青花汾20上涨4元/瓶；五粮液普五八代上涨3元/瓶；习酒君品上涨2元/瓶。
+他坦言，新能源和智能化技术对汽车本身提出了新的思考和课题。
 
-下跌方面，青花郎跌幅居前，下调7元/瓶，连续第二天自高位回探；精品茅台下跌6元/瓶；飞天茅台与国窖1573均下跌4元/瓶；古井贡古20下跌3元/瓶。
+在产业和技术的拉动下，汽车正发生着与以往完全不同的变化。
 
-五粮液1618及水晶剑南春价格环比保持不变。
+他认为，面向智能化的下半场，中国拥有完整的汽车供应链体系，再加上多年自主发展积累的工程能力和制造能力，以及互联网企业推动下的汽车智能化发展，可以说是天时、地利、人和正融合成一个时间机会窗口。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+对行业来说，汽车已经从价格战转向价值战，而价值更多体现为新技术在汽车领域应用中产生的新价值。
 
 ## 相关推荐
 
-- 2026-06-30 03:29 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 03:19 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 03:06 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 03:16 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 03:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 03:20 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 03:34 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 03:35 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 03:18 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 03:12 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 03:33 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 03:13 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 03:34 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 03:17 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 03:11 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 03:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 03:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 03:20 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 03:27 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 03:25 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 03:33 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 03:41 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 03:21 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 03:38 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 03:16 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 03:16 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:15 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/54687.shtml)
-- 2026-06-30 03:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/842915191964.shtml)
-- 2026-06-30 03:08 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/50525971.shtml)
-- 2026-06-30 03:11 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/838384292382.shtml)
-- 2026-06-30 03:06 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/3576436.shtml)
-- 2026-06-30 03:16 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/3576197.shtml)
-- 2026-06-30 03:07 - [我们的少年时代2](https://www.share.minike.top/Article/details/094301514605.shtml)
-- 2026-06-30 03:10 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/4276908585.shtml)
-- 2026-06-30 03:31 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/609350962938.shtml)
-- 2026-06-30 03:15 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/259919355.shtml)
-- 2026-06-30 03:08 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/972790489588.shtml)
-- 2026-06-30 03:27 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/2858371666.shtml)
-- 2026-06-30 03:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/71903306714.shtml)
-- 2026-06-30 03:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/3727822.shtml)
-- 2026-06-30 03:28 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/30178652.shtml)
+- 2026-06-30 03:19 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/28804341191.shtml)
+- 2026-06-30 03:19 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/98696279034.shtml)
+- 2026-06-30 03:29 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/084153.shtml)
+- 2026-06-30 03:36 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/58768404079.shtml)
+- 2026-06-30 03:38 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/78069319746.shtml)
+- 2026-06-30 03:24 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/1522096348.shtml)
+- 2026-06-30 03:39 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/50742184.shtml)
+- 2026-06-30 03:16 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/0558452168.shtml)
+- 2026-06-30 03:37 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/41020.shtml)
+- 2026-06-30 03:35 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/68561060880.shtml)
+- 2026-06-30 03:28 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/50869.shtml)
+- 2026-06-30 03:13 - [小娘惹](https://www.blog.minike.top/Article/details/6415617574.shtml)
+- 2026-06-30 03:19 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/930272033846.shtml)
+- 2026-06-30 03:20 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/691196939.shtml)
+- 2026-06-30 03:27 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/016195197209.shtml)

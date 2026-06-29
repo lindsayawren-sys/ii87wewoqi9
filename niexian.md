@@ -1,59 +1,56 @@
-# 先甩锅再道歉？海河牛奶直播间涉黄，主播做不雅动作，董事长曾放话：好喝比健康重要
+# 宁夏固原启动高标准农田建设专项巡察 紧盯六大领域整治突出问题
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文|《BUG》栏目 张俊 头顶“津门老字号”“中华老字号”双光环的海河乳品，翻车了。 近日，有家长向记者反映，某牛奶旗舰店直播间出现涉黄、涉低俗内容。主播言语中多次出现“崩锅”等性暗示黑话，还有不雅动作。 让外界不满的是，海河乳品先是采取了甩锅的态度，声称“不是官方开的店管不了”。眼见质疑声越来越大，官方才
+中新网固原6月12日电 (记者 李佩珊)记者12日从宁夏固原市获悉，固原市正式启动高标准农田建设突出问题专项巡察工作。本轮巡察持续至7月上旬，将对西吉县、彭阳县、原州区开展“推磨式”提级交叉巡察。 据了解，本次专项巡察聚焦资金管理、招投标流程、廉洁从政、工程质量、项目规划、后期管护六大重点内容开展监督检查。巡察组将从严排查项目资金使用乱象，重点整治套取截留、挤占挪用项目资金等违
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网固原6月12日电 (记者 李佩珊)记者12日从宁夏固原市获悉，固原市正式启动高标准农田建设突出问题专项巡察工作。
 
-文|《BUG》栏目 张俊 头顶“津门老字号”“中华老字号”双光环的海河乳品，翻车了。
+本轮巡察持续至7月上旬，将对西吉县、彭阳县、原州区开展“推磨式”提级交叉巡察。
 
-近日，有家长向记者反映，某牛奶旗舰店直播间出现涉黄、涉低俗内容。
+据了解，本次专项巡察聚焦资金管理、招投标流程、廉洁从政、工程质量、项目规划、后期管护六大重点内容开展监督检查。
 
-主播言语中多次出现“崩锅”等性暗示黑话，还有不雅动作。
+巡察组将从严排查项目资金使用乱象，重点整治套取截留、挤占挪用项目资金等违规行为，健全资金全流程监管机制。
 
-让外界不满的是，海河乳品先是采取了甩锅的态度，声称“不是官方开的店管不了”。
+针对工程招投标环节，当地依托大数据监督手段，严查围标串标、层层转包、暗箱操作、虚假评标等问题，对高频中标企业、项目集中村镇加大核查力度。
 
-眼见质疑声越来越大，官方才于今日公开道歉。
+同时，本轮巡察紧盯权力运行关键环节，深挖领导干部违规插手工程项目、利益输送、吃拿卡要、内外勾结套取项目资金等违纪违法问题。
 
-目前，海河牛奶旗舰店橱窗中的商品处于下架状态，但账号运营主体还未变更，账号此前发布的涉事主播的视频内容均已删除；另外，该涉事主播还一度公开露面发声承认错误，但目前该主播的账号已经处于私密状态。
+针对2019年以来建成的高标准农田项目，巡察人员将逐田块、逐设施开展全面排查，纠治工程质量不达标、监理履职缺位、虚假验收、“带病”验收等突出问题，从严守牢工程质量底线。
 
-无独有偶。
+此外，巡察着力整治履职不力、作风不实等问题，重点查处项目规划脱离实际、配套设施不完善、拖欠工程款、虚报建设面积、重建轻管、农田撂荒等不作为、乱作为现象，督促属地扎实推进农田建设各项任务，推动项目规范落地、按期完成竣工验收。
 
 ## 相关推荐
 
-- 2026-06-30 03:22 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 03:26 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 03:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-30 03:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 03:06 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 03:15 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 03:29 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-30 03:07 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 03:29 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 03:12 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 03:09 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 03:15 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 03:16 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 03:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 03:29 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 03:39 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 03:22 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 03:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 03:19 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 03:20 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 03:39 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 03:19 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 03:31 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:28 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/24480.shtml)
-- 2026-06-30 03:17 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/270594.shtml)
-- 2026-06-30 03:15 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/890242165543.shtml)
-- 2026-06-30 03:19 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/34749.shtml)
-- 2026-06-30 03:17 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/9194250211.shtml)
-- 2026-06-30 03:19 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/412463715.shtml)
-- 2026-06-30 03:11 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/525345421.shtml)
-- 2026-06-30 03:18 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/549713.shtml)
-- 2026-06-30 03:09 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/76369980.shtml)
-- 2026-06-30 03:13 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/384398.shtml)
-- 2026-06-30 03:09 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/55814864.shtml)
-- 2026-06-30 03:09 - [我和我的家乡](http://www.blog.minike.top/Article/details/027470106527.shtml)
-- 2026-06-30 03:06 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/9419406.shtml)
-- 2026-06-30 03:06 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/6546219209.shtml)
-- 2026-06-30 03:10 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/6934032059.shtml)
+- 2026-06-30 03:16 - [日本淘汰](http://www.blog.minike.top/Article/details/512037310526.shtml)
+- 2026-06-30 03:19 - [沙丘](https://www.share.kurohicncr.top/Article/details/7199728462.shtml)
+- 2026-06-30 03:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/785575.shtml)
+- 2026-06-30 03:19 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/4293593.shtml)
+- 2026-06-30 03:15 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/75707677.shtml)
+- 2026-06-30 03:30 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/8141040640.shtml)
+- 2026-06-30 03:12 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/87634.shtml)
+- 2026-06-30 03:29 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/796443.shtml)
+- 2026-06-30 03:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/781982.shtml)
+- 2026-06-30 03:30 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/46703200980.shtml)
+- 2026-06-30 03:31 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/879727494.shtml)
+- 2026-06-30 03:30 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/43517728.shtml)
+- 2026-06-30 03:18 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/24774.shtml)
+- 2026-06-30 03:36 - [日本进球](http://www.blog.minike.top/Article/details/416737.shtml)
+- 2026-06-30 03:31 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/722175.shtml)

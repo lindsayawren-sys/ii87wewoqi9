@@ -1,56 +1,57 @@
-# 4月9日收盘：美股大涨道指涨逾1300点 美伊停火后原油价格暴跌
+# “渔联·全球”第二届东南亚国家渔业合作会议在福州举行
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-北京时间4月9日凌晨，美股周三大幅收高。原油价格暴跌。美伊达成两周临时停火协议，使为期五周并切断了一条全球能源供应关键水道的战争暂时停歇。交易员们开始考虑美联储在年底前降息的可能性。 道指涨1325.46点，涨幅为2.85%，报47909.92点；纳指涨617.15点，涨幅为2.80%，报22635.00点；标普500指数涨165.96点，涨幅为2.51%，报6782.81点。
+中新网福州6月13日电 (叶秋云)“渔联·全球”第二届东南亚国家渔业合作会议12日在福州海峡国际会展中心举行。 本次会议以“数智赋能产业升级，绿色驱动区域合作”为主题，由中国渔业协会、福州市海洋与渔业局联合主办，集美大学协办，中国渔业协会智慧渔业分会承办。会议旨在进一步深化中国与东南亚国家在智慧渔业、深远海养殖、数字化管理等领域的务实合作。 据了解，福州的海洋渔业产业正沿着可持
 
 ## 正文
 
-北京时间4月9日凌晨，美股周三大幅收高。
+中新网福州6月13日电 (叶秋云)“渔联·全球”第二届东南亚国家渔业合作会议12日在福州海峡国际会展中心举行。
 
-原油价格暴跌。
+本次会议以“数智赋能产业升级，绿色驱动区域合作”为主题，由中国渔业协会、福州市海洋与渔业局联合主办，集美大学协办，中国渔业协会智慧渔业分会承办。
 
-美伊达成两周临时停火协议，使为期五周并切断了一条全球能源供应关键水道的战争暂时停歇。
+会议旨在进一步深化中国与东南亚国家在智慧渔业、深远海养殖、数字化管理等领域的务实合作。
 
-交易员们开始考虑美联储在年底前降息的可能性。
+据了解，福州的海洋渔业产业正沿着可持续、高质量的方向不断发展，2025年渔业产值达702.1亿元，连续31年位居全国首位。
 
-道指涨1325.46点，涨幅为2.85%，报47909.92点；纳指涨617.15点，涨幅为2.80%，报22635.00点；标普500指数涨165.96点，涨幅为2.51%，报6782.81点。
+目前，福州持续推进“海上福州”建设，落地“百台万吨”深远海养殖项目，创新接力养殖模式，构建起生态化、可追溯的智慧养殖体系。
 
-在特朗普宣布两周停火决定后，原油价格暴跌。
+在主旨分享环节，海内外专家轮番登台，分享前沿技术、实践成果与发展经验；圆桌讨论环节，越南、泰国及中国国内多位行业专家、企业负责人，围绕数智渔业现有合作成果、技术装备合作机遇、跨境合作挑战、长效合作机制搭建等议题深入交流。
 
-周三西得克萨斯中质原油期货暴跌逾17%，至每桶93.42美元。
+与会嘉宾一致认为，中国与东南亚渔业资源互补、技术互通空间广阔，应依托现有交流平台，加快破解技术输出、装备落地、人才培养与产业链共建等共性难题。
 
-国际基准布伦特原油6月交割合约下跌逾16%，至每桶91.65美元。
+本届会议全程聚焦“数智化、可持续、区域合作”三大关键词，全面展示了当下全球智慧渔业的前沿技术、成熟装备与创新模式，进一步夯实了中国与东南亚各国在渔业领域的合作基础。
 
 ## 相关推荐
 
-- 2026-06-30 03:25 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 03:31 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 03:10 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 03:25 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-30 03:13 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-30 03:19 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 03:11 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 03:26 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 03:31 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 03:14 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 03:27 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 03:27 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 03:29 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 03:19 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 03:17 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 03:32 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 03:35 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 03:20 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 03:32 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 03:38 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 03:23 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:35 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/33204670.shtml)
-- 2026-06-30 03:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/830355.shtml)
-- 2026-06-30 03:09 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/6733465.shtml)
-- 2026-06-30 03:09 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/45921.shtml)
-- 2026-06-30 03:15 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/427506752655.shtml)
-- 2026-06-30 03:31 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/781231.shtml)
-- 2026-06-30 03:35 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/2010959943.shtml)
-- 2026-06-30 03:23 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/76055.shtml)
-- 2026-06-30 03:26 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/44709502786.shtml)
-- 2026-06-30 03:28 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/309379722219.shtml)
-- 2026-06-30 03:12 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/370496524.shtml)
-- 2026-06-30 03:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/178347556.shtml)
-- 2026-06-30 03:34 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/18272.shtml)
-- 2026-06-30 03:35 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/97331.shtml)
-- 2026-06-30 03:10 - [明星大侦探第四季](http://www.share.minike.top/Article/details/7210927005.shtml)
+- 2026-06-30 03:37 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/406588106.shtml)
+- 2026-06-30 03:24 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/34313775378.shtml)
+- 2026-06-30 03:36 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/78575.shtml)
+- 2026-06-30 03:32 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/766629.shtml)
+- 2026-06-30 03:19 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/7726736347.shtml)
+- 2026-06-30 03:15 - [急先锋](https://www.share.minike.top/Article/details/882432.shtml)
+- 2026-06-30 03:30 - [《贺子珍》](http://www.share.minike.top/Article/details/19087.shtml)
+- 2026-06-30 03:33 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/384886.shtml)
+- 2026-06-30 03:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/956333698572.shtml)
+- 2026-06-30 03:21 - [金刚川](http://www.share.kurohicncr.top/Article/details/5188467956.shtml)
+- 2026-06-30 03:18 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/751855891.shtml)
+- 2026-06-30 03:29 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/98348.shtml)
+- 2026-06-30 03:17 - [日本16强魔咒](https://www.blog.minike.top/Article/details/32230687.shtml)
+- 2026-06-30 03:17 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/23385346.shtml)
+- 2026-06-30 03:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/6882930.shtml)

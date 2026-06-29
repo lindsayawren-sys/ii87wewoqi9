@@ -1,58 +1,60 @@
-# 中东战火，烧向全球“餐桌”
+# 粤港澳大湾区数据特区“来数加工”跨境算力专区启用
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-来源：新消费日报 世界银行、国际货币基金组织（IMF）和联合国世界粮食计划署周三警告称，中东战事引发的石油、天然气和化肥价格急剧上涨，将不可避免地导致食品价格上涨和粮食安全问题加剧。 在一场关于战争的会议后发表的一份联合声明中，上述三个国际机构的负责人表示，沉重负担将主要落在世界最脆弱人群的身上，尤其是那些低收入、依赖进口的经济体中的民众。 这三个国际机构表示，将继续密切关注事
+中新网韶关6月13日电 (记者 张璐 王坚)第五届粤港澳大湾区(广东)算力产业大会12日在韶关举办。会上，粤港澳大湾区数据特区“来数加工”跨境算力专区正式启用，三大应用成果同步发布。 今年1月，韶关集群正式获批“来数加工”试点，跑通跨境数据全链路，迈出“港澳数、湾区算”先行先试关键一步。 据悉，中国联通依托粤港澳大湾区数据特区创新合作中心建设运营经验构建“来数加工”跨境算力专区
 
 ## 正文
 
-来源：新消费日报 世界银行、国际货币基金组织（IMF）和联合国世界粮食计划署周三警告称，中东战事引发的石油、天然气和化肥价格急剧上涨，将不可避免地导致食品价格上涨和粮食安全问题加剧。
+中新网韶关6月13日电 (记者 张璐 王坚)第五届粤港澳大湾区(广东)算力产业大会12日在韶关举办。
 
-在一场关于战争的会议后发表的一份联合声明中，上述三个国际机构的负责人表示，沉重负担将主要落在世界最脆弱人群的身上，尤其是那些低收入、依赖进口的经济体中的民众。
+会上，粤港澳大湾区数据特区“来数加工”跨境算力专区正式启用，三大应用成果同步发布。
 
-这三个国际机构表示，将继续密切关注事态发展，并“协调运用一切可用工具，为受危机影响的人群提供支持”。
+今年1月，韶关集群正式获批“来数加工”试点，跑通跨境数据全链路，迈出“港澳数、湾区算”先行先试关键一步。
 
-“中东战事正在颠覆该地区及更广泛地区民众的生活和生计，已经引发现代史上全球能源市场最大的动荡之一。
+据悉，中国联通依托粤港澳大湾区数据特区创新合作中心建设运营经验构建“来数加工”跨境算力专区(简称“专区”)。
 
-”声明称，石油、天然气和化肥价格急剧上涨，加上运输障碍，将不可避免地导致食品价格上涨和粮食安全问题加剧。
+该专区具备三大特点：一是专线直达，速度又快又稳。
 
-声明指出，燃料价格的飙升以及食品价格潜在的大幅上涨，在那些本就面临财政限制和高额债务负担的国家尤为令人担忧，因为这些因素将限制它们保护脆弱家庭的能力。
+建成韶关到香港的点对点跨境专线，配套来数加工专属网络出口，实现数据极速回传。
 
-三大机构负责人承诺将根据各自职责范围提供支持，并为实现稳健复苏奠定基础。
+二是物理隔离，数据安全合规。
 
-IMF总裁克里斯蒂娜·格奥尔基耶娃周一表示，该组织正在与联合国粮食及农业组织就粮食安全问题进行合作。
+从机房、设备到网络出口100%物理隔离，不跟境内数据混合，安全合规。
 
 ## 相关推荐
 
-- 2026-06-30 03:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 03:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 03:33 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 03:29 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 03:14 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 03:33 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 03:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 03:15 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 03:27 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 03:10 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 03:32 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 03:16 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 03:36 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-30 03:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 03:39 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 03:19 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 03:28 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 03:37 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 03:21 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 03:27 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 03:31 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 03:34 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 03:31 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-30 03:20 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 03:13 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 03:36 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:28 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/636677.shtml)
-- 2026-06-30 03:13 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/63338.shtml)
-- 2026-06-30 03:11 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/029858226.shtml)
-- 2026-06-30 03:22 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/069394.shtml)
-- 2026-06-30 03:23 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/28398095.shtml)
-- 2026-06-30 03:30 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/20091790.shtml)
-- 2026-06-30 03:09 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/53715.shtml)
-- 2026-06-30 03:28 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/0626665.shtml)
-- 2026-06-30 03:15 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/674571378252.shtml)
-- 2026-06-30 03:09 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/1411177.shtml)
-- 2026-06-30 03:31 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/66526.shtml)
-- 2026-06-30 03:06 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/7786626.shtml)
-- 2026-06-30 03:07 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/316233.shtml)
-- 2026-06-30 03:31 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/9795226.shtml)
-- 2026-06-30 03:21 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/54812.shtml)
+- 2026-06-30 03:36 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/0041991.shtml)
+- 2026-06-30 03:41 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/76294653982.shtml)
+- 2026-06-30 03:38 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/22555.shtml)
+- 2026-06-30 03:12 - [日本反击率先破门](http://www.blog.minike.top/Article/details/85973860243.shtml)
+- 2026-06-30 03:26 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/23195038.shtml)
+- 2026-06-30 03:15 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/43891.shtml)
+- 2026-06-30 03:39 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/696553820923.shtml)
+- 2026-06-30 03:33 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/276872344.shtml)
+- 2026-06-30 03:16 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/580471403633.shtml)
+- 2026-06-30 03:33 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/4118532.shtml)
+- 2026-06-30 03:20 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/8791675554.shtml)
+- 2026-06-30 03:33 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/81658.shtml)
+- 2026-06-30 03:14 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/52722.shtml)
+- 2026-06-30 03:32 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/0246712002.shtml)
+- 2026-06-30 03:16 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/09503857103.shtml)

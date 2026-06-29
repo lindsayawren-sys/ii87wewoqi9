@@ -1,60 +1,56 @@
-# 尾盘：美股涨势未减道指上涨1100点 伊朗议会议长称美国违反停火协议
+# 剑指“第一”造假、数据注水！新规如何堵住广告“文字游戏”漏洞？
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-北京时间4月9日凌晨，美股周三尾盘涨势未减，道指上涨1100点。市场密切关注美伊刚刚达成的两周停火协议。伊朗议会议长称美国违反停火协议。 道指涨1157.49点，涨幅为2.48%，报47741.95点；纳指涨558.38点，涨幅为2.54%，报22576.23点；标普500指数涨146.11点，涨幅为2.21%，报6762.96点。 伊朗议会议长穆罕默德·巴盖尔·卡利巴夫周三指
+广告是广大经营主体参与市场竞争的重要手段之一。近年来，部分经营者以明显量身定制的研究报告，甚至是虚假实验数据等作为依据，在广告宣传中进行“萝卜坑式引证”；有的商家使用添加各种定语后的“首创”“第一”等噱头或者口号；还有的在广告中采用“大字吸睛、小字免责”等手段，着力突出商品或服务卖点的同时，显著弱化可能影响消费者购买决策的不利信息。针对此类乱象，市场监管总局日前发布了《广告引证
 
 ## 正文
 
-北京时间4月9日凌晨，美股周三尾盘涨势未减，道指上涨1100点。
+广告是广大经营主体参与市场竞争的重要手段之一。
 
-市场密切关注美伊刚刚达成的两周停火协议。
+近年来，部分经营者以明显量身定制的研究报告，甚至是虚假实验数据等作为依据，在广告宣传中进行“萝卜坑式引证”；有的商家使用添加各种定语后的“首创”“第一”等噱头或者口号；还有的在广告中采用“大字吸睛、小字免责”等手段，着力突出商品或服务卖点的同时，显著弱化可能影响消费者购买决策的不利信息。
 
-伊朗议会议长称美国违反停火协议。
+针对此类乱象，市场监管总局日前发布了《广告引证内容执法指南》，剑指其中的各种乱象。
 
-道指涨1157.49点，涨幅为2.48%，报47741.95点；纳指涨558.38点，涨幅为2.54%，报22576.23点；标普500指数涨146.11点，涨幅为2.21%，报6762.96点。
+新规具体将从哪些方面改善广告市场环境？
 
-伊朗议会议长穆罕默德·巴盖尔·卡利巴夫周三指责美国违反了两周停火协议。
+“某某地区、某某时段、某某品类——销量第一！
 
-卡利巴夫在社交媒体上发布的一份声明中表示：“我们对美国深重的历史不信任源于其一再违反各种形式的承诺——遗憾的是，这种模式再次重演。
+”这样的广告词，你熟悉吗？
 
-” 在此之前，美国总统特朗普4月7日宣布，同意暂停对伊朗的轰炸和袭击两周，前提是伊朗同意“全面、立即且安全地”开放霍尔木兹海峡。
+过去，不少商家以为，在“第一”前面堆上一长串限定词就能绕开监管。
 
-他同时表示，“这将是一次双向停火。
+但这次发布的《广告引证内容执法指南》直接戳破了这种“定语游戏”。
 
 ## 相关推荐
 
-- 2026-06-30 03:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-30 03:32 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 03:18 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 03:32 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 03:14 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 03:10 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 03:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 03:15 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-30 03:07 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 03:28 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-30 03:35 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 03:12 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 03:14 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 03:23 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 03:32 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 03:30 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 03:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 03:17 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 03:36 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 03:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 03:40 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 03:36 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 03:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 03:25 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:33 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/327974874654.shtml)
-- 2026-06-30 03:14 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/170743773481.shtml)
-- 2026-06-30 03:35 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/806858663.shtml)
-- 2026-06-30 03:28 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/84898.shtml)
-- 2026-06-30 03:30 - [恋与深空 日服](http://www.share.minike.top/Article/details/619061178.shtml)
-- 2026-06-30 03:07 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/9631105971.shtml)
-- 2026-06-30 03:10 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/70653446087.shtml)
-- 2026-06-30 03:26 - [金刚川](http://www.share.minike.top/Article/details/29735.shtml)
-- 2026-06-30 03:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/8643438252.shtml)
-- 2026-06-30 03:28 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/505067596.shtml)
-- 2026-06-30 03:22 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/10440702372.shtml)
-- 2026-06-30 03:15 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/72351.shtml)
-- 2026-06-30 03:28 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/770802816029.shtml)
-- 2026-06-30 03:21 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/3296238467.shtml)
-- 2026-06-30 03:21 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/27415224721.shtml)
+- 2026-06-30 03:15 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/265619.shtml)
+- 2026-06-30 03:23 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/948478473.shtml)
+- 2026-06-30 03:31 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/870272047.shtml)
+- 2026-06-30 03:15 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/757710.shtml)
+- 2026-06-30 03:16 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/18212.shtml)
+- 2026-06-30 03:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/24756.shtml)
+- 2026-06-30 03:33 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/7562808.shtml)
+- 2026-06-30 03:22 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/790875.shtml)
+- 2026-06-30 03:34 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/93942876.shtml)
+- 2026-06-30 03:18 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/086454891.shtml)
+- 2026-06-30 03:20 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/524391878.shtml)
+- 2026-06-30 03:39 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/812886130.shtml)
+- 2026-06-30 03:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/3108450524.shtml)
+- 2026-06-30 03:31 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/9268173809.shtml)
+- 2026-06-30 03:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/09399.shtml)

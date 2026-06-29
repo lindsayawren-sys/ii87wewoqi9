@@ -1,51 +1,56 @@
-# 伊朗总统称：停火协议采纳了伊朗的“基本原则”
+# 智界汽车赵长江：预计2035年中国品牌出海将达1500-2000万辆
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-伊朗总统马苏德・佩泽希基扬表示，与美国达成的停火协议采纳了伊朗所 “期望” 的各项基本原则。 他补充称，此次停火得益于前最高领袖阿里・哈梅内伊的牺牲 —— 哈梅内伊在战争首日美以联合打击中身亡 —— 以及伊朗人民的顽强抵抗。 他在 X 平台（原推特）上写道：“从今天起，我们将继续团结一致，无论在外交、国防、街头民生还是公共服务领域。”责任编辑：郭明煜
+专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，智界汽车执行董事及执行副总裁赵长江出席并演讲。 赵长江在演讲中表示，中国汽车过去是大而不强，今天正处在从大到强的攀登路上。我们从规模扩张的时代，进入到高质量发展和全球化布局的时代。在大的环境下，如何跨越这个周期、升级这个周期，非常关键。他从“天时”的产业视角出发，分析了四个方
 
 ## 正文
 
-伊朗总统马苏德・佩泽希基扬表示，与美国达成的停火协议采纳了伊朗所 “期望” 的各项基本原则。
+专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，智界汽车执行董事及执行副总裁赵长江出席并演讲。
 
-他补充称，此次停火得益于前最高领袖阿里・哈梅内伊的牺牲 —— 哈梅内伊在战争首日美以联合打击中身亡 —— 以及伊朗人民的顽强抵抗。
+赵长江在演讲中表示，中国汽车过去是大而不强，今天正处在从大到强的攀登路上。
 
-他在 X 平台（原推特）上写道：“从今天起，我们将继续团结一致，无论在外交、国防、街头民生还是公共服务领域。
+我们从规模扩张的时代，进入到高质量发展和全球化布局的时代。
 
-”责任编辑：郭明煜
+在大的环境下，如何跨越这个周期、升级这个周期，非常关键。
+
+他从“天时”的产业视角出发，分析了四个方面的趋势。
+
+第一，市场结构将正式进入存量市场的下半场。
+
+存量市场的下半场将构建新的消费结构、新的竞争业态和新的消费趋势。
+
+第二，智能化和跨界融合。
 
 ## 相关推荐
 
-- 2026-06-30 03:07 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 03:33 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 03:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 03:21 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 03:19 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-30 03:33 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-30 03:06 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 03:12 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 03:29 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 03:33 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 03:24 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 03:13 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 03:20 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 03:29 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 03:15 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 03:40 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 03:23 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 03:26 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 03:40 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 03:33 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 03:30 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 03:12 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 03:15 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:21 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/916210416.shtml)
-- 2026-06-30 03:14 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/2712202943.shtml)
-- 2026-06-30 03:21 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/2323861.shtml)
-- 2026-06-30 03:11 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/057883427.shtml)
-- 2026-06-30 03:28 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/9710289.shtml)
-- 2026-06-30 03:08 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/1234077895.shtml)
-- 2026-06-30 03:14 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/64488.shtml)
-- 2026-06-30 03:18 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/74556903.shtml)
-- 2026-06-30 03:32 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/34835535.shtml)
-- 2026-06-30 03:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/911259.shtml)
-- 2026-06-30 03:17 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/946394722980.shtml)
-- 2026-06-30 03:33 - [日本进球](https://www.share.kurohicncr.top/Article/details/062585.shtml)
-- 2026-06-30 03:32 - [日本反击率先破门](http://www.share.minike.top/Article/details/84651.shtml)
-- 2026-06-30 03:08 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/734701.shtml)
-- 2026-06-30 03:23 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/9518691.shtml)
+- 2026-06-30 03:19 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/674877938970.shtml)
+- 2026-06-30 03:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/4281326.shtml)
+- 2026-06-30 03:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/66551420242.shtml)
+- 2026-06-30 03:15 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/47690.shtml)
+- 2026-06-30 03:25 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/344262365.shtml)
+- 2026-06-30 03:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/963300247763.shtml)
+- 2026-06-30 03:36 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/73711.shtml)
+- 2026-06-30 03:20 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/8501719.shtml)
+- 2026-06-30 03:14 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/83429626.shtml)
+- 2026-06-30 03:28 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/92433.shtml)
+- 2026-06-30 03:21 - [巴西扳平比分](https://www.share.minike.top/Article/details/659099673869.shtml)
+- 2026-06-30 03:15 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/541528.shtml)
+- 2026-06-30 03:14 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/5287194721.shtml)
+- 2026-06-30 03:33 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/013187512.shtml)
+- 2026-06-30 03:16 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/39463252261.shtml)

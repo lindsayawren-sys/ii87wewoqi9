@@ -1,60 +1,46 @@
-# 澳柯玛2.53亿元全资控股智慧产业公司，股权变更手续办结
+# 超燃！直击武警爆破训练现场
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-泰山财经记者 李伟强泰山财经记者获悉，4月9日，澳柯玛（600336）发布公告披露，公司已完成对控股子公司青岛澳柯玛智慧产业有限公司（简称“智慧产业公司”）45%少数股权的变更登记手续，后续，公司将依据该协议约定履行剩余股权转让价款支付手续。公告显示，此次收购事项于2026年2月26日经公司九届二十一次董事会审议通过，公司以2.53亿元的价格，收购青岛京山轻机投资有限公司持有的
+发布时间：2026年06月15日 13:39 来源：中国新闻网 深山密林硝烟四起，武警官兵有序完成装药布设、线路检查，按指挥完成实爆作业。紧贴实战开展破障实训，锤炼应急排险能力，磨砺敢打善战的攻坚素养。(作者：张金涛 闫兴聪 张凯 相泽鲲) 责任编辑：【魏聪聪】
 
 ## 正文
 
-泰山财经记者 李伟强泰山财经记者获悉，4月9日，澳柯玛（600336）发布公告披露，公司已完成对控股子公司青岛澳柯玛智慧产业有限公司（简称“智慧产业公司”）45%少数股权的变更登记手续，后续，公司将依据该协议约定履行剩余股权转让价款支付手续。
+发布时间：2026年06月15日 13:39 来源：中国新闻网 深山密林硝烟四起，武警官兵有序完成装药布设、线路检查，按指挥完成实爆作业。
 
-公告显示，此次收购事项于2026年2月26日经公司九届二十一次董事会审议通过，公司以2.53亿元的价格，收购青岛京山轻机投资有限公司持有的智慧产业公司45%股权。
+紧贴实战开展破障实训，锤炼应急排险能力，磨砺敢打善战的攻坚素养。
 
-值得一提的是，本次股权转让采用分期付款方式，首期付款9500万元，于合同生效次日起7个工作日内支付；第二期付款3500万元，于合同生效次日起30个工作日内支付。
-
-截至2026年4月8日，澳柯玛已按协议约定支付前两期款项，并完成股权变更登记。
-
-剩余款项将在2027年内支付完毕。
-
-公开资料显示，智慧产业公司成立于2024年6月，系由青岛澳柯玛信息产业园有限公司派生分立设立，主营人工智能应用软件开发、人工智能硬件销售。
-
-公司核心资产为青岛市崂山区崂山智慧产业园房地产，主要收入来源于物业租赁。
-
-财务数据显示，截至2025年12月2日，智慧产业公司净资产为3.03亿元，较2024年末的3.02亿元小幅增长。
+(作者：张金涛 闫兴聪 张凯 相泽鲲) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 03:13 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 03:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-30 03:33 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 03:07 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 03:21 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 03:22 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-30 03:30 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 03:08 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 03:12 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 03:16 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 03:06 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 03:08 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 03:25 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-30 03:15 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 03:31 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 03:39 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 03:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 03:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 03:40 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 03:25 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-30 03:40 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 03:23 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 03:29 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 03:32 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:31 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/04388740.shtml)
-- 2026-06-30 03:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/96002624.shtml)
-- 2026-06-30 03:17 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/7871629720.shtml)
-- 2026-06-30 03:23 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/5961693.shtml)
-- 2026-06-30 03:17 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/99066392.shtml)
-- 2026-06-30 03:12 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/304643063.shtml)
-- 2026-06-30 03:29 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/03048390601.shtml)
-- 2026-06-30 03:16 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/7678705126.shtml)
-- 2026-06-30 03:30 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/85645091.shtml)
-- 2026-06-30 03:20 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/874036749765.shtml)
-- 2026-06-30 03:12 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/3246136683.shtml)
-- 2026-06-30 03:14 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/6767210364.shtml)
-- 2026-06-30 03:35 - [金刚川](http://www.blog.minike.top/Article/details/3441763.shtml)
-- 2026-06-30 03:27 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/01186.shtml)
-- 2026-06-30 03:27 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/94295.shtml)
+- 2026-06-30 03:13 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/189098129373.shtml)
+- 2026-06-30 03:25 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/64921043297.shtml)
+- 2026-06-30 03:29 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/759643674.shtml)
+- 2026-06-30 03:30 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/15565.shtml)
+- 2026-06-30 03:31 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/28143407.shtml)
+- 2026-06-30 03:24 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/878217.shtml)
+- 2026-06-30 03:25 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/562673.shtml)
+- 2026-06-30 03:22 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/6850316382.shtml)
+- 2026-06-30 03:27 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/95548.shtml)
+- 2026-06-30 03:34 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/04129.shtml)
+- 2026-06-30 03:34 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/99817.shtml)
+- 2026-06-30 03:35 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/588410383.shtml)
+- 2026-06-30 03:31 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/130785.shtml)
+- 2026-06-30 03:25 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/0174226.shtml)
+- 2026-06-30 03:27 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/8583797.shtml)

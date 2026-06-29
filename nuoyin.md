@@ -1,60 +1,58 @@
-# 震荡市如何“稳”字当头？不妨关注长城增强收益定开债基
+# 美伊达成和平协议！油价大跌超4%，黄金、白银等全线上涨
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 当前市场震荡加剧，中东局势、油价波动等因素令市场避险情绪显著升温，兼顾稳健与弹性的一级债基成为配置热点。长城基金旗下长城增强收益定期开放债券基金（A类：000254；C类：000255）于3月31日起启动开放申购，或是当前震荡市投资者们追求“稳中有进”的投资优选。（开放情况请以公司公告为准） Wind数据显示，今年以来截至3月2
+北京时间6月15日，国际油价直线大跌，黄金、白银、美股指期货市场全线上涨。 截至发稿，WTI原油日内跌超4%，现报81.21美元/桶。现货黄金报4295.15美元/盎司，日内涨1.82%。纽约期金日内涨1%，现报4294.12美元/盎司。现货白银日内涨2.43%，现报69.628美元/盎司。道指、纳指期货涨幅均超300点。 据新华社消息，美国总统特朗普14日在社交媒体发文说，美
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 当前市场震荡加剧，中东局势、油价波动等因素令市场避险情绪显著升温，兼顾稳健与弹性的一级债基成为配置热点。
+北京时间6月15日，国际油价直线大跌，黄金、白银、美股指期货市场全线上涨。
 
-长城基金旗下长城增强收益定期开放债券基金（A类：000254；C类：000255）于3月31日起启动开放申购，或是当前震荡市投资者们追求“稳中有进”的投资优选。
+截至发稿，WTI原油日内跌超4%，现报81.21美元/桶。
 
-（开放情况请以公司公告为准） Wind数据显示，今年以来截至3月27日，万得混合债券型一级指数表现较为突出，年内涨幅0.80%，显著优于同期万得混合债券型二级指数、万得偏债混合型基金指数。
+现货黄金报4295.15美元/盎司，日内涨1.82%。
 
-放眼更长时间维度看，过去十年间，万得混合债券型一级指数只有在2022年因为极端股债双杀收益为负，其他年份都收获了正收益。
+纽约期金日内涨1%，现报4294.12美元/盎司。
 
-（数据来源：Wind，截至2026.3.27，一级债基指数指万得混合债券型一级指数（885006.WI），指数过往表现不代表未来，不等于产品实际收益，市场有风险，投资需谨慎） 如此来看，一级债基或正适配震荡市投资者们“稳字当头”的配置需求。
+现货白银日内涨2.43%，现报69.628美元/盎司。
 
-当前，长城增强收益定期开放债券基金正处于开放申购期。
+道指、纳指期货涨幅均超300点。
 
-该基金以定期开放形式运作，设置一年封闭期。
+据新华社消息，美国总统特朗普14日在社交媒体发文说，美伊协议“现在完成”，将开放霍尔木兹海峡。
 
-作为一级债基，在转债策略上，该基金以信用风险控制为基础，优选低价“黑马”转债进行配置，利用上涨下跌不对称性，力争在严控回撤的前提下获取收益弹性。
+特朗普称，他正式批准开放霍尔木兹海峡，无需缴纳通行费，同时下令立即解除美国海军对伊朗港港口的海上封锁。
 
 ## 相关推荐
 
-- 2026-06-30 03:27 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 03:21 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 03:18 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 03:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 03:33 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 03:25 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 03:32 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 03:31 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 03:28 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 03:06 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 03:23 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 03:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 03:23 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 03:15 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 03:36 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 03:16 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 03:20 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 03:39 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 03:18 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 03:33 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 03:32 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 03:14 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 03:34 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 03:21 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 03:40 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 03:13 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:06 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/0426780333.shtml)
-- 2026-06-30 03:13 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/977353609922.shtml)
-- 2026-06-30 03:14 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/4944203812.shtml)
-- 2026-06-30 03:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/610500.shtml)
-- 2026-06-30 03:08 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/257659.shtml)
-- 2026-06-30 03:29 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/9179772557.shtml)
-- 2026-06-30 03:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/10713860.shtml)
-- 2026-06-30 03:18 - [千香](http://www.blog.kurohicncr.top/Article/details/625048593034.shtml)
-- 2026-06-30 03:16 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/2122638852.shtml)
-- 2026-06-30 03:35 - [女心理师](http://www.share.minike.top/Article/details/81830.shtml)
-- 2026-06-30 03:32 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/10648422152.shtml)
-- 2026-06-30 03:15 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/922480137.shtml)
-- 2026-06-30 03:35 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/57254558.shtml)
-- 2026-06-30 03:26 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/76908733.shtml)
-- 2026-06-30 03:21 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/4111065.shtml)
+- 2026-06-30 03:22 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/9348710676.shtml)
+- 2026-06-30 03:18 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/26022.shtml)
+- 2026-06-30 03:13 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/40405750315.shtml)
+- 2026-06-30 03:37 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/78827.shtml)
+- 2026-06-30 03:13 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/659779088.shtml)
+- 2026-06-30 03:34 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/53748323.shtml)
+- 2026-06-30 03:38 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/097146882.shtml)
+- 2026-06-30 03:39 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/902312516.shtml)
+- 2026-06-30 03:34 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/1688301.shtml)
+- 2026-06-30 03:19 - [沉睡花园](https://www.share.minike.top/Article/details/91298668.shtml)
+- 2026-06-30 03:24 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/04737978.shtml)
+- 2026-06-30 03:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/7266587223.shtml)
+- 2026-06-30 03:29 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/63715322.shtml)
+- 2026-06-30 03:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/01565114101.shtml)
+- 2026-06-30 03:16 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/837052.shtml)

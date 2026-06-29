@@ -1,60 +1,59 @@
-# 莱宝高科定增，机遇背后的三重隐忧
+# 盱眙龙虾节精彩启幕 美食文旅融合激活夜间消费
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【导读】莱宝高科定增，机遇背后的三重隐忧 见习记者 刘墨 在新型显示技术赛道的激烈角逐中，莱宝高科（002106）的微腔电子纸显示器件（MED）项目被寄予厚望，被视为公司突破发展瓶颈、抢占新兴市场的关键布局。4月4日，该公司正式发布定增预案，拟募资25亿元，
+发布时间：2026年06月15日 07:56 来源：中国新闻网 眼下正值小龙虾消费旺季。近日，第26届盱眙龙虾节欢乐龙虾宴开启。当地以虾为媒，融合特色美食、潮流演艺与文旅休闲项目，丰富夜间消费业态，持续释放消费活力。在盱眙龙虾广场，千余桌整齐摆放，全国各地游客齐聚一堂。十三香、蒜泥、麻辣、冰镇等多款口味小龙虾鲜香诱人。 围绕小龙虾主题，当地打造“龙虾+音乐”“龙虾+足球”等特色
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年06月15日 07:56 来源：中国新闻网 眼下正值小龙虾消费旺季。
 
-【导读】莱宝高科定增，机遇背后的三重隐忧 见习记者 刘墨 在新型显示技术赛道的激烈角逐中，莱宝高科（002106）的微腔电子纸显示器件（MED）项目被寄予厚望，被视为公司突破发展瓶颈、抢占新兴市场的关键布局。
+近日，第26届盱眙龙虾节欢乐龙虾宴开启。
 
-4月4日，该公司正式发布定增预案，拟募资25亿元，投向MED项目建设及补充流动资金，看似为这一新兴业务注入强劲动力。
+当地以虾为媒，融合特色美食、潮流演艺与文旅休闲项目，丰富夜间消费业态，持续释放消费活力。
 
-然而，中国基金报记者深入梳理MED项目推进细节后发现，表象之下，技术授权模糊、财务压力高企、供应链稳定性存疑三大隐忧已逐渐浮出水面，为这一承载着公司转型希望的新兴业务，带来了难以忽视的不确定性。
+在盱眙龙虾广场，千余桌整齐摆放，全国各地游客齐聚一堂。
 
-核心合作信息披露缺位 在此次定增预案中，莱宝高科对MED项目的技术优势多有阐述，明确该项目采用公司自主及合作开发的微电腔显示（MED）技术，作为一种全新的电子纸显示技术，其具有双稳态（显示静态画面不耗电，仅在切换画面瞬间耗电）、纯反射、全彩色化电子纸等显著优势，产品主要定位于全球中大尺寸彩色电子纸市场，瞄准了潜力巨大的新兴赛道。
+十三香、蒜泥、麻辣、冰镇等多款口味小龙虾鲜香诱人。
 
-但蹊跷的是，对于技术合作开发的具体来源，预案中却只字未提，信息披露的完整性大打折扣。
+围绕小龙虾主题，当地打造“龙虾+音乐”“龙虾+足球”等特色内容，拉动夜间文旅消费。
 
-事实上，回溯莱宝高科2023年10月21日发布的拟与地方政府合作投资MED项目的公告可知，该公司早在2023年便已获得无锡威峰科技股份有限公司关于微电腔显示（MED）专利和专有技术的20年长期授权许可，同时还获得了电浆材料的长期供应保障。
+同时当地推出票根经济，游客凭活动门票可免费游玩多家景区，并享受餐饮、住宿相关优惠，延伸文旅消费产业链。
 
-此外，莱宝高科于2023年6月出资3600万元参与威峰公司增资，成功获得其1.935%的股权，双方的绑定关系十分紧密。
+(记者 葛勇 江苏盱眙报道 视频来源 淮安台 盱眙台） 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-30 03:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 03:14 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 03:19 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 03:07 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 03:27 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 03:29 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 03:19 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 03:15 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 03:16 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 03:22 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 03:32 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 03:08 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 03:27 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 03:15 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 03:33 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 03:41 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 03:40 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 03:39 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 03:12 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 03:14 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 03:18 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 03:16 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 03:29 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 03:35 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 03:40 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 03:15 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 03:15 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:13 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/96254134574.shtml)
-- 2026-06-30 03:15 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/02232.shtml)
-- 2026-06-30 03:34 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/909615236.shtml)
-- 2026-06-30 03:21 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/61659.shtml)
-- 2026-06-30 03:10 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/95238223.shtml)
-- 2026-06-30 03:07 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/05773901249.shtml)
-- 2026-06-30 03:13 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/273826951.shtml)
-- 2026-06-30 03:18 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/9154646317.shtml)
-- 2026-06-30 03:07 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/982382.shtml)
-- 2026-06-30 03:34 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/7832547281.shtml)
-- 2026-06-30 03:24 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/74519.shtml)
-- 2026-06-30 03:22 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/509642213.shtml)
-- 2026-06-30 03:30 - [日本淘汰](http://www.blog.minike.top/Article/details/0945415075.shtml)
-- 2026-06-30 03:10 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/1359931.shtml)
-- 2026-06-30 03:14 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/257663730354.shtml)
+- 2026-06-30 03:25 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/24381514093.shtml)
+- 2026-06-30 03:23 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/17367787.shtml)
+- 2026-06-30 03:20 - [乔家的儿女](http://www.share.minike.top/Article/details/11452.shtml)
+- 2026-06-30 03:40 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/60629.shtml)
+- 2026-06-30 03:39 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/9747542532.shtml)
+- 2026-06-30 03:16 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/554077186.shtml)
+- 2026-06-30 03:34 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/21904129141.shtml)
+- 2026-06-30 03:34 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/749172.shtml)
+- 2026-06-30 03:33 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/1209345.shtml)
+- 2026-06-30 03:40 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/34253073.shtml)
+- 2026-06-30 03:21 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/81777032982.shtml)
+- 2026-06-30 03:33 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/4765728210.shtml)
+- 2026-06-30 03:12 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/9466530842.shtml)
+- 2026-06-30 03:28 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/63092.shtml)
+- 2026-06-30 03:20 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/217980044.shtml)

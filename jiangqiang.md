@@ -1,54 +1,61 @@
-# 西班牙谴责以色列对黎巴嫩的袭击，并重新开放驻德黑兰大使馆
+# “2026中意文化对话行”走进佛罗伦萨 海派文化绽放文艺复兴发源地
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-西班牙外交大臣何塞・曼努埃尔・阿尔巴雷斯周四指责以色列周三对黎巴嫩发动空袭，违反了国际法以及新近达成的中东两周停火协议。 西班牙已成为西方国家中对美国和以色列在伊朗与黎巴嫩的行动发声最强烈的批评者之一，西班牙对任何参与此次战争的飞机关闭领空，并称此次战争是鲁莽且非法的。 阿尔巴雷斯在下议院对议员们表示：“昨天我们看到，以色列无视停火协议、违反国际法，向黎巴嫩投掷了数百枚炸弹。”
+中新网佛罗伦萨6月14日电(记者 樊中华)当地时间6月12日下午，“2026中意文化对话行”活动走进佛罗伦萨，在塞斯托-菲奥伦蒂诺(Sesto Fiorentino)市政厅举办中意文化与产业交流座谈会。中国驻佛罗伦萨总领馆副总领事、当地政府官员、在意华侨企业家与来自中国的文化使者和企业家们进行了深入交流。 意大利中华炎黄文化研究会会长何建爵致辞表示，文化是中意双方联通彼此心灵、
 
 ## 正文
 
-西班牙外交大臣何塞・曼努埃尔・阿尔巴雷斯周四指责以色列周三对黎巴嫩发动空袭，违反了国际法以及新近达成的中东两周停火协议。
+中新网佛罗伦萨6月14日电(记者 樊中华)当地时间6月12日下午，“2026中意文化对话行”活动走进佛罗伦萨，在塞斯托-菲奥伦蒂诺(Sesto Fiorentino)市政厅举办中意文化与产业交流座谈会。
 
-西班牙已成为西方国家中对美国和以色列在伊朗与黎巴嫩的行动发声最强烈的批评者之一，西班牙对任何参与此次战争的飞机关闭领空，并称此次战争是鲁莽且非法的。
+中国驻佛罗伦萨总领馆副总领事、当地政府官员、在意华侨企业家与来自中国的文化使者和企业家们进行了深入交流。
 
-阿尔巴雷斯在下议院对议员们表示：“昨天我们看到，以色列无视停火协议、违反国际法，向黎巴嫩投掷了数百枚炸弹。
+意大利中华炎黄文化研究会会长何建爵致辞表示，文化是中意双方联通彼此心灵、凝聚合作共识的最动人的纽带。
 
-” 周四早些时候，阿尔巴雷斯宣布西班牙将重新开放驻德黑兰大使馆，以期实现该地区的和平。
+此次活动来到佛罗伦萨，将在平等包容的文明对话中拉近彼此距离，推动文化交流赋能经贸、科技等多领域的务实合作。
 
-阿尔巴雷斯对记者表示：“我已指示我国驻德黑兰大使返回、重新就任并开放大使馆，让我们从各个方面，包括伊朗首都本身，参与到这场争取和平的努力中来。
+中新社国际传播集团上海分公司执行总经理达利敏在致辞中表示，佛罗伦萨与上海两地虽相隔万里，却有着深厚的文化共鸣。
 
-”责任编辑：李肇孚
+此次活动中，文化使者将探寻文明共通内涵，中意企业将共商合作机遇，推动佛罗伦萨文艺复兴精神与上海海派文化深度交融。
+
+来自上海的企业家们在现场分享了文化交流底色上的合作愿景。
+
+上海市工商联文化商会会长、上海渠丰国际贸易有限公司董事长杨震华表示，上海是中国民营文化产业发展最活跃的沃土之一，近年来，不仅有兼具创新活力与市场影响力的行业头部企业，更成长起一大批深耕细分领域、拥有核心竞争力的中小微文化创意主体。
 
 ## 相关推荐
 
-- 2026-06-30 03:26 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-30 03:23 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 03:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 03:08 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 03:14 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 03:28 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 03:20 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 03:19 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 03:26 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 03:27 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-30 03:26 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 03:08 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 03:17 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 03:22 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 03:41 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 03:41 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 03:18 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 03:29 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 03:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 03:19 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 03:22 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 03:15 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 03:41 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 03:12 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 03:25 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 03:40 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 03:14 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:26 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/629067.shtml)
-- 2026-06-30 03:09 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/483844.shtml)
-- 2026-06-30 03:20 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/23361379233.shtml)
-- 2026-06-30 03:21 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/632111.shtml)
-- 2026-06-30 03:20 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/1035925878.shtml)
-- 2026-06-30 03:25 - [《贺子珍》](https://www.blog.minike.top/Article/details/442986044.shtml)
-- 2026-06-30 03:15 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/0729169.shtml)
-- 2026-06-30 03:13 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/8638288465.shtml)
-- 2026-06-30 03:32 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/734924620291.shtml)
-- 2026-06-30 03:27 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/896031654756.shtml)
-- 2026-06-30 03:13 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/537012.shtml)
-- 2026-06-30 03:10 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/067022550.shtml)
-- 2026-06-30 03:33 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/218411966403.shtml)
-- 2026-06-30 03:08 - [金刚川](https://www.share.minike.top/Article/details/788830468550.shtml)
-- 2026-06-30 03:23 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/0268894073.shtml)
+- 2026-06-30 03:18 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/4080210.shtml)
+- 2026-06-30 03:29 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/82546396.shtml)
+- 2026-06-30 03:32 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/1894705.shtml)
+- 2026-06-30 03:17 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/6083830.shtml)
+- 2026-06-30 03:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/2996016.shtml)
+- 2026-06-30 03:35 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/04669918411.shtml)
+- 2026-06-30 03:28 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/8226407.shtml)
+- 2026-06-30 03:16 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/6575961.shtml)
+- 2026-06-30 03:33 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/349631.shtml)
+- 2026-06-30 03:21 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/5533368238.shtml)
+- 2026-06-30 03:17 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/942476671616.shtml)
+- 2026-06-30 03:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/82749.shtml)
+- 2026-06-30 03:33 - [天道](https://www.blog.minike.top/Article/details/222369924.shtml)
+- 2026-06-30 03:14 - [极限挑战第一季](https://www.blog.minike.top/Article/details/06386485.shtml)
+- 2026-06-30 03:36 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/838442995.shtml)

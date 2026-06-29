@@ -1,61 +1,60 @@
-# 国泰航空否认近日发起“香港飞香港”活动
+# 各国领导人欢迎美伊和平协议，欧洲表态拟放松制裁并呼吁重开霍尔木兹海峡
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-中新网4月9日电 近日，一张标注“香港飞香港”的机场截图及相关话题登上热搜。因国泰航空此前曾开展过类似公益活动，不少网友误以为此次活动同样由其主办。据香港星岛环球网4月8日消息，国泰航空已就此作出否认。 同时，香港机管局发言人回复媒体查询时说，香港国际机场定期进行系统测试，“XX102”为系统测试时使用的代码，并非真实航班或公益项目。 2025年11月1日，国泰航空曾举办“空中
+核心要点 多国领导人对结束中东战事的美伊协议表示欢迎，部分欧洲国家释放信号：若伊朗采取实质性行动限制核计划，欧洲准备解除对德黑兰的相关制裁。 巴基斯坦总理夏巴兹・谢里夫透露，历经三个多月交战，美伊于周日达成和平协议，将立即、永久终止冲突；双方定于本周五在瑞士签署协议，随后开启为期 60 天的伊朗核问题补充谈判。 美国总统特朗普表示，将批准立即解除美国对伊朗的海上封锁。完整协议条
 
 ## 正文
 
-中新网4月9日电 近日，一张标注“香港飞香港”的机场截图及相关话题登上热搜。
+核心要点 多国领导人对结束中东战事的美伊协议表示欢迎，部分欧洲国家释放信号：若伊朗采取实质性行动限制核计划，欧洲准备解除对德黑兰的相关制裁。
 
-因国泰航空此前曾开展过类似公益活动，不少网友误以为此次活动同样由其主办。
+巴基斯坦总理夏巴兹・谢里夫透露，历经三个多月交战，美伊于周日达成和平协议，将立即、永久终止冲突；双方定于本周五在瑞士签署协议，随后开启为期 60 天的伊朗核问题补充谈判。
 
-据香港星岛环球网4月8日消息，国泰航空已就此作出否认。
+美国总统特朗普表示，将批准立即解除美国对伊朗的海上封锁。
 
-同时，香港机管局发言人回复媒体查询时说，香港国际机场定期进行系统测试，“XX102”为系统测试时使用的代码，并非真实航班或公益项目。
+完整协议条款尚未对外公布，但伊朗国家媒体上周五披露，一份 14 页谅解备忘录草案约定：美国取消对伊朗石油制裁，伊朗承诺 30 天内重开霍尔木兹海峡。
 
-2025年11月1日，国泰航空曾举办“空中之旅2025”活动，当时有超180名参与者登上全新改装的波音777-300ER客机，在香港上空翱翔90分钟。
+中国外交部对这份初步和平协议表示欢迎，期待协议如期签署。
 
-公开资料显示，“空中之旅”是国泰航空“飞跃理想计划”中的重点活动，并配合“飞跃理想青年学院”及“航空探索家体验日”，让参加者通过沉浸式体验，加深对航空认识、培养对飞行的热情。
+外交部发言人周一例行记者会上表态：“中方希望各方坚持和平道路，通过对话化解分歧。
 
-学员有机会参观国泰的顶尖设施、内地航空设施，深入了解国泰不同业务范畴，并与业界专业人士交流，从而拓宽视野，全面了解航空业的运作与发展。
+” 英、法、德、意四国在协议官宣后发布联合声明，称赞这份协议 “为恢复地区稳定、稳住全球经济创造契机”，并表示若伊朗拿出 “清晰、可核查的核管控举措”，四国将解除对应制裁。
 
-该计划自2003年推出至今，已栽培超过4400名毕业学员，部分人更成功投身航空业。
+这四个国家合称欧洲四国（E4），声明同时要求全面、快速落地协议，并强调 “亟需无条件、无限制恢复霍尔木兹海峡通航自由，此事至关重要”。
 
 ## 相关推荐
 
-- 2026-06-30 03:20 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-30 03:25 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-30 03:30 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 03:25 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 03:06 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 03:26 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 03:33 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 03:13 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 03:24 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 03:32 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 03:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 03:12 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 03:17 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 03:25 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 03:10 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 03:35 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 03:21 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 03:23 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 03:23 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 03:36 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 03:13 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 03:18 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 03:36 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 03:14 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 03:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 03:29 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 03:37 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 03:38 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 03:12 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:25 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/75011.shtml)
-- 2026-06-30 03:18 - [女心理师](http://www.share.minike.top/Article/details/94943.shtml)
-- 2026-06-30 03:12 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/40107.shtml)
-- 2026-06-30 03:16 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/09353603.shtml)
-- 2026-06-30 03:19 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/06280563.shtml)
-- 2026-06-30 03:15 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/27167718.shtml)
-- 2026-06-30 03:33 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/447199.shtml)
-- 2026-06-30 03:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/315752359405.shtml)
-- 2026-06-30 03:35 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/2192427.shtml)
-- 2026-06-30 03:18 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/373710281.shtml)
-- 2026-06-30 03:32 - [金刚川](https://www.blog.minike.top/Article/details/5709051.shtml)
-- 2026-06-30 03:06 - [爱很美味](http://www.share.minike.top/Article/details/46766.shtml)
-- 2026-06-30 03:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/452381.shtml)
-- 2026-06-30 03:10 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/25168095813.shtml)
-- 2026-06-30 03:17 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/2305301424.shtml)
+- 2026-06-30 03:40 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/24103.shtml)
+- 2026-06-30 03:15 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/753049290827.shtml)
+- 2026-06-30 03:17 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/022303304109.shtml)
+- 2026-06-30 03:29 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/81093724.shtml)
+- 2026-06-30 03:15 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/639943.shtml)
+- 2026-06-30 03:41 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/15049133810.shtml)
+- 2026-06-30 03:30 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/49268305635.shtml)
+- 2026-06-30 03:19 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/64344727769.shtml)
+- 2026-06-30 03:20 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/6243691903.shtml)
+- 2026-06-30 03:13 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/23408764930.shtml)
+- 2026-06-30 03:31 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/43207.shtml)
+- 2026-06-30 03:13 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/76489707097.shtml)
+- 2026-06-30 03:13 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/452762.shtml)
+- 2026-06-30 03:19 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/25064639088.shtml)
+- 2026-06-30 03:14 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/9062371528.shtml)

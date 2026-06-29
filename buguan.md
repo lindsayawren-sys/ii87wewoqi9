@@ -1,57 +1,58 @@
-# 莫把“痕迹”当“政绩”（思想纵横）
+# 每天需要600人“挽袖” 长沙为生命搭建“流动的血库”
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-人民日报 李永领 习近平总书记强调：“形式主义、官僚主义是目前党内存在的突出矛盾和问题，是阻碍党的路线方针政策和党中央重大决策部署贯彻落实的大敌”，并严肃指出：“有的地方要求事事留痕，把‘痕迹’当‘政绩’”。“痕迹”是工作过程的记录，留痕便于追溯、利于监督，本是抓落实的辅助手段。然而，少数地方和部门却把台账厚薄当成效、拍照留影算落实、会议记录作成果。这种做法把手段当成目的，把过
+中新网长沙6月14日电 (姜兰)“以前觉得献血只是我帮助别人，经历过生死才明白，无偿献血是‘我为人人、人人为我’的善意循环。”6月14日是第23个“世界献血者日”，曾因产后大出血被800毫升热血救回一命的市民王贤，以献血者和受血者的双重身份，在长沙2026年“世界献血者日”主题活动上分享了自己的故事。 王贤曾受“献血伤身体”的错误认知影响，不敢参与献血。2022年，在单位组织下
 
 ## 正文
 
-人民日报 李永领 习近平总书记强调：“形式主义、官僚主义是目前党内存在的突出矛盾和问题，是阻碍党的路线方针政策和党中央重大决策部署贯彻落实的大敌”，并严肃指出：“有的地方要求事事留痕，把‘痕迹’当‘政绩’”。
+中新网长沙6月14日电 (姜兰)“以前觉得献血只是我帮助别人，经历过生死才明白，无偿献血是‘我为人人、人人为我’的善意循环。
 
-“痕迹”是工作过程的记录，留痕便于追溯、利于监督，本是抓落实的辅助手段。
+”6月14日是第23个“世界献血者日”，曾因产后大出血被800毫升热血救回一命的市民王贤，以献血者和受血者的双重身份，在长沙2026年“世界献血者日”主题活动上分享了自己的故事。
 
-然而，少数地方和部门却把台账厚薄当成效、拍照留影算落实、会议记录作成果。
+王贤曾受“献血伤身体”的错误认知影响，不敢参与献血。
 
-这种做法把手段当成目的，把过程当作结果，是政绩观错位的表现。
+2022年，在单位组织下，她首次捐献400毫升血液，献血后身体无任何不适，彻底打破了偏见。
 
-过度留痕之风何以滋生？
+2025年，王贤生孩子时突发大出血，危急时刻，800毫升爱心血液为她撑起生命希望。
 
-从思想根源看，部分党员干部宗旨意识淡薄、政绩观扭曲，把留痕当作规避责任的“免责金牌”。
+得益于无偿献血相关惠民政策，她的用血费用也顺利快速报销。
 
-从考核导向看，有的上级部门过度依赖台账等易量化的“显绩”指标，把材料是否齐全等同于工作是否落实，使基层不得不在材料堆里“务虚功”，用过程的完备性替代了结果的有效性。
+“我们送出的是热血，守住的是生命最坚实的保障。
 
-从惯性演变看，当“留痕”成为一种路径依赖，就会出现“为了留痕而留痕”的怪象，没有照片就补拍，没有记录就补写，不断助长过度留痕歪风，最终忘记了工作的初心，忘记了群众的期盼，忘记了自身的使命。
+”她的真挚分享，让现场市民深受触动。
 
 ## 相关推荐
 
-- 2026-06-30 03:31 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 03:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 03:18 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 03:34 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 03:06 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 03:23 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 03:31 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 03:35 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 03:19 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 03:23 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 03:19 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 03:35 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 03:29 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 03:41 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 03:38 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 03:31 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 03:27 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 03:37 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 03:26 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 03:20 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 03:34 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 03:32 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 03:25 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:23 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/31022424982.shtml)
-- 2026-06-30 03:15 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/032050.shtml)
-- 2026-06-30 03:26 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/737169882.shtml)
-- 2026-06-30 03:16 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/662074059325.shtml)
-- 2026-06-30 03:33 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/948205448577.shtml)
-- 2026-06-30 03:21 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/66237620.shtml)
-- 2026-06-30 03:24 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/463822279750.shtml)
-- 2026-06-30 03:12 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/55180252198.shtml)
-- 2026-06-30 03:23 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/04504518.shtml)
-- 2026-06-30 03:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/19340.shtml)
-- 2026-06-30 03:11 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/748708820.shtml)
-- 2026-06-30 03:17 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/73480.shtml)
-- 2026-06-30 03:16 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/79800.shtml)
-- 2026-06-30 03:07 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/8007859676.shtml)
-- 2026-06-30 03:21 - [日本领先巴西](http://www.blog.minike.top/Article/details/810997.shtml)
+- 2026-06-30 03:30 - [时光音乐会](http://www.share.minike.top/Article/details/68268433967.shtml)
+- 2026-06-30 03:22 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/088939.shtml)
+- 2026-06-30 03:40 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/951470366.shtml)
+- 2026-06-30 03:36 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/602866.shtml)
+- 2026-06-30 03:35 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/136905.shtml)
+- 2026-06-30 03:17 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/8236819124.shtml)
+- 2026-06-30 03:24 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/392658735.shtml)
+- 2026-06-30 03:33 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/78193420311.shtml)
+- 2026-06-30 03:21 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/33087706.shtml)
+- 2026-06-30 03:13 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/065947444.shtml)
+- 2026-06-30 03:20 - [千香](https://www.share.kurohicncr.top/Article/details/07394592618.shtml)
+- 2026-06-30 03:39 - [巴西绝杀](http://www.blog.minike.top/Article/details/6613332.shtml)
+- 2026-06-30 03:20 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/97505.shtml)
+- 2026-06-30 03:40 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/9654220.shtml)
+- 2026-06-30 03:29 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/896361448.shtml)

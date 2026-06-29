@@ -1,61 +1,54 @@
-# 伊朗副外长称想要通过霍尔木兹海峡的船只须先与军方取得联系
+# 太平养老：免去王干的总经理职务，由林喆担任临时负责人
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-伊朗副外长在接受ITV电视采访时表示，油轮和其他希望通过霍尔木兹海峡的船只，必须与伊朗军方联系，以确保安全通行。 “霍尔木兹海峡是开放的，但当然，每艘油轮和船只都应与伊朗当局作出必要安排，以安全通过，”Saeed Khatibzadeh表示。他表示，近期针对伊朗的袭击以及这条水道本身较为狭窄，带来了“技术限制”，因此需要谨慎行事。 尽管总统唐纳德·特朗普周二表示，美伊为期14天
+6月12日金融一线消息，太平养老发布公告称，经公司2026年股东会第四次临时会议决议，免去王干的太平养老总经理职务，由林喆担任太平养老临时负责人。 公开资料显示，林喆毕业于上海轻工业高等专科学校食品工艺专业，大学学历，获中欧国际工商学院工商管理硕士学位。2020年6月起出任太平养老副总经理。林喆曾任太平科技总经理，太平养老助理总经理，太平保险集团共享服务中心副总经理，太平人寿上
 
 ## 正文
 
-伊朗副外长在接受ITV电视采访时表示，油轮和其他希望通过霍尔木兹海峡的船只，必须与伊朗军方联系，以确保安全通行。
+6月12日金融一线消息，太平养老发布公告称，经公司2026年股东会第四次临时会议决议，免去王干的太平养老总经理职务，由林喆担任太平养老临时负责人。
 
-“霍尔木兹海峡是开放的，但当然，每艘油轮和船只都应与伊朗当局作出必要安排，以安全通过，”Saeed Khatibzadeh表示。
+公开资料显示，林喆毕业于上海轻工业高等专科学校食品工艺专业，大学学历，获中欧国际工商学院工商管理硕士学位。
 
-他表示，近期针对伊朗的袭击以及这条水道本身较为狭窄，带来了“技术限制”，因此需要谨慎行事。
+2020年6月起出任太平养老副总经理。
 
-尽管总统唐纳德·特朗普周二表示，美伊为期14天的停火取决于霍尔木兹海峡重新开放，而德黑兰也同意恢复通航是可能的，但通过这一关键海上咽喉要道的航运目前仍大致处于停滞状态。
+林喆曾任太平科技总经理，太平养老助理总经理，太平保险集团共享服务中心副总经理，太平人寿上海分公司总经理、副总经理等职务。
 
-伦敦油价周四反弹至每桶98美元上方，此前周三曾暴跌逾13%。
+在加入太平体系之前，曾在平安人寿上海分公司团险部担任过经理等职务。
 
-Khatibzadeh对ITV表示：“所有希望通过霍尔木兹海峡的船只，都必须与我们的陆军和军方沟通。
-
-任何与伊朗当局沟通的船只都已获得许可。
-
-” 不过，如果这一安排付诸实施，可能会面临实际操作上的困难。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 03:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 03:07 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 03:13 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 03:10 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 03:09 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 03:34 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 03:23 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 03:35 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 03:25 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 03:11 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 03:18 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-30 03:28 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 03:11 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 03:09 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 03:31 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 03:24 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 03:32 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 03:35 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 03:34 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 03:22 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 03:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 03:19 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 03:40 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 03:22 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 03:26 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 03:36 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 03:15 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:28 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/43140691.shtml)
-- 2026-06-30 03:08 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/48870116.shtml)
-- 2026-06-30 03:30 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/91308.shtml)
-- 2026-06-30 03:09 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/6516352.shtml)
-- 2026-06-30 03:15 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/05112059.shtml)
-- 2026-06-30 03:34 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/856335610152.shtml)
-- 2026-06-30 03:27 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/507677576518.shtml)
-- 2026-06-30 03:34 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/619184105.shtml)
-- 2026-06-30 03:17 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/119583083689.shtml)
-- 2026-06-30 03:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/232417.shtml)
-- 2026-06-30 03:18 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/2059729.shtml)
-- 2026-06-30 03:30 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/621468301.shtml)
-- 2026-06-30 03:27 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/837562136.shtml)
-- 2026-06-30 03:26 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/96098014.shtml)
-- 2026-06-30 03:34 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/5591584.shtml)
+- 2026-06-30 03:39 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/19636.shtml)
+- 2026-06-30 03:40 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/61803.shtml)
+- 2026-06-30 03:37 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/99388760372.shtml)
+- 2026-06-30 03:20 - [周生如故](https://www.blog.minike.top/Article/details/5058922.shtml)
+- 2026-06-30 03:41 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/88787.shtml)
+- 2026-06-30 03:20 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/79262.shtml)
+- 2026-06-30 03:16 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/336167.shtml)
+- 2026-06-30 03:20 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/486995780.shtml)
+- 2026-06-30 03:20 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/26380437894.shtml)
+- 2026-06-30 03:14 - [日本进球](https://www.blog.kurohicncr.top/Article/details/983979.shtml)
+- 2026-06-30 03:39 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/633578189.shtml)
+- 2026-06-30 03:31 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/42429.shtml)
+- 2026-06-30 03:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/038003.shtml)
+- 2026-06-30 03:19 - [天道](http://www.share.kurohicncr.top/Article/details/8762126339.shtml)
+- 2026-06-30 03:16 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/21555524087.shtml)

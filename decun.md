@@ -1,56 +1,56 @@
-# 美伊停火令原油价格暴跌，但航空燃油价格仍然高企
+# 金价突破4300美元！黄金类ETF普涨
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-尽管油价回落，航空公司仍面临持续的成本压力，导致票价上涨和运力削减 航空公司高管们开始看到宏观背景出现初步转变，但这种缓解可能更多是表面现象而非根本性的。 国际航空运输协会理事长威利·沃尔什（Willie Walsh）将美国与伊朗之间为期两周的停火视为积极的一步，指出这可能使部分石油流动得以恢复。尽管如此，正常化进程似乎缓慢，仍有超过800艘船只滞留在波斯湾，航运活动尚未完全恢
+美伊达成和平协议，激发了黄金投资者的热情。 COMEX黄金期货价格6月15日上午突破4300美元/盎司，上海黄金交易所Au99.99的价格重回940元/克之上，黄金ETF早盘普涨。 业内人士认为，黄金资产前期压制解除，黄金股或迎来反弹主升浪。 黄金投资回暖 Choice数据显示，截至6月15日10：30，国际金价跳涨。COMEX黄金期货价格达到4349.5美元/盎司，涨幅达到2
 
 ## 正文
 
-尽管油价回落，航空公司仍面临持续的成本压力，导致票价上涨和运力削减 航空公司高管们开始看到宏观背景出现初步转变，但这种缓解可能更多是表面现象而非根本性的。
+美伊达成和平协议，激发了黄金投资者的热情。
 
-国际航空运输协会理事长威利·沃尔什（Willie Walsh）将美国与伊朗之间为期两周的停火视为积极的一步，指出这可能使部分石油流动得以恢复。
+COMEX黄金期货价格6月15日上午突破4300美元/盎司，上海黄金交易所Au99.99的价格重回940元/克之上，黄金ETF早盘普涨。
 
-尽管如此，正常化进程似乎缓慢，仍有超过800艘船只滞留在波斯湾，航运活动尚未完全恢复。
+业内人士认为，黄金资产前期压制解除，黄金股或迎来反弹主升浪。
 
-即使在唐纳德·特朗普宣布停火后原油价格下跌了16%，航空燃油的价格传导似乎也存在延迟，这表明航空公司在短期内可能继续在高成本条件下运营。
+黄金投资回暖 Choice数据显示，截至6月15日10：30，国际金价跳涨。
 
-成本方面的压力仍然是核心问题。
+COMEX黄金期货价格达到4349.5美元/盎司，涨幅达到2.61%。
 
-Walsh表示，航空燃油价格可能会在一段时间内保持高位，随着航空公司试图抵消投入成本通胀，这可能会转化为持续上涨的机票价格。
+至此，国际金价已经实现三连阳，不过离年内高点5626.8美元/盎司仍有较大的距离。
 
-与此同时，供应短缺的风险尚未完全消除，亚洲被描述为最脆弱的地区，其次是非洲和欧洲。
+国内金价也同步反应。
 
-在整个行业范围内，自冲突开始以来，航空公司仍在应对航空燃油成本翻倍有余的局面，这一动态已经在影响运营决策。
+截至发稿，上海黄金交易所Au99.99的价格也攀升至940元/克之上。
 
 ## 相关推荐
 
-- 2026-06-30 03:20 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 03:12 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 03:22 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 03:28 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 03:10 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 03:18 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 03:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-30 03:13 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 03:13 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 03:29 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 03:32 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 03:15 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 03:36 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 03:30 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 03:31 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 03:15 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 03:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 03:22 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 03:31 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 03:41 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:06 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/4503026.shtml)
-- 2026-06-30 03:20 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/71866414.shtml)
-- 2026-06-30 03:30 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/3020838.shtml)
-- 2026-06-30 03:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/384337.shtml)
-- 2026-06-30 03:15 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/78590036160.shtml)
-- 2026-06-30 03:29 - [毒液2](https://www.share.minike.top/Article/details/24301.shtml)
-- 2026-06-30 03:22 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/620705664001.shtml)
-- 2026-06-30 03:10 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/10403038782.shtml)
-- 2026-06-30 03:15 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/790697.shtml)
-- 2026-06-30 03:20 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/2602119.shtml)
-- 2026-06-30 03:26 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/03942.shtml)
-- 2026-06-30 03:31 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/50991475577.shtml)
-- 2026-06-30 03:09 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/8133690709.shtml)
-- 2026-06-30 03:30 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/692059527.shtml)
-- 2026-06-30 03:23 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/3541250035.shtml)
+- 2026-06-30 03:23 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/597689145.shtml)
+- 2026-06-30 03:20 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/3033242670.shtml)
+- 2026-06-30 03:40 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/753346749.shtml)
+- 2026-06-30 03:37 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/23106.shtml)
+- 2026-06-30 03:27 - [田曦薇没招了](http://www.share.minike.top/Article/details/835842.shtml)
+- 2026-06-30 03:19 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/7561271.shtml)
+- 2026-06-30 03:13 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/381691046.shtml)
+- 2026-06-30 03:32 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/00552.shtml)
+- 2026-06-30 03:29 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/3945031.shtml)
+- 2026-06-30 03:19 - [急先锋](https://www.blog.minike.top/Article/details/3584686718.shtml)
+- 2026-06-30 03:16 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/6967780447.shtml)
+- 2026-06-30 03:29 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/318737365.shtml)
+- 2026-06-30 03:35 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/20624403411.shtml)
+- 2026-06-30 03:30 - [一见倾心](https://www.blog.minike.top/Article/details/44972596686.shtml)
+- 2026-06-30 03:13 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/8546993.shtml)

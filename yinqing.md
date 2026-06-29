@@ -1,61 +1,48 @@
-# 迪士尼计划裁员1000人
+# 巴基斯坦总理谢里夫：巴方将在日内瓦主持美伊和平协议签署活动
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-迪士尼计划在未来几周内裁员多达1000人，其中大部分裁员将在公司营销部门进行。 此次裁员计划在乔希・达马罗于3月出任迪士尼首席执行官之前便已开始筹划。 此次计划中的裁员规模可能不到其员工总数的1%。截至2025财年末，迪士尼拥有约23.1万名员工。 报道还补充道，迪士尼新任首席营销官阿萨德・阿亚兹还计划通过代号为“畅想项目”的计划整合公司营销团队并削减开支。阿亚兹自今年1月起开
+巴基斯坦总理谢里夫周一向议会发表讲话时说道，感谢沙特阿拉伯、卡塔尔、土耳其和中国的领导人为促进美伊和平所做的努力。 谢里夫表示，他亲眼见证了巴基斯坦陆军参谋长阿西姆·穆尼尔为实现和平所做出的坚定不移的努力和发挥的非凡作用。责任编辑：江学思
 
 ## 正文
 
-迪士尼计划在未来几周内裁员多达1000人，其中大部分裁员将在公司营销部门进行。
+巴基斯坦总理谢里夫周一向议会发表讲话时说道，感谢沙特阿拉伯、卡塔尔、土耳其和中国的领导人为促进美伊和平所做的努力。
 
-此次裁员计划在乔希・达马罗于3月出任迪士尼首席执行官之前便已开始筹划。
+谢里夫表示，他亲眼见证了巴基斯坦陆军参谋长阿西姆·穆尼尔为实现和平所做出的坚定不移的努力和发挥的非凡作用。
 
-此次计划中的裁员规模可能不到其员工总数的1%。
-
-截至2025财年末，迪士尼拥有约23.1万名员工。
-
-报道还补充道，迪士尼新任首席营销官阿萨德・阿亚兹还计划通过代号为“畅想项目”的计划整合公司营销团队并削减开支。
-
-阿亚兹自今年1月起开始负责管理新成立的全公司营销机构。
-
-迪士尼尚未回应媒体的置评请求。
-
-责任编辑：李肇孚
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 03:11 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 03:22 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-30 03:23 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 03:33 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 03:28 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 03:31 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-30 03:28 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 03:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 03:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 03:32 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 03:07 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 03:13 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 03:19 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 03:23 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-30 03:26 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 03:12 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 03:12 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 03:14 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 03:16 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 03:12 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 03:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 03:40 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 03:39 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 03:37 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 03:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 03:38 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 03:37 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:33 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/27824048.shtml)
-- 2026-06-30 03:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/25074230.shtml)
-- 2026-06-30 03:31 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/3919392.shtml)
-- 2026-06-30 03:20 - [金刚川](http://www.share.minike.top/Article/details/30634.shtml)
-- 2026-06-30 03:30 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/554199589.shtml)
-- 2026-06-30 03:18 - [送你一朵小红花](http://www.share.minike.top/Article/details/6435610.shtml)
-- 2026-06-30 03:26 - [第一炉香](https://www.share.kurohicncr.top/Article/details/6706273.shtml)
-- 2026-06-30 03:27 - [恋与深空回应争议](http://www.share.minike.top/Article/details/5337725715.shtml)
-- 2026-06-30 03:15 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/2257517.shtml)
-- 2026-06-30 03:28 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/2354008.shtml)
-- 2026-06-30 03:19 - [女心理师](https://www.share.kurohicncr.top/Article/details/82170841.shtml)
-- 2026-06-30 03:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/956934515208.shtml)
-- 2026-06-30 03:27 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/83228685065.shtml)
-- 2026-06-30 03:18 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/12524.shtml)
-- 2026-06-30 03:35 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/2167664059.shtml)
+- 2026-06-30 03:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/54140.shtml)
+- 2026-06-30 03:22 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/4372520092.shtml)
+- 2026-06-30 03:23 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/73782157308.shtml)
+- 2026-06-30 03:34 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/351887488.shtml)
+- 2026-06-30 03:27 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/46428166.shtml)
+- 2026-06-30 03:19 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/43273069.shtml)
+- 2026-06-30 03:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/57875806.shtml)
+- 2026-06-30 03:39 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/6438672.shtml)
+- 2026-06-30 03:29 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/027887354682.shtml)
+- 2026-06-30 03:37 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/137872939207.shtml)
+- 2026-06-30 03:31 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/541709042.shtml)
+- 2026-06-30 03:36 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/432996.shtml)
+- 2026-06-30 03:40 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/815941.shtml)
+- 2026-06-30 03:20 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/3194319098.shtml)
+- 2026-06-30 03:15 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/571697.shtml)

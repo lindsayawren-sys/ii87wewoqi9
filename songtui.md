@@ -1,57 +1,60 @@
-# 国务院印发《中国（内蒙古）自由贸易试验区总体方案》
+# 价格战“退烧”倒计时？两部门约谈涉嫌非理性竞争车企 专家解读：关键纠偏 保护行业创新动力
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-新华社北京4月9日电 日前，国务院印发《中国(内蒙古)自由贸易试验区总体方案》(以下简称《总体方案》)。 《总体方案》指出，建立内蒙古自贸试验区是党中央、国务院作出的重大决策，是进一步全面深化改革、推进高水平对外开放、推动高质量发展的重要战略举措。要以习近平新时代中国特色社会主义思想为指导，以铸牢中华民族共同体意识为主线，落实好党中央赋予内蒙古的战略定位，紧密围绕“十五五”时期
+据“工信微报”微信公众号消息，6月11日，工业和信息化部、市场监管总局对涉嫌存在非理性竞争行为的汽车生产企业进行约谈提醒，要求企业严格遵守《中华人民共和国价格法》《关于制止低价倾销行为的规定》等法律法规规章，按照《汽车行业价格行为合规指南》要求，加强价格合规建设，强化产品质量管控，切实保护消费者合法权益，共同维护优质优价、良性竞争的市场秩序。 该消息引发了外界对具体被约谈企业的
 
 ## 正文
 
-新华社北京4月9日电 日前，国务院印发《中国(内蒙古)自由贸易试验区总体方案》(以下简称《总体方案》)。
+据“工信微报”微信公众号消息，6月11日，工业和信息化部、市场监管总局对涉嫌存在非理性竞争行为的汽车生产企业进行约谈提醒，要求企业严格遵守《中华人民共和国价格法》《关于制止低价倾销行为的规定》等法律法规规章，按照《汽车行业价格行为合规指南》要求，加强价格合规建设，强化产品质量管控，切实保护消费者合法权益，共同维护优质优价、良性竞争的市场秩序。
 
-《总体方案》指出，建立内蒙古自贸试验区是党中央、国务院作出的重大决策，是进一步全面深化改革、推进高水平对外开放、推动高质量发展的重要战略举措。
+该消息引发了外界对具体被约谈企业的猜测。
 
-要以习近平新时代中国特色社会主义思想为指导，以铸牢中华民族共同体意识为主线，落实好党中央赋予内蒙古的战略定位，紧密围绕“十五五”时期目标任务，主动服务和融入国家重大战略，深入实施自贸试验区提升战略，把自贸试验区建设成为新时代改革开放新高地，助推内蒙古经济高质量发展，增进边疆民族地区民生福祉，助力全方位建设“模范自治区”。
+6月12日，《每日经济新闻》记者向国内两家头部车企进行了解，对方均否认被约谈。
 
-《总体方案》提出，赋予内蒙古自贸试验区更大改革自主权，鼓励先行先试，在更广领域、更深层次开展首创性、集成式、差别化探索。
+“我们不可能被约谈，我们没有打‘价格战’。
 
-明确了创新发展边民互市贸易、强化国际物流服务功能、提高科技成果转化应用效能、拓展多领域对外交流等19个方面改革创新举措。
+”某车企高管向记者表示。
 
-着力打造联通内外、辐射周边的信息交流中心、交通物流中心、要素资源配置中心、重点领域科技创新中心和产业合作中心，充分发挥国家向北开放重要桥头堡作用，努力建成投资贸易便利、创新生态良好、优势产业集聚、国际交往活跃的高水平自由贸易园区。
+乘联分会秘书长崔东树接受记者采访时表示，此次两部门联合约谈，是对汽车行业非理性价格战的一次关键纠偏，对行业健康发展意义重大。
 
-《总体方案》强调，要坚持和加强党的全面领导，树立和践行正确政绩观，把党风廉政建设贯穿自贸试验区建设全过程。
+随着约谈落地，价格战将进一步降温，市场秩序改善，有利于提振消费信心，也为行业向高端化、高质量发展创造了良好环境。
 
-要牢固树立总体国家安全观，强化监管，守牢安全底线。
+近年来，非理性价格战确实存在于汽车行业。
 
 ## 相关推荐
 
-- 2026-06-30 03:06 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 03:31 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 03:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 03:15 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 03:09 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 03:08 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 03:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 03:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 03:32 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 03:24 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 03:35 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 03:23 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 03:21 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 03:16 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 03:26 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 03:25 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 03:39 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 03:21 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 03:26 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 03:12 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 03:17 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 03:40 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 03:21 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 03:40 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 03:16 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/680811365758.shtml)
-- 2026-06-30 03:20 - [明星大侦探第一季](http://www.share.minike.top/Article/details/532931667533.shtml)
-- 2026-06-30 03:11 - [巴西绝杀](http://www.share.minike.top/Article/details/38499.shtml)
-- 2026-06-30 03:13 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/47754485.shtml)
-- 2026-06-30 03:27 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/4785039065.shtml)
-- 2026-06-30 03:14 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/32127736.shtml)
-- 2026-06-30 03:18 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/2298870790.shtml)
-- 2026-06-30 03:31 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/4714840.shtml)
-- 2026-06-30 03:35 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/00626847.shtml)
-- 2026-06-30 03:17 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/47266.shtml)
-- 2026-06-30 03:17 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/544254.shtml)
-- 2026-06-30 03:18 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/4841721.shtml)
-- 2026-06-30 03:33 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/2425181.shtml)
-- 2026-06-30 03:06 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/4043656713.shtml)
-- 2026-06-30 03:23 - [一生一世](https://www.blog.minike.top/Article/details/10098.shtml)
+- 2026-06-30 03:29 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/81885.shtml)
+- 2026-06-30 03:18 - [周生如故](https://www.blog.minike.top/Article/details/091950161.shtml)
+- 2026-06-30 03:24 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/5721686616.shtml)
+- 2026-06-30 03:19 - [小娘惹](https://www.share.minike.top/Article/details/06786.shtml)
+- 2026-06-30 03:24 - [绘画区你赢了](https://www.share.minike.top/Article/details/983339716.shtml)
+- 2026-06-30 03:23 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/54752046549.shtml)
+- 2026-06-30 03:25 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/20418372.shtml)
+- 2026-06-30 03:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/71581111902.shtml)
+- 2026-06-30 03:24 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/37161447.shtml)
+- 2026-06-30 03:41 - [爱很美味](https://www.share.minike.top/Article/details/74441051490.shtml)
+- 2026-06-30 03:36 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/8884774.shtml)
+- 2026-06-30 03:32 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/7239942.shtml)
+- 2026-06-30 03:31 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/08519058149.shtml)
+- 2026-06-30 03:37 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/14527335631.shtml)
+- 2026-06-30 03:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/08971254.shtml)

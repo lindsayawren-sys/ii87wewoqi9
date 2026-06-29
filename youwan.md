@@ -1,61 +1,60 @@
-# 《晋江侨厝故事》首发 46座侨厝见证华侨家国情怀
+# 请准备，厄尔尼诺又要来了
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-中新网福建晋江4月9日电 (记者 孙虹)《晋江侨厝故事》首发暨出版分享会9日在福建晋江梧林传统村落举行。这部历时一年编撰完成、约24万字的侨文化专著，精选晋江46座代表性侨厝，以建筑为载体、以故事为脉络，系统记录晋江华侨奋斗史与家国情怀，为侨乡文化保护传承留下重要文本。 作为中国知名侨乡，侨文化是晋江最鲜明的人文标识。在晋江，融合闽南传统规制与南洋建筑风格的侨厝遍布全市，一砖一
+克莉斯汀 6月伊始，世界气象组织(WMO)便发出预报:受热带太平洋异常温暖的海洋海水驱动，厄尔尼诺条件正在形成，并将在未来数月影响全球气温和降雨模式，增加极端天气风险。 同一天，WMO还发布了一份新的厄尔尼诺/拉尼娜通报，显示2026年6月至8月期间发生厄尔尼诺事件的可能性为80%。 据此预测，今年6月至8月期间，全球几乎所有地区气温都将普遍高于正常水平。卫星数据显示，太平洋海
 
 ## 正文
 
-中新网福建晋江4月9日电 (记者 孙虹)《晋江侨厝故事》首发暨出版分享会9日在福建晋江梧林传统村落举行。
+克莉斯汀 6月伊始，世界气象组织(WMO)便发出预报:受热带太平洋异常温暖的海洋海水驱动，厄尔尼诺条件正在形成，并将在未来数月影响全球气温和降雨模式，增加极端天气风险。
 
-这部历时一年编撰完成、约24万字的侨文化专著，精选晋江46座代表性侨厝，以建筑为载体、以故事为脉络，系统记录晋江华侨奋斗史与家国情怀，为侨乡文化保护传承留下重要文本。
+同一天，WMO还发布了一份新的厄尔尼诺/拉尼娜通报，显示2026年6月至8月期间发生厄尔尼诺事件的可能性为80%。
 
-作为中国知名侨乡，侨文化是晋江最鲜明的人文标识。
+据此预测，今年6月至8月期间，全球几乎所有地区气温都将普遍高于正常水平。
 
-在晋江，融合闽南传统规制与南洋建筑风格的侨厝遍布全市，一砖一瓦都镌刻着海外游子离乡打拼、心系故土、反哺桑梓的赤子情怀。
+卫星数据显示，太平洋海面温度已出现异常 5月时，美国航空航天局(NASA)和欧洲空间局(ESA)合作发射的 “哨兵6号”迈克尔·弗雷利希卫星公布了最新监测数据，称一股宽达数百公里的暖水流已涌入南美洲沿岸的太平洋海域。
 
-随着时间推移，部分侨厝的历史记忆与家族故事面临失传风险，抢救梳理侨厝文化、守护侨乡根脉成为当地文化传承的重要任务。
+这种现象被称为开尔文波。
 
-“侨厝是晋江独特的文化密码，是海内外晋江人共同的精神图腾。
+在厄尔尼诺现象出现前几个月，太平洋上一般都会出现多个开尔文波向东移动，最终到达南美洲，温暖海水在这一区域聚集，最后便会促成厄尔尼诺现象的出现。
 
-”晋江市侨联党组书记、主席陈建军表示，《晋江侨厝故事》不仅是一部记录建筑的书籍，更是晋江华侨群体的精神丰碑，将为晋江凝侨心、引侨资、汇侨智、聚侨力提供强大精神动力与文化支撑。
+2026年的卫星数据显示，开尔文波目前已出现多次，这预示着厄尔尼诺现象即将出现。
 
-据了解，《晋江侨厝故事》编撰工作于2025年3月启动，编撰团队秉持客观、真实、生动、通俗的原则，以“以厝带人、以事见史”为创作理念，通过文献梳理、实地调研、口述历史采集、相关实物征集等多种方式，挖掘整理侨厝背后的鲜活故事。
+美国国家海洋和大气管理局(NOAA)的预测称，厄尔尼诺现象于2026年5月至7月出现的概率达82%，并持续到2026-2027年北半球冬季，即2026年12月至2027年2月都仍有96%的概率。
 
 ## 相关推荐
 
-- 2026-06-30 03:07 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 03:14 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-30 03:18 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 03:13 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 03:08 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 03:32 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 03:35 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 03:24 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 03:06 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 03:06 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 03:23 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-30 03:08 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 03:35 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 03:27 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 03:13 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 03:34 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 03:35 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 03:14 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 03:39 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 03:29 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 03:17 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 03:12 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 03:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 03:24 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 03:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 03:36 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-30 03:14 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 03:39 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 03:30 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [沙丘](http://www.share.minike.top/Article/details/8109684635.shtml)
-- 2026-06-30 03:34 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/088432.shtml)
-- 2026-06-30 03:35 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/364046842.shtml)
-- 2026-06-30 03:18 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/9725934598.shtml)
-- 2026-06-30 03:22 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/9711808.shtml)
-- 2026-06-30 03:07 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/66966379.shtml)
-- 2026-06-30 03:31 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/88205080.shtml)
-- 2026-06-30 03:30 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/327512592175.shtml)
-- 2026-06-30 03:34 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/79552.shtml)
-- 2026-06-30 03:26 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/52415684.shtml)
-- 2026-06-30 03:34 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/6742529.shtml)
-- 2026-06-30 03:17 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/11547626669.shtml)
-- 2026-06-30 03:30 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/129065192595.shtml)
-- 2026-06-30 03:27 - [日本 高位逼抢](https://www.share.minike.top/Article/details/50671643716.shtml)
-- 2026-06-30 03:13 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/97111565.shtml)
+- 2026-06-30 03:35 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/6933448249.shtml)
+- 2026-06-30 03:18 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/856612450518.shtml)
+- 2026-06-30 03:36 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/694218727.shtml)
+- 2026-06-30 03:30 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/41480877412.shtml)
+- 2026-06-30 03:29 - [天道](https://www.blog.minike.top/Article/details/72451.shtml)
+- 2026-06-30 03:24 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/490407438.shtml)
+- 2026-06-30 03:19 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/6678584.shtml)
+- 2026-06-30 03:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/932066.shtml)
+- 2026-06-30 03:20 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/6443411.shtml)
+- 2026-06-30 03:35 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/30032107808.shtml)
+- 2026-06-30 03:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/9957267997.shtml)
+- 2026-06-30 03:31 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/16693108.shtml)
+- 2026-06-30 03:19 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/763012521623.shtml)
+- 2026-06-30 03:15 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/8103352.shtml)
+- 2026-06-30 03:21 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/866279.shtml)

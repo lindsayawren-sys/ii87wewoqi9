@@ -1,52 +1,48 @@
-# 受结束伊朗战争的谈判希望提振 日经指数或上涨
+# 创业板指涨超5% 重返4000点上方
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-在有条件的停火之后，结束战争的美伊谈判希望延续，日本股市或将上涨。在新加坡交易所，日经指数期货上涨0.6%，报56705点。投资者正在关注中东和平谈判的任何进展，以及日本政府为帮助企业获得能源和石化产品而采取的任何措施。周三，日经指数上涨5.4%，至56308.42点。责任编辑：王永生
+发布时间：2026年06月15日 16:13 来源：中国新闻网 15日，A股三大指数集体上涨，截至收盘，上证指数涨1.61%，深证成指涨3.79%，创业板指涨5.3%重返4000点上方，科创50指数涨5.12%。盘面上，电子元器件、贵金属、通信设备等行业板块涨幅居前；概念板块方面，覆铜板、电路板、光模块(CPO)概念表现亮眼。(记者 谢艺观） 责任编辑：【程春雨】
 
 ## 正文
 
-在有条件的停火之后，结束战争的美伊谈判希望延续，日本股市或将上涨。
+发布时间：2026年06月15日 16:13 来源：中国新闻网 15日，A股三大指数集体上涨，截至收盘，上证指数涨1.61%，深证成指涨3.79%，创业板指涨5.3%重返4000点上方，科创50指数涨5.12%。
 
-在新加坡交易所，日经指数期货上涨0.6%，报56705点。
+盘面上，电子元器件、贵金属、通信设备等行业板块涨幅居前；概念板块方面，覆铜板、电路板、光模块(CPO)概念表现亮眼。
 
-投资者正在关注中东和平谈判的任何进展，以及日本政府为帮助企业获得能源和石化产品而采取的任何措施。
-
-周三，日经指数上涨5.4%，至56308.42点。
-
-责任编辑：王永生
+(记者 谢艺观） 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-30 03:26 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 03:11 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-30 03:23 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 03:26 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 03:23 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 03:26 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 03:19 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 03:13 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 03:15 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 03:09 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 03:34 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 03:15 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 03:27 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-30 03:26 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 03:12 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 03:19 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 03:20 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 03:14 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 03:27 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 03:42 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 03:12 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 03:22 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 03:16 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 03:23 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/910569775.shtml)
-- 2026-06-30 03:22 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/484801.shtml)
-- 2026-06-30 03:22 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/28384.shtml)
-- 2026-06-30 03:20 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/7477091.shtml)
-- 2026-06-30 03:16 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/335140693268.shtml)
-- 2026-06-30 03:17 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/802776383.shtml)
-- 2026-06-30 03:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/568261.shtml)
-- 2026-06-30 03:28 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/39480.shtml)
-- 2026-06-30 03:30 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/275113478.shtml)
-- 2026-06-30 03:16 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/72195989419.shtml)
-- 2026-06-30 03:26 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/55854.shtml)
-- 2026-06-30 03:14 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/524756517.shtml)
-- 2026-06-30 03:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/985603436235.shtml)
-- 2026-06-30 03:09 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/4511086356.shtml)
-- 2026-06-30 03:24 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/8464159408.shtml)
+- 2026-06-30 03:23 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/48477.shtml)
+- 2026-06-30 03:38 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/51632001.shtml)
+- 2026-06-30 03:21 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/7335409.shtml)
+- 2026-06-30 03:16 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/29989.shtml)
+- 2026-06-30 03:21 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/01037.shtml)
+- 2026-06-30 03:14 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/9229080.shtml)
+- 2026-06-30 03:27 - [TOP Prada](https://www.share.minike.top/Article/details/15421.shtml)
+- 2026-06-30 03:34 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/61171.shtml)
+- 2026-06-30 03:40 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/1920642.shtml)
+- 2026-06-30 03:34 - [斛珠夫人](http://www.blog.minike.top/Article/details/46453675.shtml)
+- 2026-06-30 03:17 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/8988460560.shtml)
+- 2026-06-30 03:24 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/9869188.shtml)
+- 2026-06-30 03:23 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/5618046940.shtml)
+- 2026-06-30 03:39 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/13067954.shtml)
+- 2026-06-30 03:20 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/904273.shtml)

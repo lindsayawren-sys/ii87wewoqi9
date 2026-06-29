@@ -1,56 +1,56 @@
-# 首次实现承保盈利 大家财险以专业与温度交出高质量发展答卷
+# 光大期货：6月15日软商品日报
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-这一年，大家财险以一份厚重的答卷，回应着时代的命题。当丹东的草莓种植户从“靠天吃饭”到“保收入”无忧，当百万外卖骑手在风雨中多了一份安全保障，当国内首单消费级外骨骼责任险为硬核科技“兜底”——这些微小而坚实的瞬间，汇聚成大家财险2025年最生动的成绩单。大家财险不仅圆满完成三年发展规划，更首次实现承保盈利，综合成本率优化至99.83%，跻身行业中上水平，以106.33亿元的原保
+白糖：分歧仍存 未来震荡加剧 （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 1、原糖：本周原糖期价继续下探。消息方面，美国农业部海外农业局预计，2026/27榨季全球食糖产量预计将 下降120万吨，至1.849亿吨。巴西：产量预计4250万吨（下降130万吨），原因是乙醇掺混比例从27%提高至30%， 糖醇比中糖占48%。出口量和消费量预计均下降。
 
 ## 正文
 
-这一年，大家财险以一份厚重的答卷，回应着时代的命题。
+白糖：分歧仍存 未来震荡加剧 （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 1、原糖：本周原糖期价继续下探。
 
-当丹东的草莓种植户从“靠天吃饭”到“保收入”无忧，当百万外卖骑手在风雨中多了一份安全保障，当国内首单消费级外骨骼责任险为硬核科技“兜底”——这些微小而坚实的瞬间，汇聚成大家财险2025年最生动的成绩单。
+消息方面，美国农业部海外农业局预计，2026/27榨季全球食糖产量预计将 下降120万吨，至1.849亿吨。
 
-大家财险不仅圆满完成三年发展规划，更首次实现承保盈利，综合成本率优化至99.83%，跻身行业中上水平，以106.33亿元的原保费收入站上百亿新台阶。
+巴西：产量预计4250万吨（下降130万吨），原因是乙醇掺混比例从27%提高至30%， 糖醇比中糖占48%。
 
-这是关于“守护”的坚守，更是关于“价值”的诠释，大家财险以向“内”深耕的定力、以“质”取胜的决心，迈入稳健发展的新阶段。
+出口量和消费量预计均下降。
 
-胸怀“国之大者”，以坚实保障彰显国企担当 大家财险始终牢记国有金融机构的职责使命，近三年累计为社会提供风险保障超过95万亿元，支付赔款170亿元，持续发挥保险“经济减震器”和“社会稳定器”功能。
+印度：产量预计3360万吨，种植面积近600万公顷（较上一年 度增加2%），北方邦、马哈拉施特拉邦和卡纳塔克邦合计产量占比约60%，期末库存上升。
 
-服务乡村振兴，守护大国粮仓与特色产业。
+泰国：产量预计950 万吨（下降180万吨），因上一年度收购价被定在生产成本以下，种植面积缩减。
 
-农业保险服务已覆盖16省市121个县区，三年来，为超137万户次农户提供412亿元风险保障。
+消费量和出口量预计保持稳定。
 
-不仅持续推进农业保险扩面、增品、提标，更因地制宜创新服务：在辽宁丹东首创草莓全产业链“一揽子”保险，在陕西杨凌开发高标准农田保险，有效满足地方现代农业高质量发展的风险保障需求。
+2、国内现货：广西制糖集团报价区间为5270~5380元/吨，云南制糖集团报价5080~5140元/吨；加工糖厂主流 报价区间为5680~6050元/吨。
 
 ## 相关推荐
 
-- 2026-06-30 03:18 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 03:33 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 03:15 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 03:33 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 03:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 03:06 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 03:19 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 03:09 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 03:22 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 03:08 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 03:33 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 03:15 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 03:23 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 03:28 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 03:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 03:28 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 03:19 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 03:23 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 03:32 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 03:30 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:33 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/53993.shtml)
-- 2026-06-30 03:23 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/8532092788.shtml)
-- 2026-06-30 03:17 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/0138099.shtml)
-- 2026-06-30 03:23 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/33423.shtml)
-- 2026-06-30 03:17 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/19554011.shtml)
-- 2026-06-30 03:17 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/12031.shtml)
-- 2026-06-30 03:21 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/1164491108.shtml)
-- 2026-06-30 03:33 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/287994059.shtml)
-- 2026-06-30 03:17 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/35016.shtml)
-- 2026-06-30 03:08 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/62417039880.shtml)
-- 2026-06-30 03:06 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/18799003282.shtml)
-- 2026-06-30 03:13 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/11787180.shtml)
-- 2026-06-30 03:19 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/1896928.shtml)
-- 2026-06-30 03:20 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/21657508.shtml)
-- 2026-06-30 03:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/476791.shtml)
+- 2026-06-30 03:36 - [内马尔替补](https://www.blog.minike.top/Article/details/802000.shtml)
+- 2026-06-30 03:38 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/99084517899.shtml)
+- 2026-06-30 03:33 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/49375546.shtml)
+- 2026-06-30 03:28 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/702339540.shtml)
+- 2026-06-30 03:30 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/8274366944.shtml)
+- 2026-06-30 03:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/52420.shtml)
+- 2026-06-30 03:35 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/44391.shtml)
+- 2026-06-30 03:36 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/73813421.shtml)
+- 2026-06-30 03:35 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/5993713883.shtml)
+- 2026-06-30 03:40 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/3985401.shtml)
+- 2026-06-30 03:25 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/46619750.shtml)
+- 2026-06-30 03:14 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/9940999382.shtml)
+- 2026-06-30 03:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/9429153.shtml)
+- 2026-06-30 03:36 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/8639016639.shtml)
+- 2026-06-30 03:20 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/022919567.shtml)

@@ -1,59 +1,52 @@
-# CEO吴泳铭带队，技术派掌权！阿里挥刀AI组织重构
+# 汪小菲现身海峡论坛大会：欢迎更多台湾年轻人来看看祖国大陆
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-4月8日，阿里巴巴集团CEO吴泳铭发布内部信，宣布AI相关组织调整，包括新设立集团技术委员会，升级通义大模型事业部，加速AI建设。 今年3月，在前阿里千问大模型技术负责人林俊旸及部分团队成员的离职风波中，阿里曾表示公司将成立基础模型支持小组，由吴泳铭、周靖人、范禹共同协调集团资源支持基础模型建设。 如今，随着AI战略的深化，阿里在集团层面的AI资源整合与调配正加速落地。伴随着林
+发布时间：2026年06月13日 14:43 来源：中国新闻网 第十八届海峡论坛大会6月13日在厦门举行。汪小菲现身大会会场，在接受中新社记者采访时表示，两岸交流更加丰富，欢迎更多台湾年轻人来看看大陆的变化。 作为两岸民间规模最大的交流盛会，海峡论坛自2009年创办以来，始终秉持“两岸一家亲”的理念，坚守基层民间交流本色，为两岸同胞搭建交流、交友、交心的重要平台。(记者 吴晟炜
 
 ## 正文
 
-4月8日，阿里巴巴集团CEO吴泳铭发布内部信，宣布AI相关组织调整，包括新设立集团技术委员会，升级通义大模型事业部，加速AI建设。
+发布时间：2026年06月13日 14:43 来源：中国新闻网 第十八届海峡论坛大会6月13日在厦门举行。
 
-今年3月，在前阿里千问大模型技术负责人林俊旸及部分团队成员的离职风波中，阿里曾表示公司将成立基础模型支持小组，由吴泳铭、周靖人、范禹共同协调集团资源支持基础模型建设。
+汪小菲现身大会会场，在接受中新社记者采访时表示，两岸交流更加丰富，欢迎更多台湾年轻人来看看大陆的变化。
 
-如今，随着AI战略的深化，阿里在集团层面的AI资源整合与调配正加速落地。
+作为两岸民间规模最大的交流盛会，海峡论坛自2009年创办以来，始终秉持“两岸一家亲”的理念，坚守基层民间交流本色，为两岸同胞搭建交流、交友、交心的重要平台。
 
-伴随着林俊旸的离职，阿里内部对AI人才的管理方式及模型训练资源分配的合理性等曾受到外界关注，围绕AI的组织调整也变得更为迫切。
-
-根据内部信，阿里巴巴将在集团层面设立技术委员会，由吴泳铭担任组长，成员包括周靖人、吴泽明、李飞飞（花名飞刀）。
-
-其中，周靖人担任技术委员会首席AI架构师，李飞飞负责阿里云技术以及AI云基础设施建设，吴泽明负责集团业务技术平台以及AI推理平台建设。
-
-值得注意的是，李飞飞为阿里巴巴集团副总裁、阿里云数据库产品事业部总裁。
-
-此外，阿里还将通义实验室升级为通义大模型事业部，由周靖人负责；李飞飞出任阿里云CTO；吴泽明专注阿里巴巴集团CTO工作，淘宝闪购CEO职务由雷雁群接任。
+(记者 吴晟炜) 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-30 03:24 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 03:14 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-30 03:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 03:32 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-30 03:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 03:20 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-30 03:12 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 03:32 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 03:10 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 03:23 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 03:17 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 03:17 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 03:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 03:37 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 03:34 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-30 03:15 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-30 03:33 - [孙兴慜道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 03:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 03:15 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 03:13 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 03:24 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 03:22 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 03:36 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 03:33 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 03:20 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 03:29 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 03:20 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:15 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/50015094177.shtml)
-- 2026-06-30 03:32 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/649387826.shtml)
-- 2026-06-30 03:13 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/296884465.shtml)
-- 2026-06-30 03:30 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/676085.shtml)
-- 2026-06-30 03:32 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/4716291.shtml)
-- 2026-06-30 03:06 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/037470456004.shtml)
-- 2026-06-30 03:19 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/28336.shtml)
-- 2026-06-30 03:08 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/3998962715.shtml)
-- 2026-06-30 03:33 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/98267868.shtml)
-- 2026-06-30 03:20 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/56298909.shtml)
-- 2026-06-30 03:15 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/22065680460.shtml)
-- 2026-06-30 03:32 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/522839797.shtml)
-- 2026-06-30 03:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/46498.shtml)
-- 2026-06-30 03:11 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/7146128.shtml)
-- 2026-06-30 03:13 - [房价什么时候能涨](https://www.share.minike.top/Article/details/35514.shtml)
+- 2026-06-30 03:13 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/7397820.shtml)
+- 2026-06-30 03:32 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/246835.shtml)
+- 2026-06-30 03:19 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/3572719639.shtml)
+- 2026-06-30 03:28 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/4253240822.shtml)
+- 2026-06-30 03:25 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/614009408897.shtml)
+- 2026-06-30 03:23 - [巴西扳平比分](https://www.share.minike.top/Article/details/309202234961.shtml)
+- 2026-06-30 03:14 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/851598.shtml)
+- 2026-06-30 03:18 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/354364331.shtml)
+- 2026-06-30 03:30 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/57652647809.shtml)
+- 2026-06-30 03:30 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/5348154890.shtml)
+- 2026-06-30 03:33 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/984227746151.shtml)
+- 2026-06-30 03:31 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/410593943.shtml)
+- 2026-06-30 03:33 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/82300582700.shtml)
+- 2026-06-30 03:20 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/8632876217.shtml)
+- 2026-06-30 03:36 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/92125528740.shtml)

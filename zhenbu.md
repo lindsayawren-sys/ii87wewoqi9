@@ -1,59 +1,55 @@
-# 蜜雪冰城“早餐系列”已下架，7.9元的早餐曾被消费者嫌贵
+# 威海银行与恒源控股订立H股认购协议
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-蜜雪冰城阶段性早餐试点业务系列产品已下架。 4月9日，界面新闻记者查看蜜雪冰城官方点单小程序，此前上线的早餐系列已全面撤出菜单。据媒体记者在杭州、西安、大连、南宁四座试点城市的门店了解到，各试点门店也均已停止供应相关产品。门店工作人员表示，该业务属于前期试点项目，年前结束测试就统一撤出了，至于后续是否还会上架，暂未接到总部的相关通知。 蜜雪冰城于去年11月底启动早餐试点，试点范
+威海银行（09677）发布公告，于2026年6月14日，该行与恒源控股订立H股认购协议，据此恒源控股有条件同意认购，且该行有条件同意配发及发行不超过1.5亿股H股，认购价为每股H股人民币3.29元，现金代价不超过人民币4.94亿元。 本次发行的发行价格为每股人民币3.29元（相当于每股3.61港元较紧接H股认购协议日期前最后交易日香港联交所所报收市价每股H股2.86港元溢价约2
 
 ## 正文
 
-蜜雪冰城阶段性早餐试点业务系列产品已下架。
+威海银行（09677）发布公告，于2026年6月14日，该行与恒源控股订立H股认购协议，据此恒源控股有条件同意认购，且该行有条件同意配发及发行不超过1.5亿股H股，认购价为每股H股人民币3.29元，现金代价不超过人民币4.94亿元。
 
-4月9日，界面新闻记者查看蜜雪冰城官方点单小程序，此前上线的早餐系列已全面撤出菜单。
+本次发行的发行价格为每股人民币3.29元（相当于每股3.61港元较紧接H股认购协议日期前最后交易日香港联交所所报收市价每股H股2.86港元溢价约26.22%。
 
-据媒体记者在杭州、西安、大连、南宁四座试点城市的门店了解到，各试点门店也均已停止供应相关产品。
+本次发行根据股东于2025年9月29日召开的临时股东大会及类别股东会议授出的特别授权发行。
 
-门店工作人员表示，该业务属于前期试点项目，年前结束测试就统一撤出了，至于后续是否还会上架，暂未接到总部的相关通知。
+本次发行募集的资金在扣除相关发行费用后的净额将全部用于补充该行核心一级资本。
 
-蜜雪冰城于去年11月底启动早餐试点，试点范围仅覆盖大连、西安、南宁、杭州几座城市的部分门店，筛选标准主要参考门店周边客流情况及地理位置，优先选择写字楼周边等早餐需求相对集中的点位。
+自2026年6月14日起，该行已采用替代门槛以符合香港上市规则第19A.28B条的规定。
 
-试点的目的主要是填补门店早间10点前的经营低峰时段，通过全时段运营盘活闲置产能、提升单店坪效，这也是蜜雪冰城在行业竞争背景下，挖掘增量空间的一次尝试。
-
-在“早餐系列”上架前，蜜雪冰城还曾通过社群及微信朋友圈等渠道发布相关调查问卷，问题主要围绕消费者早餐选择、口味偏好、价格区间等。
-
-问卷内容涵盖豆浆、油条、三明治、咖啡等多种早餐选项，也调研了受访者年龄、职业、地区及早餐消费支出等信息。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:18 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 03:29 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 03:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 03:16 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 03:24 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 03:28 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-30 03:32 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 03:20 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 03:17 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 03:11 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 03:20 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 03:35 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 03:27 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 03:24 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 03:19 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 03:15 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 03:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 03:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 03:12 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 03:30 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 03:34 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 03:33 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 03:17 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 03:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 03:40 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 03:31 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:23 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/09093.shtml)
-- 2026-06-30 03:09 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/92679383.shtml)
-- 2026-06-30 03:12 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/0687637.shtml)
-- 2026-06-30 03:25 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/62921741.shtml)
-- 2026-06-30 03:07 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/91530524419.shtml)
-- 2026-06-30 03:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/85740351073.shtml)
-- 2026-06-30 03:26 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/68586450302.shtml)
-- 2026-06-30 03:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/28218941699.shtml)
-- 2026-06-30 03:19 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/04977.shtml)
-- 2026-06-30 03:17 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/62973.shtml)
-- 2026-06-30 03:08 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/70109.shtml)
-- 2026-06-30 03:07 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/36852984.shtml)
-- 2026-06-30 03:26 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/5035184058.shtml)
-- 2026-06-30 03:29 - [急先锋](http://www.blog.kurohicncr.top/Article/details/201482453.shtml)
-- 2026-06-30 03:09 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/35860532672.shtml)
+- 2026-06-30 03:38 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/3717050.shtml)
+- 2026-06-30 03:40 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/388745768.shtml)
+- 2026-06-30 03:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/999169964.shtml)
+- 2026-06-30 03:23 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/366649.shtml)
+- 2026-06-30 03:23 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/045827316.shtml)
+- 2026-06-30 03:29 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/2293369888.shtml)
+- 2026-06-30 03:23 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/6515753.shtml)
+- 2026-06-30 03:38 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/744278838.shtml)
+- 2026-06-30 03:27 - [巴西扳平比分](https://www.share.minike.top/Article/details/023021225.shtml)
+- 2026-06-30 03:14 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/568939319133.shtml)
+- 2026-06-30 03:22 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/105111285.shtml)
+- 2026-06-30 03:23 - [我和我的家乡](http://www.share.minike.top/Article/details/86815677668.shtml)
+- 2026-06-30 03:38 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/99254.shtml)
+- 2026-06-30 03:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/32803189600.shtml)
+- 2026-06-30 03:18 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/3706228.shtml)

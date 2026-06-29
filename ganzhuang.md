@@ -1,61 +1,54 @@
-# 来伊份2025年巨亏却迎投资大佬接盘，大额协议转让公告前股价蹊跷涨停！
+# 美加墨世界杯开赛迄今，亚洲区球队仍无败绩
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-每经记者|闫峰峰 每经编辑|吴永久 4月8日晚，来伊份发布了控股股东方面大额协议转让股份的公告，而此前公司控股股东已经减持较多股份。来伊份已连续两年亏损，其中2025年亏损更是进一步扩大，预计亏损约1.7亿元。然而，公司控股股东方面的大额“卖股”反而提振了市场情绪，公司股价在4月9日涨停。值得注意的是，在公司发布协议转让公告前，公司股价在4月8日已经涨停。目前，公司股价已经连续
+中新网6月14日电 北京时间14日，美加墨世界杯共进行了四场小组赛争夺。焦点之战中，巴西队与摩洛哥队以1比1收场。苏格兰队1比0战胜海地队，超越巴西、摩洛哥暂列小组第一。 澳大利亚队2比0击败土耳其队。卡塔尔队补时进球1比1逼平瑞士队，收获世界杯首个积分。开赛迄今，亚洲区球队保持不败。(完)
 
 ## 正文
 
-每经记者|闫峰峰 每经编辑|吴永久 4月8日晚，来伊份发布了控股股东方面大额协议转让股份的公告，而此前公司控股股东已经减持较多股份。
+中新网6月14日电 北京时间14日，美加墨世界杯共进行了四场小组赛争夺。
 
-来伊份已连续两年亏损，其中2025年亏损更是进一步扩大，预计亏损约1.7亿元。
+焦点之战中，巴西队与摩洛哥队以1比1收场。
 
-然而，公司控股股东方面的大额“卖股”反而提振了市场情绪，公司股价在4月9日涨停。
+苏格兰队1比0战胜海地队，超越巴西、摩洛哥暂列小组第一。
 
-值得注意的是，在公司发布协议转让公告前，公司股价在4月8日已经涨停。
+澳大利亚队2比0击败土耳其队。
 
-目前，公司股价已经连续两日涨停。
+卡塔尔队补时进球1比1逼平瑞士队，收获世界杯首个积分。
 
-来伊份4月8日晚间发布公告称，公司控股股东上海爱屋企业管理有限公司（以下简称爱屋企管）及其一致行动人郁瑞芬、施辉拟将合计3344.24万股（占总股本10%）以11.48元/股的价格，协议转让给苏州东合恒一投资合伙企业（有限合伙）（以下简称东合恒一），总对价3.84亿元。
+开赛迄今，亚洲区球队保持不败。
 
-此次转让价格11.48元/股，较公告当日收盘价14.03元折价约18.17%。
-
-受让方东合恒一承诺自标的股份完成过户登记之日起18个月内不转让其持有的目标公司股份。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:29 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 03:14 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 03:25 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 03:34 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 03:32 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 03:27 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 03:28 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 03:28 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 03:13 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 03:35 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 03:29 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 03:12 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 03:21 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 03:06 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 03:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-30 03:22 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 03:27 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 03:28 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 03:31 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 03:15 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 03:13 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 03:13 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 03:30 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 03:25 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 03:20 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:26 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/111639.shtml)
-- 2026-06-30 03:28 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/7218259680.shtml)
-- 2026-06-30 03:20 - [小娘惹](http://www.blog.minike.top/Article/details/647139308.shtml)
-- 2026-06-30 03:29 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/7666622.shtml)
-- 2026-06-30 03:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/381343.shtml)
-- 2026-06-30 03:20 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/27221.shtml)
-- 2026-06-30 03:08 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/926238325716.shtml)
-- 2026-06-30 03:28 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/52693271382.shtml)
-- 2026-06-30 03:21 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/0865683486.shtml)
-- 2026-06-30 03:13 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/45148.shtml)
-- 2026-06-30 03:07 - [巴西绝杀](https://www.share.minike.top/Article/details/0313659.shtml)
-- 2026-06-30 03:24 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/185571224.shtml)
-- 2026-06-30 03:29 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/732507274464.shtml)
-- 2026-06-30 03:15 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/256128.shtml)
-- 2026-06-30 03:06 - [勇敢的心第二部](http://www.share.minike.top/Article/details/209631.shtml)
+- 2026-06-30 03:21 - [第一炉香](https://www.share.kurohicncr.top/Article/details/98205441768.shtml)
+- 2026-06-30 03:13 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/151534543888.shtml)
+- 2026-06-30 03:22 - [田曦薇没招了](http://www.share.minike.top/Article/details/85225.shtml)
+- 2026-06-30 03:18 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/731889816.shtml)
+- 2026-06-30 03:31 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/4845465401.shtml)
+- 2026-06-30 03:20 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/444544519595.shtml)
+- 2026-06-30 03:13 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/44608729.shtml)
+- 2026-06-30 03:32 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/584266.shtml)
+- 2026-06-30 03:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/80560907.shtml)
+- 2026-06-30 03:25 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/7146034.shtml)
+- 2026-06-30 03:18 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/01658.shtml)
+- 2026-06-30 03:18 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/809115635336.shtml)
+- 2026-06-30 03:34 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/844320.shtml)
+- 2026-06-30 03:18 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/625237.shtml)
+- 2026-06-30 03:17 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/63874.shtml)

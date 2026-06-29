@@ -1,56 +1,56 @@
-# 世界大健康博览会在武汉开幕 脑机接口等受关注
+# 清华大学推出保险竞争力排行榜，寿险财险三十强大排名
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-中新社武汉4月8日电 (记者 马芙蓉)2026年(第八届)世界大健康博览会8日在武汉开幕，来自中国、韩国、马来西亚等国家的300余家企业参展，集中展示大健康领域新产品、新技术。 具备检测、紧急呼叫、娱乐等功能的人工智能(AI)健康陪护机器人，可为视障人士提供引路、对话交流、安防监控等服务的导盲机器狗……现场，一批AI技术与医疗、康养、助残、康复等应用深度融合的产品亮相。其中，脑
+来源：险联社 “综合两份榜单能明显看出，保险行业“强者越来越强”的趋势已经十分清晰。头部保险公司靠着雄厚的资金、庞大的客户群体和多年积累的口碑，牢牢守住主流市场，行业两极分化变得越来越明显。” 近日，由清华大学五道口金融学院《清华金融评论》编制的《2026中国保险竞争力研究报告》正式发布，同时公布了寿险、财险公司三十强名单。 这份报告整理了各家保险公司去年一整年的经营数据，综合
 
 ## 正文
 
-中新社武汉4月8日电 (记者 马芙蓉)2026年(第八届)世界大健康博览会8日在武汉开幕，来自中国、韩国、马来西亚等国家的300余家企业参展，集中展示大健康领域新产品、新技术。
+来源：险联社 “综合两份榜单能明显看出，保险行业“强者越来越强”的趋势已经十分清晰。
 
-具备检测、紧急呼叫、娱乐等功能的人工智能(AI)健康陪护机器人，可为视障人士提供引路、对话交流、安防监控等服务的导盲机器狗……现场，一批AI技术与医疗、康养、助残、康复等应用深度融合的产品亮相。
+头部保险公司靠着雄厚的资金、庞大的客户群体和多年积累的口碑，牢牢守住主流市场，行业两极分化变得越来越明显。
 
-其中，脑机接口、智能机器人等前沿成果备受关注。
+” 近日，由清华大学五道口金融学院《清华金融评论》编制的《2026中国保险竞争力研究报告》正式发布，同时公布了寿险、财险公司三十强名单。
 
-头戴无创脑电帽，想象要抓取的图片，系统解码意图后，驱动机械臂辅助完成图片抓取……在依瑞德集团展区，现场展示的“光电双模态”脑机接口康复系统引来关注。
+这份报告整理了各家保险公司去年一整年的经营数据，综合考量资金体量、赚钱能力、风险把控和服务水平，对上百家险企进行排名。
 
-该集团董事长蔡胜安介绍，目前该系统处于临床验证阶段，已可实现“意念控制”下的上肢、下肢及吞咽康复训练。
+从这两份榜单中，既能看清每家公司的真实实力，也能直观了解当下保险行业的竞争情况。
 
-来自山东、四川等地企业，还展出针对下肢、手等部位的脑机接口康复系统，以及针对孤独症等疾病诊疗的脑功能评估系统。
+寿险榜单：巨头稳居前列，中小公司找准路子突围 本次一共有58家寿险公司参与评选，结合报告从资本实力、盈利能力、业务能力、风控能力、服务能力五大维度，能清晰看到行业全貌。
 
-蔡胜安认为，中国脑机接口产业正处于从技术验证向商业化落地加速迈进的关键阶段，未来将朝着场景化、智能化、个性化趋势发展。
+1．资本实力 寿险行业头部聚集效应十分突出，强者恒强的态势进一步加固。
 
-聚焦失能人员照护需求，湖北一企业带来智能行走机器人、辅助用餐机器人等产品。
+58家参评寿险公司总资产合计28.58万亿元，其中6家资产超万亿的企业，合计规模达21.38万亿元，占到行业总资产的74.8%。
 
 ## 相关推荐
 
-- 2026-06-30 03:20 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 03:27 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 03:21 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 03:12 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-30 03:18 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 03:09 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 03:21 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-30 03:11 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 03:32 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 03:34 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 03:32 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-30 03:35 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 03:32 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 03:25 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 03:16 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 03:22 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 03:35 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 03:26 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-30 03:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 03:35 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:08 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/3584803701.shtml)
-- 2026-06-30 03:11 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/687635564.shtml)
-- 2026-06-30 03:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/07110.shtml)
-- 2026-06-30 03:23 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/22939924.shtml)
-- 2026-06-30 03:06 - [沙丘](https://www.share.kurohicncr.top/Article/details/108037507.shtml)
-- 2026-06-30 03:08 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/128944466.shtml)
-- 2026-06-30 03:18 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/493912.shtml)
-- 2026-06-30 03:08 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/8496771086.shtml)
-- 2026-06-30 03:24 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/5052058.shtml)
-- 2026-06-30 03:36 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/7493374514.shtml)
-- 2026-06-30 03:24 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/53142500.shtml)
-- 2026-06-30 03:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/3405720981.shtml)
-- 2026-06-30 03:12 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/395357348.shtml)
-- 2026-06-30 03:08 - [沙丘](http://www.blog.minike.top/Article/details/648680348971.shtml)
-- 2026-06-30 03:20 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/124565.shtml)
+- 2026-06-30 03:34 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/5894212.shtml)
+- 2026-06-30 03:22 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/26801416209.shtml)
+- 2026-06-30 03:27 - [一生一世](http://www.blog.minike.top/Article/details/63215395101.shtml)
+- 2026-06-30 03:30 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/7778715949.shtml)
+- 2026-06-30 03:27 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/109267.shtml)
+- 2026-06-30 03:17 - [第一炉香](http://www.share.minike.top/Article/details/66991190.shtml)
+- 2026-06-30 03:21 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/346841511734.shtml)
+- 2026-06-30 03:12 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/34328642772.shtml)
+- 2026-06-30 03:37 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/276155394827.shtml)
+- 2026-06-30 03:23 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/594638250.shtml)
+- 2026-06-30 03:25 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/036372708.shtml)
+- 2026-06-30 03:32 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/03613.shtml)
+- 2026-06-30 03:20 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/951563715.shtml)
+- 2026-06-30 03:37 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/992003.shtml)
+- 2026-06-30 03:21 - [锐评T1零封KC](https://www.share.minike.top/Article/details/564132.shtml)

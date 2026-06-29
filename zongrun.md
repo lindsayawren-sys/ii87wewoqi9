@@ -1,52 +1,60 @@
-# 天津银行2025年度报告出炉：实现净利润39.3亿元 同比增长2.6%
+# 第十届“互联网+”物流供应链管理与运作国际研讨会在沈阳举行
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-4月8日金融一线消息，天津银行今日发布2025年度报告。报告显示，截至2025年末，该行资产总额达9824亿元，较上年末增长6.1%；负债总额9112.5亿元，较上年末增长6.4%。实现营业收入169.5亿元，同比增长1.5%；利润总额43.6亿元，同比增长3.7%；净利润39.3亿元，同比增长2.6%。 报告期内，天津银行利息收入为304.7亿元，较上年同期减少5.2亿元，同
+中新网沈阳6月12日电(杨茜茜)作为2026辽宁国际友城大会重要主题分论坛之一，11日，第十届“互联网+”物流供应链管理与运作国际研讨会暨国际产学研用合作会议在东北大学国际学术交流中心启幕。本次活动聚焦数字时代物流供应链变革，搭建起中外学术交流与产业合作的高端平台。辽宁省人民政府外事办公室党组成员、副主任赵洪斌出席会议，东北大学副校长王兴伟出席并致辞。东北大学信息科学与工程学院
 
 ## 正文
 
-4月8日金融一线消息，天津银行今日发布2025年度报告。
+中新网沈阳6月12日电(杨茜茜)作为2026辽宁国际友城大会重要主题分论坛之一，11日，第十届“互联网+”物流供应链管理与运作国际研讨会暨国际产学研用合作会议在东北大学国际学术交流中心启幕。
 
-报告显示，截至2025年末，该行资产总额达9824亿元，较上年末增长6.1%；负债总额9112.5亿元，较上年末增长6.4%。
+本次活动聚焦数字时代物流供应链变革，搭建起中外学术交流与产业合作的高端平台。
 
-实现营业收入169.5亿元，同比增长1.5%；利润总额43.6亿元，同比增长3.7%；净利润39.3亿元，同比增长2.6%。
+辽宁省人民政府外事办公室党组成员、副主任赵洪斌出席会议，东北大学副校长王兴伟出席并致辞。
 
-报告期内，天津银行利息收入为304.7亿元，较上年同期减少5.2亿元，同比降幅1.7%；生息资产平均收益率3.74%，同比减少29个基点；投资收益为19.8亿元，较上年同期减少人民币6.2亿元，同比降幅23.9%。
+东北大学信息科学与工程学院黄敏教授作为会议主席致辞，香港中文大学(深圳)协理副校长蔡小强教授等专家学者现场分享前沿研究成果。
 
-责任编辑：秦艺
+本次论坛由东北大学牵头主办，汇聚全球多所顶尖高校及行业龙头企业的权威专家学者，围绕“互联网+”背景下物流供应链数字化变革、智能运营管理、产学研用融合创新等前沿议题展开研讨，为辽宁物流产业转型升级与对外开放合作注入新动能。
+
+据介绍，东北大学自2017年发起举办该系列研讨会(I+LSCMO)，至今已吸引47位主讲人发表79场主题演讲。
+
+今年的研讨会与“国际产学研用合作会议”同期举行，旨在搭建中外顶尖学者与从业者交流互动的桥梁，推广前沿方法与应用，挖掘“互联网+”物流供应链管理领域的国际合作机遇，助力辽宁构建开放合作的现代物流产业生态。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:26 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 03:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 03:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-30 03:22 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 03:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 03:14 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 03:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 03:20 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 03:13 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 03:25 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 03:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 03:13 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 03:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 03:17 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-30 03:29 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 03:34 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 03:13 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 03:24 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 03:40 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 03:13 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 03:27 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 03:32 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 03:20 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 03:18 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 03:15 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 03:39 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:07 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/22673.shtml)
-- 2026-06-30 03:31 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/9405672366.shtml)
-- 2026-06-30 03:09 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/23907246.shtml)
-- 2026-06-30 03:09 - [勇敢的心第二部](https://www.share.minike.top/Article/details/68462873.shtml)
-- 2026-06-30 03:24 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/70348788.shtml)
-- 2026-06-30 03:32 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/1005580.shtml)
-- 2026-06-30 03:13 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/990326814066.shtml)
-- 2026-06-30 03:32 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/1150650949.shtml)
-- 2026-06-30 03:25 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/871219433.shtml)
-- 2026-06-30 03:23 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/2601245.shtml)
-- 2026-06-30 03:22 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/143437938.shtml)
-- 2026-06-30 03:23 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/797846.shtml)
-- 2026-06-30 03:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/112516095.shtml)
-- 2026-06-30 03:32 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/219541255.shtml)
-- 2026-06-30 03:29 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/73196.shtml)
+- 2026-06-30 03:19 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/135431.shtml)
+- 2026-06-30 03:17 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/933714156.shtml)
+- 2026-06-30 03:29 - [送你一朵小红花](https://www.blog.minike.top/Article/details/7409984.shtml)
+- 2026-06-30 03:32 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/37460405987.shtml)
+- 2026-06-30 03:33 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/02478563254.shtml)
+- 2026-06-30 03:40 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/86145541382.shtml)
+- 2026-06-30 03:39 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/17023.shtml)
+- 2026-06-30 03:30 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/5420450509.shtml)
+- 2026-06-30 03:24 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/959984.shtml)
+- 2026-06-30 03:25 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/88847.shtml)
+- 2026-06-30 03:16 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/1413099523.shtml)
+- 2026-06-30 03:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/0337164320.shtml)
+- 2026-06-30 03:34 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/0698423.shtml)
+- 2026-06-30 03:30 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/734529878.shtml)
+- 2026-06-30 03:22 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/799460968867.shtml)

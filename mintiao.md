@@ -1,54 +1,59 @@
-# 外交部：世界经济和能源安全受到影响的根源在于伊朗战事
+# 中央纪委办公厅公开通报五起政绩观偏差典型案件
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-中新网北京4月8日电(记者 郭超凯)中国外交部发言人毛宁4月8日主持例行记者会。 有记者提问：尽管美伊已经达成临时停火协议，并同意暂时重新开放霍尔木兹海峡，但由此引发的能源危机可能还会持续一段时间。中国被指责在这场能源危机中受到的冲击相对较小。中方对此有何回应？ 毛宁：世界经济和能源安全受到影响的根源在于伊朗的战事。中方一贯坚决反对缺乏国际法依据、没有联合国安理会授权的非法单边
+据中央纪委国家监委网站6月15日消息，全党树立和践行正确政绩观学习教育开展以来，中央纪委国家监委坚决落实党中央决策部署，印发了《关于对违反正确政绩观行为强化责任追究的通知》，各级纪检监察机关严格监督执纪问责，严肃查处了一批政绩观偏差案件。日前，中央纪委办公厅对5起典型案件进行公开通报。 河北省邯郸市政府原党组成员、副市长任华山任性用权、盲目启动城中村征迁工作，违规打造网红景点等
 
 ## 正文
 
-中新网北京4月8日电(记者 郭超凯)中国外交部发言人毛宁4月8日主持例行记者会。
+据中央纪委国家监委网站6月15日消息，全党树立和践行正确政绩观学习教育开展以来，中央纪委国家监委坚决落实党中央决策部署，印发了《关于对违反正确政绩观行为强化责任追究的通知》，各级纪检监察机关严格监督执纪问责，严肃查处了一批政绩观偏差案件。
 
-有记者提问：尽管美伊已经达成临时停火协议，并同意暂时重新开放霍尔木兹海峡，但由此引发的能源危机可能还会持续一段时间。
+日前，中央纪委办公厅对5起典型案件进行公开通报。
 
-中国被指责在这场能源危机中受到的冲击相对较小。
+河北省邯郸市政府原党组成员、副市长任华山任性用权、盲目启动城中村征迁工作，违规打造网红景点等问题。
 
-中方对此有何回应？
+2021年至2024年，任华山任廊坊市文安县委书记期间，为追求个人政绩，未经深入调研，在明知项目资金不足、“三保”等支出难以足额保障的情况下，盲目同时启动多个城中村征迁项目。
 
-毛宁：世界经济和能源安全受到影响的根源在于伊朗的战事。
+因资金不足且融资困难，部分村安置房项目未能如期完工交付，村民无法及时回迁安置，工人工资被拖欠。
 
-中方一贯坚决反对缺乏国际法依据、没有联合国安理会授权的非法单边制裁。
+2022年2月，任华山为打造城南花海人文网红景点，明知该项目存在违法占地、不符合规划等问题，仍然大力推动、要求施工。
 
-(完)
+2023年9月，项目违法建设部分被拆除，造成严重经济损失。
+
+任华山还存在其他严重违纪违法问题，被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
 
 ## 相关推荐
 
-- 2026-06-30 03:28 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 03:10 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 03:23 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 03:15 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 03:17 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 03:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-30 03:09 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 03:20 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 03:15 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 03:25 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 03:19 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 03:35 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 03:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 03:22 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 03:34 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 03:24 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 03:36 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 03:17 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 03:34 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 03:26 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 03:14 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 03:32 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 03:31 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:30 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/52444.shtml)
-- 2026-06-30 03:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/974193.shtml)
-- 2026-06-30 03:10 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/035872129.shtml)
-- 2026-06-30 03:16 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/94604.shtml)
-- 2026-06-30 03:22 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/926379596909.shtml)
-- 2026-06-30 03:10 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/291984.shtml)
-- 2026-06-30 03:22 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/977102.shtml)
-- 2026-06-30 03:24 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/358941858.shtml)
-- 2026-06-30 03:08 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/2785360044.shtml)
-- 2026-06-30 03:22 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/384469201071.shtml)
-- 2026-06-30 03:19 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/6219687.shtml)
-- 2026-06-30 03:28 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/4537729.shtml)
-- 2026-06-30 03:08 - [天道](https://www.blog.minike.top/Article/details/020265662.shtml)
-- 2026-06-30 03:33 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/018300.shtml)
-- 2026-06-30 03:29 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/817076.shtml)
+- 2026-06-30 03:36 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/93086729809.shtml)
+- 2026-06-30 03:38 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/23254528.shtml)
+- 2026-06-30 03:28 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/6838253.shtml)
+- 2026-06-30 03:22 - [金刚川](https://www.share.kurohicncr.top/Article/details/57383.shtml)
+- 2026-06-30 03:34 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/04743745794.shtml)
+- 2026-06-30 03:14 - [第一炉香](https://www.share.kurohicncr.top/Article/details/2188662.shtml)
+- 2026-06-30 03:31 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/350528313541.shtml)
+- 2026-06-30 03:31 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/3397040404.shtml)
+- 2026-06-30 03:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/04434881773.shtml)
+- 2026-06-30 03:38 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/09428.shtml)
+- 2026-06-30 03:19 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/514121.shtml)
+- 2026-06-30 03:21 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/150877512413.shtml)
+- 2026-06-30 03:36 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/348733740.shtml)
+- 2026-06-30 03:15 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/7013971581.shtml)
+- 2026-06-30 03:37 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/974331906449.shtml)

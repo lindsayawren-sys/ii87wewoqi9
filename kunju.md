@@ -1,56 +1,56 @@
-# 田埂上的育种人：她用15年给“中国薯都”添新成员
+# 钨退钼进，势不可挡？
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-中新网乌兰察布4月9日电 题：田埂上的育种人：她用15年给“中国薯都”添新成员 中新网记者 张林虎 “一个好的品种，从杂交到登记，至少要8到10年。”林团荣抚摸着组培瓶，像是在说自己的孩子。 在内蒙古自治区乌兰察布市农林科学研究院的组培中心，一排排组培瓶苗整齐地陈列在培养架上，嫩绿的脱毒苗在灯光下泛着油亮的光泽。林团荣弯下腰，透过玻璃瓶壁仔细端详着这批马铃薯脱毒苗的长势。这株看
+专题：AI超级周期未结束 重新审视避险资产 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！半导体行业观察 近日，据韩国媒体The Elec报道，SK海力士已顺利完成下一代V10系列375层3D NAND闪存的生产验证工作，并计划于今年年底前在韩国清州M15工厂正式实现量产。 这款产品最初在SK海力士内部被称为“400层级”NAND闪存，但因超高层数堆叠
 
 ## 正文
 
-中新网乌兰察布4月9日电 题：田埂上的育种人：她用15年给“中国薯都”添新成员 中新网记者 张林虎 “一个好的品种，从杂交到登记，至少要8到10年。
+专题：AI超级周期未结束 重新审视避险资产 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-”林团荣抚摸着组培瓶，像是在说自己的孩子。
+半导体行业观察 近日，据韩国媒体The Elec报道，SK海力士已顺利完成下一代V10系列375层3D NAND闪存的生产验证工作，并计划于今年年底前在韩国清州M15工厂正式实现量产。
 
-在内蒙古自治区乌兰察布市农林科学研究院的组培中心，一排排组培瓶苗整齐地陈列在培养架上，嫩绿的脱毒苗在灯光下泛着油亮的光泽。
+这款产品最初在SK海力士内部被称为“400层级”NAND闪存，但因超高层数堆叠工艺面临的技术挑战，尤其是沟道孔蚀刻等关键制程难度指数级上升，最终将实际量产层数下修至375层。
 
-林团荣弯下腰，透过玻璃瓶壁仔细端详着这批马铃薯脱毒苗的长势。
+然而，相较于层数的微调，真正令业界关注的关键变革，隐藏在一个细节里：这款375层NAND闪存首次在字线金属栅极中引入了钼（Mo）材料，取代了传统上已沿用了十余年的钨（W）薄膜。
 
-这株看似普通的脱毒苗，是她和团队花了十多年心血选育出的“宝贝”——蒙乌薯6号。
+然而，SK海力士的技术转向，并非孤例。
 
-2024年，这个品种以30万元的价格授权给一家公司，目前已进入量产种植阶段，亩产增效500元以上。
+在此之前，三星电子、美光等存储巨头就已布局了采用钼材料的相关产品；全球半导体设备龙头泛林半导体也明确表态，钨向钼的技术切换，是高层数3D NAND演进的唯一可行路径。
 
-从零起步的育种长跑 乌兰察布被称为“中国薯都”，是全国地级市里马铃薯种植规模最大的地方。
+随着行业巨头相继从钨转向钼，行业释放出一个清晰的信号：曾在存储芯片行业沿用十余年的钨材料体系迎来替代拐点。
 
-但在2013年林团荣刚接手马铃薯育种工作时，研究所的育种工作已中断多年，种质资源匮乏，育种体系几近空白。
+钼金属一跃成为支撑300层以上超高堆叠NAND闪存落地的核心关键材料。
 
 ## 相关推荐
 
-- 2026-06-30 03:18 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 03:33 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 03:23 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 03:22 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 03:32 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 03:32 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 03:27 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 03:16 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 03:24 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 03:23 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 03:23 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 03:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 03:20 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 03:39 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 03:30 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 03:28 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 03:21 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 03:20 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 03:35 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 03:15 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/18738872.shtml)
-- 2026-06-30 03:16 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/216459824.shtml)
-- 2026-06-30 03:26 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/265138828.shtml)
-- 2026-06-30 03:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/11469.shtml)
-- 2026-06-30 03:23 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/344734800304.shtml)
-- 2026-06-30 03:29 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/53109.shtml)
-- 2026-06-30 03:12 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/6798984924.shtml)
-- 2026-06-30 03:16 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/198435804327.shtml)
-- 2026-06-30 03:07 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/4858991.shtml)
-- 2026-06-30 03:11 - [金刚川](https://www.blog.minike.top/Article/details/55145666911.shtml)
-- 2026-06-30 03:14 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/923149318175.shtml)
-- 2026-06-30 03:07 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/354572284432.shtml)
-- 2026-06-30 03:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/78068843.shtml)
-- 2026-06-30 03:06 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/409121329065.shtml)
-- 2026-06-30 03:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/7257279333.shtml)
+- 2026-06-30 03:17 - [小娘惹](https://www.share.minike.top/Article/details/462314107.shtml)
+- 2026-06-30 03:23 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/75286932.shtml)
+- 2026-06-30 03:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/1523713.shtml)
+- 2026-06-30 03:37 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/23551.shtml)
+- 2026-06-30 03:29 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/0099133.shtml)
+- 2026-06-30 03:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/373369803.shtml)
+- 2026-06-30 03:21 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/48238571307.shtml)
+- 2026-06-30 03:35 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/441706325322.shtml)
+- 2026-06-30 03:24 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/0529606410.shtml)
+- 2026-06-30 03:34 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/275708501999.shtml)
+- 2026-06-30 03:27 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/34000.shtml)
+- 2026-06-30 03:14 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/6178084168.shtml)
+- 2026-06-30 03:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/035221684.shtml)
+- 2026-06-30 03:20 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/5186686.shtml)
+- 2026-06-30 03:27 - [乔家的儿女](https://www.share.minike.top/Article/details/90925.shtml)

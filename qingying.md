@@ -1,58 +1,59 @@
-# 神秘AI模型“屠榜”，阿里股价暴涨！港股AI强势逼空，华宝基金港股互联网ETF（513770）爆量涨6.3%创纪录
+# 紧跟数智化时代 “新华书店AI”在京发布
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-TACO剧本如期上演！美伊同意临时停火两周，4月8日，全球市场反弹，港股跳空高开，攻势迅猛，恒科指大涨5.22%！ 港股AI核心工具——港股互联网ETF华宝（513770）暴涨6.3%，创2024年10月以来最大单日涨幅，全天成交10亿元，创近一个半月新高！ 值得关注的是，午后行情猛攻区间，513770溢价走阔，显示买盘尤为强劲！节前最后一个交易日（4月2日），港股互联网ETF
+中新网北京6月15日电 数智化时代自媒体人成长研讨会暨新华书店AI正式发布仪式日前在京举行。现场正式发布了“新华书店AI”微信小程序，标志着新华书店在AI赋能全民阅读推广方面迈出重要一步。 “新华书店AI”以微信小程序为载体，聚焦读书博主发展核心难题，提供一站式图书带货解决方案及“社群陪跑”服务，全面覆盖选品、上架、内容创作、流量推广、社群维护等全链路，助力博主高效运营。 平台
 
 ## 正文
 
-TACO剧本如期上演！
+中新网北京6月15日电 数智化时代自媒体人成长研讨会暨新华书店AI正式发布仪式日前在京举行。
 
-美伊同意临时停火两周，4月8日，全球市场反弹，港股跳空高开，攻势迅猛，恒科指大涨5.22%！
+现场正式发布了“新华书店AI”微信小程序，标志着新华书店在AI赋能全民阅读推广方面迈出重要一步。
 
-港股AI核心工具——港股互联网ETF华宝（513770）暴涨6.3%，创2024年10月以来最大单日涨幅，全天成交10亿元，创近一个半月新高！
+“新华书店AI”以微信小程序为载体，聚焦读书博主发展核心难题，提供一站式图书带货解决方案及“社群陪跑”服务，全面覆盖选品、上架、内容创作、流量推广、社群维护等全链路，助力博主高效运营。
 
-值得关注的是，午后行情猛攻区间，513770溢价走阔，显示买盘尤为强劲！
+平台还构建了完善的博主职业化成长体系，助力普通读书博主实现专业化、职业化转型。
 
-节前最后一个交易日（4月2日），港股互联网ETF华宝场内价格刚刚创下近1年新低，阶段底部放量反攻，或释放拐点信号。
+在活动圆桌论坛环节，与会嘉宾围绕“有了AI工具之后，读书博主的竞争力在哪”核心议题展开深度研讨。
 
-权重龙头集体大涨，腾讯控股涨3.84%，阿里巴巴-W午后一度直线冲击8%，收涨6.75%，小米集团-W亦大涨6%，美团-W飙涨超10%！
+新华书店AI顾问、全网数商创始人徐欢提出，有了AI才能更好地做自己；新华互联武汉分公司负责人马俊认为，从业者最不可被替代的能力是如何正确地使用AI的能力；人民邮电出版社营销编辑马全宝则从出版社、读者双重视角，阐释了深度阅读与独立思考的重要意义。
 
-消息面，行业巨头阿里巴巴迎两大重磅利好！
-
-其一，阿里最新财务指引显示：4QFY26，即时零售亏损量级10bn+；FY27 vs FY26 QC目标减亏一半。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:18 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 03:14 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 03:35 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 03:26 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 03:26 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 03:29 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 03:16 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 03:33 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 03:15 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 03:27 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 03:07 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 03:10 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 03:27 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 03:23 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 03:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 03:24 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 03:41 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 03:20 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 03:23 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 03:39 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 03:27 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 03:14 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 03:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 03:28 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 03:33 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 03:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 03:34 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:10 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/26078106.shtml)
-- 2026-06-30 03:31 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/64334444.shtml)
-- 2026-06-30 03:34 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/35659700082.shtml)
-- 2026-06-30 03:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/3572069285.shtml)
-- 2026-06-30 03:18 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/7689559.shtml)
-- 2026-06-30 03:26 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/71543947.shtml)
-- 2026-06-30 03:31 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/06101043030.shtml)
-- 2026-06-30 03:35 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/959309114.shtml)
-- 2026-06-30 03:06 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/52932739908.shtml)
-- 2026-06-30 03:06 - [起风了](https://www.share.kurohicncr.top/Article/details/216997957301.shtml)
-- 2026-06-30 03:26 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/4197595837.shtml)
-- 2026-06-30 03:27 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/42922.shtml)
-- 2026-06-30 03:22 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/160623213.shtml)
-- 2026-06-30 03:18 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/38530.shtml)
-- 2026-06-30 03:21 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/9076989.shtml)
+- 2026-06-30 03:41 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/9128688213.shtml)
+- 2026-06-30 03:35 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/66186.shtml)
+- 2026-06-30 03:27 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/192655.shtml)
+- 2026-06-30 03:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/157912545.shtml)
+- 2026-06-30 03:38 - [月亮](https://www.share.kurohicncr.top/Article/details/06141780914.shtml)
+- 2026-06-30 03:13 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/9132317.shtml)
+- 2026-06-30 03:32 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/18044.shtml)
+- 2026-06-30 03:12 - [急先锋](http://www.blog.kurohicncr.top/Article/details/705307567.shtml)
+- 2026-06-30 03:18 - [一生一世](http://www.blog.minike.top/Article/details/7777209.shtml)
+- 2026-06-30 03:39 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/97594.shtml)
+- 2026-06-30 03:23 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/2851432691.shtml)
+- 2026-06-30 03:35 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/719952.shtml)
+- 2026-06-30 03:20 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/16558801.shtml)
+- 2026-06-30 03:28 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/683352.shtml)
+- 2026-06-30 03:36 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/489211.shtml)

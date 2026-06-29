@@ -1,56 +1,61 @@
-# 债券到期洪峰渐近 私募信贷市场的软件业问题恐进一步恶化
+# OPENLANE任命凯利·图米内利与大卫·霍尔特为董事会成员
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-近日把私募市场搅得天翻地覆的软件行业问题即将面临一场重大考验，一波债务到期洪峰正渐行渐近。 截至2028年底，将有超过3300亿美元的高收益债、杠杆贷款以及与商业发展公司相关的软件和科技债务到期，其中相当一部分与私募投资者持股的企业相关。当这些公司未来数月寻求再融资时，它们将面临诸多阻力，包括对人工智能（AI）可能削弱甚至取代其产品的担忧，到中东战争推高借贷成本的风险。 知情人
+美国二手车批发数字交易平台运营商OPENLANE宣布，任命凯利·图米内利和大卫·霍尔特为公司董事会成员。两人分别具备深厚的金融与汽车零售行业经验，将为公司的增长战略提供重要支持。 图米内利拥有超过30年的上市公司高级财务领导经验，曾任职于TriNet Group、Genworth Financial及通用电气等知名企业，专业领域涵盖财务管理、会计、投资者关系及资本管理。霍尔特则
 
 ## 正文
 
-近日把私募市场搅得天翻地覆的软件行业问题即将面临一场重大考验，一波债务到期洪峰正渐行渐近。
+美国二手车批发数字交易平台运营商OPENLANE宣布，任命凯利·图米内利和大卫·霍尔特为公司董事会成员。
 
-截至2028年底，将有超过3300亿美元的高收益债、杠杆贷款以及与商业发展公司相关的软件和科技债务到期，其中相当一部分与私募投资者持股的企业相关。
+两人分别具备深厚的金融与汽车零售行业经验，将为公司的增长战略提供重要支持。
 
-当这些公司未来数月寻求再融资时，它们将面临诸多阻力，包括对人工智能（AI）可能削弱甚至取代其产品的担忧，到中东战争推高借贷成本的风险。
+图米内利拥有超过30年的上市公司高级财务领导经验，曾任职于TriNet Group、Genworth Financial及通用电气等知名企业，专业领域涵盖财务管理、会计、投资者关系及资本管理。
 
-知情人士称，一些私募信贷基金直接回避软件业借款人，以缩减其对该行业的敞口。
+霍尔特则在汽车零售行业深耕逾30年，目前担任阿斯伯里汽车集团执行董事长，此前还曾在RLJ McLarty Landers、Group 1 Automotive、Penske Automotive Group及IRA Motor Group等企业担任要职。
 
-与此同时，一些由私募股权公司计划的软件公司出售交易已经陷入停滞。
+OPENLANE董事会主席马克·豪厄尔表示：“凯利在数字化前沿上市公司积累的深厚财务领导经验，以及大卫对汽车行业的深刻洞察，将进一步强化我们的董事会。
 
-MSCI Inc．研究人员表示：“私募信贷基金的软件业借款人杠杆更高，对未来增长预期依赖更强，因此对不利冲击更为敏感。
+大卫独特的客户视角和凯利的财务专长将助力OPENLANE持续推进增长战略、扩展市场领导地位。
 
-” 以下图表凸显了软件业押注遇挫给私募股权和信贷市场造成的压力。
+” 霍尔特加盟后，OPENLANE董事会规模扩大至10人。
 
-过去15年，私募市场管理人向软件行业配置了数千亿美元，押注软件即服务（SaaS）商业模式能够带来高增长和稳定现金流。
+据媒体报道，霍尔特在阿斯伯里汽车集团担任执行董事长之前，曾于2018年至2026年5月担任该公司总裁兼首席执行官，更早前还担任过首席运营官。
 
 ## 相关推荐
 
-- 2026-06-30 03:13 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 03:12 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 03:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 03:22 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 03:24 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 03:20 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 03:18 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 03:26 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 03:15 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 03:21 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 03:24 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 03:22 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 03:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 03:17 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 03:41 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 03:26 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 03:12 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 03:22 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 03:41 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 03:24 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 03:33 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 03:36 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 03:24 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 03:33 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 03:25 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:16 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/0393426256.shtml)
-- 2026-06-30 03:30 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/816198932.shtml)
-- 2026-06-30 03:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/91954372785.shtml)
-- 2026-06-30 03:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/0048679166.shtml)
-- 2026-06-30 03:07 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/14602.shtml)
-- 2026-06-30 03:19 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/3328442.shtml)
-- 2026-06-30 03:10 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/50417.shtml)
-- 2026-06-30 03:17 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/99882171.shtml)
-- 2026-06-30 03:16 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/3855450052.shtml)
-- 2026-06-30 03:11 - [流金岁月](https://www.share.kurohicncr.top/Article/details/74391528.shtml)
-- 2026-06-30 03:32 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/4493714.shtml)
-- 2026-06-30 03:26 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/246724825798.shtml)
-- 2026-06-30 03:12 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/864425387100.shtml)
-- 2026-06-30 03:31 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/78819594.shtml)
-- 2026-06-30 03:31 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/843186077.shtml)
+- 2026-06-30 03:40 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/0660534252.shtml)
+- 2026-06-30 03:15 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/715145.shtml)
+- 2026-06-30 03:23 - [美股](https://www.share.kurohicncr.top/Article/details/483778.shtml)
+- 2026-06-30 03:22 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/723353057.shtml)
+- 2026-06-30 03:28 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/12219059752.shtml)
+- 2026-06-30 03:26 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/3063042.shtml)
+- 2026-06-30 03:17 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/3988980893.shtml)
+- 2026-06-30 03:16 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/5113661.shtml)
+- 2026-06-30 03:25 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/01967.shtml)
+- 2026-06-30 03:17 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/26488594.shtml)
+- 2026-06-30 03:21 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/29720953.shtml)
+- 2026-06-30 03:26 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/526240927680.shtml)
+- 2026-06-30 03:19 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/742633.shtml)
+- 2026-06-30 03:33 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/9792415.shtml)
+- 2026-06-30 03:17 - [田曦薇没招了](http://www.share.minike.top/Article/details/5888135434.shtml)

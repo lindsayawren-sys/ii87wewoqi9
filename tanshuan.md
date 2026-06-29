@@ -1,56 +1,56 @@
-# 第139届广交会将首设无人机专区 展示低空经济创新成果
+# “史上最大IPO”SpaceX上市首秀惊艳！借道航空航天ETF华泰柏瑞（563380）助力把握大航天时代成长机遇
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-中新网广州4月8日电 (记者 程景伟)记者8日从中国对外贸易中心获悉，第139届广交会将在第一期展会首次设立无人机(消费级)专区和农业无人机专区，集中展示中国低空经济创新成果。 第139届广交会将于4月15日在广州开幕，展览面积155万平方米，展位数量7.55万个，吸引3万多家企业报名参展。截至4月6日，本届广交会境外采购商预登记人数已超19万。 两大无人机专区将分别位于广交会
+6月12日，全球航天领域迎来标志性事件，行业巨头SpaceX正式登陆纳斯达克，上市首日市值突破2万亿美元，这场规模空前的IPO也让全球资本市场进一步聚焦航天赛道。在资本赋能与技术迭代的双向驱动下，航空航天产业的长期投资价值受到市场关注。 作为当前全市场仅有的跟踪中证全指航空航天指数的ETF，航空航天ETF华泰柏瑞（563380）交投表现活跃，上周五单日成交额高达1.44亿元，创
 
 ## 正文
 
-中新网广州4月8日电 (记者 程景伟)记者8日从中国对外贸易中心获悉，第139届广交会将在第一期展会首次设立无人机(消费级)专区和农业无人机专区，集中展示中国低空经济创新成果。
+6月12日，全球航天领域迎来标志性事件，行业巨头SpaceX正式登陆纳斯达克，上市首日市值突破2万亿美元，这场规模空前的IPO也让全球资本市场进一步聚焦航天赛道。
 
-第139届广交会将于4月15日在广州开幕，展览面积155万平方米，展位数量7.55万个，吸引3万多家企业报名参展。
+在资本赋能与技术迭代的双向驱动下，航空航天产业的长期投资价值受到市场关注。
 
-截至4月6日，本届广交会境外采购商预登记人数已超19万。
+作为当前全市场仅有的跟踪中证全指航空航天指数的ETF，航空航天ETF华泰柏瑞（563380）交投表现活跃，上周五单日成交额高达1.44亿元，创下5月12日以来的成交峰值；资金布局意愿同样高涨，产品年内累计净流入9.69亿元，助推最新基金份额达9.19亿份，创下历史新高。
 
-两大无人机专区将分别位于广交会展馆D区20.2展厅与A区8.0展厅，展品覆盖消费娱乐与智慧农业两大领域。
+针对此次行业重大事件，多家券商机构发表积极看法。
 
-届时，消费级无人机化身“天空之眼”，聚焦文旅航拍、应急照明、物流运输、消防救援等场景；农业无人机则成为“种田高手”，凭借精准喷洒、播种、施肥等功能，助力农业现代化升级。
+其中，方正证券最新研报指出，SpaceX上市有望为全球商业航天公司带来估值锚定。
 
-据介绍，相关专区将重点呈现飞控系统、AI避障、新能源动力等技术突破，以及系留照明、物流运输、智能植保等多款新品。
+SpaceX上市最直接的行业意义，是为全球商业航天第一次建立了一个足够大、足够主流、足够有代表性的公开市场估值锚，同时有望使国内市场更愿意把商业航天视作有市场空间预期的科技行业而非传统的主题行情。
 
-从轻量化应急救援装备到超轻型载人飞行器，从高精度植保无人机到多功能作业平台，全方位展现中国无人机产业的技术实力与场景落地能力，成为本届广交会的一大亮点。
+放眼国内，航天领域正迎来技术试验与项目发射的集中窗口期。
 
-(完)
+6至7月，国家与民营航天企业同步推进多项重点任务，长征十二乙、朱雀三号遥二、长征十号乙等多款可回收火箭相继开展试验测试。
 
 ## 相关推荐
 
-- 2026-06-30 03:08 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-30 03:30 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 03:15 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 03:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 03:31 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 03:19 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 03:32 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 03:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 03:14 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 03:13 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 03:24 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 03:39 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 03:19 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 03:37 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 03:28 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 03:17 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 03:21 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 03:19 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 03:33 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 03:38 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:28 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/7136801743.shtml)
-- 2026-06-30 03:10 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/7511108.shtml)
-- 2026-06-30 03:11 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/8001589.shtml)
-- 2026-06-30 03:28 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/64336759825.shtml)
-- 2026-06-30 03:26 - [巴西绝杀日本](https://www.share.minike.top/Article/details/61502157754.shtml)
-- 2026-06-30 03:19 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/55458013.shtml)
-- 2026-06-30 03:13 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/309668.shtml)
-- 2026-06-30 03:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/4574740.shtml)
-- 2026-06-30 03:32 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/42990.shtml)
-- 2026-06-30 03:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/17017938.shtml)
-- 2026-06-30 03:06 - [天道](https://www.share.kurohicncr.top/Article/details/4266088.shtml)
-- 2026-06-30 03:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/64959968668.shtml)
-- 2026-06-30 03:13 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/58991473556.shtml)
-- 2026-06-30 03:08 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/0645992.shtml)
-- 2026-06-30 03:16 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/901814474320.shtml)
+- 2026-06-30 03:36 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/7736479.shtml)
+- 2026-06-30 03:38 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/06193628178.shtml)
+- 2026-06-30 03:37 - [斗破苍穹](https://www.blog.minike.top/Article/details/322434868.shtml)
+- 2026-06-30 03:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/11932663.shtml)
+- 2026-06-30 03:22 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/1197361.shtml)
+- 2026-06-30 03:33 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/20622219530.shtml)
+- 2026-06-30 03:19 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/35176155799.shtml)
+- 2026-06-30 03:32 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/7357949.shtml)
+- 2026-06-30 03:29 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/5765853.shtml)
+- 2026-06-30 03:30 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/76125411.shtml)
+- 2026-06-30 03:23 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/76481755963.shtml)
+- 2026-06-30 03:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/174038378.shtml)
+- 2026-06-30 03:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/72010197.shtml)
+- 2026-06-30 03:20 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/092522078.shtml)
+- 2026-06-30 03:20 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/48911451334.shtml)

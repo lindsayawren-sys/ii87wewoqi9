@@ -1,58 +1,51 @@
-# SK 海力士向戴尔供应 321 层 QLC 消费级固态硬盘：2230 尺寸，可选 1TB/2TB
+# “哒给厚！”张凌赫现身海峡论坛 用闽南语向大家问好
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-IT之家 4 月 8 日消息，据韩媒 The Elec 今天报道，SK 海力士宣布向客户供应 321 层 QLC（四层单元）消费级固态硬盘（SSD），进一步扩展 NAND 闪存产品阵容。据介绍，本次供应的产品名为 PQC21，采用 2230 小尺寸，提供 1TB、2TB 两种容量选择。QLC NAND 每个单元可以存储 4bit 数据，相比 SLC（单层单元）存储密度更高，但在
+发布时间：2026年06月13日 17:22 来源：中国新闻网 第十八届海峡论坛6月13日在厦门举行，演员张凌赫受邀出席活动。张凌赫此前曾回应台湾同胞的喜爱，称这是情感浓度产生的共鸣。国台办也多次表态支持两岸影视文化界“双向奔赴”，乐见大陆艺人赴台交流，拉近两岸同胞心理距离。(记者 郎佳慧 制作 王雪尔） 责任编辑：【吉翔】
 
 ## 正文
 
-IT之家 4 月 8 日消息，据韩媒 The Elec 今天报道，SK 海力士宣布向客户供应 321 层 QLC（四层单元）消费级固态硬盘（SSD），进一步扩展 NAND 闪存产品阵容。
+发布时间：2026年06月13日 17:22 来源：中国新闻网 第十八届海峡论坛6月13日在厦门举行，演员张凌赫受邀出席活动。
 
-据介绍，本次供应的产品名为 PQC21，采用 2230 小尺寸，提供 1TB、2TB 两种容量选择。
+张凌赫此前曾回应台湾同胞的喜爱，称这是情感浓度产生的共鸣。
 
-QLC NAND 每个单元可以存储 4bit 数据，相比 SLC（单层单元）存储密度更高，但在速度、耐久性方面有所下降。
+国台办也多次表态支持两岸影视文化界“双向奔赴”，乐见大陆艺人赴台交流，拉近两岸同胞心理距离。
 
-这款固态硬盘通过 321 层 4D 结构堆叠数千亿个 QLC 单元构建，采用 PUC（IT之家注：Periphery Under Cell）架构，可通过将外围电路放在存储单元阵列下方缩小芯片体积。
-
-同时，这款产品还采用 DP（Die Packaging）技术，可将多个 321 层 NAND 芯片封装为单一芯片，提升存储密度。
-
-配备 SLC 缓存技术，可以将部分数据先写入到速度更快的 SLC 区域，然后再转存至 QLC，从而提升写入性能。
-
-SK 海力士方面表示，这款产品本月已经向戴尔供货，计划扩展至全球更多客户。
+(记者 郎佳慧 制作 王雪尔） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-30 03:23 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 03:25 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 03:34 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 03:12 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 03:18 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 03:07 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 03:33 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 03:14 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 03:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 03:24 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 03:21 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 03:08 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 03:21 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 03:35 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 03:19 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 03:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 03:26 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 03:25 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 03:35 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 03:34 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 03:20 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 03:27 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 03:34 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 03:17 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 03:33 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 03:20 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 03:38 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:12 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/3493386026.shtml)
-- 2026-06-30 03:31 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/41130089.shtml)
-- 2026-06-30 03:34 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/659121994.shtml)
-- 2026-06-30 03:19 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/83257773541.shtml)
-- 2026-06-30 03:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/47208073.shtml)
-- 2026-06-30 03:09 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/115719265286.shtml)
-- 2026-06-30 03:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/804334.shtml)
-- 2026-06-30 03:34 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/947601.shtml)
-- 2026-06-30 03:14 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/34054.shtml)
-- 2026-06-30 03:18 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/8769711.shtml)
-- 2026-06-30 03:13 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/729646335589.shtml)
-- 2026-06-30 03:17 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/834377.shtml)
-- 2026-06-30 03:21 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/2998042648.shtml)
-- 2026-06-30 03:21 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/38382352.shtml)
-- 2026-06-30 03:32 - [千香](http://www.share.minike.top/Article/details/987946.shtml)
+- 2026-06-30 03:27 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/61648457.shtml)
+- 2026-06-30 03:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/200370518.shtml)
+- 2026-06-30 03:24 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/63801145269.shtml)
+- 2026-06-30 03:41 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/14073931.shtml)
+- 2026-06-30 03:29 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/257853.shtml)
+- 2026-06-30 03:18 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/803462.shtml)
+- 2026-06-30 03:19 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/737897407121.shtml)
+- 2026-06-30 03:32 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/78423504.shtml)
+- 2026-06-30 03:33 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/95435702.shtml)
+- 2026-06-30 03:17 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/17905289874.shtml)
+- 2026-06-30 03:24 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/913802.shtml)
+- 2026-06-30 03:21 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/577681645.shtml)
+- 2026-06-30 03:30 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/789875.shtml)
+- 2026-06-30 03:29 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/171123652.shtml)
+- 2026-06-30 03:26 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/331892117408.shtml)

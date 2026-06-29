@@ -1,59 +1,53 @@
-# 美国最高将领凯恩：若停火协议破裂，美国已做好恢复战斗的准备
+# 新加坡5月船用燃油销量反弹，创两个月新高
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-美国最高将领凯恩警告称，如果停火破裂，五角大楼准备恢复对伊朗的军事行动。“停火只是暂停。”凯恩表示。 他阐述了此次行动的三大军事目标：摧毁伊朗的弹道导弹与无人机能力、消灭其海军力量、摧毁其国防工业基础。凯恩称，美国“已达成总统设定的军事目标”。 凯恩在开场发言中未提及伊朗的高浓铀储备及其后续处置。他表示，冲突爆发以来，美军已打击伊朗超过13，000个目标，摧毁其80%的防空系统
+新加坡海事及港务管理局周一公布官方数据显示，受到港船舶数量回升带动，该国5月船用燃油销量在上月下滑后迎来反弹，创下两个月以来新高。 新加坡作为全球最大船舶加油枢纽，5月船用燃油总销量达455万吨，较4月增长4.5%，但同比去年5月仍下降6.8%。 5月前来加注燃油的船舶艘次环比增加7.3%，至3690艘次；集装箱吞吐量环比上升4.9%，达394万标准箱。 主流传统燃油销量整体平
 
 ## 正文
 
-美国最高将领凯恩警告称，如果停火破裂，五角大楼准备恢复对伊朗的军事行动。
+新加坡海事及港务管理局周一公布官方数据显示，受到港船舶数量回升带动，该国5月船用燃油销量在上月下滑后迎来反弹，创下两个月以来新高。
 
-“停火只是暂停。
+新加坡作为全球最大船舶加油枢纽，5月船用燃油总销量达455万吨，较4月增长4.5%，但同比去年5月仍下降6.8%。
 
-”凯恩表示。
+5月前来加注燃油的船舶艘次环比增加7.3%，至3690艘次；集装箱吞吐量环比上升4.9%，达394万标准箱。
 
-他阐述了此次行动的三大军事目标：摧毁伊朗的弹道导弹与无人机能力、消灭其海军力量、摧毁其国防工业基础。
+主流传统燃油销量整体平稳、部分品类走高。
 
-凯恩称，美国“已达成总统设定的军事目标”。
+主力低硫船用燃料油（硫含量0.5%，VLSFO）5月销量为229万吨，环比4月增长4.7%；高硫船用燃油销量持平，维持在179万吨。
 
-凯恩在开场发言中未提及伊朗的高浓铀储备及其后续处置。
-
-他表示，冲突爆发以来，美军已打击伊朗超过13，000个目标，摧毁其80%的防空系统、450余座弹道导弹储存设施、800座单程攻击无人机储存设施；还摧毁2，000余个指挥控制节点、90%以上的海军舰艇以及95%以上的水雷。
-
-责任编辑：何云
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 03:16 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 03:08 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 03:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-30 03:29 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 03:25 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 03:16 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 03:25 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 03:21 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 03:10 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 03:32 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 03:27 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 03:13 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 03:27 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 03:33 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 03:17 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 03:37 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-30 03:32 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 03:12 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 03:26 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 03:22 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 03:21 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 03:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 03:36 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 03:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:09 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/40694.shtml)
-- 2026-06-30 03:21 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/81218.shtml)
-- 2026-06-30 03:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/715179716926.shtml)
-- 2026-06-30 03:18 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/02646.shtml)
-- 2026-06-30 03:34 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/96630711.shtml)
-- 2026-06-30 03:33 - [我们的少年时代2](https://www.blog.minike.top/Article/details/3012960.shtml)
-- 2026-06-30 03:34 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/33437.shtml)
-- 2026-06-30 03:33 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/84536332291.shtml)
-- 2026-06-30 03:16 - [巴西扳平比分](http://www.blog.minike.top/Article/details/5446835.shtml)
-- 2026-06-30 03:31 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/905822639.shtml)
-- 2026-06-30 03:30 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/53141151.shtml)
-- 2026-06-30 03:28 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/7097142.shtml)
-- 2026-06-30 03:32 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/81019730890.shtml)
-- 2026-06-30 03:12 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/66926.shtml)
-- 2026-06-30 03:12 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/34751634418.shtml)
+- 2026-06-30 03:32 - [内马尔替补](https://www.share.minike.top/Article/details/961071529480.shtml)
+- 2026-06-30 03:30 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/344570146332.shtml)
+- 2026-06-30 03:22 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/831625.shtml)
+- 2026-06-30 03:32 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/18075539463.shtml)
+- 2026-06-30 03:17 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/052402702594.shtml)
+- 2026-06-30 03:32 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/3633511427.shtml)
+- 2026-06-30 03:28 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/564367.shtml)
+- 2026-06-30 03:31 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/72629.shtml)
+- 2026-06-30 03:20 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/775821.shtml)
+- 2026-06-30 03:28 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/548241.shtml)
+- 2026-06-30 03:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/457003275.shtml)
+- 2026-06-30 03:38 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/22759702.shtml)
+- 2026-06-30 03:21 - [美人鱼](https://www.share.kurohicncr.top/Article/details/98226.shtml)
+- 2026-06-30 03:34 - [第一炉香](https://www.share.kurohicncr.top/Article/details/20427722.shtml)
+- 2026-06-30 03:13 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/725457771.shtml)

@@ -1,53 +1,43 @@
-# 日本首相称将从5月初进一步释放石油储备
+# 老人骑电动自行车不慎坠河 多人紧急施救
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-日本首相高市早苗说，日本将从5月初开始释放额外20天的石油储备。高市在东京告诉记者，第二批储备石油，大约够用20天，将于5月初开始交付。日本整体上石油储量充足，但人们一直担忧石油供应会中断。一些志同道合的国家已提出分享石油的请求，此类请求正在逐案处理。责任编辑：王永生
+发布时间：2026年06月12日 21:58 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-日本首相高市早苗说，日本将从5月初开始释放额外20天的石油储备。
-
-高市在东京告诉记者，第二批储备石油，大约够用20天，将于5月初开始交付。
-
-日本整体上石油储量充足，但人们一直担忧石油供应会中断。
-
-一些志同道合的国家已提出分享石油的请求，此类请求正在逐案处理。
-
-责任编辑：王永生
+发布时间：2026年06月12日 21:58 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 03:14 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 03:18 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 03:22 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 03:34 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 03:21 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 03:19 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 03:25 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 03:25 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 03:18 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 03:07 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 03:28 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 03:24 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 03:29 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 03:39 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 03:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 03:40 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 03:17 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 03:29 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 03:36 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 03:33 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 03:12 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 03:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 03:13 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 03:24 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:34 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/908404.shtml)
-- 2026-06-30 03:10 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/3472043.shtml)
-- 2026-06-30 03:15 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/33910054.shtml)
-- 2026-06-30 03:09 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/549400552019.shtml)
-- 2026-06-30 03:14 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/0442351249.shtml)
-- 2026-06-30 03:35 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/114414.shtml)
-- 2026-06-30 03:33 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/910632962.shtml)
-- 2026-06-30 03:35 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/91780107016.shtml)
-- 2026-06-30 03:35 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/941579.shtml)
-- 2026-06-30 03:32 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/128581235089.shtml)
-- 2026-06-30 03:14 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/606857520678.shtml)
-- 2026-06-30 03:30 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/171449.shtml)
-- 2026-06-30 03:13 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/221870080383.shtml)
-- 2026-06-30 03:08 - [沙丘](https://www.blog.kurohicncr.top/Article/details/89295491.shtml)
-- 2026-06-30 03:35 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/094819099211.shtml)
+- 2026-06-30 03:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/56599.shtml)
+- 2026-06-30 03:39 - [周生如故](https://www.share.kurohicncr.top/Article/details/397290894994.shtml)
+- 2026-06-30 03:39 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/51446446096.shtml)
+- 2026-06-30 03:25 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/61178473216.shtml)
+- 2026-06-30 03:29 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/74719961.shtml)
+- 2026-06-30 03:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/05494.shtml)
+- 2026-06-30 03:38 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/5393553.shtml)
+- 2026-06-30 03:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/0815582152.shtml)
+- 2026-06-30 03:29 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/522633566.shtml)
+- 2026-06-30 03:22 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/8379173.shtml)
+- 2026-06-30 03:40 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/00012293895.shtml)
+- 2026-06-30 03:14 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/18188806033.shtml)
+- 2026-06-30 03:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/21553854275.shtml)
+- 2026-06-30 03:26 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/737852338.shtml)
+- 2026-06-30 03:37 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/129674192.shtml)

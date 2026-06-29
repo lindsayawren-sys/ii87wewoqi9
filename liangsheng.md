@@ -1,56 +1,46 @@
-# “吉心工程·心善银龄”公益项目长春启动
+# 《金融信息服务数据分类分级指南》印发
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-中新网长春4月9日电 (记者 郭佳)对于一些生活困难的老年人来说，心脏手术往往在“治”与“不治”之间反复权衡——病情不能拖，费用却难以承受。 9日，由中国老龄事业发展基金会与吉林心脏病医院联合发起的“吉心工程·心善银龄”困境老人心脏健康救助专项行动在长春启动，正是为打破这样的两难而来。 该项目将目光聚焦于吉林省60至80周岁(含)的低收入困难老年群体。针对需要介入或手术治疗的单
+关于印发《金融信息服务数据分类分级指南》的通知 国信办通字〔2026〕2号 各省、自治区、直辖市及新疆生产建设兵团互联网信息办公室，中国人民银行上海总部、各省、自治区、直辖市及计划单列市分行，国家金融监督管理总局各监管局，中国证券监督管理委员会各派出机构，各省、自治区、直辖市及新疆生产建设兵团统计局，国家统计局各调查总队，国家外汇管理局各省、自治区、直辖市及计划单列市分局，有关
 
 ## 正文
 
-中新网长春4月9日电 (记者 郭佳)对于一些生活困难的老年人来说，心脏手术往往在“治”与“不治”之间反复权衡——病情不能拖，费用却难以承受。
+关于印发《金融信息服务数据分类分级指南》的通知 国信办通字〔2026〕2号 各省、自治区、直辖市及新疆生产建设兵团互联网信息办公室，中国人民银行上海总部、各省、自治区、直辖市及计划单列市分行，国家金融监督管理总局各监管局，中国证券监督管理委员会各派出机构，各省、自治区、直辖市及新疆生产建设兵团统计局，国家统计局各调查总队，国家外汇管理局各省、自治区、直辖市及计划单列市分局，有关金融信息服务机构： 为指导金融信息服务机构开展数据分类分级和重要数据识别工作，提升金融信息服务数据安全水平，依据《中华人民共和国网络安全法》、《中华人民共和国数据安全法》、《中华人民共和国个人信息保护法》、《网络数据安全管理条例》、《金融信息服务管理规定》等法律法规规章和政策规定，国家互联网信息办公室、中国人民银行、国家金融监督管理总局、中国证券监督管理委员会、国家统计局、国家
 
-9日，由中国老龄事业发展基金会与吉林心脏病医院联合发起的“吉心工程·心善银龄”困境老人心脏健康救助专项行动在长春启动，正是为打破这样的两难而来。
+现印发给你们，请结合实际，认真贯彻执行。
 
-该项目将目光聚焦于吉林省60至80周岁(含)的低收入困难老年群体。
-
-针对需要介入或手术治疗的单纯性心脏病患者，项目提供“从入院到出院零费用”的医疗救助——在医保报销基础上，个人承担部分全部减免。
-
-目前，该项目救助范围涵盖冠心病(支架植入术、搭桥手术)、先天性心脏病(介入封堵治疗、手术治疗)、心脏瓣膜病(修复治疗、换瓣治疗)、心律失常(射频消融术、起搏器植入术)及其他心血管疾病手术治疗。
-
-在人口老龄化不断加深的当下，心脑血管疾病已成为影响老年人健康的首要威胁。
-
-但与疾病本身同样沉重的，是治疗费用带来的压力。
-
-“不能让老人因为治病负担拖垮整个家庭。
+国家互联网信息办公室 中国人民银行 国家金融监督管理总局 中国证券监督管理委员会 国家统计局 国家外汇管理局 2026年6月8日
 
 ## 相关推荐
 
-- 2026-06-30 03:26 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 03:08 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 03:23 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 03:16 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 03:29 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 03:35 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 03:28 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 03:10 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 03:09 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 03:29 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 03:24 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 03:35 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-30 03:32 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 03:18 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 03:24 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 03:16 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 03:19 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 03:33 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 03:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 03:12 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:17 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/79848.shtml)
-- 2026-06-30 03:12 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/00288.shtml)
-- 2026-06-30 03:19 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/920922.shtml)
-- 2026-06-30 03:23 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/1226717.shtml)
-- 2026-06-30 03:35 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/450747967824.shtml)
-- 2026-06-30 03:23 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/9913937.shtml)
-- 2026-06-30 03:33 - [天道](https://www.share.kurohicncr.top/Article/details/39362586642.shtml)
-- 2026-06-30 03:08 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/133946.shtml)
-- 2026-06-30 03:32 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/07362993.shtml)
-- 2026-06-30 03:19 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/403218.shtml)
-- 2026-06-30 03:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/02329.shtml)
-- 2026-06-30 03:07 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/4588522.shtml)
-- 2026-06-30 03:32 - [月亮](https://www.blog.minike.top/Article/details/3876943.shtml)
-- 2026-06-30 03:35 - [逃狱兄弟](http://www.blog.minike.top/Article/details/37154.shtml)
-- 2026-06-30 03:15 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/04448.shtml)
+- 2026-06-30 03:39 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/00018.shtml)
+- 2026-06-30 03:39 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/737044.shtml)
+- 2026-06-30 03:38 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/25792.shtml)
+- 2026-06-30 03:13 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/741462.shtml)
+- 2026-06-30 03:20 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/85047.shtml)
+- 2026-06-30 03:35 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/12826.shtml)
+- 2026-06-30 03:26 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/428989530712.shtml)
+- 2026-06-30 03:27 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/20523.shtml)
+- 2026-06-30 03:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/33755.shtml)
+- 2026-06-30 03:19 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/7318223.shtml)
+- 2026-06-30 03:24 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/152106912021.shtml)
+- 2026-06-30 03:31 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/79006744.shtml)
+- 2026-06-30 03:24 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/9734370.shtml)
+- 2026-06-30 03:32 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/14511388358.shtml)
+- 2026-06-30 03:30 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/21872479396.shtml)

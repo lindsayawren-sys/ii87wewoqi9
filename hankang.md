@@ -1,51 +1,59 @@
-# 美国副总统万斯周三承认，此次停火仍是“脆弱的休战”
+# 圣戈班17.6亿美元向凯斯科出售达尔分销业务
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-美国副总统 JD・万斯周三承认，此次停火仍是 “脆弱的休战”。 万斯在布达佩斯发表讲话时，对伊朗官员宣称取得胜利的说法提出异议，称部分言论 “在协议性质上基本是在撒谎”。 美伊双方预计很快将启动谈判，以争取延长停火期限。 万斯还透露，特朗普总统前一晚曾对他表示：“伊朗人谈判比打仗更在行。”责任编辑：郭明煜
+欧洲早盘圣戈班股价上涨 5.8%，凯斯科大跌 9.1% 法国建材巨头圣戈班达成交易，将旗下达尔分销业务出售给芬兰零售企业凯斯科（股票代码 KESKOB，跌幅 10.23%），消息公布后圣戈班股价走高。 这家法国集团于周一披露，已签署具有法律约束力的收购协议，将其布局瑞典、挪威、丹麦市场的达尔业务售予凯斯科，交易总对价含债务在内达 15.2 亿欧元（折合 17.6 亿美元），交易
 
 ## 正文
 
-美国副总统 JD・万斯周三承认，此次停火仍是 “脆弱的休战”。
+欧洲早盘圣戈班股价上涨 5.8%，凯斯科大跌 9.1% 法国建材巨头圣戈班达成交易，将旗下达尔分销业务出售给芬兰零售企业凯斯科（股票代码 KESKOB，跌幅 10.23%），消息公布后圣戈班股价走高。
 
-万斯在布达佩斯发表讲话时，对伊朗官员宣称取得胜利的说法提出异议，称部分言论 “在协议性质上基本是在撒谎”。
+这家法国集团于周一披露，已签署具有法律约束力的收购协议，将其布局瑞典、挪威、丹麦市场的达尔业务售予凯斯科，交易总对价含债务在内达 15.2 亿欧元（折合 17.6 亿美元），交易预计 2027 年初完成交割。
 
-美伊双方预计很快将启动谈判，以争取延长停火期限。
+欧洲早盘时段，圣戈班股价大涨 5.8%，而凯斯科股价重挫 9.1%。
 
-万斯还透露，特朗普总统前一晚曾对他表示：“伊朗人谈判比打仗更在行。
+凯斯科表示，本次收购将为公司吸纳北欧地区大量水暖、卫浴、供暖专业渠道客户，同时称这是企业成立以来规模最大的一笔收购交易。
 
-”责任编辑：郭明煜
+完成收购后，建材与工业技术贸易板块将成为凯斯科旗下规模最大的业务线。
+
+凯斯科总裁兼首席执行官约尔马・劳哈拉表示：“多年来我们一直在寻觅大规模收购机会，尤其是北欧工业技术贸易赛道，优质收购标的十分稀缺。
+
+” 建材供应商圣戈班称，本次剥离达尔业务，是集团优化整体资产组合战略规划的重要一步。
+
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 03:13 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-30 03:12 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 03:14 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 03:07 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 03:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 03:16 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 03:35 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 03:15 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 03:14 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 03:24 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 03:11 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 03:33 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 03:35 - [日本淘汰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 03:35 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 03:18 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 03:37 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 03:14 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 03:23 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 03:21 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 03:27 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 03:19 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 03:16 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 03:36 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 03:37 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:09 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/9687304.shtml)
-- 2026-06-30 03:30 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/7350264.shtml)
-- 2026-06-30 03:17 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/81448.shtml)
-- 2026-06-30 03:07 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/244564.shtml)
-- 2026-06-30 03:26 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/836770998.shtml)
-- 2026-06-30 03:16 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/94583703475.shtml)
-- 2026-06-30 03:10 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/112178258.shtml)
-- 2026-06-30 03:32 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/115712.shtml)
-- 2026-06-30 03:34 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/0346953761.shtml)
-- 2026-06-30 03:15 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/187029.shtml)
-- 2026-06-30 03:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/470084823142.shtml)
-- 2026-06-30 03:17 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/6487030491.shtml)
-- 2026-06-30 03:08 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/145887859349.shtml)
-- 2026-06-30 03:28 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/8334507.shtml)
-- 2026-06-30 03:22 - [青春环游记第三季](https://www.share.minike.top/Article/details/809599.shtml)
+- 2026-06-30 03:39 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/936255.shtml)
+- 2026-06-30 03:18 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/1725173343.shtml)
+- 2026-06-30 03:18 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/3519859675.shtml)
+- 2026-06-30 03:37 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/147275948073.shtml)
+- 2026-06-30 03:13 - [一生一世](http://www.blog.minike.top/Article/details/698628.shtml)
+- 2026-06-30 03:40 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/71187991.shtml)
+- 2026-06-30 03:32 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/062665.shtml)
+- 2026-06-30 03:26 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/59408177.shtml)
+- 2026-06-30 03:32 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/40884010.shtml)
+- 2026-06-30 03:36 - [毒液2](http://www.share.minike.top/Article/details/557473693230.shtml)
+- 2026-06-30 03:20 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/2740152201.shtml)
+- 2026-06-30 03:39 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/65284060.shtml)
+- 2026-06-30 03:38 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/973855911575.shtml)
+- 2026-06-30 03:14 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/116960588979.shtml)
+- 2026-06-30 03:39 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/9462338336.shtml)

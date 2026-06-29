@@ -1,60 +1,57 @@
-# “贵族水果”价格大跳水
+# 李斌：蔚来进入新增长周期，“纯电拐点”判断正确
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-“蓝莓自由”这个春天刷屏了。 以前一小盒动辄二三十块，现在半斤装19.9元，云南产地甚至“按桶卖”，三四十元一斤随便挑。网上“蓝莓价格大跳水”连续冲上热搜，消费者直呼过瘾。 价格为啥跌了？很多人第一反应：种太多了呗。但，真相没那么简单。这轮价格回落，不是单纯的产能过剩，而是中国蓝莓从小众高端走向大众普惠的关键一步，更是特色农业转型升级的典型缩影。 价格大跳水靠什么2026年3月
+专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，蔚来创始人、董事长、CE0李斌出席并演讲。 谈及蔚来近期销量增长的原因。李斌表示，蔚来还是那个蔚来，但在最难的时候销量每年仍能保持30%以上的增长。从去年下半年开始，蔚来进入了一个新的增长周期，今年预期有机会实现40%到50%的增长。 他认为，主要原因是公司对市场“纯电拐点”
 
 ## 正文
 
-“蓝莓自由”这个春天刷屏了。
+专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，蔚来创始人、董事长、CE0李斌出席并演讲。
 
-以前一小盒动辄二三十块，现在半斤装19.9元，云南产地甚至“按桶卖”，三四十元一斤随便挑。
+谈及蔚来近期销量增长的原因。
 
-网上“蓝莓价格大跳水”连续冲上热搜，消费者直呼过瘾。
+李斌表示，蔚来还是那个蔚来，但在最难的时候销量每年仍能保持30%以上的增长。
 
-价格为啥跌了？
+从去年下半年开始，蔚来进入了一个新的增长周期，今年预期有机会实现40%到50%的增长。
 
-很多人第一反应：种太多了呗。
+他认为，主要原因是公司对市场“纯电拐点”的判断基本符合预期。
 
-但，真相没那么简单。
+从去年下半年开始，无论在哪个细分市场，纯电的渗透率和市场占有率都显著加快。
 
-这轮价格回落，不是单纯的产能过剩，而是中国蓝莓从小众高端走向大众普惠的关键一步，更是特色农业转型升级的典型缩影。
+去年8月21日新ES8发布时，李斌提出，“纯电大三排SUV的时代正在到来。
 
-价格大跳水靠什么2026年3月以来，蓝莓价格较春节期间几乎腰斩。
+”他解释到，做出这一判断基于两个方面：第一，纯电技术给大型SUV带来的体验收益越来越高，而且很多是显性的。
 
 ## 相关推荐
 
-- 2026-06-30 03:12 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 03:32 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 03:11 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 03:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 03:16 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-30 03:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 03:35 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 03:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 03:14 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 03:08 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 03:24 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 03:23 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 03:29 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 03:33 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 03:39 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 03:17 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 03:37 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 03:18 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 03:39 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 03:21 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 03:34 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 03:32 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 03:16 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 03:32 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 03:37 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/6440276.shtml)
-- 2026-06-30 03:12 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/815133843.shtml)
-- 2026-06-30 03:19 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/3293763.shtml)
-- 2026-06-30 03:14 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/6420660.shtml)
-- 2026-06-30 03:26 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/108556046301.shtml)
-- 2026-06-30 03:19 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/99783.shtml)
-- 2026-06-30 03:16 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/05152158816.shtml)
-- 2026-06-30 03:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/0609165703.shtml)
-- 2026-06-30 03:12 - [巴西补时绝杀日本](http://www.share.minike.top/Article/details/10987.shtml)
-- 2026-06-30 03:26 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/569658.shtml)
-- 2026-06-30 03:30 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/7813398849.shtml)
-- 2026-06-30 03:32 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/130869.shtml)
-- 2026-06-30 03:32 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/42889383.shtml)
-- 2026-06-30 03:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/1193241.shtml)
-- 2026-06-30 03:22 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/502267635.shtml)
+- 2026-06-30 03:39 - [刘念回应](https://www.share.minike.top/Article/details/679643.shtml)
+- 2026-06-30 03:20 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/8718595.shtml)
+- 2026-06-30 03:15 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/637088.shtml)
+- 2026-06-30 03:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/2694840736.shtml)
+- 2026-06-30 03:40 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/103566000.shtml)
+- 2026-06-30 03:13 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/858525203.shtml)
+- 2026-06-30 03:21 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/911655.shtml)
+- 2026-06-30 03:40 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/74179.shtml)
+- 2026-06-30 03:26 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/5274087377.shtml)
+- 2026-06-30 03:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/949751569.shtml)
+- 2026-06-30 03:24 - [爱很美味](https://www.share.minike.top/Article/details/343812.shtml)
+- 2026-06-30 03:27 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/009086.shtml)
+- 2026-06-30 03:33 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/3749685554.shtml)
+- 2026-06-30 03:39 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/5272292.shtml)
+- 2026-06-30 03:31 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/633975.shtml)

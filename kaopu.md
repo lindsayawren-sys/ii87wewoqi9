@@ -1,61 +1,43 @@
-# 逆风到领航：8.57亿净利扭亏为盈
+# 华宝基金红利风向标 | 银行、券商等高股息板块走高，华宝红利家族全线飘红！
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-南方财经记者朱治宣 广州报道过去数年，中国民航业经历低谷，行业整体盈利水平承压，多数航司在供需失衡、成本波动的多重挑战中艰难求索。在这场穿越周期的长跑中，南方航空率先冲线，2025年交出了一份总营收超1822亿元、归母净利润8.57亿元的亮眼年报，成为“三大航”中唯一实现全年盈利的航空公司，也成为观察中国航空业复苏以及宏观经济活力的重要窗口。就在南航交出亮眼答卷的同时，新的成本
+责任编辑：常福强
 
 ## 正文
 
-南方财经记者朱治宣 广州报道过去数年，中国民航业经历低谷，行业整体盈利水平承压，多数航司在供需失衡、成本波动的多重挑战中艰难求索。
-
-在这场穿越周期的长跑中，南方航空率先冲线，2025年交出了一份总营收超1822亿元、归母净利润8.57亿元的亮眼年报，成为“三大航”中唯一实现全年盈利的航空公司，也成为观察中国航空业复苏以及宏观经济活力的重要窗口。
-
-就在南航交出亮眼答卷的同时，新的成本大考已然浮现。
-
-受近期中东局势动荡等宏观因素影响，国际油价震荡上行，国航、南航、中联航等航空公司自4月5日0时起销售的中国内地航线客票，燃油附加费进行了上调。
-
-具体标准为：800公里（含）以下航线每航段60元，800公里以上航线每航段120元。
-
-这一举措虽然是对冲燃油成本上升的直接手段，但也为需求端的边际复苏增添了博弈色彩。
-
-4月8日，南方航空开盘后股价立即冲高近涨停，收盘报6.05元，较前一交易日大涨7.84%，成交额达13.77亿元，总市值升至1096亿元。
-
-业绩逆转，6年来首度全年盈利从资本市场角度看，这一业绩逆转具有标志性意义。
+责任编辑：常福强
 
 ## 相关推荐
 
-- 2026-06-30 03:34 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 03:19 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 03:19 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 03:21 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 03:19 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 03:15 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 03:18 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 03:22 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 03:18 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-30 03:14 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 03:26 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 03:34 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 03:19 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 03:29 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 03:34 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 03:16 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 03:29 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 03:31 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 03:25 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 03:40 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 03:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 03:29 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 03:15 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 03:19 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 03:32 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 03:37 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:32 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/43372.shtml)
-- 2026-06-30 03:14 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/58462.shtml)
-- 2026-06-30 03:17 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/643253405259.shtml)
-- 2026-06-30 03:22 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/910205980039.shtml)
-- 2026-06-30 03:25 - [起风了](http://www.share.minike.top/Article/details/19432459.shtml)
-- 2026-06-30 03:13 - [毒液2](https://www.share.minike.top/Article/details/5489516488.shtml)
-- 2026-06-30 03:06 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/265344272.shtml)
-- 2026-06-30 03:10 - [第一炉香](http://www.share.kurohicncr.top/Article/details/77052138111.shtml)
-- 2026-06-30 03:33 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/0543896.shtml)
-- 2026-06-30 03:29 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/82138424.shtml)
-- 2026-06-30 03:13 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/96169.shtml)
-- 2026-06-30 03:09 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/91814862824.shtml)
-- 2026-06-30 03:26 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/082815.shtml)
-- 2026-06-30 03:25 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/065769857738.shtml)
-- 2026-06-30 03:16 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/8853123.shtml)
+- 2026-06-30 03:32 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/587825165.shtml)
+- 2026-06-30 03:12 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/35638591.shtml)
+- 2026-06-30 03:14 - [极限挑战第一季](http://www.blog.minike.top/Article/details/44038264918.shtml)
+- 2026-06-30 03:29 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/368107898.shtml)
+- 2026-06-30 03:37 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/3058718.shtml)
+- 2026-06-30 03:12 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/821798.shtml)
+- 2026-06-30 03:21 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/526102572589.shtml)
+- 2026-06-30 03:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/8244611.shtml)
+- 2026-06-30 03:17 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/81923392153.shtml)
+- 2026-06-30 03:14 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/28646.shtml)
+- 2026-06-30 03:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/30812130340.shtml)
+- 2026-06-30 03:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/38413802.shtml)
+- 2026-06-30 03:12 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/54250.shtml)
+- 2026-06-30 03:41 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/013768688726.shtml)
+- 2026-06-30 03:32 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/168005.shtml)

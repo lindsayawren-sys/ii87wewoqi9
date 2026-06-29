@@ -1,56 +1,60 @@
-# 亚马逊首次转播美国大师赛，成为赛事史上第四家媒体合作伙伴
+# 当年轻人走进上市公司股东大会：有人买100股只为参会
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-要点 体育界的目光周四转向佐治亚州奥古斯塔，迎来美国大师赛首轮赛事。观众将首次可以通过亚马逊 Prime Video 观看赛事直播。 亚马逊将在首轮和次轮赛事中，于美国东部时间下午 1 点至 3 点提供独家直播报道。赛事全程四天，Prime Video 将直播奥古斯塔著名的 “阿门角”—— 即 11 号、12 号和 13 号洞。亚马逊的《走进阿门角》节目将呈现高级数据统计和专属
+当年轻人走进上市公司股东大会：有人买入100股只为参会 有人为见世面、“包装”简历 上市公司的股东大会，往往汇集了有钱有能力的投资大佬。 红星资本局注意到，近年来，越来越多的年轻人出现在上市公司的股东大会上。从“95后”到“00后”，他们自称是“小登”，有人是为了见各种大佬，也有人是冲着礼品买入100股参会。 当年轻人走进上市公司的股东大会，他们在关注什么？崭露头角的年轻人们
 
 ## 正文
 
-要点 体育界的目光周四转向佐治亚州奥古斯塔，迎来美国大师赛首轮赛事。
+当年轻人走进上市公司股东大会：有人买入100股只为参会 有人为见世面、“包装”简历 上市公司的股东大会，往往汇集了有钱有能力的投资大佬。
 
-观众将首次可以通过亚马逊 Prime Video 观看赛事直播。
+红星资本局注意到，近年来，越来越多的年轻人出现在上市公司的股东大会上。
 
-亚马逊将在首轮和次轮赛事中，于美国东部时间下午 1 点至 3 点提供独家直播报道。
+从“95后”到“00后”，他们自称是“小登”，有人是为了见各种大佬，也有人是冲着礼品买入100股参会。
 
-赛事全程四天，Prime Video 将直播奥古斯塔著名的 “阿门角”—— 即 11 号、12 号和 13 号洞。
+当年轻人走进上市公司的股东大会，他们在关注什么？
 
-亚马逊的《走进阿门角》节目将呈现高级数据统计和专属镜头角度，让观众直观感受不同球手如何策略性应对这三个球洞。
+崭露头角的年轻人们 在贵州茅台(600519.SH)刚结束的股东大会上，一位00后的投资者提出他的问题：有无计划和泡泡玛特等企业联名实现年轻化？
 
-该平台还将全程转播 15 号、16 号洞，并播出部分焦点组画面，但这部分内容并非亚马逊制作。
+而茅台管理层给出了“要长红不做网红”等回答。
 
-在弗雷德・里德利担任主席的奥古斯塔国家高尔夫俱乐部，亚马逊成为继派拉蒙旗下 CBS、维森特旗下美国电视网（1982—2007 年）以及迪士尼旗下 ESPN 之后，史上第四家媒体合作伙伴。
+很快，多家媒体报道了这一问答的实录，由00后提出的问题瞬间成了大众关注的焦点之一。
 
-去年，美国大师赛将派拉蒙 + 纳入转播阵营，在周六、周日中午至下午 2 点提供两小时独家流媒体转播，该安排今年将继续保留。
+红星资本局注意到，近年来，上市公司的股东大会不再是投资大佬的专属盛宴，越来越多的年轻面孔出现在上市公司的股东大会上，从“95后”到“00后”，年轻人们正在崭露头角。
 
 ## 相关推荐
 
-- 2026-06-30 03:21 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 03:20 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 03:30 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 03:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 03:34 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 03:23 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 03:09 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 03:25 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 03:34 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 03:21 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 03:39 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 03:33 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 03:22 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 03:25 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 03:36 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 03:13 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 03:33 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 03:32 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 03:34 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 03:14 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 03:12 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 03:37 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 03:28 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 03:36 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:29 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/4019432.shtml)
-- 2026-06-30 03:25 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/625605942.shtml)
-- 2026-06-30 03:35 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/21570551.shtml)
-- 2026-06-30 03:12 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/487981920411.shtml)
-- 2026-06-30 03:26 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/3666856.shtml)
-- 2026-06-30 03:12 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/303331624.shtml)
-- 2026-06-30 03:21 - [日本 高位逼抢](https://www.share.minike.top/Article/details/41230.shtml)
-- 2026-06-30 03:13 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/982123.shtml)
-- 2026-06-30 03:10 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/17057291.shtml)
-- 2026-06-30 03:09 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/442884068206.shtml)
-- 2026-06-30 03:29 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/3097968980.shtml)
-- 2026-06-30 03:32 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/591029.shtml)
-- 2026-06-30 03:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/90012.shtml)
-- 2026-06-30 03:09 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/9705698.shtml)
-- 2026-06-30 03:13 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/72289840.shtml)
+- 2026-06-30 03:12 - [一见倾心](http://www.share.minike.top/Article/details/0030318565.shtml)
+- 2026-06-30 03:14 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/2268127.shtml)
+- 2026-06-30 03:35 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/072396469.shtml)
+- 2026-06-30 03:36 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/7256713.shtml)
+- 2026-06-30 03:40 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/363666621.shtml)
+- 2026-06-30 03:19 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/40448.shtml)
+- 2026-06-30 03:36 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/932020161.shtml)
+- 2026-06-30 03:17 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/375075.shtml)
+- 2026-06-30 03:39 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/55620390.shtml)
+- 2026-06-30 03:19 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/228127315448.shtml)
+- 2026-06-30 03:23 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/65030.shtml)
+- 2026-06-30 03:32 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/8927813.shtml)
+- 2026-06-30 03:23 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/4996607.shtml)
+- 2026-06-30 03:27 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/0108569593.shtml)
+- 2026-06-30 03:37 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/22875.shtml)

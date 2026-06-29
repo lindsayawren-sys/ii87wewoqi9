@@ -1,60 +1,54 @@
-# 马斯克的xAI就科罗拉多州新的人工智能法律提起诉讼
+# 京东方A、“易中天”遭猛烈抛售
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 马斯克的人工智能初创公司xAI当地时间周四提起诉讼，试图阻止美国科罗拉多州执行一项监管人工智能系统的新法律，这加剧了关于监管权应由各州还是华盛顿行使的争论。 该诉讼已提交至科罗拉多州美国地方法院，旨在挑战将于6月30日生效的参议院第24-205号法案。该法案对用于就业、住房、教育、医疗保健和金融服务等领域决策的所谓“高风险”AI
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨李益文 编辑丨叶映橙 视频丨柳润瑛 本周（6月8日至6月12日）主力资金大幅涌入算力与关键矿产领域，其中，算力龙头海光信息获主力净流入26.86亿元，位居全市场流入首位，宏景科技、中微公司分别净流入13.13亿元、12.98亿元。关键矿产领域，氢氧化锂龙头天华新能获主力资金净流入24.93亿元，铜陵有
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 马斯克的人工智能初创公司xAI当地时间周四提起诉讼，试图阻止美国科罗拉多州执行一项监管人工智能系统的新法律，这加剧了关于监管权应由各州还是华盛顿行使的争论。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该诉讼已提交至科罗拉多州美国地方法院，旨在挑战将于6月30日生效的参议院第24-205号法案。
+记者丨李益文 编辑丨叶映橙 视频丨柳润瑛 本周（6月8日至6月12日）主力资金大幅涌入算力与关键矿产领域，其中，算力龙头海光信息获主力净流入26.86亿元，位居全市场流入首位，宏景科技、中微公司分别净流入13.13亿元、12.98亿元。
 
-该法案对用于就业、住房、教育、医疗保健和金融服务等领域决策的所谓“高风险”AI系统的开发商提出了信息披露和风险缓解要求。
+关键矿产领域，氢氧化锂龙头天华新能获主力资金净流入24.93亿元，铜陵有色、盛新锂能分别获主力资金净流入17.08亿元、13.74亿元，天齐锂业、章源钨业获主力资金净流入均超13亿元。
 
-xAI表示，该法案限制了开发者设计AI系统的方式，并强制要求就争议性公共议题发表意见，违反了美国宪法第一修正案。
+另一边，此前大热的光模块、通信设备及面板等板块遭主力猛烈抛售。
 
-该公司称，该法案将迫使其修改旗舰AI模型 Grok，使其反映科罗拉多州政府对多元化和歧视的看法，而非保持客观立场。
+面板龙头京东方A本周主力资金净流出高达69.04亿元，光模块核心标的新易盛、中际旭创、天孚通信遭主力资金分别净流出66.1亿元、57.33亿元、46.72亿元；通信设备赛道同步遭遇大额资金离场，亨通光电、沪电股份、长电科技遭主力资金分别净流出41.02亿元、39.4亿元、36.93亿元；此外，工业富联、中兴通讯、立讯精密本周主力资金净流出均超33亿元。
 
-xAI表示：“在全美范围内，各州各自为政的政府监管可能会阻碍创新，抑制开放市场中的竞争。
-
-” xAI最近与SpaceX合并，目前正寻求法院宣布该法律违宪，并申请禁令阻止其执行。
-
-该诉讼还援引了白宫行政命令，批评各州各自为政的人工智能监管方式，指出各州法律的碎片化可能会削弱美国在人工智能领域的领先地位和国家安全。
+责任编辑：凌辰
 
 ## 相关推荐
 
-- 2026-06-30 03:33 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 03:20 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 03:26 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 03:23 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 03:18 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 03:26 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 03:25 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 03:22 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 03:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-30 03:26 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 03:21 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 03:06 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 03:06 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 03:27 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 03:16 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 03:29 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 03:30 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 03:19 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 03:32 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 03:40 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 03:23 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 03:17 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 03:38 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 03:23 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 03:16 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-30 03:32 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:11 - [女心理师](http://www.share.kurohicncr.top/Article/details/1358707722.shtml)
-- 2026-06-30 03:23 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/51881301438.shtml)
-- 2026-06-30 03:27 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/09127.shtml)
-- 2026-06-30 03:10 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/62191594.shtml)
-- 2026-06-30 03:30 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/2660905720.shtml)
-- 2026-06-30 03:12 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/204375757923.shtml)
-- 2026-06-30 03:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/53683212975.shtml)
-- 2026-06-30 03:12 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/375302.shtml)
-- 2026-06-30 03:28 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/46472284.shtml)
-- 2026-06-30 03:11 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/959011765.shtml)
-- 2026-06-30 03:14 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/67680592871.shtml)
-- 2026-06-30 03:14 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/923628946.shtml)
-- 2026-06-30 03:10 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/49026911.shtml)
-- 2026-06-30 03:06 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/698416968129.shtml)
-- 2026-06-30 03:26 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/763091.shtml)
+- 2026-06-30 03:34 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/4871430065.shtml)
+- 2026-06-30 03:26 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/399859325049.shtml)
+- 2026-06-30 03:17 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/81916208834.shtml)
+- 2026-06-30 03:36 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/4253057.shtml)
+- 2026-06-30 03:40 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/68875.shtml)
+- 2026-06-30 03:17 - [金刚川](https://www.share.kurohicncr.top/Article/details/14257062458.shtml)
+- 2026-06-30 03:40 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/794235014743.shtml)
+- 2026-06-30 03:26 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/70955413.shtml)
+- 2026-06-30 03:29 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/2934608.shtml)
+- 2026-06-30 03:35 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/13087262.shtml)
+- 2026-06-30 03:13 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/90858372.shtml)
+- 2026-06-30 03:37 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/39394595.shtml)
+- 2026-06-30 03:25 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/870686750.shtml)
+- 2026-06-30 03:39 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/0353022.shtml)
+- 2026-06-30 03:24 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/756790052.shtml)

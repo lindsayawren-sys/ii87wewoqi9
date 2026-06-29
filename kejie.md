@@ -1,58 +1,61 @@
-# “0元购”没了，奶茶还香吗？
+# 东西问｜希本戈、达席尔瓦：当生态保护遇上发展，中国大熊猫保护模式给出何种答案？
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-中新网北京4月8日电(记者 左雨晴) “0元购”“1分钱喝奶茶”“奶茶免单券”……2025年，外卖平台的百亿补贴大战，让茶饮市场陷入一场短暂的狂欢。然而，狂欢终有散场时。随着补贴逐步退去，奶茶价格重回20元区间。 近期，六家上市现制茶饮企业相继交出2025年成绩单。补贴大战的影响在财报中清晰可见：有人承压受伤，有人顺势而上，更有甚者主动盼着补贴早点结束。 同场竞技，不同命运 “
+中新社成都6月12日电 题：当生态保护遇上发展，中国大熊猫保护模式给出何种答案？ ——专访纳米比亚司法和劳工关系部监察专员办公室首席投诉调查员、区域负责人希尔维斯特·辛乌拉·希本戈，葡萄牙内贝拉大学助理教授若热·曼努埃尔·塔瓦雷斯·达席尔瓦 中新社记者 胡默达 岳依桐 中国的大熊猫保护实践，为全球践行人与自然和谐共生的现代人权理念带来哪些借鉴？在平衡生态保护与长期发展方面，国际
 
 ## 正文
 
-中新网北京4月8日电(记者 左雨晴) “0元购”“1分钱喝奶茶”“奶茶免单券”……2025年，外卖平台的百亿补贴大战，让茶饮市场陷入一场短暂的狂欢。
+中新社成都6月12日电 题：当生态保护遇上发展，中国大熊猫保护模式给出何种答案？
 
-然而，狂欢终有散场时。
+——专访纳米比亚司法和劳工关系部监察专员办公室首席投诉调查员、区域负责人希尔维斯特·辛乌拉·希本戈，葡萄牙内贝拉大学助理教授若热·曼努埃尔·塔瓦雷斯·达席尔瓦 中新社记者 胡默达 岳依桐 中国的大熊猫保护实践，为全球践行人与自然和谐共生的现代人权理念带来哪些借鉴？
 
-随着补贴逐步退去，奶茶价格重回20元区间。
+在平衡生态保护与长期发展方面，国际社会可从中国大熊猫保护中获得哪些启示？
 
-近期，六家上市现制茶饮企业相继交出2025年成绩单。
+近日，在四川都江堰熊猫谷(成都大熊猫繁育研究基地都江堰野放繁育研究中心)参访，深度了解中国大熊猫保护实践及成效的纳米比亚司法和劳工关系部监察专员办公室首席投诉调查员、区域负责人希尔维斯特·辛乌拉·希本戈，葡萄牙内贝拉大学助理教授若热·曼努埃尔·塔瓦雷斯·达席尔瓦接受中新社“东西问”专访，分享了所见所感。
 
-补贴大战的影响在财报中清晰可见：有人承压受伤，有人顺势而上，更有甚者主动盼着补贴早点结束。
+达席尔瓦指出，当人们谈论发展时，不仅讨论经济层面的发展，还包括社会条件和气候条件。
 
-同场竞技，不同命运 “受伤最深”的是定位高端的品牌。
+对民众来说，拥有良好的条件、福利及整体上的良好环境都至关重要。
 
-霸王茶姬2025年第四季度收入29.74亿元，同比下滑10.8%，营业利润由盈转亏，录得亏损3550万元，归母净利润更是同比暴跌95.3%至2853.8万元。
+从中国大熊猫保护的实践中可看到，生态保护效益正在与当地居民共享。
 
-创始人张俊杰在业绩会上坦言：“我们也确实低估了外卖平台价格大战对线下的冲击。
+“大熊猫保护带动了都江堰等城市旅游业和相关产业的发展，推动生态保护与民生改善协同发展，让保护成果真正惠及民众，是发展权在中国得以落实的生动体现。
 
 ## 相关推荐
 
-- 2026-06-30 03:10 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 03:35 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 03:21 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 03:29 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 03:32 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 03:16 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 03:06 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 03:15 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 03:33 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 03:09 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 03:33 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 03:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 03:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 03:36 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 03:22 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-30 03:26 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 03:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 03:33 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 03:25 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 03:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 03:29 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 03:33 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 03:32 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 03:21 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 03:13 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 03:13 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 03:35 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/119322329347.shtml)
-- 2026-06-30 03:06 - [一生一世](https://www.blog.kurohicncr.top/Article/details/5570828.shtml)
-- 2026-06-30 03:26 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/85793732174.shtml)
-- 2026-06-30 03:17 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/21703976.shtml)
-- 2026-06-30 03:31 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/71102576.shtml)
-- 2026-06-30 03:18 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/4232251692.shtml)
-- 2026-06-30 03:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/07076611.shtml)
-- 2026-06-30 03:24 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/572090.shtml)
-- 2026-06-30 03:28 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/97899024256.shtml)
-- 2026-06-30 03:20 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/8266889663.shtml)
-- 2026-06-30 03:12 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/960309373379.shtml)
-- 2026-06-30 03:14 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/234061.shtml)
-- 2026-06-30 03:31 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/4380826719.shtml)
-- 2026-06-30 03:24 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/677730644.shtml)
-- 2026-06-30 03:16 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/7120887006.shtml)
+- 2026-06-30 03:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/88963375.shtml)
+- 2026-06-30 03:31 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/03614.shtml)
+- 2026-06-30 03:23 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/6025133.shtml)
+- 2026-06-30 03:26 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/6821043548.shtml)
+- 2026-06-30 03:40 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/0927468.shtml)
+- 2026-06-30 03:31 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/98857886.shtml)
+- 2026-06-30 03:12 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/3301164.shtml)
+- 2026-06-30 03:28 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/014450.shtml)
+- 2026-06-30 03:18 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/310269.shtml)
+- 2026-06-30 03:28 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/36558890.shtml)
+- 2026-06-30 03:19 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/150338.shtml)
+- 2026-06-30 03:41 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/9658567.shtml)
+- 2026-06-30 03:35 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/54180.shtml)
+- 2026-06-30 03:22 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/04016.shtml)
+- 2026-06-30 03:18 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/98271564335.shtml)

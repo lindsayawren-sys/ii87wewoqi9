@@ -1,56 +1,44 @@
-# 皇氏集团从“减亏”到巨亏，祸起一家合营企业
+# 刘海星会见多国客人
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 近日，皇氏集团（维权）（002329.SZ）发布的一则业绩预告修正公告，再次将原本改善的业绩“打回原形”。 今年1月，皇氏集团发布公告称，预计2025年度归母净利润亏损1.9亿元至2.8亿元，虽然仍在亏损，但较2024年同期6.81亿元的巨亏
+新华社北京6月12日电 6月11日至12日，中共中央对外联络部部长刘海星在北京分别会见新加坡国会议长谢健平，蒙古国副总理、民族联盟主席诺木泰巴亚尔，土耳其多党议员考察团和“2026中国与中东欧青年政治家论坛”外方参会代表，就落实好双方领导人共识、密切党际交往等交换意见。
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-来源：证券之星 近日，皇氏集团（维权）（002329.SZ）发布的一则业绩预告修正公告，再次将原本改善的业绩“打回原形”。
-
-今年1月，皇氏集团发布公告称，预计2025年度归母净利润亏损1.9亿元至2.8亿元，虽然仍在亏损，但较2024年同期6.81亿元的巨亏已有大幅收窄。
-
-然而，短短两个月后，皇氏集团直接将亏损额修正至4.2亿元至4.9亿元，修正幅度超过75%。
-
-证券之星注意到，受限于年度审计工作尚未全面开展，皇氏集团对泰安数智城市运营有限公司（以下简称“数智运营”）的长期股权投资减值测算并不准确完整。
-
-随着独立评估机构介入，数智运营的可收回金额远低于此前估算，这笔计补充提直接吞噬了公司数亿元利润。
-
-数智运营是一家怎样的公司，能让皇氏集团在业绩预告发布后两个月内被迫“紧急加亏”？
-
-而这家昔日“水牛奶第一股”的经营，又将驶向什么方向？
+新华社北京6月12日电 6月11日至12日，中共中央对外联络部部长刘海星在北京分别会见新加坡国会议长谢健平，蒙古国副总理、民族联盟主席诺木泰巴亚尔，土耳其多党议员考察团和“2026中国与中东欧青年政治家论坛”外方参会代表，就落实好双方领导人共识、密切党际交往等交换意见。
 
 ## 相关推荐
 
-- 2026-06-30 03:08 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 03:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 03:33 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 03:06 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 03:26 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 03:11 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 03:22 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 03:18 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 03:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-30 03:29 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 03:15 - [点菜也要教吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 03:22 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 03:30 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 03:24 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 03:37 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 03:36 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 03:36 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 03:28 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 03:34 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 03:18 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 03:24 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 03:14 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:28 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/43288.shtml)
-- 2026-06-30 03:19 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/593419482377.shtml)
-- 2026-06-30 03:11 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/3869491.shtml)
-- 2026-06-30 03:13 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/94498966111.shtml)
-- 2026-06-30 03:17 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/965631135.shtml)
-- 2026-06-30 03:35 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/295967600.shtml)
-- 2026-06-30 03:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/45048085.shtml)
-- 2026-06-30 03:33 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/031887.shtml)
-- 2026-06-30 03:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/58226897975.shtml)
-- 2026-06-30 03:27 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/69292690.shtml)
-- 2026-06-30 03:10 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/8840612.shtml)
-- 2026-06-30 03:35 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/487533.shtml)
-- 2026-06-30 03:20 - [美人鱼](https://www.share.minike.top/Article/details/641079139.shtml)
-- 2026-06-30 03:08 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/50404723150.shtml)
-- 2026-06-30 03:19 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/661454814942.shtml)
+- 2026-06-30 03:19 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/2894662465.shtml)
+- 2026-06-30 03:20 - [演员都来上音综的原因](http://www.share.kurohicncr.top/Article/details/650164534.shtml)
+- 2026-06-30 03:20 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/0252214528.shtml)
+- 2026-06-30 03:15 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/5076891.shtml)
+- 2026-06-30 03:20 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/715913254721.shtml)
+- 2026-06-30 03:39 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/16522.shtml)
+- 2026-06-30 03:37 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/19331924232.shtml)
+- 2026-06-30 03:38 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/93585215.shtml)
+- 2026-06-30 03:12 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/60033850.shtml)
+- 2026-06-30 03:22 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/342619087.shtml)
+- 2026-06-30 03:41 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/3729638821.shtml)
+- 2026-06-30 03:37 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/113113824.shtml)
+- 2026-06-30 03:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/52960151708.shtml)
+- 2026-06-30 03:24 - [沙丘](https://www.blog.kurohicncr.top/Article/details/94274.shtml)
+- 2026-06-30 03:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/49328966.shtml)

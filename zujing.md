@@ -1,58 +1,57 @@
-# 兴业证券：美伊停火下的港股投资策略
+# 6月15日财经早餐：美伊达成谅解备忘录文本，金价触及4300上方，美油触及近两个月低点
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：尧望后势 4月7日美伊达成两周停火并转入谈判窗口。我们判断，后续中东形势虽然仍有反复，但与此前相比，进一步升级为更大范围冲突的概率已经明显下降。节奏上可能类似2025年4月关税冲击后那一段“威胁—缓和—再拉锯”的过程。 尽管地缘局势或仍有波折，但4月港股有望迎来做多窗口。第一，全球权益市场短期从 ri
+汇通财经APP讯——周一（北京时间6月15日）亚市早盘，现货黄金交投于高开超1%，最高触及4300美元/盎司上方，现交投于4281美元/盎司附近，受益于加息预期打压，因美伊谅解备忘录文本完成，并于6月19日签署；受此影响，美原油跳空低开超4%，一度触及近两个月低点至80.25美元/桶，现交投于81.10美元/桶附近。 onclick=javascript：window.open
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+汇通财经APP讯——周一（北京时间6月15日）亚市早盘，现货黄金交投于高开超1%，最高触及4300美元/盎司上方，现交投于4281美元/盎司附近，受益于加息预期打压，因美伊谅解备忘录文本完成，并于6月19日签署；受此影响，美原油跳空低开超4%，一度触及近两个月低点至80.25美元/桶，现交投于81.10美元/桶附近。
 
-来源：尧望后势 4月7日美伊达成两周停火并转入谈判窗口。
+onclick=javascript：window.open（this.src）； /> 日内重点关注 股市 美股上周五收高，道指涨0.7%，标普500指数涨0.5%，纳指涨0.3%，主要受投资者对伊朗与美国达成和平协议的乐观预期推动。
 
-我们判断，后续中东形势虽然仍有反复，但与此前相比，进一步升级为更大范围冲突的概率已经明显下降。
+马斯克旗下的SpaceX上市首日股价飙升19.2%至160.95美元，市值达2.1万亿美元，成为华尔街史上最大规模IPO之一，但此前因SpaceX上市预期而上涨的其他航天股如Rocket Lab、Intuitive Machines和Planet Labs当日均大幅回落。
 
-节奏上可能类似2025年4月关税冲击后那一段“威胁—缓和—再拉锯”的过程。
+Adobe因首席财务官离职下跌6.8%。
 
-尽管地缘局势或仍有波折，但4月港股有望迎来做多窗口。
+市场同时关注本周美联储会议，交易员预计12月前加息概率为55%。
 
-第一，全球权益市场短期从 risk off 重回 risk on；第二，随着避险情绪和油价见顶回落，美元大概率也将回吐此前过于悲观的地缘不确定性和流动性紧缩定价，非美市场、新兴市场更为受益；第三，腾讯混元和DeepSeek大模型的发布、政治局会议和特朗普访华预期有望扭转当前港股估值中隐含的悲观预期；第四，从3月PMI来看，4月披露的经济数据预计将进一步验证中国基本面的修复进展；第五，资金面供需格局有望改善，一方面，港股此前累积的高位空头仓位，风险偏好修复所带来的空头平仓放大指数弹性，另一方面，4月港股解禁规模环比2-3月显著回落；第六，2015-2025年，4月是港股胜率较高的月份之一，恒生指数/恒生科技指数上涨概率为72.7%/63.6%。
+尽管上周三大指数累计上涨约7%，但美国股票基金仍遭遇三周来首次周度资金净流出。
 
-反弹≠反转，中期真正的指数性行情则仍需要等待更多共识的形成。
+金市 金价上周五收涨，报每盎司4216.83美元，但受加息预期打压，周线累计下跌2.56%，为连续第二周走低。
 
-作为港股行情的“基本盘“，4月8日截至中午收盘南下资金显著净流出，过去一周代表中长期资本的ETF仍在被赎回，反映内资对港股依然以交易思维为主，叠加海外长钱的观望态度，现阶段市场共识偏弱。
+市场关注美伊局势，有消息称双方可能最早于周日签署和平备忘录，但伊朗方面否认相关猜测。
 
 ## 相关推荐
 
-- 2026-06-30 03:19 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 03:21 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 03:23 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 03:13 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 03:25 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 03:17 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 03:07 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 03:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 03:22 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 03:34 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 03:12 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 03:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 03:20 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 03:21 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 03:24 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 03:24 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 03:13 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 03:28 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 03:32 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 03:40 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 03:40 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 03:15 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 03:31 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:17 - [世界杯](https://www.blog.kurohicncr.top/Article/details/763092576.shtml)
-- 2026-06-30 03:33 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/8373364583.shtml)
-- 2026-06-30 03:12 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/69444.shtml)
-- 2026-06-30 03:16 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/659261918.shtml)
-- 2026-06-30 03:23 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/236254.shtml)
-- 2026-06-30 03:16 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/8970190.shtml)
-- 2026-06-30 03:18 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/18055151.shtml)
-- 2026-06-30 03:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/627943698784.shtml)
-- 2026-06-30 03:33 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/63628733488.shtml)
-- 2026-06-30 03:28 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/01967309.shtml)
-- 2026-06-30 03:27 - [啊啊啊](https://www.share.minike.top/Article/details/31273966122.shtml)
-- 2026-06-30 03:14 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/999764354.shtml)
-- 2026-06-30 03:14 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/15669.shtml)
-- 2026-06-30 03:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/7224106.shtml)
-- 2026-06-30 03:19 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/591916.shtml)
+- 2026-06-30 03:41 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/1623161.shtml)
+- 2026-06-30 03:34 - [第一炉香](https://www.blog.minike.top/Article/details/707976123.shtml)
+- 2026-06-30 03:24 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/048991475324.shtml)
+- 2026-06-30 03:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/760714397493.shtml)
+- 2026-06-30 03:31 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/503471552647.shtml)
+- 2026-06-30 03:16 - [斛珠夫人](http://www.share.minike.top/Article/details/843919843982.shtml)
+- 2026-06-30 03:24 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/15136.shtml)
+- 2026-06-30 03:20 - [内马尔替补](http://www.share.minike.top/Article/details/2260840407.shtml)
+- 2026-06-30 03:16 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/540776651.shtml)
+- 2026-06-30 03:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/439086549338.shtml)
+- 2026-06-30 03:26 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/849572830.shtml)
+- 2026-06-30 03:38 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/61798418.shtml)
+- 2026-06-30 03:20 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/634914.shtml)
+- 2026-06-30 03:26 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/033872812.shtml)
+- 2026-06-30 03:40 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/99036704990.shtml)

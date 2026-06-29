@@ -1,59 +1,61 @@
-# 特朗普称将与伊朗讨论制裁减免 威胁对向德黑兰供武国家征收50%关税
+# 抢滩万亿市场 太空竞争转向综合服务输出
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普表示，美国正讨论对伊朗的制裁减免，并将与德黑兰合作清除埋藏的核材料，此举回应了伊朗在停火谈判中的一项关键要求。 特朗普在社交媒体上发文表示：“我们正在并将会与伊朗讨论关税和制裁减免。” 自特朗普在2018年宣布美国退出限制伊朗核计划的协议以来，伊朗一直承受着严厉的经济制裁。解除这些制裁一直是伊朗的首要关切。 特朗普还威胁对向伊朗提供武器的国家征收50%的关
+6月14日，“中国正在太空布下一盘大棋”的话题登上微博热搜。同时，北京、天津、上海及杭州等地近期也加速布局太空算力。据前瞻产业研究院预测，2025—2030年，中国商业航天行业将进入发展黄金期，预计2030年中国市场规模将达到8万亿元。有关分析认为，我国多地集中发力太空算力，不仅是为了破解地面算力发展遇到的现实制约，向太空拓展算力空间，更是为了抢占未来科技与产业战略制高点，天基
 
 ## 正文
 
-美国总统唐纳德·特朗普表示，美国正讨论对伊朗的制裁减免，并将与德黑兰合作清除埋藏的核材料，此举回应了伊朗在停火谈判中的一项关键要求。
+6月14日，“中国正在太空布下一盘大棋”的话题登上微博热搜。
 
-特朗普在社交媒体上发文表示：“我们正在并将会与伊朗讨论关税和制裁减免。
+同时，北京、天津、上海及杭州等地近期也加速布局太空算力。
 
-” 自特朗普在2018年宣布美国退出限制伊朗核计划的协议以来，伊朗一直承受着严厉的经济制裁。
+据前瞻产业研究院预测，2025—2030年，中国商业航天行业将进入发展黄金期，预计2030年中国市场规模将达到8万亿元。
 
-解除这些制裁一直是伊朗的首要关切。
+有关分析认为，我国多地集中发力太空算力，不仅是为了破解地面算力发展遇到的现实制约，向太空拓展算力空间，更是为了抢占未来科技与产业战略制高点，天基算力网络关乎数字基础设施自主可控，影响未来产业发展格局。
 
-特朗普还威胁对向伊朗提供武器的国家征收50%的关税，并表示美国将与伊朗合作提取核材料。
+随着传统的卫星制造、火箭发射等硬件业务逐步走向成熟，增长空间趋于平稳，依托在轨资源开展的数据处理、智能计算、天地互联等新业态，连接起上下游众多产业，能够持续释放增长潜力，成为拉动市场扩容的核心动力。
 
-“将不再有铀浓缩，美国将与伊朗一道，挖掘并清除所有深埋的（B-2轰炸机）核‘粉尘’，”他写道。
+多地加码太空算力 北京太空智算研究院近日在北京经济技术开发区注册成立。
 
-责任编辑：江学思
+该院将围绕星载算力芯片、星间激光通信、太空能源与散热、天地一体化网络及空间安全标准等方向开展关键共性技术攻关，搭建覆盖从技术研发、中试验证、在轨测试到成果转化的全链条服务体系，并计划于2028年前完成首发试验星研制与发射。
+
+北京市首个太空算力产业创新中心也于近日宣布落地海淀区，该中心重点布局六大核心攻关方向，涵盖太空原生算力芯片、高性能太空算力载荷、卫星平台与地面验证系统、太空专用大模型、天地一体通信测控组网、太空算力服务运营，全面贯通“芯片—硬件—平台—智能—网络—应用”全栈产业链条。
 
 ## 相关推荐
 
-- 2026-06-30 03:06 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 03:09 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 03:06 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 03:22 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-30 03:25 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 03:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 03:19 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 03:18 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 03:29 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-30 03:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 03:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 03:28 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 03:17 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 03:26 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 03:20 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 03:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 03:38 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 03:23 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 03:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 03:41 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 03:17 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-30 03:33 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 03:15 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 03:20 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 03:37 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 03:14 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 03:18 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 03:16 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 03:17 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 03:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:08 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/48947891.shtml)
-- 2026-06-30 03:34 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/09697225.shtml)
-- 2026-06-30 03:28 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/227626.shtml)
-- 2026-06-30 03:08 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/092020730.shtml)
-- 2026-06-30 03:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/899858691.shtml)
-- 2026-06-30 03:26 - [日本进球](http://www.share.minike.top/Article/details/894922399.shtml)
-- 2026-06-30 03:26 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/32345960.shtml)
-- 2026-06-30 03:07 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/5449399.shtml)
-- 2026-06-30 03:31 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/677065508861.shtml)
-- 2026-06-30 03:26 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/20770.shtml)
-- 2026-06-30 03:31 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/425957338549.shtml)
-- 2026-06-30 03:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/19833.shtml)
-- 2026-06-30 03:22 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/48779579509.shtml)
-- 2026-06-30 03:31 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/63688803361.shtml)
-- 2026-06-30 03:10 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/09436406855.shtml)
+- 2026-06-30 03:40 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/042004632313.shtml)
+- 2026-06-30 03:21 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/08628497.shtml)
+- 2026-06-30 03:36 - [周生如故](http://www.share.minike.top/Article/details/71934.shtml)
+- 2026-06-30 03:26 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/76309.shtml)
+- 2026-06-30 03:30 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/291824.shtml)
+- 2026-06-30 03:20 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/66172378.shtml)
+- 2026-06-30 03:19 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/7746461.shtml)
+- 2026-06-30 03:22 - [世界杯](http://www.share.minike.top/Article/details/304617238.shtml)
+- 2026-06-30 03:19 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/69383.shtml)
+- 2026-06-30 03:34 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/1726366.shtml)
+- 2026-06-30 03:35 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/9244625343.shtml)
+- 2026-06-30 03:40 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/030766131.shtml)
+- 2026-06-30 03:17 - [巴西vs日本](https://www.blog.minike.top/Article/details/994979874326.shtml)
+- 2026-06-30 03:39 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/10203317.shtml)
+- 2026-06-30 03:36 - [点菜也要教吗](https://www.share.minike.top/Article/details/89041.shtml)

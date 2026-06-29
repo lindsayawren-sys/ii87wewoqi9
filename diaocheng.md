@@ -1,60 +1,57 @@
-# 2026中国（金华山）国际露营大会系列活动将贯穿全年
+# 资金净申购9460万份！同标的指数规模最大——有色ETF华宝（159876）放量大涨5.15%！
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-中新网北京4月8日电 (记者 邢翀)记者8日从组委会获悉，2026中国(金华山)国际露营大会系列活动将贯穿全年，涵盖文体旅融合创新与实践发展研策会、中国国际露营大会户外美好生活展、中国青少年户外运动巡回赛三大核心活动。 露营作为山地旅游、户外休闲最具活力的业态之一，是连接自然、健康与大众美好生活的重要载体。金华山是国际山地旅游联盟会员和中国国际露营大会永久会址，在传统山岳型景区
+周五（6月12日）有色金属板块领涨全市场，全天获主力资金净流入超167亿元，板块吸金额高居31个申万一级行业首位！洛阳钼业获主力资金净流入29.36亿元，登顶A股吸金榜榜首！ 热门ETF方面，同标的指数规模最大*的有色ETF华宝（159876）场内涨幅最高涨超7%，收涨5.15%，全天成交额2亿元，环比激增117%，一举收复10日、20日均线，斩获日线4连阳。 伴随火热行情，资
 
 ## 正文
 
-中新网北京4月8日电 (记者 邢翀)记者8日从组委会获悉，2026中国(金华山)国际露营大会系列活动将贯穿全年，涵盖文体旅融合创新与实践发展研策会、中国国际露营大会户外美好生活展、中国青少年户外运动巡回赛三大核心活动。
+周五（6月12日）有色金属板块领涨全市场，全天获主力资金净流入超167亿元，板块吸金额高居31个申万一级行业首位！
 
-露营作为山地旅游、户外休闲最具活力的业态之一，是连接自然、健康与大众美好生活的重要载体。
+洛阳钼业获主力资金净流入29.36亿元，登顶A股吸金榜榜首！
 
-金华山是国际山地旅游联盟会员和中国国际露营大会永久会址，在传统山岳型景区转型方面成效显著。
+热门ETF方面，同标的指数规模最大*的有色ETF华宝（159876）场内涨幅最高涨超7%，收涨5.15%，全天成交额2亿元，环比激增117%，一举收复10日、20日均线，斩获日线4连阳。
 
-在当天举行的新闻发布会上，国际山地旅游联盟副主席刘照惠指出，露营与联盟倡导的绿色、生态、可持续理念高度契合，国际山地旅游联盟将充分发挥平台作用，支持金华山打造“国际山地装备示范中心”，推动中国露营与山地旅游走向全球。
+伴随火热行情，资金积极进场布局！
 
-中国国际露营大会执行主席李守文阐述了大会“新场景、新消费、新生活”三新理念。
+数据显示，有色ETF华宝（159876）全天获资金净申购9460万份。
 
-他介绍，中国国际露营大会永久会址落地金华山两年来，已实现从落地扎根到成型成势的关键跨越，联动多元业态带动乡村振兴与产业协同。
+成份股狂掀涨停潮，铜陵有色、洛阳钼业、金钼股份、北方铜业、海亮股份、金田股份、驰宏锌锗7股涨停，锡业股份、云南铜业、江西铜业盘中触板，权重股紫金矿业涨超6%，北方稀土、中国铝业涨逾4%。
 
-本届大会将致力于打造国际化户外生活地标、举办现象级户外产业展会、培育国家级露营赛事IP、构建体教农文旅互哺增长极、发起户外产业创新人才孵化中心，推动户外产业高质量发展。
+今日有色金属板块缘何大涨？
 
-据介绍，本次大会有四大亮点：首创“户外奥莱”模式，联合国内外一线户外品牌与本地企业，打通工厂到消费者的直通渠道；打造超2000平米萌宠主题区，举办人宠障碍赛、宠物时装秀等活动；推出中国青少年户外运动巡回赛，设置多个组别，推动青少年户外运动普及；全新打造房车趣野集结赛，邀请百台房车集结打卡金华山地标。
+或可从三个维度进行拆解： 1、宏观层面，美国总统特朗普释放出美国与伊朗“即将达成和平协议”的信号，地缘风险溢价回落，风险偏好显著修复。
 
 ## 相关推荐
 
-- 2026-06-30 03:12 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 03:23 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 03:13 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 03:25 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 03:23 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 03:30 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 03:22 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 03:21 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 03:11 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 03:28 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 03:24 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 03:25 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 03:32 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 03:06 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 03:16 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 03:25 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 03:31 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 03:15 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 03:25 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 03:25 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 03:25 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 03:38 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 03:13 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 03:13 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 03:40 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:23 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/401471599.shtml)
-- 2026-06-30 03:19 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/60609735986.shtml)
-- 2026-06-30 03:32 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/5879577493.shtml)
-- 2026-06-30 03:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/554826.shtml)
-- 2026-06-30 03:08 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/2616883.shtml)
-- 2026-06-30 03:12 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/616139.shtml)
-- 2026-06-30 03:15 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/762663.shtml)
-- 2026-06-30 03:24 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/041256508.shtml)
-- 2026-06-30 03:13 - [沙丘](https://www.blog.minike.top/Article/details/180302.shtml)
-- 2026-06-30 03:28 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/290981.shtml)
-- 2026-06-30 03:31 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/92054.shtml)
-- 2026-06-30 03:29 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/40826571.shtml)
-- 2026-06-30 03:18 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/388710.shtml)
-- 2026-06-30 03:31 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/7671219340.shtml)
-- 2026-06-30 03:06 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/872664118.shtml)
+- 2026-06-30 03:28 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/11090.shtml)
+- 2026-06-30 03:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/176151810331.shtml)
+- 2026-06-30 03:38 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/843901.shtml)
+- 2026-06-30 03:32 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/44678684.shtml)
+- 2026-06-30 03:13 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/5868393614.shtml)
+- 2026-06-30 03:14 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/834045768132.shtml)
+- 2026-06-30 03:37 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/439862.shtml)
+- 2026-06-30 03:15 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/8741931.shtml)
+- 2026-06-30 03:37 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/16730655.shtml)
+- 2026-06-30 03:28 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/809161481.shtml)
+- 2026-06-30 03:30 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/2966660.shtml)
+- 2026-06-30 03:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/652647.shtml)
+- 2026-06-30 03:23 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/54160718464.shtml)
+- 2026-06-30 03:17 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/83416604.shtml)
+- 2026-06-30 03:21 - [孙兴慜道歉](http://www.share.minike.top/Article/details/55803.shtml)

@@ -1,51 +1,53 @@
-# 以色列对真主党发起伊朗战争爆发以来最大规模的军事行动
+# 乌克兰：俄罗斯对基辅发动大规模袭击
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-以色列国防军称，他们对真主党发动了自伊朗战争开始以来规模最大的军事行动，在10分钟内打击了100多个真主党指挥中心和军事地点。 目标包括真主党情报总部和中央机构，以及位于贝鲁特、贝卡谷地和黎巴嫩南部的火箭弹和海军设施。 以色列国防军总参谋长Eyal Zamir中将在声明中表示，以色列国防军将继续“坚定地”打击真主党，并将利用一切作战机会这样做。责任编辑：李肇孚
+中新网6月15日电 据《基辅独立报》报道，乌克兰官员称，俄罗斯于当地时间6月15日凌晨对乌克兰首都基辅发动了大规模袭击。 社交媒体上发布的视频显示，基辅市内多辆汽车起火。 基辅市市长克利奇科表示，市区遭到无人机袭击，多栋多层住宅楼遭到袭击。该市至少有5人在袭击中受伤。
 
 ## 正文
 
-以色列国防军称，他们对真主党发动了自伊朗战争开始以来规模最大的军事行动，在10分钟内打击了100多个真主党指挥中心和军事地点。
+中新网6月15日电 据《基辅独立报》报道，乌克兰官员称，俄罗斯于当地时间6月15日凌晨对乌克兰首都基辅发动了大规模袭击。
 
-目标包括真主党情报总部和中央机构，以及位于贝鲁特、贝卡谷地和黎巴嫩南部的火箭弹和海军设施。
+社交媒体上发布的视频显示，基辅市内多辆汽车起火。
 
-以色列国防军总参谋长Eyal Zamir中将在声明中表示，以色列国防军将继续“坚定地”打击真主党，并将利用一切作战机会这样做。
+基辅市市长克利奇科表示，市区遭到无人机袭击，多栋多层住宅楼遭到袭击。
 
-责任编辑：李肇孚
+该市至少有5人在袭击中受伤。
 
 ## 相关推荐
 
-- 2026-06-30 03:07 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-30 03:26 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 03:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 03:06 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 03:25 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 03:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-30 03:30 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 03:30 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-30 03:18 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 03:14 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-30 03:31 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 03:22 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-30 03:27 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 03:21 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 03:28 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 03:17 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 03:39 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 03:19 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 03:15 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 03:37 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 03:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 03:20 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 03:31 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 03:21 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 03:24 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 03:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 03:25 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 03:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:15 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/4670498.shtml)
-- 2026-06-30 03:06 - [AI接过张雪峰志愿填报衣钵](https://www.blog.minike.top/Article/details/82354.shtml)
-- 2026-06-30 03:24 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/25578592.shtml)
-- 2026-06-30 03:29 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/21252938.shtml)
-- 2026-06-30 03:34 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/97703573.shtml)
-- 2026-06-30 03:17 - [乔家的儿女](https://www.blog.minike.top/Article/details/50418.shtml)
-- 2026-06-30 03:09 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/038976.shtml)
-- 2026-06-30 03:35 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/41048946480.shtml)
-- 2026-06-30 03:16 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/485509745.shtml)
-- 2026-06-30 03:31 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/420493856.shtml)
-- 2026-06-30 03:12 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/852701120.shtml)
-- 2026-06-30 03:12 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/8397255.shtml)
-- 2026-06-30 03:15 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/5523035.shtml)
-- 2026-06-30 03:08 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/6607866885.shtml)
-- 2026-06-30 03:16 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/431755783.shtml)
+- 2026-06-30 03:41 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/53678290256.shtml)
+- 2026-06-30 03:30 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/89051.shtml)
+- 2026-06-30 03:39 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/8496361.shtml)
+- 2026-06-30 03:34 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/0771745.shtml)
+- 2026-06-30 03:39 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/6506657668.shtml)
+- 2026-06-30 03:37 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/24618557512.shtml)
+- 2026-06-30 03:22 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/95599.shtml)
+- 2026-06-30 03:26 - [逃狱兄弟](http://www.share.minike.top/Article/details/8646434.shtml)
+- 2026-06-30 03:27 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/413268800204.shtml)
+- 2026-06-30 03:20 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/5595289575.shtml)
+- 2026-06-30 03:40 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/276447964351.shtml)
+- 2026-06-30 03:31 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/3196962.shtml)
+- 2026-06-30 03:24 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/3949984479.shtml)
+- 2026-06-30 03:34 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/007818669380.shtml)
+- 2026-06-30 03:30 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/31350292.shtml)

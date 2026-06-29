@@ -1,60 +1,58 @@
-# 亚马逊考虑向其他公司出售其人工智能芯片
+# 千年古城江苏盱眙：民俗巡游燃动“龙虾之都”
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-云计算巨头亚马逊首席执行官Andy Jassy周四表示，公司正考虑向其他企业出售其芯片。他还称，公司自研芯片业务年化收入有望超过200亿美元。 这一披露罕见展示了亚马逊自研芯片业务的规模。该业务生产通用计算芯片、人工智能加速，以及提升公司服务器运行效率的芯片。 目前，亚马逊通过其云计算业务亚马逊云科技（Amazon Web Services，AWS）向客户出租这些硬件。但构建人
+中新网淮安6月12日电 (冯楠 徐珊珊)6月12日，地处淮河之滨的千年古城江苏盱眙热闹非凡。从龙虾节广场到“尅”街，3.3公里的道路上，欢声笑语与铿锵锣鼓声交织，800多名文化志愿者在“巡梦山水 虾聚都梁”主题巡游中，共同奏响“龙虾之都”夏日狂欢曲。 巡游队伍分为三大主题篇章、八大特色方阵。近百名青年身着特色龙虾服饰，步伐整齐、动作刚劲，用富有张力的表演展现小龙虾的灵动姿态，象
 
 ## 正文
 
-云计算巨头亚马逊首席执行官Andy Jassy周四表示，公司正考虑向其他企业出售其芯片。
+中新网淮安6月12日电 (冯楠 徐珊珊)6月12日，地处淮河之滨的千年古城江苏盱眙热闹非凡。
 
-他还称，公司自研芯片业务年化收入有望超过200亿美元。
+从龙虾节广场到“尅”街，3.3公里的道路上，欢声笑语与铿锵锣鼓声交织，800多名文化志愿者在“巡梦山水 虾聚都梁”主题巡游中，共同奏响“龙虾之都”夏日狂欢曲。
 
-这一披露罕见展示了亚马逊自研芯片业务的规模。
+巡游队伍分为三大主题篇章、八大特色方阵。
 
-该业务生产通用计算芯片、人工智能加速，以及提升公司服务器运行效率的芯片。
+近百名青年身着特色龙虾服饰，步伐整齐、动作刚劲，用富有张力的表演展现小龙虾的灵动姿态，象征着盱眙龙虾产业蒸蒸日上的发展态势。
 
-目前，亚马逊通过其云计算业务亚马逊云科技（Amazon Web Services，AWS）向客户出租这些硬件。
+文脉巡游队伍宛如流动的历史长卷：“第一山”花车携苏东坡、米芾的笔墨风韵缓缓前行，汉代王驾、明代皇家仪仗再现大云山雄浑底蕴与明祖陵庄严气象。
 
-但构建人工智能模型所需处理器的需求激增，导致供应趋紧，促使企业寻找英伟达占据主导地位的图形处理器之外的替代方案。
+非遗方阵中，灵动的剪纸纹样在孩童衣袂间舒展，龙虾元素道具在小手中轻摇。
 
-“我们芯片的需求非常旺盛，未来很可能向第三方按整机架出售，”Jassy在年度股东信中表示。
+活力队伍中，天源班学子步伐自信，展现着城市的未来气象。
 
-这位上任近五年的亚马逊掌门人表示，如果芯片业务是一家向AWS客户及其他第三方销售半导体的独立公司，其年化收入规模将达到500亿美元。
+沿街市民或驻足打卡，或跟随队伍前行，全民参与的氛围浓厚。
 
 ## 相关推荐
 
-- 2026-06-30 03:08 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 03:23 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 03:06 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 03:14 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 03:09 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 03:32 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 03:10 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 03:29 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 03:33 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-30 03:09 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-30 03:24 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 03:11 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 03:25 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 03:14 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 03:15 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 03:39 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 03:33 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 03:24 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 03:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 03:12 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 03:20 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 03:29 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 03:29 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-30 03:40 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 03:28 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 03:32 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:08 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/23887528668.shtml)
-- 2026-06-30 03:17 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/61259.shtml)
-- 2026-06-30 03:23 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/41456540.shtml)
-- 2026-06-30 03:23 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/260460551316.shtml)
-- 2026-06-30 03:24 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/75682.shtml)
-- 2026-06-30 03:33 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/235660031.shtml)
-- 2026-06-30 03:15 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/4759087776.shtml)
-- 2026-06-30 03:20 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/2737934516.shtml)
-- 2026-06-30 03:28 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/1763453.shtml)
-- 2026-06-30 03:06 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/7164862921.shtml)
-- 2026-06-30 03:26 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/846169594155.shtml)
-- 2026-06-30 03:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/2557515996.shtml)
-- 2026-06-30 03:11 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/75766.shtml)
-- 2026-06-30 03:30 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/25199144466.shtml)
-- 2026-06-30 03:14 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/67992.shtml)
+- 2026-06-30 03:13 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/35690258.shtml)
+- 2026-06-30 03:26 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/326686648.shtml)
+- 2026-06-30 03:32 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/43491637.shtml)
+- 2026-06-30 03:40 - [日本反击率先破门](https://www.share.minike.top/Article/details/087007805.shtml)
+- 2026-06-30 03:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/913176101.shtml)
+- 2026-06-30 03:31 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/756515362.shtml)
+- 2026-06-30 03:36 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/53634829.shtml)
+- 2026-06-30 03:17 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/07346387.shtml)
+- 2026-06-30 03:12 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/11414.shtml)
+- 2026-06-30 03:29 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/03094894.shtml)
+- 2026-06-30 03:37 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/80131.shtml)
+- 2026-06-30 03:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/153706686710.shtml)
+- 2026-06-30 03:37 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/21896527140.shtml)
+- 2026-06-30 03:29 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/3163623.shtml)
+- 2026-06-30 03:15 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/130640943154.shtml)

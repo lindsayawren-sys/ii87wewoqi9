@@ -1,59 +1,59 @@
-# 两大全国性AMC年收购不良资产超5400亿，地方AMC回归主业
+# 系列优惠助力市场升温 中信银行信用卡多举措激发年中消费活力
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-财联社4月9日讯（编辑 杨斌） 在监管制度建设取得重大进展后，金融资产管理公司（AMC）2025年的经营情况如何？ 目前，中信金融资产与中国信达两大全国性AMC已披露了2025年报。两大巨头在2025年加大不良资产收购与处置力度，合计收购不良资产超过5400亿元，重点聚焦中小金融机构改革化险等领域。 另外，有4家地方AMC披露了2025年部分经营情况，地方AMC聚焦主责主业，助
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！一年一度的6·18年中购物节如约而至，各大电商平台大促活动已火热开启。信用卡广泛服务于各类消费场景，是激发消费活力的中坚力量。值此消费旺季，中信银行信用卡积极携手主流平台，推出分期满减、支付立减、积分兑换等系列惠民优惠活动，为广大持卡用户打造“畅购一夏”的消费体验，助燃年中消费活力。 近日，国家统计局最新数
 
 ## 正文
 
-财联社4月9日讯（编辑 杨斌） 在监管制度建设取得重大进展后，金融资产管理公司（AMC）2025年的经营情况如何？
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-目前，中信金融资产与中国信达两大全国性AMC已披露了2025年报。
+一年一度的6·18年中购物节如约而至，各大电商平台大促活动已火热开启。
 
-两大巨头在2025年加大不良资产收购与处置力度，合计收购不良资产超过5400亿元，重点聚焦中小金融机构改革化险等领域。
+信用卡广泛服务于各类消费场景，是激发消费活力的中坚力量。
 
-另外，有4家地方AMC披露了2025年部分经营情况，地方AMC聚焦主责主业，助力区域金融风险化解。
+值此消费旺季，中信银行信用卡积极携手主流平台，推出分期满减、支付立减、积分兑换等系列惠民优惠活动，为广大持卡用户打造“畅购一夏”的消费体验，助燃年中消费活力。
 
-业内认为，不良资产管理行业形成了多元主体同台竞争的市场格局，多元化主体走出了差异化发展路径，其中综合金融服务能力是构建竞争壁垒的关键。
+近日，国家统计局最新数据显示，2026年1-4月，全国网上商品和服务零售额同比增长6.6%。
 
-两大全国性AMC去年收购不良资产超5400亿元 两家资产规模最大的全国性AMC均已发布2025年年报，其中，中信金融资产2025年末总资产规模超过万亿元，达到10570亿。
+在以旧换新政策持续扩围、网售促销等因素影响下，线上消费保持较快增长，展现出我国消费市场的较强韧性。
 
-剔除一次性影响因素，中信金融资产2025年实现总收入804.76亿元，同比增长43%；实现归母净利润110.86亿元，剔除金租公司出表影响，同比增长17.0%。
+中信银行信用卡秉持“金融为民”初心，充分发挥信用卡在促消费、惠民生中的纽带作用，围绕“食、住、行、娱、购”全生活场景，以切实的惠民福利助力消费市场持续升温。
 
-作为主营业务，中信金融资产的不良资产经营业务2025年总收入为694.11亿元，剔除一次性影响因素，增长108.5%。
+灵活分期享满减，生活焕新乐无忧 随着6·18年中消费旺季来临，3C数码、家电等品质商品迎来换新高峰。
 
 ## 相关推荐
 
-- 2026-06-30 03:31 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-30 03:08 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 03:16 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 03:27 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-30 03:08 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 03:34 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 03:14 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 03:12 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 03:09 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 03:26 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 03:24 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-30 03:09 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 03:11 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 03:39 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 03:29 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 03:39 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 03:26 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 03:24 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 03:19 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 03:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 03:28 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 03:38 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 03:27 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 03:38 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 03:40 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 03:16 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:24 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/20778748782.shtml)
-- 2026-06-30 03:21 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/829087740.shtml)
-- 2026-06-30 03:16 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/98839628105.shtml)
-- 2026-06-30 03:19 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/22600302025.shtml)
-- 2026-06-30 03:18 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/0636601116.shtml)
-- 2026-06-30 03:17 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/7821899658.shtml)
-- 2026-06-30 03:10 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/828543760.shtml)
-- 2026-06-30 03:19 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/639924770.shtml)
-- 2026-06-30 03:29 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/6828187574.shtml)
-- 2026-06-30 03:17 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/69592.shtml)
-- 2026-06-30 03:12 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/881768220.shtml)
-- 2026-06-30 03:32 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/01210174082.shtml)
-- 2026-06-30 03:17 - [小娘惹](https://www.share.kurohicncr.top/Article/details/49205762.shtml)
-- 2026-06-30 03:19 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/8810361.shtml)
-- 2026-06-30 03:20 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/7033626.shtml)
+- 2026-06-30 03:38 - [蔚来车主罚站](http://www.share.minike.top/Article/details/415446798120.shtml)
+- 2026-06-30 03:17 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/3074785277.shtml)
+- 2026-06-30 03:33 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/630296.shtml)
+- 2026-06-30 03:38 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/14898011.shtml)
+- 2026-06-30 03:36 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/34838.shtml)
+- 2026-06-30 03:19 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/8875655.shtml)
+- 2026-06-30 03:28 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/25233024.shtml)
+- 2026-06-30 03:33 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/1104281946.shtml)
+- 2026-06-30 03:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/59088876540.shtml)
+- 2026-06-30 03:36 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/63283980310.shtml)
+- 2026-06-30 03:39 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/5774659.shtml)
+- 2026-06-30 03:14 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/82441909.shtml)
+- 2026-06-30 03:27 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/275177.shtml)
+- 2026-06-30 03:16 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/471914750957.shtml)
+- 2026-06-30 03:32 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/304508265.shtml)

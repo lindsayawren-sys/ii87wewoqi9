@@ -1,59 +1,47 @@
-# 新任CEO达马罗上任后 迪士尼计划裁员至多1000人
+# 总书记关心的世界级非遗｜昆腔婉转韵悠长
 
-> 更新时间：2026-06-30 03:36:02 UTC+8
+> 更新时间：2026-06-30 03:42:02 UTC+8
 
 ## 摘要
 
-迪士尼正准备进行大规模裁员，这是新任首席执行官乔希・达马罗上任后的首批重大举措之一。据知情人士透露，这家娱乐公司计划在未来几周内削减多达1000个岗位，裁员主要集中在公司近期整合后的营销部门。 与许多好莱坞制片厂一样，迪士尼正努力适应新环境：流媒体业务利润远低于传统线性电视，票房收入下滑，同时还要面对亚马逊、谷歌旗下YouTube等科技公司的激烈竞争。公司也希望腾出资金，投向具
+发布时间：2026年06月14日 21:17 来源：新华社 责任编辑：【李骏】
 
 ## 正文
 
-迪士尼正准备进行大规模裁员，这是新任首席执行官乔希・达马罗上任后的首批重大举措之一。
-
-据知情人士透露，这家娱乐公司计划在未来几周内削减多达1000个岗位，裁员主要集中在公司近期整合后的营销部门。
-
-与许多好莱坞制片厂一样，迪士尼正努力适应新环境：流媒体业务利润远低于传统线性电视，票房收入下滑，同时还要面对亚马逊、谷歌旗下YouTube等科技公司的激烈竞争。
-
-公司也希望腾出资金，投向具备增长潜力的数字业务。
-
-自达马罗的前任鲍勃・艾格2022年重返CEO并启动重大重组以来，迪士尼已累计裁员超8000人。
-
-知情人士称，本轮裁员计划在达马罗接任前就已制定。
-
-截至 2025 财年末，迪士尼员工总数为 23.1 万人，其中约 80% 任职于体验业务部门，包括主题公园和消费品业务。
-
-此前大部分裁员集中在娱乐业务、ESPN 体育频道及公司运营部门，而主题公园和邮轮业务则一直在扩张。
+发布时间：2026年06月14日 21:17 来源：新华社 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-30 03:21 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 03:35 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-30 03:16 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 03:33 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 03:10 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 03:08 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 03:11 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 03:06 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 03:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 03:07 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 03:29 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 03:22 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 03:14 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 03:14 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 03:25 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 03:33 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 03:38 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 03:24 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 03:16 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 03:21 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 03:17 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 03:22 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 03:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 03:18 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 03:40 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 03:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 03:13 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 03:34 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/214051871389.shtml)
-- 2026-06-30 03:28 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/985831774599.shtml)
-- 2026-06-30 03:31 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/257063330.shtml)
-- 2026-06-30 03:32 - [明星大侦探第一季](http://www.share.minike.top/Article/details/495801520806.shtml)
-- 2026-06-30 03:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/481350602.shtml)
-- 2026-06-30 03:15 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/331698024.shtml)
-- 2026-06-30 03:18 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/374651317.shtml)
-- 2026-06-30 03:35 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/1276466998.shtml)
-- 2026-06-30 03:07 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/937560.shtml)
-- 2026-06-30 03:24 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/6125252362.shtml)
-- 2026-06-30 03:21 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/329068581776.shtml)
-- 2026-06-30 03:21 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/0800103683.shtml)
-- 2026-06-30 03:15 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/2401792.shtml)
-- 2026-06-30 03:18 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/08756365.shtml)
-- 2026-06-30 03:27 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/33113502432.shtml)
+- 2026-06-30 03:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/16937.shtml)
+- 2026-06-30 03:30 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/16572.shtml)
+- 2026-06-30 03:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/82257.shtml)
+- 2026-06-30 03:38 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/5424030.shtml)
+- 2026-06-30 03:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/7519391.shtml)
+- 2026-06-30 03:13 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/446570638142.shtml)
+- 2026-06-30 03:36 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/10183886231.shtml)
+- 2026-06-30 03:18 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/1859186074.shtml)
+- 2026-06-30 03:14 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/3065189484.shtml)
+- 2026-06-30 03:12 - [时光音乐会](https://www.share.minike.top/Article/details/6595483.shtml)
+- 2026-06-30 03:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/308888548.shtml)
+- 2026-06-30 03:15 - [日本进球](http://www.share.minike.top/Article/details/023338.shtml)
+- 2026-06-30 03:25 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/46599.shtml)
+- 2026-06-30 03:38 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/73258167.shtml)
+- 2026-06-30 03:35 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/401636025536.shtml)
