@@ -1,44 +1,52 @@
-# 神舟二十二号载人飞船与中国空间站组合体成功分离
+# 西藏口岸：尼泊尔药材进口量增长迅速
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-原标题：新华社快讯：神舟二十二号载人飞船与中国空间站组合体成功分离，神舟二十一号航天员乘组即将踏上回家之旅 新华社快讯：神舟二十二号载人飞船与中国空间站组合体成功分离。出差太空200余天的神舟二十一号航天员张陆、武飞、张洪章即将踏上回家之旅。
+中新社拉萨5月9日电(记者 贡桑拉姆)记者9日从拉萨海关获悉，2026年第一季度，经西藏自治区口岸从尼泊尔进口的植物源性药材达27.5吨，同比增长189.06%，这些药材主要用于藏医药产业。 据了解，石斛、黄精等来自尼泊尔的植物源性药材，已成为通过西藏自治区口岸进口的重要商品，促进了中尼经贸往来与传统医药国际合作。 在中尼双方共同努力下，尼泊尔获准输华的植物源性药材种类已从20
 
 ## 正文
 
-原标题：新华社快讯：神舟二十二号载人飞船与中国空间站组合体成功分离，神舟二十一号航天员乘组即将踏上回家之旅 新华社快讯：神舟二十二号载人飞船与中国空间站组合体成功分离。
+中新社拉萨5月9日电(记者 贡桑拉姆)记者9日从拉萨海关获悉，2026年第一季度，经西藏自治区口岸从尼泊尔进口的植物源性药材达27.5吨，同比增长189.06%，这些药材主要用于藏医药产业。
 
-出差太空200余天的神舟二十一号航天员张陆、武飞、张洪章即将踏上回家之旅。
+据了解，石斛、黄精等来自尼泊尔的植物源性药材，已成为通过西藏自治区口岸进口的重要商品，促进了中尼经贸往来与传统医药国际合作。
+
+在中尼双方共同努力下，尼泊尔获准输华的植物源性药材种类已从2023年的16种增加至目前的31种。
+
+此外，在拉萨海关完成注册登记的尼泊尔药材生产加工企业也从4家增至10家。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 18:31 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 18:25 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 18:29 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 18:11 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 18:18 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 18:26 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 18:13 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 18:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 18:35 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 18:29 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 18:34 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 18:39 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 18:22 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 18:16 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 18:40 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 18:21 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 18:40 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 18:33 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 18:33 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 18:22 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 18:12 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:24 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/03165697.shtml)
-- 2026-06-29 18:21 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/1577594627.shtml)
-- 2026-06-29 18:30 - [斗破苍穹](https://www.blog.minike.top/Article/details/167835.shtml)
-- 2026-06-29 18:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/41268.shtml)
-- 2026-06-29 18:09 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/3978088626.shtml)
-- 2026-06-29 18:30 - [时光音乐会](http://www.share.minike.top/Article/details/7231593.shtml)
-- 2026-06-29 18:07 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/8672387152.shtml)
-- 2026-06-29 18:35 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/10805.shtml)
-- 2026-06-29 18:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/4343795.shtml)
-- 2026-06-29 18:25 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/4358323.shtml)
-- 2026-06-29 18:13 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/65861.shtml)
-- 2026-06-29 18:14 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/85263184295.shtml)
-- 2026-06-29 18:22 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/604342613.shtml)
-- 2026-06-29 18:34 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/5751966.shtml)
-- 2026-06-29 18:19 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.kurohicncr.top/Article/details/153576163409.shtml)
+- 2026-06-29 18:25 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/970414.shtml)
+- 2026-06-29 18:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/883648991302.shtml)
+- 2026-06-29 18:23 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/71687991.shtml)
+- 2026-06-29 18:25 - [啊啊啊](http://www.blog.minike.top/Article/details/032926082633.shtml)
+- 2026-06-29 18:34 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/50341778.shtml)
+- 2026-06-29 18:33 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/73613568.shtml)
+- 2026-06-29 18:31 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/60662.shtml)
+- 2026-06-29 18:26 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/301023771.shtml)
+- 2026-06-29 18:21 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/06889.shtml)
+- 2026-06-29 18:13 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/39271488.shtml)
+- 2026-06-29 18:17 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/30078584.shtml)
+- 2026-06-29 18:38 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/842599836.shtml)
+- 2026-06-29 18:17 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/97569406.shtml)
+- 2026-06-29 18:27 - [媒体：听清自己内心的声音再填志愿](http://www.blog.kurohicncr.top/Article/details/26276472.shtml)
+- 2026-06-29 18:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/772402537.shtml)

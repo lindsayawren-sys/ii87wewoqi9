@@ -1,59 +1,45 @@
-# 重庆办夜间科普盛宴 多元形式让科学走进大众生活
+# 吉林省农业农村厅原一级巡视员夏季接受审查调查
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月31日电 (记者 钟旖)近距离观赏珍稀自然标本、在轻松玩乐中解锁理化科技知识、动手完成一个科学小实验……30日晚，重庆自然博物馆举办“星夜自博 点亮科学之光”——2026年“科学之夜”专场活动，为山城亲子家庭带来一场沉浸式的夜间科普盛宴。 夜幕低垂，重庆自然博物馆内外人潮涌动。据介绍，本次活动打破博物馆日间运营的传统模式，融合科普互动、科学市集、科普舞台剧、音乐演
+中新网5月11日电 据吉林省纪委监委消息：吉林省农业农村厅原一级巡视员夏季涉嫌严重违纪违法，主动向组织交代问题，目前正接受吉林省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-中新网重庆5月31日电 (记者 钟旖)近距离观赏珍稀自然标本、在轻松玩乐中解锁理化科技知识、动手完成一个科学小实验……30日晚，重庆自然博物馆举办“星夜自博 点亮科学之光”——2026年“科学之夜”专场活动，为山城亲子家庭带来一场沉浸式的夜间科普盛宴。
-
-夜幕低垂，重庆自然博物馆内外人潮涌动。
-
-据介绍，本次活动打破博物馆日间运营的传统模式，融合科普互动、科学市集、科普舞台剧、音乐演出等多元形式，让科学走出课本、融入生活。
-
-面向全年龄段市民开放的“星夜科普集市”热闹开市，趣味科学实验、珍稀自然展品陈列、沉浸式科普互动、科普文创好物四大特色板块同步亮相。
-
-西南大学、长安汽车、重庆理工大学、重庆园博园等十余家本土优质科普单位齐聚一堂，摒弃枯燥的理论说教，邀请市民动动手、亲身参与，探秘科学奥秘。
-
-“我们将恐龙IP与AI、机器人等前沿科技深度融合，打造沉浸式科创互动新场景。
-
-”在萝卜村机器人教育体验中心展区，负责人梅垠介绍，为满足青少年对前沿科技的探索欲，该中心特别设置操控仿生恐龙机器人感受仿生科技、图形化编程控制无人车与机械臂、AIGC工具创意设计恐龙乐园等环节，让孩子在玩中学、做中悟，切实激发其探索科学的兴趣。
-
-同时还推出“未来侏罗纪总工程师认证”，进一步提升孩子们的参与感和获得感。
+中新网5月11日电 据吉林省纪委监委消息：吉林省农业农村厅原一级巡视员夏季涉嫌严重违纪违法，主动向组织交代问题，目前正接受吉林省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 18:16 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 18:22 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 18:10 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 18:15 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 18:17 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 18:30 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 18:06 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 18:07 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 18:33 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 18:29 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 18:33 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 18:10 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 18:33 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 18:14 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 18:28 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 18:18 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 18:37 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 18:28 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 18:18 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 18:24 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 18:37 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 18:37 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 18:13 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 18:35 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 18:39 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 18:16 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:12 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/2034230.shtml)
-- 2026-06-29 18:17 - [扬名立万](https://www.blog.minike.top/Article/details/871119.shtml)
-- 2026-06-29 18:29 - [T1 KC](https://www.blog.minike.top/Article/details/140979918524.shtml)
-- 2026-06-29 18:13 - [美国大满贯首日国乒主力均取胜](https://www.blog.minike.top/Article/details/482357.shtml)
-- 2026-06-29 18:17 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/6481112015.shtml)
-- 2026-06-29 18:21 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/7022664.shtml)
-- 2026-06-29 18:10 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/44044.shtml)
-- 2026-06-29 18:32 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/985448.shtml)
-- 2026-06-29 18:06 - [极限挑战第一季](http://www.share.minike.top/Article/details/056237556.shtml)
-- 2026-06-29 18:15 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/0145245487.shtml)
-- 2026-06-29 18:06 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/7629900692.shtml)
-- 2026-06-29 18:22 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/215303344471.shtml)
-- 2026-06-29 18:31 - [乔家的儿女](https://www.blog.minike.top/Article/details/219828587449.shtml)
-- 2026-06-29 18:16 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/6218584706.shtml)
-- 2026-06-29 18:33 - [千与千寻](http://www.share.minike.top/Article/details/198676.shtml)
+- 2026-06-29 18:33 - [一见倾心](https://www.share.minike.top/Article/details/846766.shtml)
+- 2026-06-29 18:27 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/759629149.shtml)
+- 2026-06-29 18:15 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/3599960.shtml)
+- 2026-06-29 18:15 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/952498160.shtml)
+- 2026-06-29 18:28 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/475323739446.shtml)
+- 2026-06-29 18:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/8547917824.shtml)
+- 2026-06-29 18:19 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.minike.top/Article/details/04944978.shtml)
+- 2026-06-29 18:27 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/436282033749.shtml)
+- 2026-06-29 18:19 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/54025.shtml)
+- 2026-06-29 18:24 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/89937415133.shtml)
+- 2026-06-29 18:24 - [疑似吴建豪老婆正脸照](http://www.share.minike.top/Article/details/05698999.shtml)
+- 2026-06-29 18:12 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/42211.shtml)
+- 2026-06-29 18:30 - [许建琼任湖南省检察院副检察长](http://www.share.minike.top/Article/details/59956230477.shtml)
+- 2026-06-29 18:37 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/47135.shtml)
+- 2026-06-29 18:24 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.kurohicncr.top/Article/details/59634136.shtml)

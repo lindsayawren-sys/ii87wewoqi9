@@ -1,57 +1,61 @@
-# 浙江今年通过省间电力现货市场购电量突破50亿千瓦时
+# AI投资的下半场机会在哪？创业板人工智能ETF华宝（159363）基金经理干货分享
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月29日电(鲍梦妮 王倩莹)据国网浙江电力5月29日消息，截至5月27日，浙江通过省间电力现货市场购电量突破50亿千瓦时，达51亿千瓦时，同比增长约20%。 5月中下旬，受天气影响，浙江空调负荷快速增长，用电需求大幅攀升，全省最高用电负荷达1.098亿千瓦，同比增长14.5%。国网浙江电力提前研判供需形势，充分利用省间输电通道剩余能力，通过省间电力现货市场灵活增购外
+（来源：ETF万亿指数） 近日，在朝阳永续向日葵聚会上，华宝基金指数研发投资部基金经理曹旭辰分享了一个很有意思的判断： AI产业已经从“算力有没有”阶段，逐渐进入“应用怎么落地”的深度博弈阶段。 过去两年，市场对AI最大的共识，是GPU、光模块、服务器、电力等“卖铲人”环节的高景气；而未来真正拉开差距的，可能不再是谁拥有更多算力，而是谁能把AI真正变成产品、用户和现金流。 从这
 
 ## 正文
 
-中新网杭州5月29日电(鲍梦妮 王倩莹)据国网浙江电力5月29日消息，截至5月27日，浙江通过省间电力现货市场购电量突破50亿千瓦时，达51亿千瓦时，同比增长约20%。
+（来源：ETF万亿指数） 近日，在朝阳永续向日葵聚会上，华宝基金指数研发投资部基金经理曹旭辰分享了一个很有意思的判断： AI产业已经从“算力有没有”阶段，逐渐进入“应用怎么落地”的深度博弈阶段。
 
-5月中下旬，受天气影响，浙江空调负荷快速增长，用电需求大幅攀升，全省最高用电负荷达1.098亿千瓦，同比增长14.5%。
+过去两年，市场对AI最大的共识，是GPU、光模块、服务器、电力等“卖铲人”环节的高景气；而未来真正拉开差距的，可能不再是谁拥有更多算力，而是谁能把AI真正变成产品、用户和现金流。
 
-国网浙江电力提前研判供需形势，充分利用省间输电通道剩余能力，通过省间电力现货市场灵活增购外来电。
+从这个角度看，AI产业正在经历一次典型的科技周期迁移。
 
-截至目前，省间现货购入最大电力达709万千瓦，为高温天气下电力可靠供应提供了坚实支撑。
+前半程，硬件定义产业；后半程，应用决定赢家。
 
-省间电力现货市场自2022年启动以来，已成为浙江统筹调配跨区电力资源、优化能源配置格局的关键平台。
+而这，也是本轮AI行情最值得重视的变化。
 
-浙江作为典型电力受端省份，外来电占比超三分之一，省间现货交易成交量连年稳步攀升，并连续两年突破百亿千瓦时，呈现量增价稳的良性态势，为该省经济社会高质量发展、民生用电安稳提供可靠充足的电力保障。
+01 算力：仍然是AI时代最确定的主线 曹旭辰在分享中提到，过去三年，GPU是整个半导体产业“最锋利的剑”。
 
-(完)
+从A100、H100，到GB200、未来的Rubin架构，英伟达几乎以一年一次的大迭代节奏推动AI基础设施升级。
+
+本轮AI与过去互联网最大的不同，在于大模型能力提升，本质上仍然依赖“堆算力”。
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 18:22 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 18:16 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 18:19 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 18:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 18:09 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 18:09 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 18:32 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 18:32 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 18:27 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 18:21 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 18:29 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 18:25 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 18:33 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 18:19 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 18:24 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 18:35 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 18:39 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 18:24 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 18:33 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 18:37 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 18:35 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 18:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-29 18:15 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 18:38 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 18:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 18:22 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 18:21 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:21 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/465130756.shtml)
-- 2026-06-29 18:34 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/72045446407.shtml)
-- 2026-06-29 18:17 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/14929192.shtml)
-- 2026-06-29 18:18 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/3637579810.shtml)
-- 2026-06-29 18:20 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/35601732611.shtml)
-- 2026-06-29 18:34 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/59865471.shtml)
-- 2026-06-29 18:11 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/565249.shtml)
-- 2026-06-29 18:26 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/689184.shtml)
-- 2026-06-29 18:16 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/636165543290.shtml)
-- 2026-06-29 18:07 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/55461590370.shtml)
-- 2026-06-29 18:33 - [叠纸](http://www.blog.minike.top/Article/details/76308291.shtml)
-- 2026-06-29 18:12 - [当地回应林区违规放羊遭豹啃食](http://www.share.kurohicncr.top/Article/details/596872.shtml)
-- 2026-06-29 18:28 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/8685659122.shtml)
-- 2026-06-29 18:21 - [学者：建设性战略稳定重塑中美关系](https://www.share.minike.top/Article/details/72072.shtml)
-- 2026-06-29 18:20 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/057937.shtml)
+- 2026-06-29 18:19 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/9709924784.shtml)
+- 2026-06-29 18:37 - [河南高院审委会原委员曲海滨被查](https://www.share.minike.top/Article/details/441117797607.shtml)
+- 2026-06-29 18:37 - [青春环游记第三季](http://www.blog.minike.top/Article/details/06234533.shtml)
+- 2026-06-29 18:41 - [啊啊啊](https://www.share.minike.top/Article/details/0997105.shtml)
+- 2026-06-29 18:40 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/0547845211.shtml)
+- 2026-06-29 18:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/455797.shtml)
+- 2026-06-29 18:19 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/9090800426.shtml)
+- 2026-06-29 18:35 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/17671394238.shtml)
+- 2026-06-29 18:36 - [T1 KC](https://www.share.minike.top/Article/details/8987891687.shtml)
+- 2026-06-29 18:24 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/384902645.shtml)
+- 2026-06-29 18:16 - [歼-15型舰载机为何被歼-15T替代](http://www.blog.minike.top/Article/details/1286662813.shtml)
+- 2026-06-29 18:19 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/6648592.shtml)
+- 2026-06-29 18:14 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/542012565.shtml)
+- 2026-06-29 18:19 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/626875803.shtml)
+- 2026-06-29 18:21 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/65329382029.shtml)

@@ -1,46 +1,59 @@
-# 5月29日增减持汇总：东方盛虹披露增持情况，方正证券等11股拟减持（表）
+# 传承发扬科学家精神 农史学科奠基人梁家勉雕像落成
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据不完全统计，5月29日盘后，东方盛虹披露增持情况，包括恒基达鑫、三利谱、海泰新光、生益科技、永辉超市、方正证券、沪硅产业、科远智慧、腾远钴业、金太阳（维权）、天瑞仪器在内的11家A股上市公司披露拟减持情况。 责任编辑：孙同怀
+中新网广州5月10日电 (记者 郭军)农史学科奠基人梁家勉先生雕像落成仪式10日在华南农业大学中国农业历史遗产研究所举行。 华南农业大学党委书记李凤亮，梁家勉先生之孙、华南农业大学校董梁力新，雕塑创作者、广州雕塑院院长陆增康，以及来自清华大学、北京大学、中国科学院大学、上海交通大学、南京大学、中国科学技术大学、中山大学、北京师范大学等国内科学技术史学界专家学者参加仪式，共同见证
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网广州5月10日电 (记者 郭军)农史学科奠基人梁家勉先生雕像落成仪式10日在华南农业大学中国农业历史遗产研究所举行。
 
-据不完全统计，5月29日盘后，东方盛虹披露增持情况，包括恒基达鑫、三利谱、海泰新光、生益科技、永辉超市、方正证券、沪硅产业、科远智慧、腾远钴业、金太阳（维权）、天瑞仪器在内的11家A股上市公司披露拟减持情况。
+华南农业大学党委书记李凤亮，梁家勉先生之孙、华南农业大学校董梁力新，雕塑创作者、广州雕塑院院长陆增康，以及来自清华大学、北京大学、中国科学院大学、上海交通大学、南京大学、中国科学技术大学、中山大学、北京师范大学等国内科学技术史学界专家学者参加仪式，共同见证这一致敬先贤、传承文脉的重要时刻。
 
-责任编辑：孙同怀
+梁家勉先生(1908—1992)是我国著名农史学家、图书馆学家，中国农史学科主要开拓者和奠基人之一，华南农业大学图书馆首任馆长。
+
+他毕生致力于我国农业历史遗产的搜集、整理与研究，组建了国内高校第一个农业历史文献特藏室，构建了中国农业历史研究的基本理论框架，抢救性地搜集保护了大量珍稀农史文献，创建了华南农学院中国农业历史遗产研究室(现为中国农业历史遗产研究所)。
+
+2023年，梁家勉亲属向学校捐赠150万元，设立“梁家勉基金”以支持学校农业史研究事业。
+
+“回顾梁老的一生，是将个人命运与国家农业文化根基紧密相连的一生。
+
+”李凤亮表示，梁家勉在学科贡献上开山辟路、厥功甚伟，在学术贡献上著作等身、泽被后世，华农师生将传承梁家勉“求真务实、淡泊名利”的严谨治学精神，坚守学术理想、深耕专业领域，为推进学校“双一流”建设，传承弘扬中华优秀传统农业文化作出新的更大贡献。
+
+“雕像的落成，是一种精神的传承，更是一种学术品格的延续。
 
 ## 相关推荐
 
-- 2026-06-29 18:24 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 18:33 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 18:21 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 18:33 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 18:24 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 18:33 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 18:29 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 18:33 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 18:07 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 18:27 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 18:22 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 18:21 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 18:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 18:19 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 18:37 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 18:41 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 18:14 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 18:27 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 18:13 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 18:15 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 18:19 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 18:38 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 18:33 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:26 - [世界杯预测史上最不吃压力之物](https://www.share.minike.top/Article/details/561453936.shtml)
-- 2026-06-29 18:11 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/06435.shtml)
-- 2026-06-29 18:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/675585.shtml)
-- 2026-06-29 18:29 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/63031774523.shtml)
-- 2026-06-29 18:13 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/05333.shtml)
-- 2026-06-29 18:25 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/929014709.shtml)
-- 2026-06-29 18:11 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/1244994305.shtml)
-- 2026-06-29 18:31 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/57293518759.shtml)
-- 2026-06-29 18:19 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/479019561.shtml)
-- 2026-06-29 18:14 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/991315609.shtml)
-- 2026-06-29 18:11 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.minike.top/Article/details/867381985552.shtml)
-- 2026-06-29 18:20 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/3637770424.shtml)
-- 2026-06-29 18:08 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/82600189924.shtml)
-- 2026-06-29 18:13 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/6072440.shtml)
-- 2026-06-29 18:13 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/92725.shtml)
+- 2026-06-29 18:14 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/6432234009.shtml)
+- 2026-06-29 18:20 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/96439472276.shtml)
+- 2026-06-29 18:24 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/461446.shtml)
+- 2026-06-29 18:31 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/68172005830.shtml)
+- 2026-06-29 18:31 - [A股割裂行情有变化了吗](https://www.share.minike.top/Article/details/043003.shtml)
+- 2026-06-29 18:24 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/27878910215.shtml)
+- 2026-06-29 18:31 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/065875919409.shtml)
+- 2026-06-29 18:12 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/44768.shtml)
+- 2026-06-29 18:20 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/7739072153.shtml)
+- 2026-06-29 18:16 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/65049077797.shtml)
+- 2026-06-29 18:16 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/00117.shtml)
+- 2026-06-29 18:22 - [娜扎搂着我的腰和我合照](http://www.blog.kurohicncr.top/Article/details/2543976092.shtml)
+- 2026-06-29 18:32 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/9205792691.shtml)
+- 2026-06-29 18:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/4358546739.shtml)
+- 2026-06-29 18:40 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/4045982090.shtml)

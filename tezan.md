@@ -1,58 +1,47 @@
-# 民歌大观奏响云滇乡音 以艺为桥凝聚四海侨心
+# 加科思-B于5月8日耗资约45.61万港元回购7.23万股
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网昆明5月29日电 (记者 韩帅南)5月29日，第46期民歌大观“艺传四海润侨心”中外文化交流特别篇在中国新闻网海内外平台播出。本期节目邀请曾多次参与海外慰侨的云南艺术家代表重聚舞台，以歌声传乡情、以民乐叙情谊，搭建起联通海内外、温润侨心的文化桥梁。 位于中国西南边陲的云南，与缅甸、老挝、越南三国接壤，是中国第五大侨乡省，200多万云南籍华侨华人分布在全球70多个国家和地区
+加科思-B（01167）公布，2026年5月8日耗资约45.61万港元回购7.23万股股份。责任编辑：卢昱君
 
 ## 正文
 
-中新网昆明5月29日电 (记者 韩帅南)5月29日，第46期民歌大观“艺传四海润侨心”中外文化交流特别篇在中国新闻网海内外平台播出。
+加科思-B（01167）公布，2026年5月8日耗资约45.61万港元回购7.23万股股份。
 
-本期节目邀请曾多次参与海外慰侨的云南艺术家代表重聚舞台，以歌声传乡情、以民乐叙情谊，搭建起联通海内外、温润侨心的文化桥梁。
-
-位于中国西南边陲的云南，与缅甸、老挝、越南三国接壤，是中国第五大侨乡省，200多万云南籍华侨华人分布在全球70多个国家和地区。
-
-对于漂泊在外的游子来说，来自家乡的歌声就是最柔韧的乡愁纽带。
-
-本期民歌大观荟萃藏、傈僳、景颇、彝等多个民族经典曲目，原生态歌舞和传统民族器乐轮番上演，尽显彩云之南浓郁的民族风情与人文底蕴。
-
-节目开场，来自云南省花灯剧院的桑布扎组合带来一曲原生态歌曲《曲羌啦》，高亢辽阔的唱腔瞬间将观众带进雪域高原。
-
-“这首欢快的歌曲立马让我脑海中浮现出藏族同胞载歌载舞的画面，想家了。
-
-”海外网友“离人”在直播间留言。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:15 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 18:27 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 18:06 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 18:26 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 18:20 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 18:21 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 18:35 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 18:33 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 18:29 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 18:09 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 18:16 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 18:10 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 18:23 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 18:29 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 18:36 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 18:20 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 18:40 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 18:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 18:22 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 18:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 18:30 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 18:18 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 18:32 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 18:15 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 18:22 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:23 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/828790.shtml)
-- 2026-06-29 18:07 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/39574255434.shtml)
-- 2026-06-29 18:18 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/941492060.shtml)
-- 2026-06-29 18:10 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/460686491933.shtml)
-- 2026-06-29 18:12 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/34091827694.shtml)
-- 2026-06-29 18:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/236572820.shtml)
-- 2026-06-29 18:13 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/10117322910.shtml)
-- 2026-06-29 18:29 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/91170291522.shtml)
-- 2026-06-29 18:11 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/847398946.shtml)
-- 2026-06-29 18:34 - [叠纸](http://www.blog.kurohicncr.top/Article/details/72734.shtml)
-- 2026-06-29 18:17 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/942941798.shtml)
-- 2026-06-29 18:06 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/79097681088.shtml)
-- 2026-06-29 18:26 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/69266999747.shtml)
-- 2026-06-29 18:07 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/3606710771.shtml)
-- 2026-06-29 18:35 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/676309189680.shtml)
+- 2026-06-29 18:33 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/016384697244.shtml)
+- 2026-06-29 18:26 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/525772358.shtml)
+- 2026-06-29 18:36 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/804677634.shtml)
+- 2026-06-29 18:12 - [毛朝晖任湖南省农业农村厅厅长](http://www.blog.kurohicncr.top/Article/details/372780.shtml)
+- 2026-06-29 18:33 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/50115005.shtml)
+- 2026-06-29 18:13 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/02217.shtml)
+- 2026-06-29 18:19 - [人形机器人](http://www.share.minike.top/Article/details/7912416669.shtml)
+- 2026-06-29 18:38 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/97279.shtml)
+- 2026-06-29 18:40 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/62169.shtml)
+- 2026-06-29 18:23 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/961987.shtml)
+- 2026-06-29 18:26 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/38074468.shtml)
+- 2026-06-29 18:21 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.kurohicncr.top/Article/details/5150891.shtml)
+- 2026-06-29 18:33 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/198566100473.shtml)
+- 2026-06-29 18:17 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/530209385.shtml)
+- 2026-06-29 18:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/656641.shtml)

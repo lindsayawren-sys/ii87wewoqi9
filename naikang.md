@@ -1,59 +1,56 @@
-# “京津冀最美湿地”夏日“育儿记”
+# 广西北部湾危险化学品应急救援基地揭牌启用
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新社河北衡水5月31日电 (裴国荣 张凯 王鹏)在“六一”儿童节前夕的“京津冀最美湿地”衡水湖，萌态十足的鸟类亲子育儿“名场面”接连上演。衡水湖作为东亚—澳大利西亚候鸟迁徙线上的重要驿站，随着“育儿季”到来正变身“鸟类幼儿园”。 衡水湖位于河北省衡水市，是华北平原保持沼泽、水域、滩涂、草甸和林地等完整湿地生态系统的国家级自然保护区。 “目前已有苍鹭、凤头鸊鷉、白鹭等多种鸟类完
+中新网钦州5月9日电(翟李强)广西北部湾危险化学品应急救援基地5月8日在广西钦州揭牌启用，标志着广西在补齐危化品应急救援短板、推动危化品行业安全治理模式向事前预防转型方面迈出关键一步。 据悉，随着广西石化产业快速发展，危化品生产、储存、运输等环节安全风险叠加累积，对专业化救援能力提出了新的更高要求。建设广西北部湾危险化学品应急救援基地，正是立足未来危化产业安全发展需要，解决当前
 
 ## 正文
 
-中新社河北衡水5月31日电 (裴国荣 张凯 王鹏)在“六一”儿童节前夕的“京津冀最美湿地”衡水湖，萌态十足的鸟类亲子育儿“名场面”接连上演。
+中新网钦州5月9日电(翟李强)广西北部湾危险化学品应急救援基地5月8日在广西钦州揭牌启用，标志着广西在补齐危化品应急救援短板、推动危化品行业安全治理模式向事前预防转型方面迈出关键一步。
 
-衡水湖作为东亚—澳大利西亚候鸟迁徙线上的重要驿站，随着“育儿季”到来正变身“鸟类幼儿园”。
+据悉，随着广西石化产业快速发展，危化品生产、储存、运输等环节安全风险叠加累积，对专业化救援能力提出了新的更高要求。
 
-衡水湖位于河北省衡水市，是华北平原保持沼泽、水域、滩涂、草甸和林地等完整湿地生态系统的国家级自然保护区。
+建设广西北部湾危险化学品应急救援基地，正是立足未来危化产业安全发展需要，解决当前广西危化品风险防控、应急救援、力量建设、教育培训等短板弱项的关键举措。
 
-“目前已有苍鹭、凤头鸊鷉、白鹭等多种鸟类完成孵化开始育雏。
+广西北部湾危险化学品应急救援基地作为自治区级危化品应急救援的指挥中枢和战备平台，将肩负起打造风险防控“前沿阵地”、锻造应急救援“坚强堡垒”、树立规范管理“示范标杆”的三大核心使命，将聚焦危化品全链条、全流程，统筹抓实宣传教育、人才实训、风险监测、隐患排查等重点工作，构建闭环式防控体系，力争实现风险早识别、早预警、早处置。
 
-”河北衡水滨湖新区资源保护局副局长张余广31日称，衡水湖共有野生鸟类337种，每年有80余种鸟类在此繁殖，繁育活动呈现高密度、多物种共存的特点。
+目前，该基地已完成专业救援力量抽组，近120名新训消防指战员正式入驻，同步配备价值8000万元的特种救援装备，这支力量将成为广西应对危化品突发事故的“中坚力量”。
 
-河北衡水湖国家级自然保护区提供的影像监测画面显示，湖区林木间、芦苇丛中鸟巢密布，雏鸟探出头等待投喂，亲鸟往返捕食育雏。
+通过标准化建设、专业化训练、数字化赋能，该基地将致力打造成为全国应急与消防、省级与地方在救援力量建设上的合作典范。
 
-其中，羽翼渐丰的苍鹭幼鸟已尝试在湖面上空练习飞行。
+广西壮族自治区应急管理厅党委书记、厅长周长青出席揭牌仪式时表示，要准确把握基地职能定位，理顺运行机制，形成统一指挥、权责清晰的常态化运行格局；要对标国家标准深化建设，提升综合能力；要充分发挥基地功能作用，凝聚工作合力，充分发挥基地平台优势，推动应急管理部门、消防救援队伍、属地政府及企业形成合力，健全信息共享、应急联动、联训联战机制，坚决守住不发生重特大安全事故的底线。
 
-据观测，在此繁殖的鸟类种群数量超2万只。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:15 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 18:24 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 18:21 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 18:23 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 18:22 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 18:31 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 18:26 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 18:28 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 18:13 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 18:14 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 18:20 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 18:20 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 18:17 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 18:15 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 18:29 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 18:13 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 18:40 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 18:41 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 18:25 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 18:31 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 18:33 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 18:25 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 18:31 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:23 - [疑似吴建豪老婆正脸照](https://www.share.kurohicncr.top/Article/details/68369702399.shtml)
-- 2026-06-29 18:19 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/66275.shtml)
-- 2026-06-29 18:23 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/580790507.shtml)
-- 2026-06-29 18:07 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/49149.shtml)
-- 2026-06-29 18:07 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/05967382.shtml)
-- 2026-06-29 18:12 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/48948986.shtml)
-- 2026-06-29 18:09 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/859373387.shtml)
-- 2026-06-29 18:11 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/371260877.shtml)
-- 2026-06-29 18:35 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/8643620009.shtml)
-- 2026-06-29 18:20 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/4377538987.shtml)
-- 2026-06-29 18:09 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/99441921.shtml)
-- 2026-06-29 18:32 - [德国医生在没有空调的手术室工作](https://www.share.kurohicncr.top/Article/details/585574207.shtml)
-- 2026-06-29 18:25 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/1596769.shtml)
-- 2026-06-29 18:15 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/9008277.shtml)
-- 2026-06-29 18:19 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/87942366569.shtml)
+- 2026-06-29 18:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/3104556209.shtml)
+- 2026-06-29 18:39 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/71527930441.shtml)
+- 2026-06-29 18:24 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/0399418397.shtml)
+- 2026-06-29 18:32 - [起风了](http://www.blog.kurohicncr.top/Article/details/4703844180.shtml)
+- 2026-06-29 18:21 - [四川地震前夕 街头电线上站满燕子](https://www.share.kurohicncr.top/Article/details/62068642.shtml)
+- 2026-06-29 18:15 - [TOP Prada](http://www.share.minike.top/Article/details/75906929.shtml)
+- 2026-06-29 18:20 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/860470157.shtml)
+- 2026-06-29 18:18 - [斛珠夫人](https://www.share.minike.top/Article/details/735773226.shtml)
+- 2026-06-29 18:23 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/755784.shtml)
+- 2026-06-29 18:26 - [一生一世](http://www.blog.kurohicncr.top/Article/details/1610411379.shtml)
+- 2026-06-29 18:26 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/21122.shtml)
+- 2026-06-29 18:21 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/714236.shtml)
+- 2026-06-29 18:30 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/41253.shtml)
+- 2026-06-29 18:36 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/40462023.shtml)
+- 2026-06-29 18:24 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/99153490.shtml)

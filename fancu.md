@@ -1,57 +1,56 @@
-# 中国—中东欧媒体圆桌会：敦煌论道话互通
+# 易华录（300212）被立案，股民索赔可期
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网甘肃敦煌5月30日电 (戴文昌 王牧雨)2026中国—中东欧国家媒体圆桌会29日在甘肃酒泉市敦煌市举办，中外媒体从业者、学界专家齐聚千年丝路重镇，以“凝聚新闻媒体力量 共促文明交流互鉴”为主题，共探新时代跨国媒体合作与文明对话新路径，助力中国与中东欧国家民心相通、文明共生。 敦煌是古丝绸之路的核心枢纽，素有“华戎所交一都会”美誉。国学大师季羡林曾评价，全球四大古老文明体系
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年4月29日，北京易华录信息技术股份有限公司（简称：易华录、*ST易录（维权），代码：300212）发布《关于收到中国证券监督管理委员会立案告知书的公告》，称因公司涉嫌信息披露违法违规等行为，根据《中华人民共和国证券法》的有关规定，中国证券监督管理委
 
 ## 正文
 
-中新网甘肃敦煌5月30日电 (戴文昌 王牧雨)2026中国—中东欧国家媒体圆桌会29日在甘肃酒泉市敦煌市举办，中外媒体从业者、学界专家齐聚千年丝路重镇，以“凝聚新闻媒体力量 共促文明交流互鉴”为主题，共探新时代跨国媒体合作与文明对话新路径，助力中国与中东欧国家民心相通、文明共生。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-敦煌是古丝绸之路的核心枢纽，素有“华戎所交一都会”美誉。
+2026年4月29日，北京易华录信息技术股份有限公司（简称：易华录、*ST易录（维权），代码：300212）发布《关于收到中国证券监督管理委员会立案告知书的公告》，称因公司涉嫌信息披露违法违规等行为，根据《中华人民共和国证券法》的有关规定，中国证券监督管理委员会决定对公司立案调查。
 
-国学大师季羡林曾评价，全球四大古老文明体系唯一汇流之地，便是敦煌与新疆地区。
+根据《民法典》、《证券法》及最高人民法院的关于虚假陈述民事赔偿司法解释的规定，上市公司、控股股东、实际控制人、董监高人员及其中介机构等因虚假陈述等的证券欺诈行为导致证券投资者权益受损的，应承担民事赔偿责任，赔偿范围包括：投资差额、佣金、印花税等。
 
-敦煌研究院敦煌文献研究所副所长王东说，多种文明在此碰撞共生，留存下大量文明交融的珍贵遗存。
+权益受损的证券投资者可以向有管辖权的法院提起民事赔偿诉讼。
 
-敦煌留存多语种文献、石窟壁画、石刻遗存，全方位印证了古代东西方文明深度交融。
+由于易华录涉嫌信息披露违法违规，被中国证监会立案调查，为维护证券投资者合法权益，上海汉联律师事务所宋一欣律师向曾经购买过易华录的证券投资者展开诉讼代理征集，代理投资者索赔诉讼，权益受损的证券投资者可以向前述律师进行索赔登记。
 
-王东说，从回鹘文木活字西传赋能亚欧印刷发展，到莫高窟多文字碑刻、多国人物壁画，敦煌文化从来不是单一的地域文化，而是世界多元文明兼容共生的鲜活载体。
+宋一欣律师认为，易华录案的索赔条件为：2026年4月29日前买入易华录股票或债券等证券市场公开发行产品，并在2026年4月29日及之后卖出或继续持有的受损投资者，可以办理索赔登记。
 
-王东说，敦煌文化兼具包容性与创新性，区别于各类单一地域文化，是精英文化与平民文化、中华文化与世界文明的融合体，其多元共生的特质，契合当下人类文明交流发展的主流趋势，能够为中外文明共生发展提供重要支撑。
+★（律师对本案的提示与说明） 1．上述提示的索赔条件仅供参考，不涉及投资者任何证券投资决策和证券买卖建议。
 
-针对当下国际传播现状，兰州大学新闻与传播学院原国际传播研究所所长许小平结合本次圆桌会议主题，分享了自己的思考。
+索赔的最终条件将根据中国证监会行政处罚的结论进一步调整，并以相关法院最终生效的判决所认定的法律时点、赔付对象、赔付范围、赔付标准、会计计算方式为准。
 
 ## 相关推荐
 
-- 2026-06-29 18:17 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 18:30 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 18:12 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 18:23 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 18:30 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 18:13 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 18:10 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 18:28 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 18:25 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 18:33 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 18:11 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 18:15 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 18:24 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 18:41 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 18:29 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 18:24 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 18:31 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 18:14 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 18:32 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 18:27 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 18:19 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:26 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/005803211558.shtml)
-- 2026-06-29 18:29 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/717731361.shtml)
-- 2026-06-29 18:26 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/5824658761.shtml)
-- 2026-06-29 18:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/8241789234.shtml)
-- 2026-06-29 18:12 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/51555.shtml)
-- 2026-06-29 18:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/92877.shtml)
-- 2026-06-29 18:33 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/811995.shtml)
-- 2026-06-29 18:24 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/5316410.shtml)
-- 2026-06-29 18:26 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/50721360.shtml)
-- 2026-06-29 18:24 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.minike.top/Article/details/56172.shtml)
-- 2026-06-29 18:08 - [金牌调解](https://www.share.kurohicncr.top/Article/details/79071668.shtml)
-- 2026-06-29 18:12 - [看大国重器“云端穿针引线”](http://www.share.kurohicncr.top/Article/details/52908008730.shtml)
-- 2026-06-29 18:31 - [范志毅看好日本淘汰巴西](http://www.share.minike.top/Article/details/25463862848.shtml)
-- 2026-06-29 18:20 - [医药生物行业今日涨5.91%](https://www.blog.kurohicncr.top/Article/details/343527269316.shtml)
-- 2026-06-29 18:08 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/58743.shtml)
+- 2026-06-29 18:41 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/34055471811.shtml)
+- 2026-06-29 18:35 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/47851985418.shtml)
+- 2026-06-29 18:23 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/983736874920.shtml)
+- 2026-06-29 18:21 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/8821007117.shtml)
+- 2026-06-29 18:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/13772.shtml)
+- 2026-06-29 18:25 - [TOP Prada](http://www.share.minike.top/Article/details/3698700539.shtml)
+- 2026-06-29 18:41 - [毛朝晖任湖南省农业农村厅厅长](http://www.blog.kurohicncr.top/Article/details/229592093013.shtml)
+- 2026-06-29 18:35 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/861026.shtml)
+- 2026-06-29 18:20 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/515457.shtml)
+- 2026-06-29 18:31 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/4651548.shtml)
+- 2026-06-29 18:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/560928636917.shtml)
+- 2026-06-29 18:22 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/1578326.shtml)
+- 2026-06-29 18:41 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/63879640901.shtml)
+- 2026-06-29 18:39 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/4478880750.shtml)
+- 2026-06-29 18:18 - [极限挑战第一季](https://www.blog.minike.top/Article/details/4969166.shtml)

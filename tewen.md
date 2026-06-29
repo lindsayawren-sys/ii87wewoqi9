@@ -1,58 +1,52 @@
-# 酒价内参6月1日价格发布：五粮液1618环比保持不变
+# 吉利汽车完成发行20亿元的中期票据
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月1日整体明显回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9914元，较昨日上涨24元，重返9900元关口上方，结束此前连续多日的探底走势。市场在连创40天新低后迎来强劲反弹，终端交投情绪有所回暖，除国窖1573和青花汾20外其
+吉利汽车（00175）发布公告，本公司已于2026年5月7日及2026年5月8日以中期票据（中期票据）的形式发行2026年第一期债务融资工具，并指定中国银行股份有限公司作为牵头主承销商和簿记管理人，中国工商银行股份有限公司、中国建设银行股份有限公司、中信银行股份有限公司、兴业银行股份有限公司、中国邮政储蓄银行股份有限公司、浙商银行股份有限公司、北京银行股份有限公司作为联席主承销
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月1日整体明显回升。
+吉利汽车（00175）发布公告，本公司已于2026年5月7日及2026年5月8日以中期票据（中期票据）的形式发行2026年第一期债务融资工具，并指定中国银行股份有限公司作为牵头主承销商和簿记管理人，中国工商银行股份有限公司、中国建设银行股份有限公司、中信银行股份有限公司、兴业银行股份有限公司、中国邮政储蓄银行股份有限公司、浙商银行股份有限公司、北京银行股份有限公司作为联席主承销商。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9914元，较昨日上涨24元，重返9900元关口上方，结束此前连续多日的探底走势。
+本公司已在中国的中国银行间债券市场发行本金总额为人民币 20亿元的中期票据，本期中期票据名称为“吉利汽车控股有限公司2026年度第一期中期票据”。
 
-市场在连创40天新低后迎来强劲反弹，终端交投情绪有所回暖，除国窖1573和青花汾20外其余品种全线飘红，但核心单品的涨跌分化依然显著。
+本期中期票据的期限为2年，于存续期第一年末本公司有权选择调整票面利率及投资者有权选择回售。
 
-今日白酒市场11大单品八涨两跌一平，赢家占据绝对优势。
+除非根据其条款提早终止、或者投资者选择回售，本期中期票据计划于2028年5月9日到期（到期日）。
 
-上涨方面，古井贡古20涨幅居前，上涨10元/瓶，自月内最低位快速拉升；青花郎上涨8元/瓶，终结此前四连阴，收复700元关口，涨幅平近一个月最高纪录；习酒君品上涨5元/瓶，但仍处于月内次低位；洋河梦之蓝M6+上涨3元/瓶；飞天茅台与水晶剑南春均上涨2元/瓶；精品茅台与五粮液普五八代均小幅上涨1元/瓶。
-
-下跌方面，国窖1573跌幅居前，下跌6元/瓶，失守890元，创月内最低价格纪录；青花汾20下跌2元/瓶，续创月内新低，该酒品已连续五天阴跌。
-
-五粮液1618的价格环比保持不变。
-
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:31 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 18:26 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 18:11 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 18:17 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 18:11 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 18:35 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 18:34 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 18:23 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 18:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 18:08 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 18:30 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 18:14 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 18:24 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 18:16 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 18:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 18:12 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 18:29 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 18:15 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 18:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 18:29 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 18:13 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 18:14 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 18:17 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 18:24 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:12 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/7695345100.shtml)
-- 2026-06-29 18:26 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/137208810552.shtml)
-- 2026-06-29 18:26 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/8699200611.shtml)
-- 2026-06-29 18:26 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/894753.shtml)
-- 2026-06-29 18:34 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/23810994064.shtml)
-- 2026-06-29 18:32 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/2181957.shtml)
-- 2026-06-29 18:06 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/0839335.shtml)
-- 2026-06-29 18:19 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/5850697.shtml)
-- 2026-06-29 18:23 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/75682595987.shtml)
-- 2026-06-29 18:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/748534789366.shtml)
-- 2026-06-29 18:22 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/94286347.shtml)
-- 2026-06-29 18:33 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/11931232.shtml)
-- 2026-06-29 18:31 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/94986.shtml)
-- 2026-06-29 18:13 - [沙丘](https://www.share.minike.top/Article/details/3638040670.shtml)
-- 2026-06-29 18:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/986479391384.shtml)
+- 2026-06-29 18:17 - [看大国重器“云端穿针引线”](http://www.blog.minike.top/Article/details/9936339.shtml)
+- 2026-06-29 18:14 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.minike.top/Article/details/32450565249.shtml)
+- 2026-06-29 18:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/481052681.shtml)
+- 2026-06-29 18:20 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/01532.shtml)
+- 2026-06-29 18:31 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/60056.shtml)
+- 2026-06-29 18:28 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/85553.shtml)
+- 2026-06-29 18:24 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/989521018024.shtml)
+- 2026-06-29 18:16 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/186839191.shtml)
+- 2026-06-29 18:14 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/3515147.shtml)
+- 2026-06-29 18:27 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.kurohicncr.top/Article/details/3090920.shtml)
+- 2026-06-29 18:26 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/824768889529.shtml)
+- 2026-06-29 18:34 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/4184387.shtml)
+- 2026-06-29 18:21 - [范志毅看好日本淘汰巴西](http://www.share.kurohicncr.top/Article/details/7225680.shtml)
+- 2026-06-29 18:27 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/2263774404.shtml)
+- 2026-06-29 18:22 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/840013997.shtml)

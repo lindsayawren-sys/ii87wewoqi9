@@ -1,61 +1,59 @@
-# 北京地铁今日开启双温车厢！多条线路站内空调今年将启动升级
+# “探索一号”科考船抵达广州 取得多项重要科学发现
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-夏日已至，北京的天气也一天天炎热起来。从5月30日开始，北京地铁各线路全面开启“清凉模式”。记者从北京地铁了解到，今年夏季，北京地铁公司所辖线路列车(首都机场线除外)将依旧启用双温车厢。同时，北京地铁还将推进车站老旧空调设备更新改造，15号线地面站还将铺设隔热膜，提升候车舒适度。列车双温模式准时开启 采用双温车厢模式后，地铁列车强冷、弱冷车厢温差固定为2℃。其中，地下线强冷车厢
+5月10日，“探索一号”科考船搭载“奋斗者”号载人潜水器顺利抵达广州，圆满完成“全球深渊探索计划”太平洋穿越科考航次暨首次中国-智利阿塔卡马海沟载人深潜联合科考航次。这是我国深海科技力量持续挺进全球深渊、深化国际海洋科技合作的重要实践，也是积极参与全球海洋治理、推动构建海洋命运共同体的又一标志性成果。 本航次由中国科学院深海科学与工程研究所“深海科学与智能技术”全国重点实验室牵
 
 ## 正文
 
-夏日已至，北京的天气也一天天炎热起来。
+5月10日，“探索一号”科考船搭载“奋斗者”号载人潜水器顺利抵达广州，圆满完成“全球深渊探索计划”太平洋穿越科考航次暨首次中国-智利阿塔卡马海沟载人深潜联合科考航次。
 
-从5月30日开始，北京地铁各线路全面开启“清凉模式”。
+这是我国深海科技力量持续挺进全球深渊、深化国际海洋科技合作的重要实践，也是积极参与全球海洋治理、推动构建海洋命运共同体的又一标志性成果。
 
-记者从北京地铁了解到，今年夏季，北京地铁公司所辖线路列车(首都机场线除外)将依旧启用双温车厢。
+本航次由中国科学院深海科学与工程研究所“深海科学与智能技术”全国重点实验室牵头组织，于2025年12月6日自三亚启航，历时156天，总航程超过4万公里，相当于绕地球赤道一周。
 
-同时，北京地铁还将推进车站老旧空调设备更新改造，15号线地面站还将铺设隔热膜，提升候车舒适度。
+来自中国、智利、德国、丹麦、加拿大、西班牙等6个国家的83名科考队员共同参与。
 
-列车双温模式准时开启 采用双温车厢模式后，地铁列车强冷、弱冷车厢温差固定为2℃。
+科考队员分别来自智利千年海洋研究所、南丹麦大学国家深渊研究中心、德国亥姆霍兹极地与海洋研究中心等9家国外科研机构，以及海南省深海技术创新中心等7家国内科研机构。
 
-其中，地下线强冷车厢为24℃、弱冷车厢为26℃；地上线强冷车厢为23℃、弱冷车厢为25℃，同时还将结合天气、客流等情况灵活调节车厢温度。
+航次聚焦阿塔卡马海沟与穆绍海沟，围绕深渊生物多样性、化能生态系统、深部流体活动和板块俯冲机制等重大前沿科学问题开展系统调查研究。
 
-由于各线车辆结构不同，强冷、弱冷车厢设置位置也有所不同。
+航次期间，“奋斗者”号共完成63个潜次，其中50次下潜深度超过6000米，获取了大量生物、地质标本以及高清水下影像资料，为深渊地质、生命与环境多学科交叉研究奠定了坚实基础。
 
-不过记者注意到，各线路基本采用了“两头强冷、中间弱冷”的模式。
+本航次取得多项重要科学发现。
 
 ## 相关推荐
 
-- 2026-06-29 18:24 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 18:27 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 18:11 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 18:31 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 18:09 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 18:25 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 18:24 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 18:10 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 18:26 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 18:35 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 18:18 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 18:35 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 18:26 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 18:35 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 18:35 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-29 18:15 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 18:40 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 18:16 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 18:22 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 18:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 18:13 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 18:19 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 18:20 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 18:41 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 18:37 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 18:26 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 18:14 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 18:32 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:08 - [挪威王储妃长子2次强奸被判4年](https://www.share.minike.top/Article/details/35557993.shtml)
-- 2026-06-29 18:13 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/167978101349.shtml)
-- 2026-06-29 18:26 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/467092.shtml)
-- 2026-06-29 18:35 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/65032.shtml)
-- 2026-06-29 18:14 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/291331.shtml)
-- 2026-06-29 18:35 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/70995372.shtml)
-- 2026-06-29 18:27 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/93339.shtml)
-- 2026-06-29 18:15 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/1041497.shtml)
-- 2026-06-29 18:31 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/239487470022.shtml)
-- 2026-06-29 18:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/4831057862.shtml)
-- 2026-06-29 18:24 - [看大国重器“云端穿针引线”](http://www.blog.minike.top/Article/details/6616365120.shtml)
-- 2026-06-29 18:29 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/25289424.shtml)
-- 2026-06-29 18:25 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/83029137727.shtml)
-- 2026-06-29 18:32 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/75338.shtml)
-- 2026-06-29 18:18 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/6448836.shtml)
+- 2026-06-29 18:17 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/899521067734.shtml)
+- 2026-06-29 18:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/605740456460.shtml)
+- 2026-06-29 18:12 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/598200358.shtml)
+- 2026-06-29 18:21 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/214411.shtml)
+- 2026-06-29 18:21 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/746172636147.shtml)
+- 2026-06-29 18:34 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/242459692793.shtml)
+- 2026-06-29 18:24 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/3058441471.shtml)
+- 2026-06-29 18:40 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/134446.shtml)
+- 2026-06-29 18:16 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/23448.shtml)
+- 2026-06-29 18:14 - [王安宇尊重田曦薇的一切选择](http://www.blog.minike.top/Article/details/4421431.shtml)
+- 2026-06-29 18:31 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/713684404882.shtml)
+- 2026-06-29 18:38 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/3991616.shtml)
+- 2026-06-29 18:41 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/04999022.shtml)
+- 2026-06-29 18:17 - [95后小伙突然确诊癌症 医生提醒](https://www.share.kurohicncr.top/Article/details/73478.shtml)
+- 2026-06-29 18:39 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/94585.shtml)

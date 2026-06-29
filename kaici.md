@@ -1,49 +1,47 @@
-# 菲律宾在建酒店坍塌事故已致12人死亡
+# 5月11日央行开展5亿元7天期逆回购操作
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网6月1日电 据菲律宾ABS-CBN News报道，菲律宾在建酒店坍塌事故的死亡人数已升至12人。 当地时间5月24日凌晨，菲律宾邦板牙省安赫莱斯市一处在建酒店发生坍塌，据称，有30到40名建筑工人被困。此前，已有26名工人获救或自行逃出坍塌建筑。
+中新网5月11日电 据中国人民银行网站消息，2026年5月11日中国人民银行以固定利率、数量招标方式开展了5亿元7天期逆回购操作，全额满足了一级交易商需求。具体情况如下：
 
 ## 正文
 
-中新网6月1日电 据菲律宾ABS-CBN News报道，菲律宾在建酒店坍塌事故的死亡人数已升至12人。
+中新网5月11日电 据中国人民银行网站消息，2026年5月11日中国人民银行以固定利率、数量招标方式开展了5亿元7天期逆回购操作，全额满足了一级交易商需求。
 
-当地时间5月24日凌晨，菲律宾邦板牙省安赫莱斯市一处在建酒店发生坍塌，据称，有30到40名建筑工人被困。
-
-此前，已有26名工人获救或自行逃出坍塌建筑。
+具体情况如下：
 
 ## 相关推荐
 
-- 2026-06-29 18:13 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 18:21 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 18:21 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 18:25 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 18:17 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 18:33 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 18:15 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 18:17 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 18:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 18:35 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 18:13 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 18:31 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 18:22 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 18:31 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 18:20 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 18:20 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 18:29 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 18:26 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 18:13 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 18:12 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 18:40 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 18:19 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 18:26 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 18:19 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 18:29 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 18:41 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:19 - [一见倾心](http://www.blog.minike.top/Article/details/241099702.shtml)
-- 2026-06-29 18:33 - [NBA交易](https://www.share.minike.top/Article/details/10039620.shtml)
-- 2026-06-29 18:32 - [小众羞耻点是吃麻辣烫](http://www.blog.kurohicncr.top/Article/details/2139640873.shtml)
-- 2026-06-29 18:25 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/094414011.shtml)
-- 2026-06-29 18:13 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/68977649.shtml)
-- 2026-06-29 18:34 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/5846957.shtml)
-- 2026-06-29 18:10 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/926427453531.shtml)
-- 2026-06-29 18:21 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/25638195.shtml)
-- 2026-06-29 18:31 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/94799620046.shtml)
-- 2026-06-29 18:14 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/459896423.shtml)
-- 2026-06-29 18:19 - [这一刀 会很帅](http://www.share.minike.top/Article/details/60832381.shtml)
-- 2026-06-29 18:11 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/020434.shtml)
-- 2026-06-29 18:18 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/849007325.shtml)
-- 2026-06-29 18:11 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/518119.shtml)
-- 2026-06-29 18:12 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/626684608258.shtml)
+- 2026-06-29 18:18 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/0529876348.shtml)
+- 2026-06-29 18:37 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/48176038039.shtml)
+- 2026-06-29 18:13 - [请回答王牌2019](https://www.blog.minike.top/Article/details/86665.shtml)
+- 2026-06-29 18:20 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/37254878.shtml)
+- 2026-06-29 18:24 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/8695049.shtml)
+- 2026-06-29 18:23 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/91440.shtml)
+- 2026-06-29 18:33 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/58544034.shtml)
+- 2026-06-29 18:30 - [扬名立万](https://www.blog.minike.top/Article/details/303068.shtml)
+- 2026-06-29 18:23 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/0315260993.shtml)
+- 2026-06-29 18:16 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/3175802960.shtml)
+- 2026-06-29 18:15 - [小鹏MONAL03预售定档7月2日](https://www.blog.kurohicncr.top/Article/details/09603123.shtml)
+- 2026-06-29 18:25 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/42303871.shtml)
+- 2026-06-29 18:33 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/1848957649.shtml)
+- 2026-06-29 18:35 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/4958777933.shtml)
+- 2026-06-29 18:22 - [葛军透露高考出题思路](http://www.share.minike.top/Article/details/262283.shtml)

@@ -1,60 +1,59 @@
-# 短视频里解民忧 湖南新化探路融媒赋能基层治理新路径
+# 重庆：农贸市场藏书香 两代人守护“旧时光”
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网娄底5月30日电 (周红)“刷一刷短视频，就能反映生活难题，部门还会线上回应、线下解决，实在太方便了！”在湖南娄底新化县，当地依托“民情直达 融媒在线”网络问政平台，让群众足不出户、动动指尖就能表达诉求、解决问题。线上“小窗口”成为服务民生、赋能治理的重要阵地。新化县是百万人口大县，网民基数大、网络活跃度高。立足这一县情，当地紧扣新时代网上群众路线工作要求，把平台打造成为
+专家：减肥不建议一个月减超过10斤 推荐“211”饮食法“好意同乘”出事故引发赔偿纠纷 责任该如何划分？劣质充电宝和3C认证产品差在哪儿？社会救助法7月起施行 将保障哪些群体？一文了解国际舆论关注特朗普访华：世界聚焦中美关键时刻为190元榴莲“仅退款”千里讨公道背后烧烤店主停业捐髓救陌生患儿 各地网友前往“撸串捧场”“压力越大越胖”怎么破？ 专家开出“三层减重法”A股三大股指高
 
 ## 正文
 
-中新网娄底5月30日电 (周红)“刷一刷短视频，就能反映生活难题，部门还会线上回应、线下解决，实在太方便了！
+专家：减肥不建议一个月减超过10斤 推荐“211”饮食法“好意同乘”出事故引发赔偿纠纷 责任该如何划分？
 
-”在湖南娄底新化县，当地依托“民情直达 融媒在线”网络问政平台，让群众足不出户、动动指尖就能表达诉求、解决问题。
+劣质充电宝和3C认证产品差在哪儿？
 
-线上“小窗口”成为服务民生、赋能治理的重要阵地。
+社会救助法7月起施行 将保障哪些群体？
 
-新化县是百万人口大县，网民基数大、网络活跃度高。
+一文了解国际舆论关注特朗普访华：世界聚焦中美关键时刻为190元榴莲“仅退款”千里讨公道背后烧烤店主停业捐髓救陌生患儿 各地网友前往“撸串捧场”“压力越大越胖”怎么破？
 
-立足这一县情，当地紧扣新时代网上群众路线工作要求，把平台打造成为线上版“四下基层”实践载体，以融媒体为纽带，打通民意收集、诉求办理、反馈评价全链条，成功将互联网发展“最大变量”转化为基层治理“最大增量”。
+专家开出“三层减重法”A股三大股指高开，沪指突破4200点，半导体等板块走强“开盒”网暴等犯罪被惩治 谁在贩卖你的个人信息？
 
-据悉，该平台自今年3月上线以来，热度持续攀升。
+国乒“新答卷”：立于高处，从无安逸可言酒店“逢假就涨” 多重约束缘何管不住“任性定价”？
 
-短短3个月，职能部门负责人在线访谈、“民声回响”两大栏目累计推出22期视频，全网浏览量突破172万次；平台共收到群众留言11149条，梳理筛选重点民生诉求1021件，诉求交办率、按期办结率均达100%。
+无人机违规飞行威胁铁路安全，飞手要担责全球气候变暖导致飞机颠簸变多？
 
-告别以往群众上门反映问题的传统模式，新化县将问政端口嵌入群众日常使用最多的短视频平台，创新构建“指尖问政+融媒在线”双驱动模式。
+专家解疑情绪易怒、爱走神是前额叶受损吗？
 
 ## 相关推荐
 
-- 2026-06-29 18:13 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 18:09 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 18:31 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-29 18:33 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 18:17 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 18:35 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 18:33 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 18:23 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 18:30 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 18:25 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 18:16 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 18:33 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 18:23 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 18:17 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 18:18 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 18:15 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 18:14 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 18:42 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 18:17 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 18:35 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 18:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 18:29 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 18:21 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 18:28 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 18:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 18:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 18:35 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:31 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/429288253.shtml)
-- 2026-06-29 18:28 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/664951.shtml)
-- 2026-06-29 18:32 - [NBA交易](https://www.blog.minike.top/Article/details/9993482029.shtml)
-- 2026-06-29 18:34 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/75328.shtml)
-- 2026-06-29 18:20 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/676769.shtml)
-- 2026-06-29 18:35 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/38559.shtml)
-- 2026-06-29 18:14 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/766635.shtml)
-- 2026-06-29 18:10 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/1148340.shtml)
-- 2026-06-29 18:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/98928351.shtml)
-- 2026-06-29 18:14 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/52429.shtml)
-- 2026-06-29 18:12 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/407845493.shtml)
-- 2026-06-29 18:27 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/4227552747.shtml)
-- 2026-06-29 18:20 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/510422382.shtml)
-- 2026-06-29 18:32 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/951174.shtml)
-- 2026-06-29 18:08 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/107518287.shtml)
+- 2026-06-29 18:36 - [虞书欣好辣的剧宣](https://www.share.minike.top/Article/details/827460.shtml)
+- 2026-06-29 18:38 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/6286069016.shtml)
+- 2026-06-29 18:15 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/35449473.shtml)
+- 2026-06-29 18:35 - [中国战机大片上新](http://www.share.minike.top/Article/details/7879852686.shtml)
+- 2026-06-29 18:22 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.kurohicncr.top/Article/details/60938462944.shtml)
+- 2026-06-29 18:39 - [美人鱼](https://www.blog.minike.top/Article/details/164208.shtml)
+- 2026-06-29 18:14 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/41037.shtml)
+- 2026-06-29 18:32 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/871094.shtml)
+- 2026-06-29 18:26 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/46311129773.shtml)
+- 2026-06-29 18:38 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/0330819.shtml)
+- 2026-06-29 18:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/93938.shtml)
+- 2026-06-29 18:22 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/10426.shtml)
+- 2026-06-29 18:12 - [央视曝光涉黄App诈骗陷阱](https://www.share.kurohicncr.top/Article/details/7048684243.shtml)
+- 2026-06-29 18:26 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/2913765063.shtml)
+- 2026-06-29 18:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/75180.shtml)

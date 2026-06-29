@@ -1,59 +1,57 @@
-# 射击世界杯慕尼黑站：中国队4金3铜收官
+# 人民币对美元汇率进入6.7区间
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新社慕尼黑5月30日电 2026年射击世界杯慕尼黑站(步手枪项目)在当地时间30日收官。中国组合姚千寻/胡凯和王子菲/盛李豪分别夺得10米气手枪混合团体和10米气步枪混合团体冠军，中国队最终以4金3铜的成绩居金牌榜、奖牌榜首位。10米气手枪混合团体决赛中，姚千寻/胡凯以483.9环成功卫冕，另一对中国组合沈奕瑶/布帅航摘铜。 10米气步枪混合团体决赛中，巴黎奥运会冠军盛李豪与
+中新社北京5月11日电 (陶思阅)5月11日，离岸、在岸人民币对美元即时汇率均升穿6.8关口，进入6.7区间，创2023年2月中旬以来新高。 东方金诚首席宏观分析师王青认为，人民币走势偏强主要受出口高增和经济基本面转强支撑。同时，美元指数持续走低，带动了包括人民币在内的主要非美货币升值。当前，中东局势尚存变数，牵动美元走势，全球汇市仍将处于高波动状态。 “未来，人民币汇率将以稳
 
 ## 正文
 
-中新社慕尼黑5月30日电 2026年射击世界杯慕尼黑站(步手枪项目)在当地时间30日收官。
+中新社北京5月11日电 (陶思阅)5月11日，离岸、在岸人民币对美元即时汇率均升穿6.8关口，进入6.7区间，创2023年2月中旬以来新高。
 
-中国组合姚千寻/胡凯和王子菲/盛李豪分别夺得10米气手枪混合团体和10米气步枪混合团体冠军，中国队最终以4金3铜的成绩居金牌榜、奖牌榜首位。
+东方金诚首席宏观分析师王青认为，人民币走势偏强主要受出口高增和经济基本面转强支撑。
 
-10米气手枪混合团体决赛中，姚千寻/胡凯以483.9环成功卫冕，另一对中国组合沈奕瑶/布帅航摘铜。
+同时，美元指数持续走低，带动了包括人民币在内的主要非美货币升值。
 
-10米气步枪混合团体决赛中，巴黎奥运会冠军盛李豪与19岁小将王子菲以505.5环将金牌收入囊中，另一对中国组合韩佳予/马思涵获得铜牌。
+当前，中东局势尚存变数，牵动美元走势，全球汇市仍将处于高波动状态。
 
-此前进行的女子10米气步枪比赛中，王子菲延续近期在国际赛场上的稳健表现，以231.1环摘得铜牌，另一名中国选手于佳鑫获得第六名。
+“未来，人民币汇率将以稳为主，大体上会保持与美元反向波动、波幅相对较小的运行格局。
 
-塞尔维亚选手斯特瓦诺维奇以252.3环摘金，收获个人首枚国际射联世界杯成年组奖牌。
+”王青表示，考虑到未来一段时间中国外部经贸环境回稳势头有望延续，出口整体上会保持较快增长，人民币大概率会延续稳中偏强走势。
 
-男子10米气步枪赛场上，中国选手张常鸿以253.7环夺冠。
-
-张常鸿曾在东京奥运会上获得男子步枪三姿冠军，并在上一站西班牙站收获该项目冠军。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 18:33 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 18:09 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 18:29 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 18:18 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 18:35 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 18:21 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 18:14 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 18:12 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 18:16 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 18:23 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 18:19 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 18:26 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 18:33 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 18:32 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 18:40 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 18:17 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 18:15 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 18:13 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 18:12 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 18:18 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 18:39 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 18:31 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 18:38 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 18:18 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 18:12 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:22 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/581246681.shtml)
-- 2026-06-29 18:22 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/9801664953.shtml)
-- 2026-06-29 18:14 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/98901294.shtml)
-- 2026-06-29 18:31 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.minike.top/Article/details/98666.shtml)
-- 2026-06-29 18:24 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/68497.shtml)
-- 2026-06-29 18:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/9768941.shtml)
-- 2026-06-29 18:08 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/89191414.shtml)
-- 2026-06-29 18:31 - [章若楠包场白敬亭特立独行](https://www.blog.kurohicncr.top/Article/details/498410122052.shtml)
-- 2026-06-29 18:07 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/184402007062.shtml)
-- 2026-06-29 18:15 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/685274503632.shtml)
-- 2026-06-29 18:16 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/60280727.shtml)
-- 2026-06-29 18:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/7755822122.shtml)
-- 2026-06-29 18:18 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/068203121483.shtml)
-- 2026-06-29 18:26 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/887368.shtml)
-- 2026-06-29 18:22 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/751226410831.shtml)
+- 2026-06-29 18:15 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/084275860127.shtml)
+- 2026-06-29 18:19 - [官媒首曝六代机？大V解读](http://www.blog.kurohicncr.top/Article/details/24659.shtml)
+- 2026-06-29 18:33 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/350405494117.shtml)
+- 2026-06-29 18:29 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/86985837.shtml)
+- 2026-06-29 18:41 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/50043.shtml)
+- 2026-06-29 18:40 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/478521272552.shtml)
+- 2026-06-29 18:34 - [花万元相亲对象是50元雇的演员](https://www.blog.kurohicncr.top/Article/details/31996681334.shtml)
+- 2026-06-29 18:35 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/85063224.shtml)
+- 2026-06-29 18:34 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/505479755.shtml)
+- 2026-06-29 18:19 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/70402479582.shtml)
+- 2026-06-29 18:25 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/7088865.shtml)
+- 2026-06-29 18:32 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/92168.shtml)
+- 2026-06-29 18:20 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/64619.shtml)
+- 2026-06-29 18:14 - [叠纸客服回应恋与深空新角色争议](https://www.blog.minike.top/Article/details/4815570286.shtml)
+- 2026-06-29 18:27 - [青春环游记第三季](https://www.share.minike.top/Article/details/615702224.shtml)

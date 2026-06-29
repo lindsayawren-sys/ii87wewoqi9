@@ -1,56 +1,48 @@
-# “盐中甜×果实进化”联合打造江西AI智慧工厂
+# 新生支付被罚66万元：未落实收单银行结算账户管理制度规定等
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-5月30日，近日，夸父炸串、盐中甜与淘宝闪购三方战略合作暨新品溯源发布会。 在盐中甜江西上高工厂，从原料清洗、智能切配到无菌发酵罐群，整个生产在洁净密闭环境中完成。工厂设置了支付宝“碰一下”NFC互动点，参观者将手机贴近感应设备，即可获取对应环节的原料溯源、菌种数据和工艺视频。 在原料预处理区，所有芥菜均来自盐中甜专属种植基地，采收后48小时内进厂，每批经过严格农残筛查；蔬菜采
+5月9日金融一线消息，中国人民银行海南省分行行政处罚决定信息公示表显示，新生支付有限公司因未落实收单银行结算账户管理制度规定，未按照规定开展客户尽职调查，未按照规定报告可疑交易，受到警告，通报批评，并被罚款66万元。 责任编辑：曹睿潼
 
 ## 正文
 
-5月30日，近日，夸父炸串、盐中甜与淘宝闪购三方战略合作暨新品溯源发布会。
+5月9日金融一线消息，中国人民银行海南省分行行政处罚决定信息公示表显示，新生支付有限公司因未落实收单银行结算账户管理制度规定，未按照规定开展客户尽职调查，未按照规定报告可疑交易，受到警告，通报批评，并被罚款66万元。
 
-在盐中甜江西上高工厂，从原料清洗、智能切配到无菌发酵罐群，整个生产在洁净密闭环境中完成。
-
-工厂设置了支付宝“碰一下”NFC互动点，参观者将手机贴近感应设备，即可获取对应环节的原料溯源、菌种数据和工艺视频。
-
-在原料预处理区，所有芥菜均来自盐中甜专属种植基地，采收后48小时内进厂，每批经过严格农残筛查；蔬菜采用三道气泡翻滚清洗，全程极少人工接触。
-
-在发酵车间，工厂采用“植物基益生菌直投式发酵工艺”，9天即可完成传统工艺数月的发酵周期，从源头杜绝亚硝酸盐生成。
-
-据悉，该AI工厂由盐中甜与果实进化共同打造， 果实进化提供的AaaS巡检产品Almond，基于其自研的视觉行为模型Germination和端云一体的算法架构，在原材料入库、生产加工、成品出品的三个关键环节实现AI主动式管控。
-
-例如，在原材料入厂环节，每一批次原材料到货后，Almond不仅会自动识别抽检样本的外观、尺寸、新鲜度等指标，判断是否符合准入标准；更通过视觉技术全程监督抽检人员的操作流程。
-
-该环节运行以来，原材料不合格率较此前人工模式降低了47%，抽检规范率达到100%。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 18:09 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 18:09 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 18:35 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 18:30 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 18:26 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 18:16 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 18:23 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 18:33 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 18:22 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 18:11 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 18:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 18:27 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 18:38 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 18:19 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 18:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 18:12 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 18:23 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 18:35 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 18:27 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 18:22 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 18:17 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 18:31 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 18:38 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 18:15 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:10 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/76534774259.shtml)
-- 2026-06-29 18:11 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/3647027263.shtml)
-- 2026-06-29 18:15 - [学者：建设性战略稳定重塑中美关系](https://www.blog.kurohicncr.top/Article/details/254183334088.shtml)
-- 2026-06-29 18:24 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/65378.shtml)
-- 2026-06-29 18:35 - [许建琼任湖南省检察院副检察长](https://www.blog.kurohicncr.top/Article/details/219249861.shtml)
-- 2026-06-29 18:18 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/036125523853.shtml)
-- 2026-06-29 18:07 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/630526950108.shtml)
-- 2026-06-29 18:13 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/07648.shtml)
-- 2026-06-29 18:26 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/193005358.shtml)
-- 2026-06-29 18:31 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.kurohicncr.top/Article/details/755964063490.shtml)
-- 2026-06-29 18:11 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/9218032.shtml)
-- 2026-06-29 18:07 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/62164595586.shtml)
-- 2026-06-29 18:28 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/720439.shtml)
-- 2026-06-29 18:29 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/133591763.shtml)
-- 2026-06-29 18:30 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/51857082.shtml)
+- 2026-06-29 18:20 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/419079950595.shtml)
+- 2026-06-29 18:12 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/6083686230.shtml)
+- 2026-06-29 18:37 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/007766731616.shtml)
+- 2026-06-29 18:20 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/84573.shtml)
+- 2026-06-29 18:22 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/20977311746.shtml)
+- 2026-06-29 18:18 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/268235389.shtml)
+- 2026-06-29 18:38 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/5140128121.shtml)
+- 2026-06-29 18:25 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/623564.shtml)
+- 2026-06-29 18:37 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/7738473748.shtml)
+- 2026-06-29 18:16 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/421095.shtml)
+- 2026-06-29 18:33 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/49609658807.shtml)
+- 2026-06-29 18:29 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/852254284.shtml)
+- 2026-06-29 18:23 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/47038096469.shtml)
+- 2026-06-29 18:23 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/396863426.shtml)
+- 2026-06-29 18:37 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/8842386838.shtml)

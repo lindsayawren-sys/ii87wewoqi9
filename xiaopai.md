@@ -1,55 +1,58 @@
-# 英伟达首席执行官将出席台北电脑展并成为展会焦点
+# Fugro获得苏格兰海上风电场勘测合同
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-英伟达首席执行官黄仁勋将于周一在台北举办的Computex展会上发表长篇演讲，主题聚焦人工智能。预计他将在演讲中详细阐述公司最新的产品布局。黄仁勋预计将谈及英伟达的AI芯片、软件及系统。外界关注焦点可能集中在其数据中心产品上，例如全新的Vera Rubin AI计算平台和Vera中央处理器（CPU），以及该公司在机器人和自动驾驶等市场的布局。一个潜在的关注点是媒体2023年报道
+Fugro已获得SSE授予的一份重要岩土工程勘测合同，用于苏格兰北部北海海域的Berwick Bank B海上风电开发项目。 Berwick Bank B是总规模4.1吉瓦的Berwick Bank海上风电项目的一部分，该项目分三个阶段开发，若全面建成，有望成为全球最大的海上风电场。 这家荷兰地理数据专业公司表示，该合同涵盖全面的岩土工程勘察活动，以支持计划在Berwick B
 
 ## 正文
 
-英伟达首席执行官黄仁勋将于周一在台北举办的Computex展会上发表长篇演讲，主题聚焦人工智能。
+Fugro已获得SSE授予的一份重要岩土工程勘测合同，用于苏格兰北部北海海域的Berwick Bank B海上风电开发项目。
 
-预计他将在演讲中详细阐述公司最新的产品布局。
+Berwick Bank B是总规模4.1吉瓦的Berwick Bank海上风电项目的一部分，该项目分三个阶段开发，若全面建成，有望成为全球最大的海上风电场。
 
-黄仁勋预计将谈及英伟达的AI芯片、软件及系统。
+这家荷兰地理数据专业公司表示，该合同涵盖全面的岩土工程勘察活动，以支持计划在Berwick Bank B场址（占该项目总规划容量的1.4吉瓦）建设的固定式基础风机的基础设计。
 
-外界关注焦点可能集中在其数据中心产品上，例如全新的Vera Rubin AI计算平台和Vera中央处理器（CPU），以及该公司在机器人和自动驾驶等市场的布局。
+勘测工作包括在海床以下钻探深达50米的钻孔，以获取用于风机基础设计的土壤和岩石样本。
 
-一个潜在的关注点是媒体2023年报道的英伟达开发基于Arm架构的PC芯片的计划，该芯片将对英特尔和超微半导体构成挑战。
+Fugro表示，此次勘察将使用其岩土工程船Fugro Quest号和Fugro Zenith号，采用适合该场址复杂海床条件的专业取芯和常规取样技术。
 
-芯片设计通常需要约两年时间，黄仁勋曾表示，这些中央处理器（CPU）专为搭载AI的消费级硬件进行了优化。
+Berwick Bank B项目已于今年早些时候在英国第四轮分配中获得了长期差价合约。
 
-责任编辑：王永生
+SSE Renewables Berwick Bank项目岩土工程包经理Gordon Rae表示：“启动岩土工程勘察活动为Berwick Bank B风机基础的最终设计提供依据，这是一个重要的里程碑，也展示了SSE对严谨、去风险化项目交付的承诺。
+
+” “随着项目向最终投资决策推进，我们很高兴能继续与Fugro的长期合作关系，并期待在Berwick Bank B成功实施一个安全、高效的地质勘察计划。
 
 ## 相关推荐
 
-- 2026-06-29 18:34 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 18:12 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 18:27 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 18:14 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 18:09 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 18:07 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 18:30 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 18:13 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 18:12 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 18:19 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 18:30 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 18:23 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 18:34 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 18:21 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 18:23 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 18:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 18:20 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 18:34 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 18:25 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 18:27 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 18:21 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 18:32 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 18:15 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:14 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/6555094449.shtml)
-- 2026-06-29 18:12 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/010069532.shtml)
-- 2026-06-29 18:08 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/6410713.shtml)
-- 2026-06-29 18:27 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.minike.top/Article/details/53882.shtml)
-- 2026-06-29 18:07 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/307401130662.shtml)
-- 2026-06-29 18:17 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/235741669978.shtml)
-- 2026-06-29 18:18 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.minike.top/Article/details/248427.shtml)
-- 2026-06-29 18:22 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/331832009110.shtml)
-- 2026-06-29 18:31 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/39103835357.shtml)
-- 2026-06-29 18:07 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/884519377.shtml)
-- 2026-06-29 18:13 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/16404670.shtml)
-- 2026-06-29 18:24 - [极限挑战第一季](http://www.share.minike.top/Article/details/2190520.shtml)
-- 2026-06-29 18:28 - [当家电外通风口出现鸟窝](https://www.share.minike.top/Article/details/065942728485.shtml)
-- 2026-06-29 18:07 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/31408943490.shtml)
-- 2026-06-29 18:35 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/70166656.shtml)
+- 2026-06-29 18:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/600803055.shtml)
+- 2026-06-29 18:37 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/329157.shtml)
+- 2026-06-29 18:13 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/72038728888.shtml)
+- 2026-06-29 18:18 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/0523454.shtml)
+- 2026-06-29 18:28 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/98601853539.shtml)
+- 2026-06-29 18:27 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/224974280011.shtml)
+- 2026-06-29 18:16 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/021024751557.shtml)
+- 2026-06-29 18:34 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/286685209952.shtml)
+- 2026-06-29 18:37 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/6363342.shtml)
+- 2026-06-29 18:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/484225309.shtml)
+- 2026-06-29 18:23 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/51744762829.shtml)
+- 2026-06-29 18:12 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.minike.top/Article/details/786845963838.shtml)
+- 2026-06-29 18:27 - [主力抛售电子和通信板块](http://www.blog.kurohicncr.top/Article/details/4593715.shtml)
+- 2026-06-29 18:41 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/36194063958.shtml)
+- 2026-06-29 18:31 - [T1零封KC MSI](https://www.share.minike.top/Article/details/36065909749.shtml)

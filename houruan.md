@@ -1,59 +1,58 @@
-# 欧盟拟放宽油气企业甲烷排放规定
+# 郑州银行再一次不分红
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-路透社看到的一份草案文件显示，由于伊朗战争对能源供应造成 disruption，欧盟将要求其成员国对违反甲烷排放法的石油和天然气公司免予处罚，为期三年。 此举是在美国政府及油气行业团体的施压下做出的，这些方面警告称，该法律可能阻碍欧洲获取燃料供应的能力。 此举将削弱这项全球首例的欧盟气候政策。该政策旨在遏制甲烷泄漏，甲烷是一种强效温室气体，是仅次于二氧化碳的气候变化第二大成因。
+来源：看懂经济 银行分红，看起来是利润分配，背后其实是一家银行在经营压力、资本补充和股东回报之间做出的选择。 最近两个区域银行的案例，放在一起看，很有对照意义。 前不久，甘肃银行2025年分红方案引发关注：全年归母净利润不足6亿元，却拟派发现金股息约17.78亿元，分红金额约为当年归母净利润的3倍多。 另一边，郑州银行给出了完全不同的答案。 根据郑州银行2025年年报，该行不进
 
 ## 正文
 
-路透社看到的一份草案文件显示，由于伊朗战争对能源供应造成 disruption，欧盟将要求其成员国对违反甲烷排放法的石油和天然气公司免予处罚，为期三年。
+来源：看懂经济 银行分红，看起来是利润分配，背后其实是一家银行在经营压力、资本补充和股东回报之间做出的选择。
 
-此举是在美国政府及油气行业团体的施压下做出的，这些方面警告称，该法律可能阻碍欧洲获取燃料供应的能力。
+最近两个区域银行的案例，放在一起看，很有对照意义。
 
-此举将削弱这项全球首例的欧盟气候政策。
+前不久，甘肃银行2025年分红方案引发关注：全年归母净利润不足6亿元，却拟派发现金股息约17.78亿元，分红金额约为当年归母净利润的3倍多。
 
-该政策旨在遏制甲烷泄漏，甲烷是一种强效温室气体，是仅次于二氧化碳的气候变化第二大成因。
+另一边，郑州银行给出了完全不同的答案。
 
-路透社看到的这份欧盟委员会草案文件指出，除“大规模欺诈性违规”外，成员国在2027年、2028年和2029年不应向违反甲烷法律的公司施加处罚。
+根据郑州银行2025年年报，该行不进行现金分红，不送红股，不进行资本公积转增股份。
 
-文件称，这一变更将适用于现有的油气供应合同以及2028年1月之前签署或续签的合同。
+这也意味着，在2024年恢复一笔象征性分红之后，郑州银行的现金分红再次停摆。
 
-文件表示：“在当前中东危机的背景下，为了不危及能源供应安全……并应对欧洲消费者和企业因潜在能源供应短缺导致高油价所面临的风险，成员国不应施加处罚。
+两家银行的案例放在一起看，很有意思。
 
-” 该草案文件是欧盟委员会的一项“建议”——这是一种指示成员国以特定方式适用欧盟法律的欧盟法案，但不具有约束力。
+甘肃银行和郑州银行都不是处在高增长、高盈利的舒适区。
 
 ## 相关推荐
 
-- 2026-06-29 18:28 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 18:16 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 18:15 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 18:27 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 18:12 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 18:29 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 18:15 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 18:16 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 18:22 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 18:31 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 18:30 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 18:17 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 18:27 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 18:38 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 18:37 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 18:21 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 18:36 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 18:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 18:29 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 18:27 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 18:24 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 18:12 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 18:35 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 18:23 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 18:35 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/80663199236.shtml)
-- 2026-06-29 18:34 - [两老人多次到一洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/24947262341.shtml)
-- 2026-06-29 18:19 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/084184559.shtml)
-- 2026-06-29 18:27 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/398148504093.shtml)
-- 2026-06-29 18:21 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/8255589856.shtml)
-- 2026-06-29 18:23 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/529725.shtml)
-- 2026-06-29 18:26 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/5967919.shtml)
-- 2026-06-29 18:08 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/332250919.shtml)
-- 2026-06-29 18:27 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/488170.shtml)
-- 2026-06-29 18:17 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/114375783.shtml)
-- 2026-06-29 18:29 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.kurohicncr.top/Article/details/02262628517.shtml)
-- 2026-06-29 18:27 - [王安宇尊重田曦薇的一切选择](https://www.blog.minike.top/Article/details/4553267.shtml)
-- 2026-06-29 18:10 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/479041.shtml)
-- 2026-06-29 18:10 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/05158.shtml)
-- 2026-06-29 18:29 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/27560966912.shtml)
+- 2026-06-29 18:21 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/44328352.shtml)
+- 2026-06-29 18:21 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/320069.shtml)
+- 2026-06-29 18:28 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/77603480905.shtml)
+- 2026-06-29 18:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/674361070355.shtml)
+- 2026-06-29 18:24 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/02838215.shtml)
+- 2026-06-29 18:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/8370179.shtml)
+- 2026-06-29 18:15 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/28688013083.shtml)
+- 2026-06-29 18:17 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/1539993.shtml)
+- 2026-06-29 18:34 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/4615154063.shtml)
+- 2026-06-29 18:24 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/710861.shtml)
+- 2026-06-29 18:19 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/519218.shtml)
+- 2026-06-29 18:40 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/95074.shtml)
+- 2026-06-29 18:34 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/595172039991.shtml)
+- 2026-06-29 18:31 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.kurohicncr.top/Article/details/58718.shtml)
+- 2026-06-29 18:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/791615158.shtml)

@@ -1,60 +1,57 @@
-# “中国版戴尔”大涨11%再创新高！港股通信息技术ETF华宝（159131）劲涨逾3%，标的指数联想集团含量升至16%
+# 市场监管总局通报42批次食品抽检不合格情况
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-6月1日，聚焦港股“硬科技”的港股通信息C指数再度爆发上涨逾2.7%，持续跑赢恒生科技（现涨1.8%）。指数第一大权重股联想集团再度大涨11%创上市新高，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内劲涨3.03%，实时成交额超6亿元，盘中获资金净申购500万份！ 消息面上，戴尔科技上周五收涨超32%创历史新高。戴尔科技预计全年营收为1650亿至169
+中新网5月9日电 据国家市场监督管理总局网站消息，近期，市场监管总局组织食品安全监督抽检2166批次样品，检出42批次样品不合格。对抽检发现的不合格食品，有关省级市场监管部门已组织开展核查处置。 监督抽检不合格食品具体情况如下： (一)蒙森薯业(经营者为内蒙古蒙森农业科技股份有限公司)在淘宝(手机APP)销售的、标称内蒙古蒙森农业科技股份有限公司生产的马铃薯粉条，其中铝的残留量
 
 ## 正文
 
-6月1日，聚焦港股“硬科技”的港股通信息C指数再度爆发上涨逾2.7%，持续跑赢恒生科技（现涨1.8%）。
+中新网5月9日电 据国家市场监督管理总局网站消息，近期，市场监管总局组织食品安全监督抽检2166批次样品，检出42批次样品不合格。
 
-指数第一大权重股联想集团再度大涨11%创上市新高，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内劲涨3.03%，实时成交额超6亿元，盘中获资金净申购500万份！
+对抽检发现的不合格食品，有关省级市场监管部门已组织开展核查处置。
 
-消息面上，戴尔科技上周五收涨超32%创历史新高。
+监督抽检不合格食品具体情况如下： (一)蒙森薯业(经营者为内蒙古蒙森农业科技股份有限公司)在淘宝(手机APP)销售的、标称内蒙古蒙森农业科技股份有限公司生产的马铃薯粉条，其中铝的残留量(干样品，以Al计)符合食品安全国家标准规定，但不符合产品标签标示要求。
 
-戴尔科技预计全年营收为1650亿至1690亿美元，此前预期为1380亿至1420亿美元，还将2027财年AI服务器营收预期从此前的约500亿美元上调至约600亿美元。
+(二)Un糖糖家(经营者为广东省阳江市阳东区美味坊电商行)在抖音(手机APP)销售的、标称广东省东莞市中堂镇镇寻味园食品有限公司生产的白胡椒粒，其中苋菜红、柠檬黄、日落黄检验值不符合食品安全国家标准规定。
 
-据弗若斯特沙利文数据显示，全球AI服务器出货量2020-2024年复合增长率达45.2%，2024年达200万台，预计2030年将增长至650万台。
+经广东省市场监管局核实，不存在广东省东莞市中堂镇镇寻味园食品有限公司，该批次产品实际是经营者自行通过拼多多购买后销售的。
 
-华泰证券指出，联想的业务作为AI领域的核心环节，且是少有的在中美两国都有核心业务经营的科技公司，将有望持续受益于此轮中美在混合式人工智能的发展的共振浪潮，或是中美在AI科技行业的最大公约数。
+(三)江苏省南京市江宁区汪瑜调味品店销售的红薯粉丝，其中亮蓝、苋菜红、日落黄、柠檬黄检验值不符合食品安全国家标准规定。
 
-从近六月表现来看，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数累计涨幅超22%，同期恒生科技、港股通科技的涨幅分别为-12.69%、-11.28%，锐度和弹性显著领先。
+(四)四川省成都市郫都区鑫忠诚冷冻食品销售中心销售的、标称安徽省阜阳金厨房食品科技有限公司生产的梅菜扣肉，其中诱惑红、日落黄检验值不符合食品安全国家标准规定。
 
-支持T+0交易！
+(五)铭思源肉制品官方旗舰店(经营者为河南优多多食品有限公司)在京东商城(网店)销售的、标称河南多多优品食品科技有限公司生产的韩式冷鲜肠，其中诱惑红检验值不符合食品安全国家标准规定。
 
 ## 相关推荐
 
-- 2026-06-29 18:12 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 18:32 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 18:10 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 18:18 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 18:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 18:20 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 18:23 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 18:23 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 18:31 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 18:13 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 18:07 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 18:25 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 18:17 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 18:33 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 18:40 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 18:40 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 18:28 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 18:34 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 18:29 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 18:35 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 18:30 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 18:33 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 18:20 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 18:24 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 18:35 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:20 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/410889090.shtml)
-- 2026-06-29 18:28 - [机器人学校开学了](https://www.share.minike.top/Article/details/274539975583.shtml)
-- 2026-06-29 18:16 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/5375790337.shtml)
-- 2026-06-29 18:26 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/36978968.shtml)
-- 2026-06-29 18:32 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/8002787835.shtml)
-- 2026-06-29 18:09 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/14865.shtml)
-- 2026-06-29 18:32 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/482143076.shtml)
-- 2026-06-29 18:35 - [互助版模拟高考志愿填报](http://www.share.kurohicncr.top/Article/details/3358310.shtml)
-- 2026-06-29 18:11 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/939645.shtml)
-- 2026-06-29 18:32 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/557955.shtml)
-- 2026-06-29 18:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/8639768.shtml)
-- 2026-06-29 18:15 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/39877950226.shtml)
-- 2026-06-29 18:22 - [斛珠夫人](https://www.share.minike.top/Article/details/1505180.shtml)
-- 2026-06-29 18:30 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/697366365.shtml)
-- 2026-06-29 18:19 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/447973802171.shtml)
+- 2026-06-29 18:24 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/31875860334.shtml)
+- 2026-06-29 18:41 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/83465628799.shtml)
+- 2026-06-29 18:16 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/90620925235.shtml)
+- 2026-06-29 18:19 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/177292092.shtml)
+- 2026-06-29 18:24 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/17482564846.shtml)
+- 2026-06-29 18:35 - [勇敢的心第二部](https://www.share.minike.top/Article/details/36011.shtml)
+- 2026-06-29 18:29 - [王俊凯命名方式](https://www.share.minike.top/Article/details/3936068.shtml)
+- 2026-06-29 18:34 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/614051093742.shtml)
+- 2026-06-29 18:27 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/159202.shtml)
+- 2026-06-29 18:24 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/069775245630.shtml)
+- 2026-06-29 18:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/794488978.shtml)
+- 2026-06-29 18:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/05628.shtml)
+- 2026-06-29 18:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/711570934176.shtml)
+- 2026-06-29 18:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/5324297595.shtml)
+- 2026-06-29 18:21 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/51987465662.shtml)

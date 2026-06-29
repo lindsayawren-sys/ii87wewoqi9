@@ -1,53 +1,56 @@
-# 中国有数｜“新三样”领跑中国-东盟绿色智能合作
+# 早盘：美股涨跌不一 标普指数再创盘中新高
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月29日 16:00 来源：三里河 2026年，全球产业链加速向绿色化、数字化方向演变。在中国与东盟这片合作热土上，数据正给出答案。今年还未过半，多个省份就给出了对东盟出口“新三样”产品的亮眼成绩单。中国与东盟连续6年互为第一大贸易伙伴，如今正迈入3.0时代新图景，“新三样”数据的增长，不只是一份贸易成绩单，更是中国与东盟作为好邻居、好伙伴，在绿色发展道
+北京时间5月11日晚，美股周一早盘涨跌不一，标普500指数再创盘中历史新高。投资者正为本周即将公布的4月消费者价格指数和零售销售报告等关键经济数据做准备。特朗普拒绝伊朗提议后油价攀升。 道指涨103.13点，涨幅为0.21%，报49712.29点；纳指跌27.55点，跌幅为0.10%，报26219.53点；标普500指数涨8.58点，涨幅为0.12%，报7407.51点。 市场
 
 ## 正文
 
-发布时间：2026年05月29日 16:00 来源：三里河 2026年，全球产业链加速向绿色化、数字化方向演变。
+北京时间5月11日晚，美股周一早盘涨跌不一，标普500指数再创盘中历史新高。
 
-在中国与东盟这片合作热土上，数据正给出答案。
+投资者正为本周即将公布的4月消费者价格指数和零售销售报告等关键经济数据做准备。
 
-今年还未过半，多个省份就给出了对东盟出口“新三样”产品的亮眼成绩单。
+特朗普拒绝伊朗提议后油价攀升。
 
-中国与东盟连续6年互为第一大贸易伙伴，如今正迈入3.0时代新图景，“新三样”数据的增长，不只是一份贸易成绩单，更是中国与东盟作为好邻居、好伙伴，在绿色发展道路上同频共振的真实写照。
+道指涨103.13点，涨幅为0.21%，报49712.29点；纳指跌27.55点，跌幅为0.10%，报26219.53点；标普500指数涨8.58点，涨幅为0.12%，报7407.51点。
 
-责任编辑：【李金磊】
+市场情绪受到中东局势不确定性的压制——美国总统特朗普周末拒绝了伊朗的和平提议回应，称其“完全不可接受”，此举推动油价上涨约3%，能源成本的攀升给股市带来额外压力。
+
+本周市场的核心焦点是将于周二公布的4月CPI数据。
+
+经济学家预计CPI同比涨幅将从3月的3.3%升至3.7%，环比上涨0.6%；核心CPI预计同比上涨2.7%、环比上涨0.3%。
+
+若通胀数据高于预期，可能进一步压缩市场对美联储年内降息的押注。
 
 ## 相关推荐
 
-- 2026-06-29 18:32 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 18:28 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 18:32 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 18:33 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 18:19 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 18:23 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 18:24 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 18:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 18:18 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 18:24 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 18:16 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 18:34 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 18:06 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 18:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 18:29 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 18:27 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 18:31 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 18:33 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 18:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 18:23 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-29 18:31 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 18:16 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 18:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:35 - [急先锋](https://www.blog.kurohicncr.top/Article/details/7208962846.shtml)
-- 2026-06-29 18:28 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/0061598.shtml)
-- 2026-06-29 18:23 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/82607.shtml)
-- 2026-06-29 18:34 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/0898450290.shtml)
-- 2026-06-29 18:32 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.kurohicncr.top/Article/details/626704.shtml)
-- 2026-06-29 18:31 - [7款高价创新药有望降价](https://www.share.minike.top/Article/details/951592.shtml)
-- 2026-06-29 18:07 - [女心理师](https://www.share.kurohicncr.top/Article/details/338599.shtml)
-- 2026-06-29 18:06 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/53001591645.shtml)
-- 2026-06-29 18:21 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/549010495976.shtml)
-- 2026-06-29 18:25 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/363258.shtml)
-- 2026-06-29 18:07 - [女心理师](https://www.blog.minike.top/Article/details/4305308806.shtml)
-- 2026-06-29 18:10 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/0748419161.shtml)
-- 2026-06-29 18:32 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/740809094.shtml)
-- 2026-06-29 18:32 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/7029023.shtml)
-- 2026-06-29 18:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/5983027.shtml)
+- 2026-06-29 18:12 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/185394165761.shtml)
+- 2026-06-29 18:38 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/389488.shtml)
+- 2026-06-29 18:34 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/95188707222.shtml)
+- 2026-06-29 18:28 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/7939105.shtml)
+- 2026-06-29 18:33 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/47926036.shtml)
+- 2026-06-29 18:38 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/16709603815.shtml)
+- 2026-06-29 18:34 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/87141853242.shtml)
+- 2026-06-29 18:32 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/3572985649.shtml)
+- 2026-06-29 18:17 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/16174083175.shtml)
+- 2026-06-29 18:36 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/359235.shtml)
+- 2026-06-29 18:23 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/7184009934.shtml)
+- 2026-06-29 18:41 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/5023930769.shtml)
+- 2026-06-29 18:22 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/054022793078.shtml)
+- 2026-06-29 18:25 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/2088333005.shtml)
+- 2026-06-29 18:25 - [赵今麦时隔五年再演李诗情](http://www.blog.minike.top/Article/details/57026398.shtml)

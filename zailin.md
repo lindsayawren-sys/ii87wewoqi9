@@ -1,60 +1,47 @@
-# 杨德龙：近期金价持续调整缘于美联储货币政策转向担忧 长期上涨逻辑并未改变
+# 天舟十号货运飞船与空间站组合体完成交会对接
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-近期，国际金价出现一波快速回落，从历史新高的5600美元每盎司跌破至4500美元每盎司，下跌幅度约20%，属于较大幅度的调整。但此次下跌并未改变黄金长期看涨的走势。短期下跌主要受以下几方面因素影响： 第一，美联储新任主席沃什正式上任。根据其以往言论，市场预期沃什上台后可能先进行缩表，即通过抛售美联储持有的国债等资产回收市场流动性，减少市场资金供给，这对黄金等资产价格形成较大打压
+据中国载人航天工程办公室消息，天舟十号货运飞船入轨后顺利完成状态设置，于北京时间2026年5月11日13时11分，成功对接于空间站天和核心舱后向端口。交会对接完成后，天舟十号将转入组合体飞行段。 后续，神舟二十一号航天员乘组将进入天舟十号货运飞船，按计划开展货物转运等相关工作。
 
 ## 正文
 
-近期，国际金价出现一波快速回落，从历史新高的5600美元每盎司跌破至4500美元每盎司，下跌幅度约20%，属于较大幅度的调整。
+据中国载人航天工程办公室消息，天舟十号货运飞船入轨后顺利完成状态设置，于北京时间2026年5月11日13时11分，成功对接于空间站天和核心舱后向端口。
 
-但此次下跌并未改变黄金长期看涨的走势。
+交会对接完成后，天舟十号将转入组合体飞行段。
 
-短期下跌主要受以下几方面因素影响： 第一，美联储新任主席沃什正式上任。
-
-根据其以往言论，市场预期沃什上台后可能先进行缩表，即通过抛售美联储持有的国债等资产回收市场流动性，减少市场资金供给，这对黄金等资产价格形成较大打压。
-
-事实上，包括其他有色金属价格也出现了较大下跌。
-
-第二，霍尔木兹海峡被封锁后，国际油价从战前的70美元每桶升至100美元每桶左右。
-
-虽然近期美国总统特朗普释放出将与伊朗进行实质性谈判、尽早放开海峡的信号，但目前尚未落实协议，放开日期不确定，导致国际油价大幅波动。
-
-石油作为工业血液，油价上升推高全球通胀，特别是对美国通胀造成较大影响，美联储或推迟降息节奏，预计沃什可能选择年底降息或今年不再降息，这对黄金价格形成压制。
+后续，神舟二十一号航天员乘组将进入天舟十号货运飞船，按计划开展货物转运等相关工作。
 
 ## 相关推荐
 
-- 2026-06-29 18:35 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 18:10 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 18:11 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 18:06 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 18:08 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 18:35 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 18:17 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 18:17 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 18:23 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 18:27 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 18:13 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 18:32 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 18:18 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 18:33 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 18:32 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 18:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 18:35 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 18:16 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 18:21 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 18:40 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 18:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 18:24 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 18:37 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 18:25 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 18:32 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:13 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/708758.shtml)
-- 2026-06-29 18:32 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/384526636277.shtml)
-- 2026-06-29 18:13 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/4177599.shtml)
-- 2026-06-29 18:12 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/78684373.shtml)
-- 2026-06-29 18:32 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/644005.shtml)
-- 2026-06-29 18:20 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/229640152916.shtml)
-- 2026-06-29 18:32 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/191877.shtml)
-- 2026-06-29 18:15 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/613067268.shtml)
-- 2026-06-29 18:09 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/47981247230.shtml)
-- 2026-06-29 18:27 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/564620.shtml)
-- 2026-06-29 18:34 - [T1 KC](https://www.blog.minike.top/Article/details/301913670404.shtml)
-- 2026-06-29 18:08 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/829877.shtml)
-- 2026-06-29 18:14 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/52594308603.shtml)
-- 2026-06-29 18:09 - [挪威王储妃长子2次强奸被判4年](http://www.share.minike.top/Article/details/065013158.shtml)
-- 2026-06-29 18:06 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/274213829110.shtml)
+- 2026-06-29 18:23 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/58336182.shtml)
+- 2026-06-29 18:15 - [流金岁月](https://www.share.minike.top/Article/details/10022648.shtml)
+- 2026-06-29 18:20 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/12422.shtml)
+- 2026-06-29 18:24 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/662886657278.shtml)
+- 2026-06-29 18:16 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/6097795598.shtml)
+- 2026-06-29 18:21 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/52454.shtml)
+- 2026-06-29 18:34 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.minike.top/Article/details/895556.shtml)
+- 2026-06-29 18:33 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/877232.shtml)
+- 2026-06-29 18:27 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/82410268.shtml)
+- 2026-06-29 18:32 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/0098928.shtml)
+- 2026-06-29 18:22 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/01863106166.shtml)
+- 2026-06-29 18:30 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/032773849.shtml)
+- 2026-06-29 18:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/9622033.shtml)
+- 2026-06-29 18:31 - [谢依霖夸杨幂靠谱](http://www.blog.minike.top/Article/details/7102365723.shtml)
+- 2026-06-29 18:19 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/213595420.shtml)

@@ -1,60 +1,56 @@
-# 国家统计局：5月份综合PMI产出指数保持扩张
+# 天舟十号“送货”清单公布 41项实验物资将抵达中国空间站
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网5月31日电 据国家统计局网站消息，2026年5月31日国家统计局服务业调查中心和中国物流与采购联合会发布了中国采购经理指数。对此，国家统计局服务业调查中心首席统计师霍丽慧进行了解读。 5月份，制造业采购经理指数为50.0%，比上月下降0.3个百分点；非制造业商务活动指数和综合PMI产出指数分别为50.1%和50.5%，比上月上升0.7个和0.4个百分点，我国经济总体产出
+今天(11日)，天舟十号货运飞船在海南文昌航天发射场成功发射升空。本次任务随飞船上行的物资涵盖实验载荷、实验单元及样品、实验耗材等共67件，总重量约768公斤。这批物资送达中国空间站后，将及时转运安置，后续将依托空间站实验设施，分批开展空间生命科学与生物技术、微重力物理科学、空间应用新技术、空间天文与地球科学等领域的41项在轨科学实验项目。构建太空胚胎研究链条 为深空探索筑牢生
 
 ## 正文
 
-中新网5月31日电 据国家统计局网站消息，2026年5月31日国家统计局服务业调查中心和中国物流与采购联合会发布了中国采购经理指数。
+今天(11日)，天舟十号货运飞船在海南文昌航天发射场成功发射升空。
 
-对此，国家统计局服务业调查中心首席统计师霍丽慧进行了解读。
+本次任务随飞船上行的物资涵盖实验载荷、实验单元及样品、实验耗材等共67件，总重量约768公斤。
 
-5月份，制造业采购经理指数为50.0%，比上月下降0.3个百分点；非制造业商务活动指数和综合PMI产出指数分别为50.1%和50.5%，比上月上升0.7个和0.4个百分点，我国经济总体产出保持扩张。
+这批物资送达中国空间站后，将及时转运安置，后续将依托空间站实验设施，分批开展空间生命科学与生物技术、微重力物理科学、空间应用新技术、空间天文与地球科学等领域的41项在轨科学实验项目。
 
-一、制造业采购经理指数位于临界点 5月份，制造业PMI为50.0%，企业生产经营状况总体保持稳定。
+构建太空胚胎研究链条 为深空探索筑牢生命保障 随着天舟十号上行，我国空间应用系统将搭建起覆盖低等脊椎动物到高等哺乳动物的完整太空胚胎研究链条，通过多项核心实验，破解太空环境对生命孕育影响的密码，为人类长期驻留太空提供关键生命保障。
 
-(一)企业生产保持扩张。
+随着人类太空探索的脚步不断延伸，在空间环境中能不能孕育生命成为大家关注的焦点。
 
-生产指数为51.2%，高于临界点，制造业企业生产活动继续保持扩张；新订单指数为49.9%，市场需求有所放缓。
+天舟十号任务将搭建起一套完整的太空胚胎研究体系，稳步推进系统性“空间胚胎发育”研究。
 
-从行业看，医药、铁路船舶航空航天设备、计算机通信电子设备等行业生产指数和新订单指数均高于53.0%，相关行业产需两端较为活跃；石油煤炭及其他燃料加工、化学纤维及橡胶塑料制品、非金属矿物制品等行业两个指数持续低于临界点，供需两端仍显不足。
+本次任务中将重点开展5项空间生命科学实验，主要研究太空环境如何损伤哺乳动物早期胚胎、失重环境下骨骼丢失和心肌变化的调控机制、空间环境下人类“人工胚胎”的构建与发育等关键问题。
 
-(二)新动能发展态势继续向好。
+这些研究与太空探索息息相关，未来人类若想长期驻留太空甚至实现星际移民，必须解决太空环境下的生殖和健康保障问题。
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 18:15 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 18:16 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 18:13 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 18:13 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 18:12 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 18:20 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 18:19 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 18:35 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 18:10 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 18:33 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 18:23 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 18:26 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 18:16 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 18:34 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 18:30 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 18:22 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 18:28 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 18:38 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 18:13 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 18:36 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 18:24 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 18:27 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 18:37 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:23 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/16252243867.shtml)
-- 2026-06-29 18:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/21838265606.shtml)
-- 2026-06-29 18:19 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/218839366.shtml)
-- 2026-06-29 18:11 - [医药生物行业今日涨5.91%](https://www.blog.minike.top/Article/details/321487.shtml)
-- 2026-06-29 18:25 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/49787003.shtml)
-- 2026-06-29 18:22 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.minike.top/Article/details/4380302173.shtml)
-- 2026-06-29 18:31 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/051607.shtml)
-- 2026-06-29 18:20 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/204935.shtml)
-- 2026-06-29 18:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/5440654.shtml)
-- 2026-06-29 18:26 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/842703086.shtml)
-- 2026-06-29 18:24 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/02770672.shtml)
-- 2026-06-29 18:06 - [7款高价创新药有望降价](http://www.share.minike.top/Article/details/866008352549.shtml)
-- 2026-06-29 18:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/366620353.shtml)
-- 2026-06-29 18:11 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/07088349.shtml)
-- 2026-06-29 18:29 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/49887.shtml)
+- 2026-06-29 18:23 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/41064262606.shtml)
+- 2026-06-29 18:37 - [港股爆发 美团百度阿里等集体大涨](http://www.share.minike.top/Article/details/140593763.shtml)
+- 2026-06-29 18:40 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/382790.shtml)
+- 2026-06-29 18:30 - [95后小伙突然确诊癌症 医生提醒](http://www.share.minike.top/Article/details/9982981965.shtml)
+- 2026-06-29 18:23 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/5213233.shtml)
+- 2026-06-29 18:36 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/069850.shtml)
+- 2026-06-29 18:23 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/44808343.shtml)
+- 2026-06-29 18:19 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/75508897.shtml)
+- 2026-06-29 18:36 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/46611710404.shtml)
+- 2026-06-29 18:35 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/855314017.shtml)
+- 2026-06-29 18:33 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/11979144081.shtml)
+- 2026-06-29 18:16 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/8139399367.shtml)
+- 2026-06-29 18:16 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/5589280.shtml)
+- 2026-06-29 18:13 - [流金岁月](http://www.share.kurohicncr.top/Article/details/896616662566.shtml)
+- 2026-06-29 18:14 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/1196304767.shtml)

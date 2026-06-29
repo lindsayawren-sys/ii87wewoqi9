@@ -1,58 +1,57 @@
-# 2026世界智能产业博览会同期活动《精益赋能·智能跃迁》智能工厂梯度培育闭门会在津举办
+# 招商银行青岛分行被罚38.36万元：违反金融统计相关规定等
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-专题：2026世界智能产业博览会 2026世界智能产业博览会同期活动——《精益赋能·智能跃迁》智能工厂梯度培育闭门会于5月29日在天津举行。本次同期活动由爱波瑞智能制造研究院承办，汇聚了中国工程院院士、国家智能制造专家咨询委员会专家、工信部相关机构负责人、央国企及行业链主企业高管、行业协会负责人、数智化转型专家学者等150多名嘉宾，围绕人工智能与精益管理深度融合、国家级智能工厂
+5月9日金融一线消息，中国人民银行青岛市分行行政处罚决定信息公示表显示，招商银行股份有限公司青岛分行因违反金融统计相关规定，违反人民币流通管理规定，违反反假货币业务管理规定，金融机构违反信用信息采集、提供、查询及相关管理规定，未按照规定开展客户尽职调查，受到警告并被罚款38.36万元。 序号 当事人名称（姓名、职务） 行政处罚决定书文号 违法行为类型 行政处罚内容 作出行政处罚
 
 ## 正文
 
-专题：2026世界智能产业博览会 2026世界智能产业博览会同期活动——《精益赋能·智能跃迁》智能工厂梯度培育闭门会于5月29日在天津举行。
+5月9日金融一线消息，中国人民银行青岛市分行行政处罚决定信息公示表显示，招商银行股份有限公司青岛分行因违反金融统计相关规定，违反人民币流通管理规定，违反反假货币业务管理规定，金融机构违反信用信息采集、提供、查询及相关管理规定，未按照规定开展客户尽职调查，受到警告并被罚款38.36万元。
 
-本次同期活动由爱波瑞智能制造研究院承办，汇聚了中国工程院院士、国家智能制造专家咨询委员会专家、工信部相关机构负责人、央国企及行业链主企业高管、行业协会负责人、数智化转型专家学者等150多名嘉宾，围绕人工智能与精益管理深度融合、国家级智能工厂建设、智能化穿透管理落地路径、AI人才体系建设等核心议题展开深度研讨与分享，通过战略指引、标准解读、案例分享、圆桌对话、座谈研讨、工厂参观等形式，为制造业企业实现数智化跃迁注入全新动能。
+序号 当事人名称（姓名、职务） 行政处罚决定书文号 违法行为类型 行政处罚内容 作出行政处罚决定机关名称 作出行政处罚决定日期 公示期限 备注 1 招商银行股份有限公司青岛分行 中国人民银行青岛市分行行政处罚决定书（青银罚决字〔2026〕3号） 1．违反金融统计相关规定。
 
-爱波瑞集团董事长、中国企业改革与发展研究会副会长王洪艳在开场主旨导引中指出，国家智能工厂梯度培育分为基础级、先进级、卓越级、领航级四个层级，尤其领航级工厂要求60%以上的场景融合AI技术，为企业运营模式升级树立了全新标杆。
+2．违反人民币流通管理规定。
 
-她强调，精益是智能化落地的根基，智能化则为精益管理提质增效，二者相辅相成、双向赋能。
+3．违反反假货币业务管理规定。
 
-企业想要穿越经营周期，核心在于三点：一是坚守经营本质，推动精益与人工智能深度融合、双向共生；二是激发创新活力，让愿景成为前行的内生动力；三是加速产业生态重构，重塑供需关系与价值逻辑，在协同共创中行稳致远，共探适配本土发展的中国式管理范式。
+4．金融机构违反信用信息采集、提供、查询及相关管理规定。
 
-国际欧亚科学院材料学部秘书长、中国电子企业协会国际合作专家会副主任阮汝祥在开场致辞中表示，新质生产力的核心在于科技创新，关键在于将科技成果高效转化为现实生产力，最终落脚在产业的转型升级与价值跃升上。
+5．未按照规定开展客户尽职调查。
 
-精益管理是智能制造的基石，智能跃迁是精益管理的升华，二者不是简单的叠加关系，而是内在逻辑上的递进与耦合。
-
-广大制造企业要坚持精益为本，夯实智能制造的管理根基；强化科技赋能，加快形成新质生产力。
+警告、处罚款38.36万元 中国人民银行青岛市分行 2026年4月30日 3年 责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 18:18 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 18:24 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 18:29 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 18:30 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 18:34 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 18:12 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 18:11 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 18:18 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 18:14 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 18:15 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 18:34 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 18:27 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 18:33 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 18:25 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 18:35 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 18:28 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 18:32 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 18:13 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 18:18 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 18:40 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 18:24 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 18:24 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 18:32 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 18:28 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 18:21 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:30 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/333150109.shtml)
-- 2026-06-29 18:30 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/92926.shtml)
-- 2026-06-29 18:30 - [A股割裂行情有变化了吗](https://www.blog.kurohicncr.top/Article/details/220759018724.shtml)
-- 2026-06-29 18:12 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/2743635.shtml)
-- 2026-06-29 18:18 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/70651325.shtml)
-- 2026-06-29 18:10 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/807628.shtml)
-- 2026-06-29 18:29 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/6642419889.shtml)
-- 2026-06-29 18:14 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/72723223.shtml)
-- 2026-06-29 18:23 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/88279402.shtml)
-- 2026-06-29 18:22 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/9021863982.shtml)
-- 2026-06-29 18:25 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/239613453.shtml)
-- 2026-06-29 18:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/35493892.shtml)
-- 2026-06-29 18:09 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/1167268.shtml)
-- 2026-06-29 18:25 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/206773515.shtml)
-- 2026-06-29 18:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/70027311830.shtml)
+- 2026-06-29 18:37 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/776380.shtml)
+- 2026-06-29 18:19 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/89072018686.shtml)
+- 2026-06-29 18:12 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/479784184.shtml)
+- 2026-06-29 18:13 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/32806202205.shtml)
+- 2026-06-29 18:13 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/1629564644.shtml)
+- 2026-06-29 18:16 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/477719519985.shtml)
+- 2026-06-29 18:23 - [95后小伙突然确诊癌症 医生提醒](https://www.share.kurohicncr.top/Article/details/052957.shtml)
+- 2026-06-29 18:28 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/90073981572.shtml)
+- 2026-06-29 18:24 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/006768.shtml)
+- 2026-06-29 18:21 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/355843762205.shtml)
+- 2026-06-29 18:27 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/180610.shtml)
+- 2026-06-29 18:41 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/69332380616.shtml)
+- 2026-06-29 18:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/002764053.shtml)
+- 2026-06-29 18:31 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/47564346414.shtml)
+- 2026-06-29 18:27 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/08528.shtml)

@@ -1,56 +1,58 @@
-# 【理响中国】树立以人民为中心的政绩观
+# 4月中国CPI同比涨1.2% 汽油和黄金饰品价格变动较大
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-共产党人干事业、创政绩，为的是造福人民。党的十八大以来，以习近平同志为核心的党中央高度重视政绩观问题。习近平总书记指出，要树立正确政绩观，多做打基础、利长远的事，不搞脱离实际的盲目攀比，不搞劳民伤财的“形象工程”、“政绩工程”，求真务实，真抓实干，勇于担当，真正做到对历史和人民负责。共产党员要在工作中坚持以人民为中心，深刻理解和认识为谁服务的问题，通过树立起以人民为中心的政绩观
+中新社北京5月11日电 (记者 王恩博)中国国家统计局11日公布，受国际原油价格变动和假期出行需求增加影响，4月份中国居民消费价格指数(CPI)同比上涨1.2%，比上月扩大0.2个百分点；扣除食品和能源价格的核心CPI同比上涨1.2%，保持温和回升。国家统计局城市司首席统计师董莉娟表示，4月份CPI中，工业消费品价格同比上涨3.5%，涨幅比上月扩大1.3个百分点，影响CPI同比
 
 ## 正文
 
-共产党人干事业、创政绩，为的是造福人民。
+中新社北京5月11日电 (记者 王恩博)中国国家统计局11日公布，受国际原油价格变动和假期出行需求增加影响，4月份中国居民消费价格指数(CPI)同比上涨1.2%，比上月扩大0.2个百分点；扣除食品和能源价格的核心CPI同比上涨1.2%，保持温和回升。
 
-党的十八大以来，以习近平同志为核心的党中央高度重视政绩观问题。
+国家统计局城市司首席统计师董莉娟表示，4月份CPI中，工业消费品价格同比上涨3.5%，涨幅比上月扩大1.3个百分点，影响CPI同比上涨约1.06个百分点。
 
-习近平总书记指出，要树立正确政绩观，多做打基础、利长远的事，不搞脱离实际的盲目攀比，不搞劳民伤财的“形象工程”、“政绩工程”，求真务实，真抓实干，勇于担当，真正做到对历史和人民负责。
+受国际大宗商品价格波动影响，国内汽油和黄金饰品价格变动较大，其中汽油价格涨幅扩大至19.3%；黄金饰品价格涨幅回落至46.9%。
 
-共产党员要在工作中坚持以人民为中心，深刻理解和认识为谁服务的问题，通过树立起以人民为中心的政绩观，做出无愧于历史、无愧于时代、无愧于人民的新业绩。
+4月份，服务价格同比涨幅扩大至0.9%，影响CPI同比上涨约0.44个百分点。
 
-为什么要树立以人民为中心的政绩观 正确政绩观的核心是要以人民为中心，以为民造福为最大政绩；要坚持实事求是、尊重规律、不搞虚功，重实干、重实绩；要看人民群众获得感、幸福感、安全感；要着眼长远、打基础、利长远；要有功成不必在我、功成必定有我的境界，一张蓝图绘到底的决心和毅力。
+其中，出行服务价格涨幅有所扩大，上涨3.7%。
 
-一个人的政绩观是其世界观、人生观、价值观的综合反映。
+食品价格由上月上涨0.3%转为下降1.6%。
 
-对共产党员来讲，就是要建立起与马克思主义理想信念、政治立场、理论品质、革命意志等相一致的政绩观。
+食品中，猪肉价格下降15.2%，降幅比上月扩大3.7个百分点。
 
-共产党员要以全心全意为人民服务为己任，坚持人民的利益高于一切，除了最广大人民的利益，没有自己的特殊利益；要胸怀“先天下之忧而忧，后天下之乐而乐”的情怀；要能以人民的苦为苦，以人民的乐为乐，把自己的苦与乐同人民的苦与乐紧密联系在一起。
+从环比看，4月份，中国CPI由上月下降0.7%转为上涨0.3%，高于季节性水平0.4个百分点，主要受能源和出行服务价格上涨影响。
 
 ## 相关推荐
 
-- 2026-06-29 18:19 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 18:16 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 18:18 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 18:22 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 18:13 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 18:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 18:09 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 18:22 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 18:29 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 18:27 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 18:23 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 18:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 18:33 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 18:19 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 18:15 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 18:26 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 18:24 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 18:36 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 18:13 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 18:30 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 18:21 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 18:36 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/746396.shtml)
-- 2026-06-29 18:21 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/87216481071.shtml)
-- 2026-06-29 18:18 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.minike.top/Article/details/466452787572.shtml)
-- 2026-06-29 18:34 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/99295239841.shtml)
-- 2026-06-29 18:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/109194.shtml)
-- 2026-06-29 18:22 - [普京建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/645585847173.shtml)
-- 2026-06-29 18:08 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.kurohicncr.top/Article/details/836906410.shtml)
-- 2026-06-29 18:11 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/6821123.shtml)
-- 2026-06-29 18:08 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/33333030.shtml)
-- 2026-06-29 18:14 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/16577.shtml)
-- 2026-06-29 18:13 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/43948121884.shtml)
-- 2026-06-29 18:33 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/846805376438.shtml)
-- 2026-06-29 18:27 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/4246042.shtml)
-- 2026-06-29 18:22 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/21993906398.shtml)
-- 2026-06-29 18:29 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/7317443724.shtml)
+- 2026-06-29 18:20 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/15229047.shtml)
+- 2026-06-29 18:16 - [TOP Prada](https://www.share.minike.top/Article/details/214009.shtml)
+- 2026-06-29 18:29 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/793374.shtml)
+- 2026-06-29 18:34 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/25804943287.shtml)
+- 2026-06-29 18:20 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/227627559.shtml)
+- 2026-06-29 18:23 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/89537.shtml)
+- 2026-06-29 18:20 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/035561.shtml)
+- 2026-06-29 18:34 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/470167916.shtml)
+- 2026-06-29 18:14 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/26484.shtml)
+- 2026-06-29 18:23 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/70991466184.shtml)
+- 2026-06-29 18:30 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/42870.shtml)
+- 2026-06-29 18:32 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/243149167.shtml)
+- 2026-06-29 18:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/333224.shtml)
+- 2026-06-29 18:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/3362161739.shtml)
+- 2026-06-29 18:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/587787758.shtml)

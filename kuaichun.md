@@ -1,59 +1,60 @@
-# 良法良种良机 寒地水稻增产新招让“不可能”成为现实
+# 强降雨持续影响云南 多地连发暴雨预警
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-原标题：视频丨良法良种良机 寒地水稻增产新招让“不可能”成为现实 黑龙江，是我国重要的商品粮生产基地之一，水稻种植面积和产量均居全国前列。而在高纬度寒地稻区，温度低、光照少制约了水稻的生产。2026年中央一号文件提出：“加力实施新一轮千亿斤粮食产能提升行动，促进良田良种良机良法集成增效，推进粮油作物大面积提单产。”如何让寒地水稻继续增产？突破的空间在哪里？ 七星农场地处三江平原
+中新网昆明5月11日电(李嘉娴)5月11日至14日，江南、华南等地新一轮较强降水过程来袭，其中云南将自西向东迎来中到大雨天气，部分地区有暴雨，并伴有短时强降水等强对流天气，防汛防灾形势严峻。 截至5月11日20时10分，云南多地密集发布、更新各类气象灾害预警。本轮降雨过程中，红河、丽江、普洱等多地气象部门陆续发布暴雨黄色、橙色预警，部分区域监测到明显短时强降水，预判未来时段雨势
 
 ## 正文
 
-原标题：视频丨良法良种良机 寒地水稻增产新招让“不可能”成为现实 黑龙江，是我国重要的商品粮生产基地之一，水稻种植面积和产量均居全国前列。
+中新网昆明5月11日电(李嘉娴)5月11日至14日，江南、华南等地新一轮较强降水过程来袭，其中云南将自西向东迎来中到大雨天气，部分地区有暴雨，并伴有短时强降水等强对流天气，防汛防灾形势严峻。
 
-而在高纬度寒地稻区，温度低、光照少制约了水稻的生产。
+截至5月11日20时10分，云南多地密集发布、更新各类气象灾害预警。
 
-2026年中央一号文件提出：“加力实施新一轮千亿斤粮食产能提升行动，促进良田良种良机良法集成增效，推进粮油作物大面积提单产。
+本轮降雨过程中，红河、丽江、普洱等多地气象部门陆续发布暴雨黄色、橙色预警，部分区域监测到明显短时强降水，预判未来时段雨势持续，辖区内多个乡镇暴雨灾害风险较高。
 
-”如何让寒地水稻继续增产？
+同时，部分区域发布雷电黄色预警，预计将出现持续雷电天气，存在一定雷击安全隐患，大范围强对流天气风险突出。
 
-突破的空间在哪里？
+结合最新气象监测，云南省发布地质灾害气象风险预警，5月11日20时至12日20时，红河州元阳、绿春、金平三县滑坡、泥石流灾害风险高；红河州南部、文山州西南部、普洱市东西部、丽江市中部、临沧市西南部地质灾害风险较高，需重点防范。
 
-七星农场地处三江平原腹地，积温低、生长期短。
+云南省最新天气预报显示，11日白天云南多个州市被降雨覆盖，丽江、昆明、红河、文山、普洱、临沧等地多区域出现小到中雨，局部大雨、暴雨。
 
-地理和气候条件对当地水稻种植产生一定制约。
+11日夜间至12日，全省降水逐步减弱，12日夜间起，降雨范围大幅收缩，仅省内西部、南部边缘有零星阵雨，大部地区天气逐步转好。
 
-近年来，当地的水稻平均亩产一直维持在1200斤左右。
+气象部门特别提醒，本轮降雨暖区对流特征明显，突发性强、变化快、局地性显著，强降水极易诱发城市内涝、山洪、滑坡、泥石流等地质灾害。
 
 ## 相关推荐
 
-- 2026-06-29 18:11 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 18:35 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 18:34 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 18:31 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 18:10 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 18:35 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 18:19 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 18:09 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 18:31 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 18:21 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 18:10 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 18:09 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 18:25 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 18:20 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 18:38 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 18:17 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 18:23 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 18:30 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 18:24 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 18:31 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 18:13 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 18:18 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 18:29 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 18:20 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 18:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 18:18 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 18:35 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:27 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/69255.shtml)
-- 2026-06-29 18:16 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/1754328.shtml)
-- 2026-06-29 18:15 - [李在镕：计划将光州作为芯片生产基地](http://www.share.kurohicncr.top/Article/details/36931.shtml)
-- 2026-06-29 18:15 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/1705223.shtml)
-- 2026-06-29 18:26 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/877485923.shtml)
-- 2026-06-29 18:12 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/568172225735.shtml)
-- 2026-06-29 18:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/709945743.shtml)
-- 2026-06-29 18:21 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/6191202.shtml)
-- 2026-06-29 18:16 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/7866096173.shtml)
-- 2026-06-29 18:10 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/9882703289.shtml)
-- 2026-06-29 18:27 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/0328062425.shtml)
-- 2026-06-29 18:14 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/68330734.shtml)
-- 2026-06-29 18:35 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/44972589860.shtml)
-- 2026-06-29 18:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/05285241912.shtml)
-- 2026-06-29 18:14 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/65972067629.shtml)
+- 2026-06-29 18:20 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/19983936.shtml)
+- 2026-06-29 18:26 - [逆天祖国人](http://www.blog.minike.top/Article/details/6225009773.shtml)
+- 2026-06-29 18:39 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/241495403560.shtml)
+- 2026-06-29 18:26 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/0569873.shtml)
+- 2026-06-29 18:12 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/3266332545.shtml)
+- 2026-06-29 18:32 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/823544089208.shtml)
+- 2026-06-29 18:16 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/761400.shtml)
+- 2026-06-29 18:20 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/73206.shtml)
+- 2026-06-29 18:37 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/891860227326.shtml)
+- 2026-06-29 18:36 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/10110637.shtml)
+- 2026-06-29 18:22 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/305766.shtml)
+- 2026-06-29 18:24 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.minike.top/Article/details/3275335.shtml)
+- 2026-06-29 18:27 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/5883642.shtml)
+- 2026-06-29 18:33 - [人形机器人](https://www.share.kurohicncr.top/Article/details/48115914.shtml)
+- 2026-06-29 18:16 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.minike.top/Article/details/9263363.shtml)

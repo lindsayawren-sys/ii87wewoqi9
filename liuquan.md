@@ -1,56 +1,54 @@
-# 200余名中外嘉宾大理洱海畔共谋绿色治理良策
+# 高盛：印度股市外资流出接近尾声，但外资买入仍将受限
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新社云南大理5月30日电 (韩帅南 时文枝)2026推进全球生态文明建设(洱海)论坛5月30日在云南省大理白族自治州开幕。来自中国、德国、加拿大、泰国等16个国家的200余位中外嘉宾齐聚洱海之畔，共商生态发展之路、共谋绿色治理良策。 本届论坛以“聚力向新·建设美丽中国”为主题，绿色治理的“中国方案”成为各方关注焦点。 中国外文局局长常勃在致辞时介绍，近年来，中国与共建“一带一
+高盛表示，外资的大规模抛售行情大概率已经落幕，不过外资回流买入的力度或将持续受限。 印度外资组合投资者（FPI）已累计抛售价值221.7亿美元的本土股票，规模已超过2025年创下的历史最高资金外流纪录。 高盛指出，油价下跌与海外资金回流之间的历史联动效应已明显减弱；同时，订单价格走高令企业盈利复苏前景不明朗。 高盛称，今年一季度印度股市外资持股比例跌至14年低位，且二十多年来首
 
 ## 正文
 
-中新社云南大理5月30日电 (韩帅南 时文枝)2026推进全球生态文明建设(洱海)论坛5月30日在云南省大理白族自治州开幕。
+高盛表示，外资的大规模抛售行情大概率已经落幕，不过外资回流买入的力度或将持续受限。
 
-来自中国、德国、加拿大、泰国等16个国家的200余位中外嘉宾齐聚洱海之畔，共商生态发展之路、共谋绿色治理良策。
+印度外资组合投资者（FPI）已累计抛售价值221.7亿美元的本土股票，规模已超过2025年创下的历史最高资金外流纪录。
 
-本届论坛以“聚力向新·建设美丽中国”为主题，绿色治理的“中国方案”成为各方关注焦点。
+高盛指出，油价下跌与海外资金回流之间的历史联动效应已明显减弱；同时，订单价格走高令企业盈利复苏前景不明朗。
 
-中国外文局局长常勃在致辞时介绍，近年来，中国与共建“一带一路”国家深耕绿色基建、绿色能源、绿色交通等领域合作。
+高盛称，今年一季度印度股市外资持股比例跌至14年低位，且二十多年来首次低于印度本土机构投资者持股比例。
 
-面向未来，中国要深化生态领域的国际合作交流，为推动构建公平合理、合作共赢的全球生态环境治理体系贡献中国智慧、中国力量。
+该行预计，市场情绪回暖时，外资持仓低、资金配置仓位低的个股有望跑赢大盘；重申对金融板块、必需消费品板块的乐观看好态度。
 
-泰中文化促进委员会主席披尼·扎禄颂巴接受采访时说，泰中两国应该加强生态文明交流互鉴，用云南、大理的成功经验，让世界看到中国式现代化的成果，同时也让更多的青年能够参与到生态文明建设中。
-
-中国工程院院士张福锁在论坛上分享古生村科技小院在保护洱海、促农增收方面的经验。
-
-他表示，目前科技小院这种“小而美”的模式已经推广至中非、马来西亚等国家和地区，希望能够带动更多中外企业通过科技支撑一起让科技小院出海，为全球的可持续发展作出中国贡献。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 18:09 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 18:10 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 18:06 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 18:10 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 18:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 18:35 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 18:09 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 18:30 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 18:14 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 18:17 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 18:36 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 18:20 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 18:20 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 18:14 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 18:27 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 18:22 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 18:26 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 18:27 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 18:24 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 18:26 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 18:27 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 18:24 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:19 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/6162719.shtml)
-- 2026-06-29 18:18 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/251521836074.shtml)
-- 2026-06-29 18:24 - [朱必达辞去湖南人大常委会委员职务](https://www.share.minike.top/Article/details/337208.shtml)
-- 2026-06-29 18:14 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/14363.shtml)
-- 2026-06-29 18:10 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.kurohicncr.top/Article/details/2497954312.shtml)
-- 2026-06-29 18:26 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/23417641078.shtml)
-- 2026-06-29 18:10 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/689096478.shtml)
-- 2026-06-29 18:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/453564416581.shtml)
-- 2026-06-29 18:09 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/6636732.shtml)
-- 2026-06-29 18:20 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/3957018367.shtml)
-- 2026-06-29 18:23 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/83089.shtml)
-- 2026-06-29 18:33 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/440076050842.shtml)
-- 2026-06-29 18:33 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/14131.shtml)
-- 2026-06-29 18:19 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/80011.shtml)
-- 2026-06-29 18:12 - [张雪机车杀向海外](http://www.blog.kurohicncr.top/Article/details/142227484457.shtml)
+- 2026-06-29 18:25 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/148575.shtml)
+- 2026-06-29 18:35 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.minike.top/Article/details/06484.shtml)
+- 2026-06-29 18:25 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/22635417.shtml)
+- 2026-06-29 18:27 - [金牌调解](https://www.share.minike.top/Article/details/602463.shtml)
+- 2026-06-29 18:18 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/566591434811.shtml)
+- 2026-06-29 18:36 - [一生一世](https://www.share.kurohicncr.top/Article/details/481818079270.shtml)
+- 2026-06-29 18:22 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/904677.shtml)
+- 2026-06-29 18:34 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/35220.shtml)
+- 2026-06-29 18:15 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/843641.shtml)
+- 2026-06-29 18:41 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/383148033.shtml)
+- 2026-06-29 18:19 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/730495885433.shtml)
+- 2026-06-29 18:14 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/802392287709.shtml)
+- 2026-06-29 18:19 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/0443918521.shtml)
+- 2026-06-29 18:16 - [7款高价创新药有望降价](https://www.share.minike.top/Article/details/3040414.shtml)
+- 2026-06-29 18:18 - [首个靠AI躺赢的国家](http://www.blog.minike.top/Article/details/299267.shtml)

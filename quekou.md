@@ -1,56 +1,60 @@
-# 海南海口：“蓝色微月”现身夜空
+# 广西百色：构建辐射东盟、链接全球的物流“金丝带”
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-事关幼儿园食品安全！新规6月1日起施行大巴黎卫冕！阿森纳点球惜败，队史仍缺欧冠冠军外资加仓中国，对中国市场投下信任票灵隐寺，你变了！人这一辈子，一定要去一趟“华北明珠”白洋淀！非法从事试管婴儿手术背后：求子路上为何陷阱重重？6月新规来了！事关疲劳驾驶、“开门杀”赔偿等为啥外国人都爱来这里买买买？从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题....
+原标题：这趟“水果专列”不简单 春光正好，百色市的芒果花开了，细细密密，铺满山坡。微风拂过，花香飘满山间，满载新鲜果蔬的“百色一号”专列疾驰而过，轮轨摩擦发出有节奏的声响。 2013年底，百色—北京果蔬专列“百色一号”正式开行。12年来，这趟专列累计开行超2800趟，其中完成跨境运输1413趟，带动国内外农产品流通91万吨。 “百色一号”专列探索“冷链专列+骨干基地+区域品牌”
 
 ## 正文
 
-事关幼儿园食品安全！
+原标题：这趟“水果专列”不简单 春光正好，百色市的芒果花开了，细细密密，铺满山坡。
 
-新规6月1日起施行大巴黎卫冕！
+微风拂过，花香飘满山间，满载新鲜果蔬的“百色一号”专列疾驰而过，轮轨摩擦发出有节奏的声响。
 
-阿森纳点球惜败，队史仍缺欧冠冠军外资加仓中国，对中国市场投下信任票灵隐寺，你变了！
+2013年底，百色—北京果蔬专列“百色一号”正式开行。
 
-人这一辈子，一定要去一趟“华北明珠”白洋淀！
+12年来，这趟专列累计开行超2800趟，其中完成跨境运输1413趟，带动国内外农产品流通91万吨。
 
-非法从事试管婴儿手术背后：求子路上为何陷阱重重？
+“百色一号”专列探索“冷链专列+骨干基地+区域品牌”发展模式，助力百色构建连接东盟、直达京津冀、融入粤港澳、对接中欧班列的冷链物流网络，成为辐射东盟、链接全球的物流“金丝带”。
 
-6月新规来了！
+织网：联农带农拓市场 4月29日，百色室外最高气温接近30℃，莫尚攀打开广西百色一号农业发展有限公司冷链仓库的大门，一股冷风扑面而来。
 
-事关疲劳驾驶、“开门杀”赔偿等为啥外国人都爱来这里买买买？
+芒果、百香果、火龙果的果浆、果块和肉类等产品在此低温环境下贮藏，工人驾驶高位叉车穿梭其间，将打包好的成品运进冷链车，由“百色一号”专列发往全国各地。
 
-从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？
+莫尚攀是百色一号公司园区管理部主任，他换上羽绒服，戴上棉帽，走进仓库，一边查看货物入库、出库情况，一边介绍：“我们的冷库温度常年保持在-22℃，可提供恒温、冷藏、冷冻仓储服务。
 
 ## 相关推荐
 
-- 2026-06-29 18:12 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 18:08 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 18:13 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 18:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 18:10 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 18:25 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 18:11 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 18:13 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 18:33 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 18:16 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 18:24 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 18:35 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 18:18 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 18:12 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 18:26 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 18:34 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 18:42 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 18:34 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 18:39 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 18:27 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 18:15 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 18:41 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 18:24 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 18:28 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:11 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/127102499.shtml)
-- 2026-06-29 18:18 - [T1零封KC MSI](https://www.share.minike.top/Article/details/867288766337.shtml)
-- 2026-06-29 18:28 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/3446152.shtml)
-- 2026-06-29 18:06 - [一生一世](https://www.share.minike.top/Article/details/48479624559.shtml)
-- 2026-06-29 18:25 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/874087263.shtml)
-- 2026-06-29 18:09 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/00549681.shtml)
-- 2026-06-29 18:20 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/907617.shtml)
-- 2026-06-29 18:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/531426.shtml)
-- 2026-06-29 18:19 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/75004639.shtml)
-- 2026-06-29 18:28 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/38579.shtml)
-- 2026-06-29 18:07 - [疑似吴建豪老婆正脸照](http://www.blog.minike.top/Article/details/26321325.shtml)
-- 2026-06-29 18:29 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/65794.shtml)
-- 2026-06-29 18:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/282952.shtml)
-- 2026-06-29 18:17 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/6102662.shtml)
-- 2026-06-29 18:31 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/254995135325.shtml)
+- 2026-06-29 18:37 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/0472326957.shtml)
+- 2026-06-29 18:35 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/0685044820.shtml)
+- 2026-06-29 18:36 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/956878.shtml)
+- 2026-06-29 18:35 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/73209.shtml)
+- 2026-06-29 18:39 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/89760.shtml)
+- 2026-06-29 18:15 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/11564.shtml)
+- 2026-06-29 18:16 - [蔚来回应车漆洗车时被冲掉](https://www.blog.minike.top/Article/details/455998.shtml)
+- 2026-06-29 18:29 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/859635.shtml)
+- 2026-06-29 18:31 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/34503.shtml)
+- 2026-06-29 18:28 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/40352.shtml)
+- 2026-06-29 18:33 - [断骨增高灰产拉一人提成1.5万元](https://www.share.minike.top/Article/details/030970663359.shtml)
+- 2026-06-29 18:31 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/65491.shtml)
+- 2026-06-29 18:29 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/017563978.shtml)
+- 2026-06-29 18:41 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/64221963392.shtml)
+- 2026-06-29 18:18 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/66745520.shtml)

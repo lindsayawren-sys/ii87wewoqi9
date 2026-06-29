@@ -1,56 +1,57 @@
-# 开盘：美股周五高开 市场关注中东局势
+# 国产算力链补涨，别忘了港股互联网！
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-北京时间5月29日晚，美股周五高开。原油价格下跌，交易员正密切关注中东冲突以及伊朗与美国之间脆弱的停火协议。 道指涨104.94点，涨幅为0.21%，报50773.91点；标普500指数涨15.70点，涨幅为0.21%，报7579.33点；纳指涨32.768点，涨幅为0.12%，报26950.24点。 周五早间，美国西得克萨斯中质原油期货下跌逾2%，至每桶86.89美元。布伦特
+5月11日，港股主要指数低开震荡，科网龙头跌多涨少，截至发稿，阿里巴巴-W跌超3%，腾讯控股跌逾1%，美团-W跟跌，小米集团-W上涨0.25%。港股AI核心工具——港股互联网ETF华宝（513770）场内价格现跌1.61%。 近期国产算力链正在相对北美算力链补涨，兴业证券认为，AI行情正在算力链内部扩散，这其中，港股互联网也是扩散的重要主线之一。* 究其原因，一方面，港股互联网
 
 ## 正文
 
-北京时间5月29日晚，美股周五高开。
+5月11日，港股主要指数低开震荡，科网龙头跌多涨少，截至发稿，阿里巴巴-W跌超3%，腾讯控股跌逾1%，美团-W跟跌，小米集团-W上涨0.25%。
 
-原油价格下跌，交易员正密切关注中东冲突以及伊朗与美国之间脆弱的停火协议。
+港股AI核心工具——港股互联网ETF华宝（513770）场内价格现跌1.61%。
 
-道指涨104.94点，涨幅为0.21%，报50773.91点；标普500指数涨15.70点，涨幅为0.21%，报7579.33点；纳指涨32.768点，涨幅为0.12%，报26950.24点。
+近期国产算力链正在相对北美算力链补涨，兴业证券认为，AI行情正在算力链内部扩散，这其中，港股互联网也是扩散的重要主线之一。
 
-周五早间，美国西得克萨斯中质原油期货下跌逾2%，至每桶86.89美元。
+* 究其原因，一方面，港股互联网大厂的Capex和指引之于国产算力链就相当于北美CSP厂商之于北美算力链，都是“一荣俱荣”的关系，因此港股互联网本身就具备国产算力的交易属性；另一方面，具备最佳社交场景和生态的港股互联网平台本身也是AI应用落地率先受益的方向，因此也具备AI应用的交易属性。
 
-布伦特原油也下跌2%，至91.80美元。
+两者均是国内AI行情扩散的重要方向。
 
-此前有报道称周四美伊互相袭击了对方空军基地，同时美国总统特朗普正在考虑可能的延长停火协议。
+此外，从海外映射角度看，以港股互联网为代表的云厂商也有望是后续国内AI行情补涨的方向。
 
-此前一个交易日，美国与伊朗达成协议——伊朗谈判代表同意了一份为期60天的谅解备忘录以延长停火，股市因此创下历史新高。
+4月以来北美云厂商股价已开启修复，近期几大CSP厂商披露的超预期的业绩和Capex指引更是带动股价大幅上涨，相较之下国内云厂商涨幅相对落后，有望成为海外映射下国内后续补涨的方向。
 
-然而，花旗财富首席投资官凯特-摩尔认为，市场反弹至新高的动力，可能更多来自强劲的企业盈利增长，而非关于中东紧张局势的头条新闻。
+进入5月，阿里巴巴、腾讯控股等互联网龙头一季报密集披露。
 
 ## 相关推荐
 
-- 2026-06-29 18:25 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 18:19 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 18:34 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 18:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 18:13 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 18:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 18:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 18:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 18:33 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 18:26 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 18:29 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 18:38 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 18:34 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 18:37 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 18:26 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 18:34 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 18:12 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 18:15 - [南昌市委书记调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 18:12 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 18:29 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 18:31 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:11 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/30190393927.shtml)
-- 2026-06-29 18:28 - [章若楠包场白敬亭特立独行](http://www.share.minike.top/Article/details/231089492.shtml)
-- 2026-06-29 18:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/22536.shtml)
-- 2026-06-29 18:15 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/0423978.shtml)
-- 2026-06-29 18:10 - [天道](http://www.blog.minike.top/Article/details/399439765262.shtml)
-- 2026-06-29 18:15 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/7545665590.shtml)
-- 2026-06-29 18:32 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/06235859.shtml)
-- 2026-06-29 18:14 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/237828.shtml)
-- 2026-06-29 18:31 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/48060.shtml)
-- 2026-06-29 18:12 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/9962383.shtml)
-- 2026-06-29 18:14 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/6370990.shtml)
-- 2026-06-29 18:13 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/539942.shtml)
-- 2026-06-29 18:16 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/14634392.shtml)
-- 2026-06-29 18:25 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/45355309181.shtml)
-- 2026-06-29 18:12 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/0689277590.shtml)
+- 2026-06-29 18:17 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/49369482037.shtml)
+- 2026-06-29 18:19 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/18755.shtml)
+- 2026-06-29 18:38 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/970092.shtml)
+- 2026-06-29 18:32 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/553074479672.shtml)
+- 2026-06-29 18:29 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/290798.shtml)
+- 2026-06-29 18:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/512835836236.shtml)
+- 2026-06-29 18:33 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/3002955.shtml)
+- 2026-06-29 18:30 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/115355473.shtml)
+- 2026-06-29 18:18 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/03367034697.shtml)
+- 2026-06-29 18:22 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/22407167384.shtml)
+- 2026-06-29 18:16 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/827594046.shtml)
+- 2026-06-29 18:21 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/65583658278.shtml)
+- 2026-06-29 18:36 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/9787407565.shtml)
+- 2026-06-29 18:28 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.minike.top/Article/details/2273909.shtml)
+- 2026-06-29 18:23 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/766422941.shtml)

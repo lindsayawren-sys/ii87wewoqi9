@@ -1,61 +1,46 @@
-# 交银金科又一副总裁被查，银行科技领域腐败引关注
+# 中指研究院：4月北上深租金环比继续上涨
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-蓝鲸新闻5月29日讯（记者 严沁雯）5月29日，中央纪委国家监委网站显示，据中央纪委国家监委驻交通银行纪检监察组、辽宁省纪委监委消息：交银金融科技有限公司副总裁王浩涉嫌严重违纪违法，目前正接受中央纪委国家监委驻交通银行纪检监察组纪律审查和辽宁省鞍山市监察委员会监察调查。 公开资料显示，2024年4月29日，王浩曾以交银金科副总裁身份出席“2024中关村论坛——金融科技平行论坛”
+人民财讯5月10日电，据中指研究院，近期，我国住房租赁市场在3月季节性回暖后，需求释放节奏逐步放缓，4月50城租金环比转跌；但北上深等核心城市租金保持环比上涨，市场表现明显好于去年同期，显示出核心城市的需求韧性依然较强。 责任编辑：石秀珍 SF183
 
 ## 正文
 
-蓝鲸新闻5月29日讯（记者 严沁雯）5月29日，中央纪委国家监委网站显示，据中央纪委国家监委驻交通银行纪检监察组、辽宁省纪委监委消息：交银金融科技有限公司副总裁王浩涉嫌严重违纪违法，目前正接受中央纪委国家监委驻交通银行纪检监察组纪律审查和辽宁省鞍山市监察委员会监察调查。
+人民财讯5月10日电，据中指研究院，近期，我国住房租赁市场在3月季节性回暖后，需求释放节奏逐步放缓，4月50城租金环比转跌；但北上深等核心城市租金保持环比上涨，市场表现明显好于去年同期，显示出核心城市的需求韧性依然较强。
 
-公开资料显示，2024年4月29日，王浩曾以交银金科副总裁身份出席“2024中关村论坛——金融科技平行论坛”，参与“释放数据要素价值赋能金融服务升级”的圆桌对话，围绕“数据化准备、人工智能特点以及安全隐私”等议题展开了讨论。
-
-论坛上，王浩提到需要以数据思维为引领，进一步发挥倍增效应，统筹金融服务与安全，从而重塑金融服务行业的新格局。
-
-具体而言，需要实现五个“新”， 即“新平台、新视野、新链接、新模式和新安全”。
-
-事实上，王浩已经是交银金科第二位被查的副总裁。
-
-2023年8月17日，时任交银金科副总裁孙毅坤因涉嫌严重违纪违法被查。
-
-而若将视线放至整个交行系统，近年来“落马”人员多与科技领域相关。
-
-就在孙毅坤被查次日（2023年8月18日），时任交通银行金融科技部总经理周彦倜涉嫌严重违纪违法被查。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 18:22 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 18:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 18:29 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 18:14 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 18:35 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 18:22 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 18:18 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 18:08 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 18:35 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 18:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 18:25 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 18:10 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 18:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 18:10 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 18:11 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 18:18 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 18:19 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 18:19 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 18:33 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 18:40 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 18:22 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 18:28 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 18:32 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 18:25 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 18:25 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 18:25 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 18:29 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:10 - [TTG KSG](http://www.share.kurohicncr.top/Article/details/21991266036.shtml)
-- 2026-06-29 18:15 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/80748.shtml)
-- 2026-06-29 18:30 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/15789386110.shtml)
-- 2026-06-29 18:34 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/317205.shtml)
-- 2026-06-29 18:13 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/593623669.shtml)
-- 2026-06-29 18:13 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/035577154.shtml)
-- 2026-06-29 18:19 - [葛军透露高考出题思路](https://www.share.kurohicncr.top/Article/details/556511324504.shtml)
-- 2026-06-29 18:11 - [未成年少女长期吸毒导致卧床不起](http://www.share.kurohicncr.top/Article/details/396946648643.shtml)
-- 2026-06-29 18:35 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/442498308457.shtml)
-- 2026-06-29 18:33 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/55471118080.shtml)
-- 2026-06-29 18:23 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/24496.shtml)
-- 2026-06-29 18:10 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/68276058397.shtml)
-- 2026-06-29 18:34 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/15795581.shtml)
-- 2026-06-29 18:10 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/47494549.shtml)
-- 2026-06-29 18:29 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/79980031.shtml)
+- 2026-06-29 18:32 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.minike.top/Article/details/845605.shtml)
+- 2026-06-29 18:32 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/8600647696.shtml)
+- 2026-06-29 18:30 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/08814111.shtml)
+- 2026-06-29 18:12 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/27096874039.shtml)
+- 2026-06-29 18:41 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/44740.shtml)
+- 2026-06-29 18:30 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/8362532.shtml)
+- 2026-06-29 18:29 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/2398922.shtml)
+- 2026-06-29 18:28 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/340721891.shtml)
+- 2026-06-29 18:14 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/263269.shtml)
+- 2026-06-29 18:17 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/6017890130.shtml)
+- 2026-06-29 18:17 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/22573253019.shtml)
+- 2026-06-29 18:25 - [世界杯1/16决赛对阵出炉](http://www.share.minike.top/Article/details/90408873.shtml)
+- 2026-06-29 18:13 - [医药生物行业今日涨5.91%](https://www.share.minike.top/Article/details/08553947.shtml)
+- 2026-06-29 18:35 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/696649135381.shtml)
+- 2026-06-29 18:31 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/436628.shtml)

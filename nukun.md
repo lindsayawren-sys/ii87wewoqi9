@@ -1,60 +1,58 @@
-# 2026抹茶大会在贵州铜仁启幕
+# Bitmine披露持有521万枚ETH，加密货币及现金总资产达134亿美元
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网贵州江口5月31日电 (曾琪男)以“一抹相承，聚势拓新；梵净抹茶，香溢天下”为主题的2026抹茶大会31日在贵州省铜仁市江口县启幕，吸引了海内外行业专家、政企代表及业界精英，共话抹茶产业创新升级，共谋全球市场拓展。 贵州省人民政府副省长郭成林出席并宣布大会开幕。中国茶叶流通协会会长、全国茶叶标准化技术委员会主任委员王庆，贵州省人大常委会原党组书记、副主任、省茶叶协会会长慕
+Bitmine Immersion Technologies周一宣布，截至5月10日，公司持有的加密货币、现金及相关资产总额达134亿美元，其中包括521万枚以太坊，按每枚2，366美元计算，持仓市值约130亿美元。 公告显示，Bitmine的ETH持仓占以太坊总供应量的约4.31%，使其成为全球最大的以太坊国库公司。此外，公司还持有201枚比特币，价值2亿美元的自有股及Bea
 
 ## 正文
 
-中新网贵州江口5月31日电 (曾琪男)以“一抹相承，聚势拓新；梵净抹茶，香溢天下”为主题的2026抹茶大会31日在贵州省铜仁市江口县启幕，吸引了海内外行业专家、政企代表及业界精英，共话抹茶产业创新升级，共谋全球市场拓展。
+Bitmine Immersion Technologies周一宣布，截至5月10日，公司持有的加密货币、现金及相关资产总额达134亿美元，其中包括521万枚以太坊，按每枚2，366美元计算，持仓市值约130亿美元。
 
-贵州省人民政府副省长郭成林出席并宣布大会开幕。
+公告显示，Bitmine的ETH持仓占以太坊总供应量的约4.31%，使其成为全球最大的以太坊国库公司。
 
-中国茶叶流通协会会长、全国茶叶标准化技术委员会主任委员王庆，贵州省人大常委会原党组书记、副主任、省茶叶协会会长慕德贵，铜仁市委书记李作勋等出席开幕式并致辞。
+此外，公司还持有201枚比特币，价值2亿美元的自有股及Beast Industries股份，8，800万美元Eightco Holdings股份，以及7.75亿美元现金。
 
-王庆在致辞中说，当前抹茶产业正处于转型升级关键期、品牌跃升黄金期、对外开放机遇期，希望全行业以本次大会为契机，深化交流、凝聚共识、协同发力，推动抹茶产业从规模扩张向质量提升、品牌增值、效益增收全面转型，加速实现从抹茶大国向抹茶强国的跨越。
+Bitmine董事长、知名市场策略师Tom Lee表示，自2026年初以来，公司已累计购入逾100万枚ETH，目前已完成“5%持仓目标”的86%。
 
-慕德贵在致辞中表示，要发挥好“四大比较优势”的支撑作用，在新一轮茶产业结构调整优化的道路上，以抹茶产业为突破口，大力推动茶产业新质生产力发展，立足“中国抹茶之都”的战略地位，以建设“中国抹茶第一大省”为目标，努力打造“贵州标准、贵州特色、贵州气度”的抹茶风味，从而引领形成代表“中国品味、中国品质、中国叙事”的抹茶风格。
+他同时宣布将放缓周度买入节奏。
 
-李作勋在致辞中介绍，铜仁市将秉持高质量发展的理念，在现有的基础上进一步发挥好生态这个最大比较优势，力争在“十五五”时期培育4000个经营主体，打造20万亩核心基地，建成300条碾茶生产线，年产1万吨抹茶，融入1万个消费场景，综合产值超100亿元。
+此前每周购入逾10万枚，将使公司在7月中旬就触及5%门槛，而目前目标调整为2026年底达成。
 
-开幕式上，《2026中国抹茶产业发展报告》正式发布。
+值得一提的是，Bitmine已将其中的471万枚ETH进行质押，年化质押收益约3.19亿美元。
 
-报告显示，过去5年中国抹茶产业进入“量质齐升”新阶段，产量复合年均增长率达28.67%，企业数量、产业链配套、出口规模全面爆发。
+公司近期还推出了机构级质押平台MAVAN。
 
 ## 相关推荐
 
-- 2026-06-29 18:32 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 18:26 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 18:26 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-29 18:09 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 18:24 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 18:06 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 18:31 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 18:19 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 18:12 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 18:29 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 18:15 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 18:23 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 18:16 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 18:28 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 18:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 18:25 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 18:40 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 18:27 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 18:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 18:16 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 18:37 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 18:14 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 18:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 18:24 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 18:33 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 18:20 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:34 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/12335741154.shtml)
-- 2026-06-29 18:15 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/3354627871.shtml)
-- 2026-06-29 18:34 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/964588516222.shtml)
-- 2026-06-29 18:30 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/94290666.shtml)
-- 2026-06-29 18:12 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/42715315.shtml)
-- 2026-06-29 18:28 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/21201699.shtml)
-- 2026-06-29 18:34 - [四川地震前夕 街头电线上站满燕子](http://www.share.minike.top/Article/details/121819642.shtml)
-- 2026-06-29 18:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/62248483.shtml)
-- 2026-06-29 18:34 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/5856392.shtml)
-- 2026-06-29 18:23 - [张杰我九岁就跟你了](http://www.blog.minike.top/Article/details/672944.shtml)
-- 2026-06-29 18:20 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/75045698.shtml)
-- 2026-06-29 18:12 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/221320667468.shtml)
-- 2026-06-29 18:33 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/53934477.shtml)
-- 2026-06-29 18:19 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/09974.shtml)
-- 2026-06-29 18:34 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.kurohicncr.top/Article/details/20543103.shtml)
+- 2026-06-29 18:18 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/3150704.shtml)
+- 2026-06-29 18:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/44844319409.shtml)
+- 2026-06-29 18:35 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/2213128307.shtml)
+- 2026-06-29 18:23 - [95后小伙突然确诊癌症 医生提醒](https://www.share.kurohicncr.top/Article/details/423754972.shtml)
+- 2026-06-29 18:25 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/71198059073.shtml)
+- 2026-06-29 18:17 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/509074.shtml)
+- 2026-06-29 18:42 - [周生如故](https://www.share.minike.top/Article/details/794896816195.shtml)
+- 2026-06-29 18:15 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/848545.shtml)
+- 2026-06-29 18:35 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/238196649040.shtml)
+- 2026-06-29 18:30 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/3040932884.shtml)
+- 2026-06-29 18:14 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/1627494955.shtml)
+- 2026-06-29 18:15 - [恋与深空客服的回应](http://www.blog.minike.top/Article/details/266575879.shtml)
+- 2026-06-29 18:32 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/31395.shtml)
+- 2026-06-29 18:31 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/958437.shtml)
+- 2026-06-29 18:38 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/61898959.shtml)

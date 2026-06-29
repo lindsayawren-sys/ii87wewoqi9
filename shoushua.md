@@ -1,61 +1,61 @@
-# 西藏26位僧人角逐藏传佛教“博士衔”招生考试
+# CPI保持温和回升、PPI涨幅扩大——透视4月份物价数据
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新社拉萨5月30日电 (记者 江飞波)2026年中国藏语系高级佛学院高级学衔班招生考试，西藏自治区考点于5月28日至31日在西藏佛学院开考，来自西藏各寺院的26名格鲁派、噶举派考僧报名参考。 中国藏语系高级佛学院是中国佛教协会主办的藏传佛教现代教育最高学府，是具有“拓然巴”高级学衔(博士衔)培养授予资格的全日制高等院校。2004年藏传佛教新的学衔制度建立实施以来，学院共授予“
+新华社北京5月11日电 题：CPI保持温和回升、PPI涨幅扩大——透视4月份物价数据 新华社记者黄垚、王雨萧 国家统计局11日发布数据显示，4月份，全国居民消费价格指数(CPI)同比上涨1.2%，扣除食品和能源价格的核心CPI同比上涨1.2%。工业生产者出厂价格指数(PPI)同比上涨2.8%，涨幅比上月有所扩大。 4月份，CPI同比保持温和回升，涨幅比上月扩大0.2个百分点。具
 
 ## 正文
 
-中新社拉萨5月30日电 (记者 江飞波)2026年中国藏语系高级佛学院高级学衔班招生考试，西藏自治区考点于5月28日至31日在西藏佛学院开考，来自西藏各寺院的26名格鲁派、噶举派考僧报名参考。
+新华社北京5月11日电 题：CPI保持温和回升、PPI涨幅扩大——透视4月份物价数据 新华社记者黄垚、王雨萧 国家统计局11日发布数据显示，4月份，全国居民消费价格指数(CPI)同比上涨1.2%，扣除食品和能源价格的核心CPI同比上涨1.2%。
 
-中国藏语系高级佛学院是中国佛教协会主办的藏传佛教现代教育最高学府，是具有“拓然巴”高级学衔(博士衔)培养授予资格的全日制高等院校。
+工业生产者出厂价格指数(PPI)同比上涨2.8%，涨幅比上月有所扩大。
 
-2004年藏传佛教新的学衔制度建立实施以来，学院共授予“拓然巴”高级学衔433人，“智然巴”中级学衔150人。
+4月份，CPI同比保持温和回升，涨幅比上月扩大0.2个百分点。
 
-本届高级学衔班计划面向西藏、四川、云南、甘肃、青海招录学员39名，覆盖格鲁派、噶举派、觉囊派等教派。
+具体来看，非食品价格同比上涨1.8%，消费品价格上涨1.4%，服务价格上涨0.9%。
 
-拉萨市曲水县热堆寺格鲁派僧人益西旦增已学修佛法21年，严格遵循显密次第完成《五部大论》与密宗仪轨修习。
+国家统计局城市司首席统计师董莉娟说，工业消费品价格同比上涨3.5%，涨幅比上月扩大1.3个百分点。
 
-2024年，他在藏传佛教格西拉让巴立宗答辩中获得第六名。
+受国际大宗商品价格波动影响，国内汽油和黄金饰品价格变动较大，其中汽油价格涨幅扩大至19.3%，黄金饰品价格涨幅回落至46.9%。
 
-谈及本次报考初衷，益西旦增说：“学无止境，这次报考，是想继续学习、深造。
+从环比看，CPI由上月下降0.7%转为上涨0.3%，高于季节性水平0.4个百分点。
 
-” 首日上午是通识知识考试，内容涵盖时事政治与《中华人民共和国宪法》等内容。
+“受国际原油价格波动影响，国内能源价格环比上涨5.7%，其中汽油价格上涨12.6%。
 
 ## 相关推荐
 
-- 2026-06-29 18:14 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 18:28 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 18:07 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 18:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 18:32 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 18:34 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 18:17 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 18:31 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 18:11 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 18:25 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 18:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 18:13 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 18:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 18:07 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 18:12 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 18:26 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 18:38 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 18:28 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-29 18:18 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 18:20 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 18:36 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 18:17 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 18:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 18:35 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 18:22 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 18:15 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 18:13 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 18:25 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 18:27 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 18:20 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:17 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/44626713.shtml)
-- 2026-06-29 18:15 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/577219.shtml)
-- 2026-06-29 18:25 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/499058960.shtml)
-- 2026-06-29 18:07 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/16201092254.shtml)
-- 2026-06-29 18:10 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/89462.shtml)
-- 2026-06-29 18:09 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.minike.top/Article/details/709438415055.shtml)
-- 2026-06-29 18:25 - [叠纸](https://www.blog.minike.top/Article/details/103552424764.shtml)
-- 2026-06-29 18:10 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/9288973.shtml)
-- 2026-06-29 18:23 - [学者：建设性战略稳定重塑中美关系](http://www.share.kurohicncr.top/Article/details/734059270345.shtml)
-- 2026-06-29 18:33 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/1925821692.shtml)
-- 2026-06-29 18:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/121169.shtml)
-- 2026-06-29 18:27 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/92296489.shtml)
-- 2026-06-29 18:07 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/159284026427.shtml)
-- 2026-06-29 18:27 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/78200120.shtml)
-- 2026-06-29 18:25 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/6180263.shtml)
+- 2026-06-29 18:27 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/86723801.shtml)
+- 2026-06-29 18:28 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/605498279.shtml)
+- 2026-06-29 18:29 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/81713796040.shtml)
+- 2026-06-29 18:12 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/16333.shtml)
+- 2026-06-29 18:27 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/924817191990.shtml)
+- 2026-06-29 18:37 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/16037.shtml)
+- 2026-06-29 18:28 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/425456857.shtml)
+- 2026-06-29 18:12 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/89417454410.shtml)
+- 2026-06-29 18:41 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/73958.shtml)
+- 2026-06-29 18:17 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/2515963.shtml)
+- 2026-06-29 18:27 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/64082230.shtml)
+- 2026-06-29 18:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/64494075978.shtml)
+- 2026-06-29 18:21 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/40556648.shtml)
+- 2026-06-29 18:16 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.minike.top/Article/details/03846699.shtml)
+- 2026-06-29 18:24 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/632068216571.shtml)

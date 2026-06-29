@@ -1,60 +1,58 @@
-# 美联储官员发声：断言加息为时过早，但需保留所有政策选项
+# 日本推进设立“国家情报局” 妄图给军国主义阴魂再造“血肉”
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-文章来源：金十数据 在周五的一场活动上，明尼阿波利斯联储主席卡什卡利就美国货币政策前景作出表态。他指出，目前尚不足以判断需要立即上调利率，但强调政策路径仍需保持灵活。 卡什卡利在发言中表示：“我认为，现在就断言我们需要立即加息还为时过早。在做出任何政策调整之前，我们需要继续观察数据，并关注中东冲突的后续发展。”他认为，地缘政治因素正在对经济判断产生影响，因此决策仍需谨慎推进。
+资讯很有料｜日本推进设立“国家情报局” 妄图给军国主义阴魂再造“血肉” 长期以来，日本并未认真反省二战侵略罪行，反而借助靖国神社供奉的二战战犯牌位和被篡改的历史教科书，为军国主义阴魂提供庇护。高市早苗内阁上台以来，日本军国主义似有加速复活之势。 近期，日本政府正加快推进“国家情报局”相关法案的审议，这凸显出高市内阁妄图为军国主义阴魂重塑“血肉”。一旦“新型军国主义”成势，恐将再
 
 ## 正文
 
-文章来源：金十数据 在周五的一场活动上，明尼阿波利斯联储主席卡什卡利就美国货币政策前景作出表态。
+资讯很有料｜日本推进设立“国家情报局” 妄图给军国主义阴魂再造“血肉” 长期以来，日本并未认真反省二战侵略罪行，反而借助靖国神社供奉的二战战犯牌位和被篡改的历史教科书，为军国主义阴魂提供庇护。
 
-他指出，目前尚不足以判断需要立即上调利率，但强调政策路径仍需保持灵活。
+高市早苗内阁上台以来，日本军国主义似有加速复活之势。
 
-卡什卡利在发言中表示：“我认为，现在就断言我们需要立即加息还为时过早。
+近期，日本政府正加快推进“国家情报局”相关法案的审议，这凸显出高市内阁妄图为军国主义阴魂重塑“血肉”。
 
-在做出任何政策调整之前，我们需要继续观察数据，并关注中东冲突的后续发展。
+一旦“新型军国主义”成势，恐将再次为祸人间。
 
-”他认为，地缘政治因素正在对经济判断产生影响，因此决策仍需谨慎推进。
+日本推动情报体系重构 军国主义阴魂再次“睁眼”5月8日，高市早苗内阁推动的设立“国家情报局”相关法案在日本参议院全体会议进入审议阶段。
 
-围绕利率路径的分歧，在美联储4月份议息会议中已有体现。
+该法案已于4月23日在众议院全体会议上通过。
 
-尽管会议最终决定维持利率不变，卡什卡利支持这一结果，但他与另外两位政策制定者对声明中暗示未来可能降息的表述持反对意见。
+由于支持法案的各党派在参议院也拥有过半数席位，其很可能在本届国会内完成立法程序。
 
-这三人更倾向于采用中性措辞，以明确保留包括加息在内的多种政策可能性。
+根据日本《读卖新闻》7日的报道，政府消息人士透露，高市内阁最早将在今年夏天成立约700人规模的“国家情报局”，并在此之后扩大编制。
 
 ## 相关推荐
 
-- 2026-06-29 18:30 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 18:09 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 18:33 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 18:23 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 18:28 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 18:08 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-29 18:14 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 18:27 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 18:23 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 18:21 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 18:19 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 18:10 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 18:09 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 18:09 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 18:31 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 18:25 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 18:40 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 18:33 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 18:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 18:40 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 18:28 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 18:34 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 18:24 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 18:33 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 18:20 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 18:19 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:18 - [歼-15型舰载机为何被歼-15T替代](http://www.share.kurohicncr.top/Article/details/23789325781.shtml)
-- 2026-06-29 18:20 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/750293.shtml)
-- 2026-06-29 18:18 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/80621.shtml)
-- 2026-06-29 18:11 - [赵今麦时隔五年再演李诗情](https://www.share.minike.top/Article/details/09340934.shtml)
-- 2026-06-29 18:14 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/95623770196.shtml)
-- 2026-06-29 18:20 - [勇敢的心第二部](http://www.share.minike.top/Article/details/72743.shtml)
-- 2026-06-29 18:06 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/52555028.shtml)
-- 2026-06-29 18:36 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/742350897803.shtml)
-- 2026-06-29 18:35 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/19175.shtml)
-- 2026-06-29 18:27 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/823134531.shtml)
-- 2026-06-29 18:12 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/694379064894.shtml)
-- 2026-06-29 18:19 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/9660603.shtml)
-- 2026-06-29 18:17 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/121277767919.shtml)
-- 2026-06-29 18:25 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/39973.shtml)
-- 2026-06-29 18:34 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/529895682.shtml)
+- 2026-06-29 18:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/9741646161.shtml)
+- 2026-06-29 18:41 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/53985.shtml)
+- 2026-06-29 18:18 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/9502685503.shtml)
+- 2026-06-29 18:31 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/0607471.shtml)
+- 2026-06-29 18:20 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/4138432827.shtml)
+- 2026-06-29 18:19 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/8370688.shtml)
+- 2026-06-29 18:30 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/26409509100.shtml)
+- 2026-06-29 18:34 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/970171323062.shtml)
+- 2026-06-29 18:32 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/414006929.shtml)
+- 2026-06-29 18:21 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.blog.minike.top/Article/details/7079065088.shtml)
+- 2026-06-29 18:19 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/392619930924.shtml)
+- 2026-06-29 18:19 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/8454743.shtml)
+- 2026-06-29 18:30 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/552848296.shtml)
+- 2026-06-29 18:19 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/919320781042.shtml)
+- 2026-06-29 18:15 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/5591460.shtml)

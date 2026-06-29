@@ -1,56 +1,56 @@
-# 港交所集团行政总裁陈翊庭：A+H股两地上市形成了显著的良性互动效应
+# 他信出狱，女儿佩通坦拥抱迎接 泰国政坛进入“洗牌”时刻？
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 5月28日-29日，深交所2026全球投资者大会在深圳举办。大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，香港交易所集团行政总裁陈翊庭出席并致辞。 陈翊庭称，港交所与深交所近年来推出多项改革，携手服务中国实体经济。从企业融资路径来看，由于投资者结构存在差异，港交所与内地交易
+中新网5月11日电 (甘甜)当地时间11日上午(以下均为当地时间)，泰国前总理他信·西那瓦获假释，从曼谷空炳中央监狱出狱。 7时40分左右，76岁的他信身穿简单白衬衫，走出监狱大门，与他的女儿、前总理佩通坦等家人紧紧相拥。 数百名支持者和政治盟友，早早在监狱外等候。在他信获释时，他们高呼“我们爱他信”。他信和家人对在场“红衫军”的支持表示感谢，并向泰国国旗致敬。 7时56分左右
 
 ## 正文
 
-专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 5月28日-29日，深交所2026全球投资者大会在深圳举办。
+中新网5月11日电 (甘甜)当地时间11日上午(以下均为当地时间)，泰国前总理他信·西那瓦获假释，从曼谷空炳中央监狱出狱。
 
-大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，香港交易所集团行政总裁陈翊庭出席并致辞。
+7时40分左右，76岁的他信身穿简单白衬衫，走出监狱大门，与他的女儿、前总理佩通坦等家人紧紧相拥。
 
-陈翊庭称，港交所与深交所近年来推出多项改革，携手服务中国实体经济。
+数百名支持者和政治盟友，早早在监狱外等候。
 
-从企业融资路径来看，由于投资者结构存在差异，港交所与内地交易所具备极强互补性，A+H 股两地上市形成了显著的良性互动效应。
+在他信获释时，他们高呼“我们爱他信”。
 
-例如，部分新经济企业初创阶段先登陆港交所，发展成熟后回归 A 股，即 “先 H 后 A”；也有不少 A 股龙头企业，为开拓国际市场选择在香港二次上市，也就是 “先 A 后 H”。
+他信和家人对在场“红衫军”的支持表示感谢，并向泰国国旗致敬。
 
-无论哪种模式，大多能形成双向利好，带动两地股票成交量与股价同步提升。
+7时56分左右，他信乘车离开监狱。
 
-近期多家内地企业完成 H 股上市，也起到了良好的示范作用，企业登陆 H 股后，A 股的成交量与股价同步走高。
+前路等待他的，或许是一个“变数丛生”的泰国政坛。
 
-责任编辑：尉旖涵
+两度出任总理 5月11日，泰国餐厅厨师柴德杰特意请了一天假，赶到曼谷空炳中央监狱外迎接他信。
 
 ## 相关推荐
 
-- 2026-06-29 18:12 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 18:11 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 18:13 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 18:15 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 18:21 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 18:10 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 18:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 18:33 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 18:28 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 18:08 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 18:40 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 18:30 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 18:27 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 18:20 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 18:39 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 18:17 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 18:25 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 18:15 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 18:26 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 18:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:32 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/392729036492.shtml)
-- 2026-06-29 18:34 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/2787970.shtml)
-- 2026-06-29 18:23 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/653430.shtml)
-- 2026-06-29 18:33 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/55937827.shtml)
-- 2026-06-29 18:30 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/35695191.shtml)
-- 2026-06-29 18:08 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.minike.top/Article/details/87052.shtml)
-- 2026-06-29 18:35 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.kurohicncr.top/Article/details/75716.shtml)
-- 2026-06-29 18:14 - [天道](https://www.blog.kurohicncr.top/Article/details/5452174861.shtml)
-- 2026-06-29 18:27 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/66470.shtml)
-- 2026-06-29 18:30 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/6937257941.shtml)
-- 2026-06-29 18:16 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/34333.shtml)
-- 2026-06-29 18:31 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/650923.shtml)
-- 2026-06-29 18:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/902270360135.shtml)
-- 2026-06-29 18:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/161561.shtml)
-- 2026-06-29 18:26 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/235332141692.shtml)
+- 2026-06-29 18:37 - [赵今麦时隔五年再演李诗情](http://www.share.kurohicncr.top/Article/details/1923845207.shtml)
+- 2026-06-29 18:25 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/34357349817.shtml)
+- 2026-06-29 18:18 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/1585584139.shtml)
+- 2026-06-29 18:29 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/400481995.shtml)
+- 2026-06-29 18:20 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/284708506.shtml)
+- 2026-06-29 18:30 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/879208522742.shtml)
+- 2026-06-29 18:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/53461.shtml)
+- 2026-06-29 18:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/6362122.shtml)
+- 2026-06-29 18:34 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/0049048964.shtml)
+- 2026-06-29 18:22 - [机器人学校开学了](https://www.blog.kurohicncr.top/Article/details/620410815.shtml)
+- 2026-06-29 18:39 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/865765.shtml)
+- 2026-06-29 18:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/275702.shtml)
+- 2026-06-29 18:13 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/2916009.shtml)
+- 2026-06-29 18:30 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/4949185641.shtml)
+- 2026-06-29 18:17 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/656480.shtml)

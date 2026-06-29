@@ -1,60 +1,58 @@
-# 如何解决群众身边突出的环境问题？生态环境部回应
+# 视频|人口大洗牌，这些省份实现正增长
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网北京5月29日电 (记者 阮煜琳)“当前我国生态环境质量改善的基础还不稳固，群众身边还有不少突出的环境问题。”生态环境部新闻发言人裴晓菲29日在北京举行的新闻发布会上表示，比如近年来媒体曝光的部分支流和小微水体污染、垃圾随意倾倒等问题，引发了社会广泛关注。对这些问题，我们要客观看、理性看，既不能用成绩掩盖问题，更不能因为局部问题而否定整体成绩。近年来，我国生态环境保护工作
+记者|柳宁馨 编辑|李博 设计|林军明 我国人口出现大变局，人口正在往哪里流动？ 日前，31个省份常住人口数据公布，2025年，我国有7个省份实现了人口正增长，广东和浙江成了全国人口增长的第一、第二名，分别增长79万人、31万人，随后是新疆、海南、上海、西藏、宁夏，分别增长16.2万人、7万人、5.15万人、4万人、3万人。 人口版图上，广东最引人注目。去年全国共出生792万新
 
 ## 正文
 
-中新网北京5月29日电 (记者 阮煜琳)“当前我国生态环境质量改善的基础还不稳固，群众身边还有不少突出的环境问题。
+记者|柳宁馨 编辑|李博 设计|林军明 我国人口出现大变局，人口正在往哪里流动？
 
-”生态环境部新闻发言人裴晓菲29日在北京举行的新闻发布会上表示，比如近年来媒体曝光的部分支流和小微水体污染、垃圾随意倾倒等问题，引发了社会广泛关注。
+日前，31个省份常住人口数据公布，2025年，我国有7个省份实现了人口正增长，广东和浙江成了全国人口增长的第一、第二名，分别增长79万人、31万人，随后是新疆、海南、上海、西藏、宁夏，分别增长16.2万人、7万人、5.15万人、4万人、3万人。
 
-对这些问题，我们要客观看、理性看，既不能用成绩掩盖问题，更不能因为局部问题而否定整体成绩。
+人口版图上，广东最引人注目。
 
-近年来，我国生态环境保护工作成效显著，也得到了人民群众的广泛认可。
+去年全国共出生792万新生儿，其中广东一省就贡献了100.3万人。
 
-根据国家统计局调查，人民群众对生态环境的满意度，已经连续5年超过了90%。
+这意味着，全国大约每8个新生儿中，就有1个在广东出生，广东连续多年稳坐“第一生育大省”的宝座。
 
-裴晓菲说，那些发生在群众家门口的污染，不仅影响到人民群众的身心健康和生活质量，也影响美丽中国建设的成效。
+然而，广东的人口增长密码远不止“能生”。
 
-生态环境部对此高度重视，这些年来，我们主动作为，采取了一系列措施，推动解决群众身边的小微水体污染等问题。
+去年79万的常住人口净增量中，广东自然增长贡献了29万人，由省外净流入带来的机械增长则高达50万人。
 
-据介绍，针对非法倾倒垃圾等问题，去年6月，生态环境部启动了全国非法倾倒处置固体废物专项整治行动。
+这一“自然增长+机械增长”的双轮驱动模式，推动广东人口数量持续走高。
 
 ## 相关推荐
 
-- 2026-06-29 18:23 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 18:09 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 18:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 18:17 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 18:09 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 18:06 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 18:33 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 18:11 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 18:17 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 18:16 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 18:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 18:20 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 18:11 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 18:28 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 18:24 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 18:35 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 18:20 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 18:23 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 18:28 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 18:38 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 18:32 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 18:19 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 18:13 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 18:38 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 18:17 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 18:37 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:27 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/36292.shtml)
-- 2026-06-29 18:20 - [花万元相亲对象是50元雇的演员](https://www.share.minike.top/Article/details/54811995.shtml)
-- 2026-06-29 18:14 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/3124858.shtml)
-- 2026-06-29 18:27 - [娜扎搂着我的腰和我合照](http://www.blog.minike.top/Article/details/05891580.shtml)
-- 2026-06-29 18:22 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.kurohicncr.top/Article/details/4741418.shtml)
-- 2026-06-29 18:15 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/24545205.shtml)
-- 2026-06-29 18:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/19618658299.shtml)
-- 2026-06-29 18:21 - [普京建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/65411.shtml)
-- 2026-06-29 18:35 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.minike.top/Article/details/99320781672.shtml)
-- 2026-06-29 18:07 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/5695768172.shtml)
-- 2026-06-29 18:13 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/492614.shtml)
-- 2026-06-29 18:25 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/01146.shtml)
-- 2026-06-29 18:30 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/12876278075.shtml)
-- 2026-06-29 18:16 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/47377781688.shtml)
-- 2026-06-29 18:30 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/2984128007.shtml)
+- 2026-06-29 18:14 - [王楚钦开门红](http://www.share.minike.top/Article/details/98612095.shtml)
+- 2026-06-29 18:28 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/55194.shtml)
+- 2026-06-29 18:37 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/49471.shtml)
+- 2026-06-29 18:33 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/535901.shtml)
+- 2026-06-29 18:20 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/57797.shtml)
+- 2026-06-29 18:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/50404.shtml)
+- 2026-06-29 18:18 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/72329504709.shtml)
+- 2026-06-29 18:25 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/6252400.shtml)
+- 2026-06-29 18:13 - [和周杰伦在演唱会合唱了](http://www.share.minike.top/Article/details/5499186947.shtml)
+- 2026-06-29 18:28 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/739676.shtml)
+- 2026-06-29 18:24 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/0341447446.shtml)
+- 2026-06-29 18:31 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/6424893.shtml)
+- 2026-06-29 18:39 - [TFING全员黑西装](http://www.share.minike.top/Article/details/490230442276.shtml)
+- 2026-06-29 18:22 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/7352297844.shtml)
+- 2026-06-29 18:36 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/5007782224.shtml)

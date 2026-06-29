@@ -1,59 +1,51 @@
-# 李强对安全生产工作作出重要批示强调 坚决贯彻落实习近平总书记关于安全生产的重要指示精神 切实维护人民群众生命财产安全和社会大局稳定
+# 神舟二十三号载人飞行任务标识发布
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-新华社北京5月30日电 全国安全生产视频会议5月30日在京召开。中共中央政治局常委、国务院总理李强日前对做好安全生产工作作出重要批示。批示指出：今年以来，部分地方和行业领域安全事故多发频发，给人民群众生命财产造成重大损失，教训极为深刻。各地区各部门要坚决贯彻落实习近平总书记关于安全生产的重要指示精神，按照党中央决策部署，坚持人民至上、生命至上，纵深推进安全生产治本攻坚三年行动，
+中国载人航天工程办公室正式发布神舟二十三号载人飞行任务标识。 设计理念 标识采用圆形设计，展现了神舟二十三号载人飞船即将与中国空间站对接的场景，彰显了中国载人航天的硬核科技实力。 标识中三颗五角星对应执行任务的三位航天员；左侧以长征二号F运载火箭发射为视觉主体，搭配金色祥云、如意纹样，将传统吉祥元素与现代航天科技相融，寄托任务圆满成功的美好祝愿，彰显传统文化与航天事业的深度融合
 
 ## 正文
 
-新华社北京5月30日电 全国安全生产视频会议5月30日在京召开。
+中国载人航天工程办公室正式发布神舟二十三号载人飞行任务标识。
 
-中共中央政治局常委、国务院总理李强日前对做好安全生产工作作出重要批示。
+设计理念 标识采用圆形设计，展现了神舟二十三号载人飞船即将与中国空间站对接的场景，彰显了中国载人航天的硬核科技实力。
 
-批示指出：今年以来，部分地方和行业领域安全事故多发频发，给人民群众生命财产造成重大损失，教训极为深刻。
+标识中三颗五角星对应执行任务的三位航天员；左侧以长征二号F运载火箭发射为视觉主体，搭配金色祥云、如意纹样，将传统吉祥元素与现代航天科技相融，寄托任务圆满成功的美好祝愿，彰显传统文化与航天事业的深度融合；右侧融合“飞天”形象与灵动飘带，线条昂扬向上，与圆形轮廓相得益彰，以经典文化符号承载中华民族千年飞天梦想与探索苍穹的坚定信念。
 
-各地区各部门要坚决贯彻落实习近平总书记关于安全生产的重要指示精神，按照党中央决策部署，坚持人民至上、生命至上，纵深推进安全生产治本攻坚三年行动，提升风险隐患排查质效，严肃查处安全生产非法违法和弄虚作假等行为，有力发挥震慑遏制效果。
+标识色彩以科技蓝为主色调，象征着太空探索与科技突破；以中国红点缀，既传承神舟系列标识视觉基因，也寓意着任务顺利、一往无前。
 
-要始终把弦绷紧，坚持防微杜渐，加强矿山、烟花爆竹、交通运输、工程施工等重点行业领域全链条、穿透式安全监管和治理，下大力气解决安全生产领域深层次矛盾问题，压实责任、狠抓落实，坚决遏制重特大事故多发势头。
-
-当前正值汛期，防汛救灾形势严峻复杂，要坚决克服麻痹思想，加强监测预警、会商研判和应急准备，筑牢事故灾害防线，提高抢险救援能力，切实维护人民群众生命财产安全和社会大局稳定。
-
-中共中央政治局委员、国务院副总理张国清出席会议并讲话，中共中央书记处书记、国务委员王小洪主持会议。
-
-张国清强调，要深入学习贯彻习近平总书记重要指示批示精神，落实李强总理批示要求，针对近期重特大事故暴露出的突出问题，严肃警示各地深刻汲取教训，切实提升隐患排查整治质效，进一步从严从实狠抓安全生产工作。
+(总台央视记者 王刚）
 
 ## 相关推荐
 
-- 2026-06-29 18:16 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 18:13 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 18:07 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 18:12 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 18:12 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 18:29 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 18:26 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 18:32 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 18:17 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 18:26 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 18:28 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 18:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 18:17 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 18:19 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 18:26 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 18:18 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 18:38 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 18:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 18:20 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 18:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 18:40 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 18:36 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 18:15 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 18:38 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:30 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/53338.shtml)
-- 2026-06-29 18:17 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/625825.shtml)
-- 2026-06-29 18:14 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/0884451751.shtml)
-- 2026-06-29 18:25 - [第一炉香](https://www.blog.minike.top/Article/details/219391381021.shtml)
-- 2026-06-29 18:25 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/8817318832.shtml)
-- 2026-06-29 18:31 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/3837281655.shtml)
-- 2026-06-29 18:27 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/8732641794.shtml)
-- 2026-06-29 18:16 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/8593140238.shtml)
-- 2026-06-29 18:25 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/83239914521.shtml)
-- 2026-06-29 18:25 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.minike.top/Article/details/921534.shtml)
-- 2026-06-29 18:10 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/9986696609.shtml)
-- 2026-06-29 18:16 - [挪威王储妃长子2次强奸被判4年](https://www.blog.kurohicncr.top/Article/details/81021.shtml)
-- 2026-06-29 18:21 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/44117.shtml)
-- 2026-06-29 18:17 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/2683953014.shtml)
-- 2026-06-29 18:25 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.minike.top/Article/details/884839286.shtml)
+- 2026-06-29 18:40 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/79290.shtml)
+- 2026-06-29 18:18 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/662736686535.shtml)
+- 2026-06-29 18:31 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/376658213.shtml)
+- 2026-06-29 18:15 - [起风了](https://www.blog.kurohicncr.top/Article/details/973481374549.shtml)
+- 2026-06-29 18:15 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/386461436312.shtml)
+- 2026-06-29 18:40 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/62340778281.shtml)
+- 2026-06-29 18:14 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/41765778018.shtml)
+- 2026-06-29 18:22 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/19506914766.shtml)
+- 2026-06-29 18:40 - [断骨增高灰产拉一人提成1.5万元](https://www.share.minike.top/Article/details/08903422.shtml)
+- 2026-06-29 18:14 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/12226.shtml)
+- 2026-06-29 18:21 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/03758.shtml)
+- 2026-06-29 18:24 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/71923.shtml)
+- 2026-06-29 18:22 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/38119767949.shtml)
+- 2026-06-29 18:26 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/5502996.shtml)
+- 2026-06-29 18:32 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.minike.top/Article/details/44036311.shtml)

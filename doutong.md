@@ -1,54 +1,56 @@
-# 第165次中老缅泰湄公河联合巡逻执法行动圆满结束
+# 从游戏化文本看网文迭代升级
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-5月29日，执行中国、老挝、缅甸三国联合驻训任务的中方53105艇顺利返回云南西双版纳景哈警务码头，标志着第165次中老缅泰湄公河联合巡逻执法行动及系列执法合作交流活动圆满收官。 此次行动于5月18日正式启动，按照中国、老挝、缅甸、泰国四国有关执法部门达成的共识，以“同心协力守安宁、护航澜湄惠民生”为主题，分阶段开展全线联合巡逻执法、分段巡航、水陆联动查缉等四国联合巡逻执法行动
+游戏与文学一直关系密切。古代中国有“以文为用”“以文为哭”的传统，也有“以文为戏”的说法，韩愈为毛笔作传，写下《毛颖传》，这就是“以文为戏”。国外学者也常以游戏来隐喻文学，比如康德认为审美是想象力与知性的自由游戏，席勒认为艺术起源于游戏冲动，伽达默尔认为艺术的存在方式就是游戏等。在网络兴起后，电子游戏开始作为一种直接的文化资源，对互联网写作产生持续影响。如果要说有什么方面让网络
 
 ## 正文
 
-5月29日，执行中国、老挝、缅甸三国联合驻训任务的中方53105艇顺利返回云南西双版纳景哈警务码头，标志着第165次中老缅泰湄公河联合巡逻执法行动及系列执法合作交流活动圆满收官。
+游戏与文学一直关系密切。
 
-此次行动于5月18日正式启动，按照中国、老挝、缅甸、泰国四国有关执法部门达成的共识，以“同心协力守安宁、护航澜湄惠民生”为主题，分阶段开展全线联合巡逻执法、分段巡航、水陆联动查缉等四国联合巡逻执法行动和中老缅三国联合驻训行动。
+古代中国有“以文为用”“以文为哭”的传统，也有“以文为戏”的说法，韩愈为毛笔作传，写下《毛颖传》，这就是“以文为戏”。
 
-行动中，四国共派出执法队员142名、执法艇5艘，历时12天，总航程达1200余公里；中方顺利完成中老缅泰湄公河联合巡逻执法驻老挝孟莫、班相果联络点中方执勤分队轮换工作。
+国外学者也常以游戏来隐喻文学，比如康德认为审美是想象力与知性的自由游戏，席勒认为艺术起源于游戏冲动，伽达默尔认为艺术的存在方式就是游戏等。
 
-在为期7天的联合驻训行动中：中老缅三国联合开展航海、枪帆、轮机、现场执法等内容训练和经验交流28次，有效提升各国执法队员专业水平和联合执法实战能力； 以打击电信网络诈骗、涉枪涉爆、走私、偷渡等违法犯罪为重点，开展水上联合巡逻7次、水陆联合查缉4次，检查过往船只32艘、人员191人次，查验货物7600余吨，有力震慑湄公河流域各类违法犯罪。
+在网络兴起后，电子游戏开始作为一种直接的文化资源，对互联网写作产生持续影响。
 
-此次系列行动的成功开展，持续推动四国执法合作交流走深走实，有效维护湄公河航运安全畅通和沿岸百姓生命财产安全。
+如果要说有什么方面让网络文学与传统文学有根本性区别，电子游戏要素的渗入肯定是重要方面。
 
-(总台记者 陈政)
+一定程度上，游戏塑造了网文的面貌、写法与审美法则。
+
+这种情况在95后、00后成为网文写作主力军之后更加突出了。
+
+不仅如此，与这一代人的成长相对应的是，文学消费活动也充分游戏化了，在社交媒体兴起后，无所不在的梗文化席卷了整个文学活动，笔者认为在此基础上已经形成了“游生代”文学——以95后、00后为主，从小伴随游戏长大、热衷交互的作家们所带来的游戏化的文学。
 
 ## 相关推荐
 
-- 2026-06-29 18:24 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 18:22 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 18:28 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 18:35 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 18:16 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 18:32 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 18:34 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 18:20 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 18:22 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 18:21 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 18:19 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 18:26 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 18:28 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 18:12 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 18:30 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 18:34 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 18:24 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 18:19 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 18:34 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 18:41 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 18:24 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 18:34 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:07 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/153152648237.shtml)
-- 2026-06-29 18:21 - [V8](https://www.blog.minike.top/Article/details/30594.shtml)
-- 2026-06-29 18:07 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/2036854844.shtml)
-- 2026-06-29 18:12 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/348610717.shtml)
-- 2026-06-29 18:35 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/08956751.shtml)
-- 2026-06-29 18:14 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/08941482.shtml)
-- 2026-06-29 18:23 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/33104484.shtml)
-- 2026-06-29 18:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/428739.shtml)
-- 2026-06-29 18:35 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/399201.shtml)
-- 2026-06-29 18:13 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/932290.shtml)
-- 2026-06-29 18:35 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/93855703889.shtml)
-- 2026-06-29 18:35 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/426825942.shtml)
-- 2026-06-29 18:25 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/59993.shtml)
-- 2026-06-29 18:23 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/88822.shtml)
-- 2026-06-29 18:24 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/553191.shtml)
+- 2026-06-29 18:37 - [中国创新药股价要反攻了吗](http://www.share.minike.top/Article/details/876715589.shtml)
+- 2026-06-29 18:14 - [歼-15型舰载机为何被歼-15T替代](http://www.share.minike.top/Article/details/672844203.shtml)
+- 2026-06-29 18:38 - [王楚钦开门红](http://www.blog.minike.top/Article/details/0075491451.shtml)
+- 2026-06-29 18:28 - [谢依霖夸杨幂靠谱](https://www.share.minike.top/Article/details/1836045.shtml)
+- 2026-06-29 18:20 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/28173641033.shtml)
+- 2026-06-29 18:26 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/92356089385.shtml)
+- 2026-06-29 18:12 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/886404940.shtml)
+- 2026-06-29 18:22 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/15805120.shtml)
+- 2026-06-29 18:19 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/1017655.shtml)
+- 2026-06-29 18:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/7178881.shtml)
+- 2026-06-29 18:32 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/306148553764.shtml)
+- 2026-06-29 18:26 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/5305924768.shtml)
+- 2026-06-29 18:16 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/9597112.shtml)
+- 2026-06-29 18:39 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/34322563.shtml)
+- 2026-06-29 18:19 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/798156764.shtml)

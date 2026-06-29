@@ -1,61 +1,58 @@
-# 美联储官员保尔森：通胀方面并无结构性变化
+# 长江有色：资金多空博弈加剧铅价区间整理 11日铅价或小跌
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-费城联储银行行长保尔森表示，美国经济正面临一系列通胀冲击，她没有看到结构性变化的迹象。 “我没有看到通胀出现结构性变化。我看到的是一系列冲击以通胀的形式体现出来，”保尔森周五在一次活动上表示。 保尔森表示，全球经济正在偏离自由贸易和全球市场，不再像过去那样在成本最低的地方进行生产。 保尔森说：“世界已经不再将这种模式视为理想结果，这正在改变供应链。这改变了对生产过程产生冲击的因
+【ccmn.cn铅期货市场】隔周伦铅持平，开盘报1974美元/吨，高点报1979美元，低点报1958美元，尾盘收于1977.5美元，涨跌持平，成交量为6453手，持仓量报180225手。 长江铅业网（pb.ccmn.cn）今日现货铅价行情预估：在美元指数于 98附近高位震荡、多数工业金属普遍承压的大背景下，铅价区间窄幅震荡为主。这背后是两大核心力量的共振：一方面，中东地缘局势急
 
 ## 正文
 
-费城联储银行行长保尔森表示，美国经济正面临一系列通胀冲击，她没有看到结构性变化的迹象。
+【ccmn.cn铅期货市场】隔周伦铅持平，开盘报1974美元/吨，高点报1979美元，低点报1958美元，尾盘收于1977.5美元，涨跌持平，成交量为6453手，持仓量报180225手。
 
-“我没有看到通胀出现结构性变化。
+长江铅业网（pb.ccmn.cn）今日现货铅价行情预估：在美元指数于 98附近高位震荡、多数工业金属普遍承压的大背景下，铅价区间窄幅震荡为主。
 
-我看到的是一系列冲击以通胀的形式体现出来，”保尔森周五在一次活动上表示。
+这背后是两大核心力量的共振：一方面，中东地缘局势急剧升温，美伊谈判陷入僵局，霍尔木兹海峡航运风险陡增，避险资金纷纷流入兼具工业属性与避险属性的铅品种对冲风险；另一方面，国内稳增长政策持续发力，国常会部署六大基建建设，叠加前 4 月外贸数据大幅超预期，工业金属需求预期显著回暖，为铅价提供了坚实支撑。
 
-保尔森表示，全球经济正在偏离自由贸易和全球市场，不再像过去那样在成本最低的地方进行生产。
+铅供需现状：再生铅供应收缩成核心矛盾 供应端，国内再生铅企业集中进入检修期，开工率环比大幅下滑，废铅回收体系不畅进一步加剧原料短缺，市场现货供应明显收紧。
 
-保尔森说：“世界已经不再将这种模式视为理想结果，这正在改变供应链。
+同时铅精矿进口利润倒挂，港口到港量持续偏低，原料端对铅价形成强力支撑。
 
-这改变了对生产过程产生冲击的因素，而这些最终会体现在价格上”。
+需求端，五一假期后铅蓄电池企业全面复工复产，储能电池需求稳步增长，下游存在集中补库需求，现货交投氛围明显改善。
 
-保尔森今年就货币决策有投票权。
+产业链现状：成本支撑强劲 下游按需采购 当前铅产业链呈现 “上游紧、中游稳、下游旺” 的格局。
 
-政策制定者将于6月16日至17日举行会议。
+上游铅精矿加工费维持历史低位，冶炼企业利润空间被严重压缩，挺价意愿强烈。
 
 ## 相关推荐
 
-- 2026-06-29 18:30 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 18:34 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 18:18 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 18:26 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 18:29 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 18:13 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 18:10 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 18:30 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 18:35 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 18:13 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 18:27 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 18:30 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 18:29 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 18:14 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 18:34 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 18:30 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 18:24 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 18:24 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 18:27 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 18:12 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 18:40 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 18:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 18:37 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 18:34 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 18:24 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 18:12 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 18:12 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:10 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/582058.shtml)
-- 2026-06-29 18:10 - [歼-15型舰载机为何被歼-15T替代](http://www.blog.kurohicncr.top/Article/details/860667.shtml)
-- 2026-06-29 18:30 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/836378800.shtml)
-- 2026-06-29 18:08 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/7984119389.shtml)
-- 2026-06-29 18:15 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/14374.shtml)
-- 2026-06-29 18:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/61591627.shtml)
-- 2026-06-29 18:27 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/2228213973.shtml)
-- 2026-06-29 18:26 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/2837417605.shtml)
-- 2026-06-29 18:09 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/515954.shtml)
-- 2026-06-29 18:22 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/56589.shtml)
-- 2026-06-29 18:26 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/4903177385.shtml)
-- 2026-06-29 18:15 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/46433934964.shtml)
-- 2026-06-29 18:20 - [运-20网宣片中的“小六”或是六代机](https://www.blog.minike.top/Article/details/012048322.shtml)
-- 2026-06-29 18:33 - [天道](https://www.share.kurohicncr.top/Article/details/756211.shtml)
-- 2026-06-29 18:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/6552882009.shtml)
+- 2026-06-29 18:36 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/46391.shtml)
+- 2026-06-29 18:16 - [官媒首曝六代机？大V解读](https://www.blog.minike.top/Article/details/1207245427.shtml)
+- 2026-06-29 18:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/32061418.shtml)
+- 2026-06-29 18:14 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/7988891.shtml)
+- 2026-06-29 18:20 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/5875234.shtml)
+- 2026-06-29 18:33 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/75157.shtml)
+- 2026-06-29 18:14 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/507846737.shtml)
+- 2026-06-29 18:31 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/067670458.shtml)
+- 2026-06-29 18:14 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/693610433468.shtml)
+- 2026-06-29 18:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/339946.shtml)
+- 2026-06-29 18:33 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/47397862.shtml)
+- 2026-06-29 18:12 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/324136.shtml)
+- 2026-06-29 18:14 - [T1零封KC MSI](http://www.share.minike.top/Article/details/317663.shtml)
+- 2026-06-29 18:23 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/4281803876.shtml)
+- 2026-06-29 18:23 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/348902728219.shtml)

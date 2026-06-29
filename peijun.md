@@ -1,58 +1,58 @@
-# 扎根海底抗狂风巨浪 广东造出新型海洋牧场重器
+# 为什么说卵巢癌是“沉默的杀手”？
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网汕尾5月29日电 (记者 蔡敏婕)在广东汕尾碣石湾海域，两座巨大的六边形钢铁网箱静浮在蔚蓝海面，它们如海上堡垒，单座养殖水体容量接近2万立方米，这里是鱼儿专属的“海景房”与活动空间。 今年6月8日是第18个世界海洋日。记者日前探访内地首组六边形插桩可升降桁架式网箱——“港航2001”“港航2002”，该组网箱由广东省港航集团建设、中交广航局(以下简称“广航局”)研发建造。
+发布时间：2026年05月09日 16:13 来源：中国新闻网 5月8日是世界卵巢癌日。上海市第一人民医院妇产科执行主任贺银燕科普卵巢癌的知识，提醒民众勿因错误认知耽误早诊早治。卵巢癌被称为“沉默的杀手”，因为70%的患者确诊时已是中晚期。早期通常没有症状，等到出现肚子痛、腹胀、吃不下饭时，常被误认为消化道问题，延误诊治。中晚期患者中，只有30%能活过五年。常见误区包括：绝经后
 
 ## 正文
 
-中新网汕尾5月29日电 (记者 蔡敏婕)在广东汕尾碣石湾海域，两座巨大的六边形钢铁网箱静浮在蔚蓝海面，它们如海上堡垒，单座养殖水体容量接近2万立方米，这里是鱼儿专属的“海景房”与活动空间。
+发布时间：2026年05月09日 16:13 来源：中国新闻网 5月8日是世界卵巢癌日。
 
-今年6月8日是第18个世界海洋日。
+上海市第一人民医院妇产科执行主任贺银燕科普卵巢癌的知识，提醒民众勿因错误认知耽误早诊早治。
 
-记者日前探访内地首组六边形插桩可升降桁架式网箱——“港航2001”“港航2002”，该组网箱由广东省港航集团建设、中交广航局(以下简称“广航局”)研发建造。
+卵巢癌被称为“沉默的杀手”，因为70%的患者确诊时已是中晚期。
 
-目前该组网箱在广东汕尾碣石湾海域完成相关调试，具备交付使用条件。
+早期通常没有症状，等到出现肚子痛、腹胀、吃不下饭时，常被误认为消化道问题，延误诊治。
 
-该项目技术负责人许艳青介绍：“单个网箱俯视呈正六边形，边长24.5米，总高17米，重约900吨，可提供近2万立方米养殖水体。
+中晚期患者中，只有30%能活过五年。
 
-这是内地首次采用六边形流线型结构的桁架式网箱，并获得国家发明专利授权，能高效分散风浪和海流冲击，减少涡流与网衣磨损。
+常见误区包括：绝经后认为不用检查、切除子宫后忽视妇科检查、把绝经后出血当成“第二春”，以及盲目服用保健品。
 
-网箱还搭载智能升降系统，可沿立柱灵活调节水深，在海上自存状态下能抵御强台风、每秒1.44米流速及9.64米波高。
+提醒女性朋友，定期妇科检查至关重要，出现异常及时就医，保健品需咨询医生后谨慎使用。
 
-” “简单来说，插桩式网箱，就是给鱼在海边建了个带健身房的天然海景房，根基稳、水质活、少生病，养出的鱼壮实又好吃。
+(陈静 制作 刘鹏) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 18:14 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 18:27 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 18:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 18:33 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 18:15 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 18:35 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 18:20 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 18:13 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 18:22 - [V8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 18:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 18:35 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 18:12 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 18:25 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 18:18 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 18:14 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 18:19 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 18:28 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 18:38 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 18:33 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 18:26 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 18:40 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 18:15 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 18:19 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 18:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:08 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/56441848.shtml)
-- 2026-06-29 18:07 - [斛珠夫人](http://www.share.minike.top/Article/details/132837984506.shtml)
-- 2026-06-29 18:22 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/751239.shtml)
-- 2026-06-29 18:14 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.kurohicncr.top/Article/details/939900163.shtml)
-- 2026-06-29 18:23 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/2373095029.shtml)
-- 2026-06-29 18:29 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/62313067410.shtml)
-- 2026-06-29 18:19 - [扬名立万](http://www.share.minike.top/Article/details/840802338155.shtml)
-- 2026-06-29 18:27 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/272495992.shtml)
-- 2026-06-29 18:32 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.kurohicncr.top/Article/details/58879069061.shtml)
-- 2026-06-29 18:11 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/7505498.shtml)
-- 2026-06-29 18:13 - [T1零封KC MSI](http://www.share.minike.top/Article/details/08535.shtml)
-- 2026-06-29 18:10 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/70476893120.shtml)
-- 2026-06-29 18:24 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/125969476673.shtml)
-- 2026-06-29 18:16 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/663674190.shtml)
-- 2026-06-29 18:25 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/31418.shtml)
+- 2026-06-29 18:30 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/82807.shtml)
+- 2026-06-29 18:23 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/03408936.shtml)
+- 2026-06-29 18:27 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/447511036.shtml)
+- 2026-06-29 18:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/037231262.shtml)
+- 2026-06-29 18:33 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/565538671.shtml)
+- 2026-06-29 18:28 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/286761145917.shtml)
+- 2026-06-29 18:40 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/015135078172.shtml)
+- 2026-06-29 18:38 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/030864981957.shtml)
+- 2026-06-29 18:28 - [海口塔吊事故处罚结果公布](https://www.blog.minike.top/Article/details/14584226.shtml)
+- 2026-06-29 18:40 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/1840252455.shtml)
+- 2026-06-29 18:15 - [当家电外通风口出现鸟窝](https://www.share.minike.top/Article/details/71088491.shtml)
+- 2026-06-29 18:17 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/304731.shtml)
+- 2026-06-29 18:40 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/7494940.shtml)
+- 2026-06-29 18:41 - [王曼昱被突如其来的话筒逗笑了](http://www.share.minike.top/Article/details/934861665.shtml)
+- 2026-06-29 18:20 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/1075539563.shtml)

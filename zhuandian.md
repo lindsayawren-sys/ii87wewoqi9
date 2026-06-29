@@ -1,58 +1,51 @@
-# 邦达亚洲:多重利空因素打压 美元日元小幅收跌
+# 本周镍铁价格上移 重心进一步走高
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-5月29日，芝加哥联储主席奥斯坦·古尔斯比周四加大了他的警告力度，他指出，人们对 AI 提升生产力潜力的预期不断高涨，可能会推高通胀，并迫使美联储及其他央行提高利率。 古尔斯比在为日本银行会议准备的发言摘要中表示，“对未来生产力的炒作越剧烈，可能就越需要提高利率以防止经济过热，”“而且，更重要的是，短期内面临的供给冲击——无论是来自石油价格、供应链中断还是其他因素——都会让问题
+【SMM镍快讯】SMM10-12%高镍生铁均价较上周上升30.5元/镍点至1150.5元/镍点（出厂含税），印尼NPI FOB指数价格均价较上周上升3.58美金/镍点录得146.78美金/镍点。本周政策与盘面带动价格稳步上移，镍铁价格重心进一步走高。责任编辑：陈平
 
 ## 正文
 
-5月29日，芝加哥联储主席奥斯坦·古尔斯比周四加大了他的警告力度，他指出，人们对 AI 提升生产力潜力的预期不断高涨，可能会推高通胀，并迫使美联储及其他央行提高利率。
+【SMM镍快讯】SMM10-12%高镍生铁均价较上周上升30.5元/镍点至1150.5元/镍点（出厂含税），印尼NPI FOB指数价格均价较上周上升3.58美金/镍点录得146.78美金/镍点。
 
-古尔斯比在为日本银行会议准备的发言摘要中表示，“对未来生产力的炒作越剧烈，可能就越需要提高利率以防止经济过热，”“而且，更重要的是，短期内面临的供给冲击——无论是来自石油价格、供应链中断还是其他因素——都会让问题变得更加糟糕。
+本周政策与盘面带动价格稳步上移，镍铁价格重心进一步走高。
 
-”古尔斯比认为，如果生产力的提升是在预期之中的，情况就会有所不同。
-
-如果是这样，它们可能会引发一场预期性的消费热潮，在实际的生产力提升实现之前就推高价格。
-
-“在这种情况下，利率可能需要上升，”古尔斯比说。
-
-“这可能也会影响到其他国家，因为生产力的提升或预期提升会随着新技术的跨境传播而蔓延。
-
-” 另外，美国初请失业金人数略有上升，但仍保持在与劳动力市场稳定相符的水平。
-
-根据美国劳工部周四公布的数据，截至5月23日当周，初请失业金人数增加5000人，达到21.5万人，高于市场预期，为4月中旬以来的最高水平。
+责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-29 18:08 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 18:29 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 18:25 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 18:23 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 18:25 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 18:29 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 18:08 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 18:19 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 18:29 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 18:12 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 18:31 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 18:20 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 18:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 18:19 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 18:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 18:15 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 18:31 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 18:41 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 18:21 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 18:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 18:36 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 18:19 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 18:23 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 18:34 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 18:20 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 18:26 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 18:39 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:23 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/1434521671.shtml)
-- 2026-06-29 18:17 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/4186482701.shtml)
-- 2026-06-29 18:18 - [让AI做一个账号，它会做成什么样？](https://www.blog.minike.top/Article/details/18799782641.shtml)
-- 2026-06-29 18:15 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/94202215430.shtml)
-- 2026-06-29 18:13 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/997837.shtml)
-- 2026-06-29 18:07 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/42289.shtml)
-- 2026-06-29 18:33 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/00173.shtml)
-- 2026-06-29 18:20 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/224844631.shtml)
-- 2026-06-29 18:27 - [时光音乐会](http://www.blog.minike.top/Article/details/448013348.shtml)
-- 2026-06-29 18:21 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/266819627.shtml)
-- 2026-06-29 18:19 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/9537107556.shtml)
-- 2026-06-29 18:13 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/4852192.shtml)
-- 2026-06-29 18:32 - [周生如故](https://www.blog.kurohicncr.top/Article/details/194125.shtml)
-- 2026-06-29 18:12 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/5291423.shtml)
-- 2026-06-29 18:22 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/06610947.shtml)
+- 2026-06-29 18:25 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/4309680.shtml)
+- 2026-06-29 18:31 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/98387.shtml)
+- 2026-06-29 18:32 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/212249.shtml)
+- 2026-06-29 18:26 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.kurohicncr.top/Article/details/251934.shtml)
+- 2026-06-29 18:35 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/175388454.shtml)
+- 2026-06-29 18:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/318128571415.shtml)
+- 2026-06-29 18:36 - [我和我的家乡](http://www.blog.minike.top/Article/details/0909894616.shtml)
+- 2026-06-29 18:13 - [伊朗足球队将启程回国](https://www.blog.minike.top/Article/details/92268165.shtml)
+- 2026-06-29 18:34 - [医药生物行业今日涨5.91%](http://www.blog.kurohicncr.top/Article/details/34485.shtml)
+- 2026-06-29 18:18 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/19350980.shtml)
+- 2026-06-29 18:14 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/247540846089.shtml)
+- 2026-06-29 18:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/34700220.shtml)
+- 2026-06-29 18:21 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/3483471886.shtml)
+- 2026-06-29 18:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/488376429.shtml)
+- 2026-06-29 18:14 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/939012.shtml)

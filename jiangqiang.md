@@ -1,56 +1,60 @@
-# 东岳集团午前涨逾8% 制冷剂整体市场有望逐步回暖
+# 科创50指数时隔六年创新高，半导体板块业绩大爆发
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-东岳集团（00189）盘中涨超10%，截至发稿，股价上涨7.96%，现报17.64港元，成交额14.37亿港元。 近日英国和美国陆续宣布HFCs（三代制冷剂）等含氟气体使用配额削减计划推迟，HFCs淘汰降碳节奏整体放缓，主要因为HFCs价格上行导致制冷剂产业链运行成本上升等因素。东方证券指，配额驱动三代制冷剂，供给刚性，需求端制冷设备保持增长，英美放宽三代制冷剂管控边际延长其需
+科创50指数自“9·24” 行情以来累计上涨165% 时隔六年，科创板迎来里程碑时刻。5月11日，科创50指数（000688.SH）盘中最高触及1727.30点，收盘报1716.69点，涨幅4.65%，一举突破2020年7月22日创下的1726.19点的历史纪录。截至当日，科创50指数自“9·24”行情以来累计上涨165%，50只个股总市值合计6万亿元。 佰维存储（688525
 
 ## 正文
 
-东岳集团（00189）盘中涨超10%，截至发稿，股价上涨7.96%，现报17.64港元，成交额14.37亿港元。
+科创50指数自“9·24” 行情以来累计上涨165% 时隔六年，科创板迎来里程碑时刻。
 
-近日英国和美国陆续宣布HFCs（三代制冷剂）等含氟气体使用配额削减计划推迟，HFCs淘汰降碳节奏整体放缓，主要因为HFCs价格上行导致制冷剂产业链运行成本上升等因素。
+5月11日，科创50指数（000688.SH）盘中最高触及1727.30点，收盘报1716.69点，涨幅4.65%，一举突破2020年7月22日创下的1726.19点的历史纪录。
 
-东方证券指，配额驱动三代制冷剂，供给刚性，需求端制冷设备保持增长，英美放宽三代制冷剂管控边际延长其需求周期，看好三代制冷剂景气上行，配额份额居前企业有望受益，看好板块中长期配置价值。
+截至当日，科创50指数自“9·24”行情以来累计上涨165%，50只个股总市值合计6万亿元。
 
-另据氟务在线，现阶段制冷剂基本面企业控价意愿强、行业默契意识依旧，工厂库存水位中等，无集中抛售压力。
+佰维存储（688525.SH）、澜起科技（688008.SH）、拓荆科技（688072.SH）等8只成份股股价在本月创出历史新高，半导体产业链全线爆发成为科创50指数突破的核心驱动力。
 
-美国、英国相继推迟削减HFCs淘汰进程，对国内形成利好支撑，后续随气温持续升高、海内外补库需求逐步释放，制冷剂整体市场有望逐步回暖。
+这些企业覆盖GPU、存储芯片、半导体设备等关键领域，其股价的强势表现映射出中国科技产业在AI浪潮和国产替代双重驱动下的发展机遇。
 
-责任编辑：卢昱君
+数据显示，科创50成份股2026年一季度整体业绩呈现整体增长态势，尤其是在半导体产业链的存储芯片、设备、GPU赛道，多家龙头企业营收和净利润较2021年同期增长数倍甚至数十倍，扎实的业绩增长是资金看多科技股的核心因素。
+
+科创50指数刷新高点，半导体龙头引领 5月11日，科创50指数早盘高开高走，盘中一度涨超5%至1727.30点，最终收盘报1716.69点，涨幅4.65%。
+
+这一收盘价不仅突破了2020年创下的1726.19点高点，也标志着科创板历经近6年发展，终于迎来了高光时刻。
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 18:23 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 18:21 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 18:08 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 18:07 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 18:09 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 18:28 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 18:30 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 18:06 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 18:07 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 18:34 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 18:32 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 18:15 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 18:28 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 18:33 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 18:32 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 18:38 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 18:33 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 18:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 18:37 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 18:26 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 18:17 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 18:22 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 18:41 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 18:30 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 18:41 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 18:37 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 18:15 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:31 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/21078573725.shtml)
-- 2026-06-29 18:20 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/75302654971.shtml)
-- 2026-06-29 18:24 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/44651.shtml)
-- 2026-06-29 18:20 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/5614642.shtml)
-- 2026-06-29 18:10 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/949749541258.shtml)
-- 2026-06-29 18:13 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/43004701378.shtml)
-- 2026-06-29 18:08 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/0013823568.shtml)
-- 2026-06-29 18:06 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/4756174970.shtml)
-- 2026-06-29 18:10 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/49896.shtml)
-- 2026-06-29 18:06 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/39254180733.shtml)
-- 2026-06-29 18:23 - [两老人多次到一洗车店泼粪](https://www.blog.minike.top/Article/details/062285275415.shtml)
-- 2026-06-29 18:24 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/8957673063.shtml)
-- 2026-06-29 18:24 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/926374236.shtml)
-- 2026-06-29 18:13 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/22507.shtml)
-- 2026-06-29 18:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/400051.shtml)
+- 2026-06-29 18:16 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/015029791099.shtml)
+- 2026-06-29 18:37 - [AG 宫斗](http://www.blog.minike.top/Article/details/52179843.shtml)
+- 2026-06-29 18:19 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/38342689730.shtml)
+- 2026-06-29 18:40 - [中国战机大片上新](https://www.share.minike.top/Article/details/74117.shtml)
+- 2026-06-29 18:32 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/3420661.shtml)
+- 2026-06-29 18:32 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/758310959663.shtml)
+- 2026-06-29 18:23 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/682464261.shtml)
+- 2026-06-29 18:40 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/574158516106.shtml)
+- 2026-06-29 18:38 - [毛朝晖任湖南省农业农村厅厅长](http://www.blog.kurohicncr.top/Article/details/075905.shtml)
+- 2026-06-29 18:27 - [四川达州发生一起交通事故致2死](https://www.blog.minike.top/Article/details/312426150.shtml)
+- 2026-06-29 18:32 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/452650832894.shtml)
+- 2026-06-29 18:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/063730.shtml)
+- 2026-06-29 18:13 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/85436.shtml)
+- 2026-06-29 18:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/95352731.shtml)
+- 2026-06-29 18:13 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/78465563.shtml)

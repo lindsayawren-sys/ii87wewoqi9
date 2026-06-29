@@ -1,61 +1,59 @@
-# 广州拥有超过620万名注册志愿者 累计服务时长超2.2亿小时
+# Seadrill新增8.6亿美元钻井合同， backlog达31亿美元
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网广州5月30日电 (记者 张璐)5月25日至29日，2026年全国青年志愿服务高质量发展专题培训班(社区治理与青年志愿服务专场)(简称“培训”)在广州市团校(广州志愿者学院)举办。 据悉，广州是国内志愿服务发展最早、沉淀最深的城市之一，拥有超过620万名注册志愿者，累计服务时长超2.2亿小时，其中青年志愿者人数占比超过65%，志愿服务已成为广州覆盖面最广、参与度最高的公益
+自2月份的船队状况报告发布以来，Seadrill已获得超过8.6亿美元的新合同 backlog，主要得益于在巴西、美国湾和安哥拉的海上钻井授标及合同延期，使其总合同 backlog增至约31亿美元。 这家海上钻井承包商表示，近期获得的合同包括巴西国油将West Polaris钻井船的合同延长三年，自2028年1月起生效，为backlog增加了约4.8亿美元。 在美国湾，West
 
 ## 正文
 
-中新网广州5月30日电 (记者 张璐)5月25日至29日，2026年全国青年志愿服务高质量发展专题培训班(社区治理与青年志愿服务专场)(简称“培训”)在广州市团校(广州志愿者学院)举办。
+自2月份的船队状况报告发布以来，Seadrill已获得超过8.6亿美元的新合同 backlog，主要得益于在巴西、美国湾和安哥拉的海上钻井授标及合同延期，使其总合同 backlog增至约31亿美元。
 
-据悉，广州是国内志愿服务发展最早、沉淀最深的城市之一，拥有超过620万名注册志愿者，累计服务时长超2.2亿小时，其中青年志愿者人数占比超过65%，志愿服务已成为广州覆盖面最广、参与度最高的公益力量。
+这家海上钻井承包商表示，近期获得的合同包括巴西国油将West Polaris钻井船的合同延长三年，自2028年1月起生效，为backlog增加了约4.8亿美元。
 
-本次培训聚焦“社区治理与青年志愿服务”主题，课程紧贴政策要求、前沿热点和实际需求，通过理论学习等形式，打破地域交流限制，实现优质经验互通、优质资源共享、优质人才共育。
+在美国湾，West Neptune获得了Harbour Energy子公司LLOG的365天合同延期，自2026年10月起生效；而West Vela赢得了一个270天的作业项目，预计于2026年9月开始。
 
-现场教学环节，学员们深入“西关大屋社区”等具有广州特色的社区调研，参观学习社区志愿服务站点建设等先进模式，与一线社区工作者、志愿者面对面交流，深入探讨“志愿+社区治理”的实操细节。
+这些合同共计为backlog增加了约2.6亿美元。
 
-交流环节中，来自全国各地的青年志愿服务骨干依次分享实践经验。
+Seadrill还表示，Sonangol Quenguela获得了道达尔能源在安哥拉海域的合同延期，预计增加约480天，将该钻机的服务承诺延长至2028年7月。
 
-共青团兰考县委书记、兰考县青年志愿者协会负责人韩辉以构建“1+3+N”工作模式、赋能社区治理与青年发展为题，阐释县域青年志愿服务赋能基层治理的创新机制。
+West Carina目前在巴西的合同也已延长至2026年6月。
 
-河北省青年志愿者中心干部王彦平带来关于青年志愿者服务社区行动探索和实践的思考，从省级统筹视角梳理工作思路与实践启示。
+该公司公布第一季度调整后EBITDA为9700万美元，净亏损700万美元。
 
-广州市越秀区志愿者行动指导中心主任李少欢以大学生“百千万工程”突击队为例，分享了青年志愿者下沉社区，让基层治理焕发活力的实践经验。
+Seadrill将2026年全年收入指引从此前的14.0亿至14.5亿美元上调至14.3亿至14.8亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 18:27 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 18:13 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 18:20 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 18:06 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 18:25 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 18:23 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 18:15 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 18:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 18:17 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 18:32 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 18:34 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 18:19 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 18:14 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 18:15 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 18:12 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 18:40 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 18:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 18:30 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 18:14 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 18:37 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 18:22 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 18:12 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 18:19 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 18:35 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 18:22 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 18:12 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 18:41 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 18:35 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:26 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/8632157.shtml)
-- 2026-06-29 18:32 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/8021749222.shtml)
-- 2026-06-29 18:15 - [沙特外交大臣将访华](https://www.blog.kurohicncr.top/Article/details/23213313.shtml)
-- 2026-06-29 18:10 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/848383.shtml)
-- 2026-06-29 18:23 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/7004201526.shtml)
-- 2026-06-29 18:09 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/921232788141.shtml)
-- 2026-06-29 18:35 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/7465460.shtml)
-- 2026-06-29 18:22 - [5万块的威力](https://www.blog.minike.top/Article/details/278783852865.shtml)
-- 2026-06-29 18:17 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/168483.shtml)
-- 2026-06-29 18:15 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/95509270.shtml)
-- 2026-06-29 18:25 - [两老人多次到一洗车店泼粪](http://www.share.kurohicncr.top/Article/details/03086.shtml)
-- 2026-06-29 18:07 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/61449819267.shtml)
-- 2026-06-29 18:34 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/014780.shtml)
-- 2026-06-29 18:33 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/17216355.shtml)
-- 2026-06-29 18:13 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/71216.shtml)
+- 2026-06-29 18:22 - [爱很美味](http://www.share.kurohicncr.top/Article/details/59237.shtml)
+- 2026-06-29 18:33 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/26845452468.shtml)
+- 2026-06-29 18:19 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/722858631.shtml)
+- 2026-06-29 18:22 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/9313745428.shtml)
+- 2026-06-29 18:39 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/81755.shtml)
+- 2026-06-29 18:14 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/5031577.shtml)
+- 2026-06-29 18:41 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/820550656794.shtml)
+- 2026-06-29 18:37 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/15678604.shtml)
+- 2026-06-29 18:15 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/3667175980.shtml)
+- 2026-06-29 18:16 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/05285601372.shtml)
+- 2026-06-29 18:22 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/4586137209.shtml)
+- 2026-06-29 18:18 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/099840906.shtml)
+- 2026-06-29 18:27 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/7070595351.shtml)
+- 2026-06-29 18:14 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/9264703.shtml)
+- 2026-06-29 18:39 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/187826.shtml)

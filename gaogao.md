@@ -1,61 +1,56 @@
-# 这15城入围城市更新支持名单有何玄机？
+# 粤港澳大湾区仲裁协作机制文件首次研讨会在南沙召开
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-来源：中国房地产报 城市与区域治理研究院 苏志勇/文 2026年5月22日，财政部网站发布《2026年度中央财政支持实施城市更新行动评选结果公示》，晋城、鞍山、长春、无锡、宁波、马鞍山、泉州、烟台、洛阳、荆州、深圳、桂林、贵阳、昆明、银川等15个城市入围拟支持名单。这也是财政部、住房城乡建设部连续第三年以竞争性选拔方式，从全国范围内遴选城市更新典型城市给予定额补助。根据通知要求
+中新网广州5月9日电 (方伟彬 叶亮)广州仲裁委员会9日发布消息，粤港澳大湾区仲裁联盟(以下简称“联盟”)协作机制文件首次研讨会日前在广州南沙的联盟秘书处顺利举办。 会议聚焦区域仲裁协作机制设计，对《粤港澳大湾区仲裁示范规则》等三份核心机制文件的征求意见稿进行了深入探讨，旨在助力粤港澳大湾区仲裁一体化发展。 据悉，本次会议采用线上线下相结合的方式，吸引了粤港澳三地十余家仲裁及相
 
 ## 正文
 
-来源：中国房地产报 城市与区域治理研究院 苏志勇/文 2026年5月22日，财政部网站发布《2026年度中央财政支持实施城市更新行动评选结果公示》，晋城、鞍山、长春、无锡、宁波、马鞍山、泉州、烟台、洛阳、荆州、深圳、桂林、贵阳、昆明、银川等15个城市入围拟支持名单。
+中新网广州5月9日电 (方伟彬 叶亮)广州仲裁委员会9日发布消息，粤港澳大湾区仲裁联盟(以下简称“联盟”)协作机制文件首次研讨会日前在广州南沙的联盟秘书处顺利举办。
 
-这也是财政部、住房城乡建设部连续第三年以竞争性选拔方式，从全国范围内遴选城市更新典型城市给予定额补助。
+会议聚焦区域仲裁协作机制设计，对《粤港澳大湾区仲裁示范规则》等三份核心机制文件的征求意见稿进行了深入探讨，旨在助力粤港澳大湾区仲裁一体化发展。
 
-根据通知要求，中央财政按区域给予定额补助，其中，东部地区每个城市补助总额不超过8亿元，中部地区每个城市补助总额不超过10亿元，西部地区每个城市补助总额不超过12亿元。
+据悉，本次会议采用线上线下相结合的方式，吸引了粤港澳三地十余家仲裁及相关机构派员参与，并邀请广东省司法厅及高校法学专家列席指导。
 
-资金根据工作推进情况分年拨付到位。
+与会代表围绕联盟协作机制、规则条款、程序衔接以及人才共享等关键议题展开讨论，达成广泛共识，为完善大湾区仲裁协作体系、提升跨境纠纷解决效能奠定了坚实基础。
 
-梳理今年入围的15个城市可以看出，区域分布上，既有东部沿海城市、中部城市，也有西部城市和东北老工业基地，布局均衡。
+粤港澳大湾区仲裁联盟是由粤港澳三地仲裁机构共同发起成立的区域性协作组织，致力于推动三地仲裁规则、服务标准与实践经验的互联互通，为大湾区商事主体提供高效、便捷、专业的争议解决服务。
 
-如果将这15城按城市基因分组，大致可以分为四种类型，一是面临转型的资源城市和老工业城，包括鞍山、晋城、长春、马鞍山，这些城市普遍面临地下管网老化、工业遗产活化的双重命题。
+下一步，联盟将梳理汇总会议意见，加快推进协作机制文件修订，持续深化三地仲裁务实协作，努力打造具有全球影响力的湾区仲裁品牌，为大湾区的高质量发展提供优质仲裁服务保障。
 
-二是制造强市和滨海口岸城市，包括无锡、宁波、烟台、深圳，这些城市均面临高密度建成区存量盘活、滨水空间重构、城中村改造等需求。
-
-三是古城、历史文化街区等生态约束型城市，例如洛阳、泉州、荆州、桂林，这些城市面临历史街区微更新、防洪排涝、保护与发展相协调等课题。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:22 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 18:20 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 18:19 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 18:30 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 18:15 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 18:10 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 18:12 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 18:22 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 18:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 18:14 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 18:31 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 18:29 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 18:17 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 18:30 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 18:35 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 18:18 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 18:38 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 18:14 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 18:37 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 18:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 18:34 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 18:41 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 18:13 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 18:22 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 18:19 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 18:34 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 18:16 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:07 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/8804030.shtml)
-- 2026-06-29 18:06 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/5420673.shtml)
-- 2026-06-29 18:21 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/7648073.shtml)
-- 2026-06-29 18:26 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/47622474939.shtml)
-- 2026-06-29 18:27 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/76144055757.shtml)
-- 2026-06-29 18:26 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/28780.shtml)
-- 2026-06-29 18:26 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/41026639929.shtml)
-- 2026-06-29 18:24 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/7023342744.shtml)
-- 2026-06-29 18:20 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/674142.shtml)
-- 2026-06-29 18:24 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/242195294.shtml)
-- 2026-06-29 18:29 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/577288341.shtml)
-- 2026-06-29 18:14 - [看大国重器“云端穿针引线”](http://www.share.kurohicncr.top/Article/details/23864.shtml)
-- 2026-06-29 18:12 - [人形机器人](http://www.share.kurohicncr.top/Article/details/905961132.shtml)
-- 2026-06-29 18:12 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/49179.shtml)
-- 2026-06-29 18:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/262309.shtml)
+- 2026-06-29 18:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/578111426.shtml)
+- 2026-06-29 18:14 - [日本偶像龟梨和也宣布结婚](http://www.blog.minike.top/Article/details/073686695.shtml)
+- 2026-06-29 18:32 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/321706996.shtml)
+- 2026-06-29 18:36 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/00059895814.shtml)
+- 2026-06-29 18:38 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/46686.shtml)
+- 2026-06-29 18:24 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/3223190157.shtml)
+- 2026-06-29 18:22 - [断骨增高灰产拉一人提成1.5万元](https://www.share.kurohicncr.top/Article/details/547130.shtml)
+- 2026-06-29 18:26 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/964494743.shtml)
+- 2026-06-29 18:29 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/568222.shtml)
+- 2026-06-29 18:16 - [波兰创该国高温纪录](https://www.share.minike.top/Article/details/34503.shtml)
+- 2026-06-29 18:38 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/845519.shtml)
+- 2026-06-29 18:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/29011498772.shtml)
+- 2026-06-29 18:34 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/94965324.shtml)
+- 2026-06-29 18:26 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/4230975.shtml)
+- 2026-06-29 18:16 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/48111293.shtml)

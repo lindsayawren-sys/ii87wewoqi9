@@ -1,48 +1,60 @@
-# “曾试图袭击俄总统官邸” 普京：无人机残骸已移交美国鉴定
+# 历史警钟必须长鸣——起底日本在菲律宾的罪行与图谋
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网5月30日电 据俄罗斯媒体当地时间29日报道，俄罗斯总统普京表示，俄罗斯已将2025年12月袭击瓦尔代总统官邸的无人机残骸移交给美国进行鉴定。 据报道，普京表示：“我们已将袭击俄总统官邸的无人机残骸移交给美国进行鉴定。” 报道还称，在分析相关数据后，专家认为，基辅方面的攻击目标正是普京官邸所在建筑群。
+国际观察丨历史警钟必须长鸣——起底日本在菲律宾的罪行与图谋 新华社马尼拉5月10日电 新华社记者张怡晟 李萌 沙滩上，日本防卫大臣小泉进次郎在胸前握着右拳，与一群同样姿势的日本自卫队员合影，身后是日本自卫队的导弹发射车。这是5月6日在菲律宾吕宋岛北部北依罗戈省帕瓦伊的一幕。当天，日本自卫队发射2枚88式岸基反舰导弹，这是二战结束以来日本首次在境外发射进攻型导弹。 这一幕充满历史
 
 ## 正文
 
-中新网5月30日电 据俄罗斯媒体当地时间29日报道，俄罗斯总统普京表示，俄罗斯已将2025年12月袭击瓦尔代总统官邸的无人机残骸移交给美国进行鉴定。
+国际观察丨历史警钟必须长鸣——起底日本在菲律宾的罪行与图谋 新华社马尼拉5月10日电 新华社记者张怡晟 李萌 沙滩上，日本防卫大臣小泉进次郎在胸前握着右拳，与一群同样姿势的日本自卫队员合影，身后是日本自卫队的导弹发射车。
 
-据报道，普京表示：“我们已将袭击俄总统官邸的无人机残骸移交给美国进行鉴定。
+这是5月6日在菲律宾吕宋岛北部北依罗戈省帕瓦伊的一幕。
 
-” 报道还称，在分析相关数据后，专家认为，基辅方面的攻击目标正是普京官邸所在建筑群。
+当天，日本自卫队发射2枚88式岸基反舰导弹，这是二战结束以来日本首次在境外发射进攻型导弹。
+
+这一幕充满历史讽刺意味，深深刺痛不少菲律宾人。
+
+80多年前，日军在入侵占领菲律宾的三年多时间里犯下系统性暴行，导致上百万菲律宾人死于炮火、屠杀与饥荒，曾经的“东方明珠”马尼拉沦为焦土。
+
+如今，日本自卫队又带着枪炮堂而皇之地重返菲律宾，并图谋通过怂恿和欺骗“祸水南引”，把菲律宾变成日本新型军国主义的战略前沿和军事试验场。
+
+“菲律宾绝不能成为帝国主义军队及其武器的发射台、射击场！
+
+”菲律宾众多议员、民众和学者疾呼，日本侵略罪行“不应被遗忘”，历史警钟“必须长鸣”，菲律宾人民“不能沉默”。
 
 ## 相关推荐
 
-- 2026-06-29 18:21 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 18:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 18:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 18:08 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 18:19 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 18:29 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 18:20 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 18:35 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 18:27 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 18:30 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 18:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 18:11 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 18:21 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 18:38 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 18:32 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 18:15 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 18:39 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 18:40 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 18:18 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 18:30 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 18:38 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 18:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 18:22 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 18:21 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 18:42 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 18:34 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:16 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/17829934412.shtml)
-- 2026-06-29 18:34 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/02151238.shtml)
-- 2026-06-29 18:32 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/82582.shtml)
-- 2026-06-29 18:16 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/580750282732.shtml)
-- 2026-06-29 18:24 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/7641577525.shtml)
-- 2026-06-29 18:17 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/750433953436.shtml)
-- 2026-06-29 18:23 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/700303.shtml)
-- 2026-06-29 18:14 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/22936092.shtml)
-- 2026-06-29 18:08 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/17495181.shtml)
-- 2026-06-29 18:29 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/6881740075.shtml)
-- 2026-06-29 18:12 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/5821449390.shtml)
-- 2026-06-29 18:11 - [疑似吴建豪老婆正脸照](http://www.blog.kurohicncr.top/Article/details/9792579996.shtml)
-- 2026-06-29 18:31 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.share.kurohicncr.top/Article/details/589870.shtml)
-- 2026-06-29 18:13 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/13386.shtml)
-- 2026-06-29 18:11 - [7款高价创新药有望降价](http://www.blog.kurohicncr.top/Article/details/2234095003.shtml)
+- 2026-06-29 18:22 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/1096550245.shtml)
+- 2026-06-29 18:29 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/423500967912.shtml)
+- 2026-06-29 18:17 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/495223458.shtml)
+- 2026-06-29 18:26 - [学者：建设性战略稳定重塑中美关系](https://www.blog.kurohicncr.top/Article/details/837751554807.shtml)
+- 2026-06-29 18:31 - [疑似吴建豪老婆正脸照](https://www.share.kurohicncr.top/Article/details/257937.shtml)
+- 2026-06-29 18:35 - [金刚川](http://www.blog.minike.top/Article/details/817252381.shtml)
+- 2026-06-29 18:14 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/33112560.shtml)
+- 2026-06-29 18:40 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.kurohicncr.top/Article/details/42602.shtml)
+- 2026-06-29 18:21 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/325536991058.shtml)
+- 2026-06-29 18:41 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/37208897467.shtml)
+- 2026-06-29 18:18 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/5641538.shtml)
+- 2026-06-29 18:39 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/664967009.shtml)
+- 2026-06-29 18:25 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/514922.shtml)
+- 2026-06-29 18:21 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/387637843326.shtml)
+- 2026-06-29 18:30 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/99474492046.shtml)

@@ -1,59 +1,59 @@
-# 2026文学京彩季·大家小课首期开讲
+# 网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网北京6月1日电 (记者 高凯)由北京市文联主办、北京作家协会承办的“2026文学京彩季·大家小课”首期活动日前在北京市文联艺术工坊举行。活动特邀中国作协副主席、国际纳西学学会会长白庚胜以“文学创作的文化动力”为题授课。 白庚胜长期深耕民族文学、民间文化与文学创作研究，在中国少数民族文学与民间文化遗产保护领域成果丰硕，其作品被翻译为20余种语言在海外传播。 讲座中，白庚胜围
+营业网点是商业银行经营的最小细胞，也是直接触达客户、创造价值的核心战场，其竞争力直接关系到银行经营效益的高低和可持续发展能力的强弱。 近年来，业内讨论最多的是银行营业网点的“消失”，但对于以国有银行、股份行为代表的全国性商业银行而言，网点的关停并非简单意义上的单向缩减，而是“有退有进”的布局优化，甚至半数全国性上市商业银行的网点不降反升，与行业整体格局形成鲜明对比。 第一财经根
 
 ## 正文
 
-中新网北京6月1日电 (记者 高凯)由北京市文联主办、北京作家协会承办的“2026文学京彩季·大家小课”首期活动日前在北京市文联艺术工坊举行。
+营业网点是商业银行经营的最小细胞，也是直接触达客户、创造价值的核心战场，其竞争力直接关系到银行经营效益的高低和可持续发展能力的强弱。
 
-活动特邀中国作协副主席、国际纳西学学会会长白庚胜以“文学创作的文化动力”为题授课。
+近年来，业内讨论最多的是银行营业网点的“消失”，但对于以国有银行、股份行为代表的全国性商业银行而言，网点的关停并非简单意义上的单向缩减，而是“有退有进”的布局优化，甚至半数全国性上市商业银行的网点不降反升，与行业整体格局形成鲜明对比。
 
-白庚胜长期深耕民族文学、民间文化与文学创作研究，在中国少数民族文学与民间文化遗产保护领域成果丰硕，其作品被翻译为20余种语言在海外传播。
+第一财经根据上市银行年报统计，2025年，国有行、上市股份行拥有机构数量89507个，与2024年相比仅减少256个，在其庞大的机构数量面前，该细微变化几乎可以忽略不计。
 
-讲座中，白庚胜围绕“文化”与“文明”的关系展开论述，从中华文明的发展脉络切入，结合中国文字、民间文化、非物质文化遗产等内容，探讨文学创作与文化传承之间的关系。
+而且总数之下，半数全国性商业银行的机构数量有所增加，尤其是农业银行的基层网点数量已连增三年。
 
-他认为，文学是文化的重要组成部分，也是提升文化素养和审美能力的重要途径。
+从年报来看，大行网点的增量主要来自于下沉县乡镇等市场，或是升级特色场景等。
 
-从《诗经》、楚辞到唐诗宋词，中国文学为中华文明的发展提供了重要精神滋养。
+一边是关停低效网点，一边是区域下沉，这场“加减法”背后，大型商业银行正从“铺摊子”转向“精耕细作”。
 
-谈及新时代文学创作，白庚胜表示，文学工作者应坚持“深入生活、扎根人民”，真正走进基层、走近群众，在广阔社会生活中发现创作素材，感知时代脉搏。
+全国性商业银行机构数近9万个 第一财经根据上市银行年报统计，2025年，六大行合计机构数量76092个，相比2023年减少了208个。
 
-他认为，文学创作既要书写个人生活与真实情感，也应将个体经验放在时代发展和历史进程中加以观照，以普通人的视角反映更广阔的社会现实。
+其中，工商银行、建设银行、中国银行、邮储银行的机构总数均有所缩减，但基层网点数量下降的仅有建设银行、中国银行和邮储银行。
 
 ## 相关推荐
 
-- 2026-06-29 18:09 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 18:30 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 18:26 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 18:06 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 18:16 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 18:16 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 18:20 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 18:13 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 18:20 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 18:23 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 18:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 18:26 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 18:31 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 18:27 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 18:33 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 18:23 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 18:13 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 18:28 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 18:25 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 18:37 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 18:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 18:27 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 18:14 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 18:19 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 18:23 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 18:41 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:25 - [唐艺昕告别浪姐千字长文](http://www.share.kurohicncr.top/Article/details/58116830181.shtml)
-- 2026-06-29 18:19 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/383975264.shtml)
-- 2026-06-29 18:12 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/6117435.shtml)
-- 2026-06-29 18:11 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/611076699714.shtml)
-- 2026-06-29 18:16 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/913187274.shtml)
-- 2026-06-29 18:27 - [机器人学校开学了](http://www.blog.minike.top/Article/details/411237256125.shtml)
-- 2026-06-29 18:11 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.kurohicncr.top/Article/details/7175617.shtml)
-- 2026-06-29 18:08 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/694851.shtml)
-- 2026-06-29 18:27 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/5115373682.shtml)
-- 2026-06-29 18:12 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/60689419436.shtml)
-- 2026-06-29 18:16 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/380006119.shtml)
-- 2026-06-29 18:11 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/75291223167.shtml)
-- 2026-06-29 18:26 - [V8](http://www.share.minike.top/Article/details/87838.shtml)
-- 2026-06-29 18:09 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/660857.shtml)
-- 2026-06-29 18:25 - [啊啊啊](https://www.blog.minike.top/Article/details/48733461135.shtml)
+- 2026-06-29 18:22 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/5030120.shtml)
+- 2026-06-29 18:19 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/0392535703.shtml)
+- 2026-06-29 18:15 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/52359064.shtml)
+- 2026-06-29 18:14 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/9193874667.shtml)
+- 2026-06-29 18:26 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/514050759.shtml)
+- 2026-06-29 18:40 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/16574637713.shtml)
+- 2026-06-29 18:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/2712172.shtml)
+- 2026-06-29 18:21 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.kurohicncr.top/Article/details/170944628.shtml)
+- 2026-06-29 18:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/31249415.shtml)
+- 2026-06-29 18:21 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/85582354826.shtml)
+- 2026-06-29 18:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/0330776.shtml)
+- 2026-06-29 18:26 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/071987557.shtml)
+- 2026-06-29 18:40 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.kurohicncr.top/Article/details/6120971230.shtml)
+- 2026-06-29 18:18 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/8454519.shtml)
+- 2026-06-29 18:41 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/293635.shtml)

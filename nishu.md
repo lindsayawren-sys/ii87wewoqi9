@@ -1,60 +1,57 @@
-# 专家：一生最好只减肥一次 反复减重反伤身体
+# Wedbush：财报季为AI怀疑论者敲响“警钟”，英伟达财报在即
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网广州5月29日电 (记者 蔡敏婕 韦杰夫)认为吃素就能远离脂肪肝，是当下大众普遍存在的健康认知误区。 “很多体重正常、甚至长期吃素的人，也会查出脂肪肝。”广东省第二人民医院内分泌科副研究员、副主任医师曾可静29日表示，最健康的方式是低碳、清淡、均衡饮食。 由广州市越秀区公共卫生委员会、越秀区疾控中心等卫生健康部门指导的公益科普行动当天开展，该行动旨在面向公众传递“科学减重
+投行Wedbush表示，本轮财报季为那些在场外观望AI革命的科技怀疑论者敲响了“警钟”，而英伟达即将发布的第一季度财报有望成为科技股的又一催化剂。 Wedbush分析师指出，近期多家科技公司的财报已清晰表明，企业级AI支出正在加速而非放缓。Palantir第一季度营收同比增长85%，创下上市以来最快增速，并上调全年指引至76.5亿美元；Datadog首次实现单季营收破10亿美元
 
 ## 正文
 
-中新网广州5月29日电 (记者 蔡敏婕 韦杰夫)认为吃素就能远离脂肪肝，是当下大众普遍存在的健康认知误区。
+投行Wedbush表示，本轮财报季为那些在场外观望AI革命的科技怀疑论者敲响了“警钟”，而英伟达即将发布的第一季度财报有望成为科技股的又一催化剂。
 
-“很多体重正常、甚至长期吃素的人，也会查出脂肪肝。
+Wedbush分析师指出，近期多家科技公司的财报已清晰表明，企业级AI支出正在加速而非放缓。
 
-”广东省第二人民医院内分泌科副研究员、副主任医师曾可静29日表示，最健康的方式是低碳、清淡、均衡饮食。
+Palantir第一季度营收同比增长85%，创下上市以来最快增速，并上调全年指引至76.5亿美元；Datadog首次实现单季营收破10亿美元，股价单日暴涨28%；Twilio也录得三年来最高增速。
 
-由广州市越秀区公共卫生委员会、越秀区疾控中心等卫生健康部门指导的公益科普行动当天开展，该行动旨在面向公众传递“科学减重，让脂肪肝可逆转”的健康理念，携手推动代谢健康议题走出“认知误区”，迈向“可防可治”。
+这些业绩印证了AI正从概念走向实质性收入贡献。
 
-肥胖人群因脂肪代谢负担加重，患脂肪肝(代谢相关脂肪性肝病)的风险较高。
+分析师强调，此前市场担忧Anthropic、OpenAI等大模型公司会“掏空”传统企业软件市场，形成了所谓的“AI幽灵交易”抛售潮。
 
-除了肥胖，脂肪肝的病因还包括大量饮酒、糖尿病、高胆固醇饮食、高热量饮食、遗传等。
+但Salesforce、ServiceNow等软件巨头的实际表现表明，拥有企业分销渠道和垂直工作流的平台公司仍具有护城河。
 
-虽然肥胖的人容易得脂肪肝，但身材偏瘦的人如果存在上述因素，同样有可能患上脂肪肝。
+每1美元投入英伟达芯片，可在科技生态中产生8至10美元的乘数效应。
 
-此外，快速减重的人容易出现营养不良的情况，影响肝脏的脂肪代谢，从而导致脂肪肝。
+市场目光现已聚焦于英伟达预计下周发布的2026财年第一季度财报。
 
 ## 相关推荐
 
-- 2026-06-29 18:12 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 18:08 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 18:23 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 18:15 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 18:25 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 18:28 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 18:14 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 18:23 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 18:12 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 18:19 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 18:13 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 18:21 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 18:26 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 18:32 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 18:22 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 18:18 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 18:30 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 18:25 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 18:32 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 18:29 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 18:23 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 18:20 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 18:24 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 18:36 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 18:23 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:34 - [起风了](http://www.blog.minike.top/Article/details/43083475188.shtml)
-- 2026-06-29 18:21 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/841827.shtml)
-- 2026-06-29 18:27 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/862685729.shtml)
-- 2026-06-29 18:06 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/374527909.shtml)
-- 2026-06-29 18:14 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/532879331503.shtml)
-- 2026-06-29 18:17 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/40187421.shtml)
-- 2026-06-29 18:22 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/005606916.shtml)
-- 2026-06-29 18:25 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/0539456832.shtml)
-- 2026-06-29 18:16 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/45523.shtml)
-- 2026-06-29 18:16 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/34389298.shtml)
-- 2026-06-29 18:18 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/28582.shtml)
-- 2026-06-29 18:29 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/17481850445.shtml)
-- 2026-06-29 18:10 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/578082629.shtml)
-- 2026-06-29 18:19 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/92203076916.shtml)
-- 2026-06-29 18:28 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/80300624.shtml)
+- 2026-06-29 18:38 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/4769997087.shtml)
+- 2026-06-29 18:23 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/85497082370.shtml)
+- 2026-06-29 18:41 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/33670591714.shtml)
+- 2026-06-29 18:28 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/92078.shtml)
+- 2026-06-29 18:35 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/27477.shtml)
+- 2026-06-29 18:19 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/8342813035.shtml)
+- 2026-06-29 18:18 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/51457386529.shtml)
+- 2026-06-29 18:18 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/74638093536.shtml)
+- 2026-06-29 18:36 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/80768603.shtml)
+- 2026-06-29 18:13 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/339834562910.shtml)
+- 2026-06-29 18:26 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/59683.shtml)
+- 2026-06-29 18:41 - [7款高价创新药有望降价](https://www.blog.kurohicncr.top/Article/details/7060451.shtml)
+- 2026-06-29 18:38 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/491608398243.shtml)
+- 2026-06-29 18:30 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/27869062609.shtml)
+- 2026-06-29 18:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/9321928.shtml)

@@ -1,56 +1,61 @@
-# 稳舵扬帆正当时——5月全国各地经济社会发展观察
+# 工商银行全新推出“工盈研选”品牌 博时多只优质产品入选
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-原标题：稳中求进每月看｜稳舵扬帆正当时——5月全国各地经济社会发展观察 从多地以法治之力护航民营经济高质量发展，到影旅融合激活消费新业态；从“好房子”建设持续提速，到各地以科技赋能人与自然和谐共生……5月以来，全国各地真抓实干、阔步向前，展现出稳中有进、向新向优的生动图景。 观察之一：从“纸上”到落地，法治护航让民营企业有感有得 “作为OPC(一人公司)创业者，过去常因合规边界
+近日，工商银行全新推出“工盈研选”基金销售服务品牌，以客户盈利为导向，依托专业投研能力构建金字塔型公募基金优选产品体系，同步推出全周期投资陪伴服务，打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。 “工盈研选”从客户能理解、基层易营销的角度，定制“收益、回撤”等量化标准，提出权益仓位建议，与合作机构共同建设维护系列产品池。首期推出“安盈”“智盈”两个产品系列，精准
 
 ## 正文
 
-原标题：稳中求进每月看｜稳舵扬帆正当时——5月全国各地经济社会发展观察 从多地以法治之力护航民营经济高质量发展，到影旅融合激活消费新业态；从“好房子”建设持续提速，到各地以科技赋能人与自然和谐共生……5月以来，全国各地真抓实干、阔步向前，展现出稳中有进、向新向优的生动图景。
+近日，工商银行全新推出“工盈研选”基金销售服务品牌，以客户盈利为导向，依托专业投研能力构建金字塔型公募基金优选产品体系，同步推出全周期投资陪伴服务，打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。
 
-观察之一：从“纸上”到落地，法治护航让民营企业有感有得 “作为OPC(一人公司)创业者，过去常因合规边界不清晰而心存顾虑，不敢放开手脚投入创新，如今这份指引让我们安心搞研发、放心谋发展。
+“工盈研选”从客户能理解、基层易营销的角度，定制“收益、回撤”等量化标准，提出权益仓位建议，与合作机构共同建设维护系列产品池。
 
-”逐数科技(温州)有限公司负责人郑志鹏看完新近发布的《温州市人工智能OPC合规指引》，语气中透着兴奋。
+首期推出“安盈”“智盈”两个产品系列，精准匹配不同客户投资需求。
 
-今年5月20日，正值民营经济促进法施行一周年。
+其中“安盈”系列聚焦固收、固收+产品，通过严控回撤风险，力争助力客户资产稳健增长。
 
-温州以合规指引为抓手护航新业态发展，正是各地落实促进民营经济发展政策措施的生动注脚。
+智盈系列则精选权益指数及指数增强产品，力争为追求收益弹性的客户提供进攻性工具。
 
-5月，各地各部门着力推动民营经济促进法落地见效：《重庆市民营经济促进条例》正式施行，是当地专门促进民营经济高质量发展的地方性法规；在山东青岛，2026年“一法一条例”宣贯暨政策服务能力提升活动启动；国家发展改革委印发“法治护航民营经济”行动方案…… 《江苏省民营经济促进条例》于5月20日正式施行。
+经过层层精选，博时基金旗下博时恒泰债券基金成功入选“安盈”系列，博时恒生高股息ETF联接基金、博时恒生科技ETF联接基金双双入选“智盈”系列。
 
-“条例支持企业用发明专利、无形资产做质押融资，把惠企政策落了地。
+基金2026年一季报显示，过去一年（2025/4/1-2026/3/31），博时恒泰债券基金A类、C类收益率分别为6.09%、5.72%，同期业绩比较基准收益率为0.95%。
 
-”苏州海苗生物科技有限公司董事长谭淼说，她所在的企业近期以核心专利质押获得了2000万元的授信，有了金融活水支持，研发步伐不断加快。
+基金2026年一季报显示，过去一年（2025/4/1-2026/3/31），博时恒生高股息ETF联接A类、C类收益率均为23.14%，同期业绩比较基准收益率为20.00%。
 
 ## 相关推荐
 
-- 2026-06-29 18:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 18:28 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 18:17 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 18:34 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 18:13 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 18:16 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 18:10 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 18:25 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 18:07 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 18:16 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 18:31 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 18:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 18:29 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 18:26 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 18:31 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 18:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 18:14 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 18:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 18:19 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 18:36 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 18:16 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 18:30 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 18:26 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 18:16 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 18:31 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:26 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/18798154405.shtml)
-- 2026-06-29 18:07 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/5397795788.shtml)
-- 2026-06-29 18:16 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/2938406814.shtml)
-- 2026-06-29 18:08 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/73633225.shtml)
-- 2026-06-29 18:08 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/42366.shtml)
-- 2026-06-29 18:09 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/32508998.shtml)
-- 2026-06-29 18:33 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/286167228.shtml)
-- 2026-06-29 18:25 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/76074357050.shtml)
-- 2026-06-29 18:35 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/77962045451.shtml)
-- 2026-06-29 18:14 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/43869166246.shtml)
-- 2026-06-29 18:16 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/1085451.shtml)
-- 2026-06-29 18:17 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/48378.shtml)
-- 2026-06-29 18:34 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/4429481.shtml)
-- 2026-06-29 18:06 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/3296940.shtml)
-- 2026-06-29 18:08 - [每天通勤往返3h的感觉](http://www.share.minike.top/Article/details/65360708.shtml)
+- 2026-06-29 18:15 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/155454176.shtml)
+- 2026-06-29 18:21 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.minike.top/Article/details/6369356025.shtml)
+- 2026-06-29 18:33 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/3247321.shtml)
+- 2026-06-29 18:17 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/87495.shtml)
+- 2026-06-29 18:17 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/3609303.shtml)
+- 2026-06-29 18:25 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/1019171.shtml)
+- 2026-06-29 18:24 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/516998125.shtml)
+- 2026-06-29 18:20 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/239912853485.shtml)
+- 2026-06-29 18:35 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/22215823223.shtml)
+- 2026-06-29 18:22 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/051813.shtml)
+- 2026-06-29 18:41 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/452936.shtml)
+- 2026-06-29 18:41 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/598887746.shtml)
+- 2026-06-29 18:13 - [流金岁月](http://www.share.kurohicncr.top/Article/details/07551.shtml)
+- 2026-06-29 18:21 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/9039904.shtml)
+- 2026-06-29 18:33 - [沙特外交大臣将访华](https://www.blog.kurohicncr.top/Article/details/33502191662.shtml)

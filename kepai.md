@@ -1,57 +1,61 @@
-# 美伊停火预期削弱美元避险需求，英镑兑美元探底回升
+# 实探黄骅港：“建港禁地”如何蝶变为现代化综合大港？
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 英镑兑美元周五亚洲交易时段小幅走高，汇价维持在1.3450附近运行。随着美国与伊朗停火延期谈判释放积极信号，市场避险情绪出现缓和，美元需求有所下降，从而推动英镑兑美元连续第二个交易日维持反弹。 美国与伊朗已初步达成一项为期60天的停火延期协议，若协议最终落地，霍尔木兹海峡航运有望恢复稳定。根据相关安排，伊朗将在30天内清除航道中的水雷，从而降低全球能源运输风
+中新网北京5月11日电 (张文晖)五月渤海湾畔风和景明、碧水蓝天。中新网走进国能黄骅港务有限责任公司(简称黄骅港务)，在煤五期工程建设现场看到，桩基入海、筒仓林立，建设者奋力攻坚。如今的黄骅港，早已摆脱“建港禁地”的标签，从无名小港成长为中国煤港转型标杆。 谁能想到，三十年前，这里还是一片荒滩，粉沙淤泥质海岸被业内断言为“建港禁地”。1997年，黄骅港破土动工，2001年顺利投
 
 ## 正文
 
-文章来源：汇通财经 英镑兑美元周五亚洲交易时段小幅走高，汇价维持在1.3450附近运行。
+中新网北京5月11日电 (张文晖)五月渤海湾畔风和景明、碧水蓝天。
 
-随着美国与伊朗停火延期谈判释放积极信号，市场避险情绪出现缓和，美元需求有所下降，从而推动英镑兑美元连续第二个交易日维持反弹。
+中新网走进国能黄骅港务有限责任公司(简称黄骅港务)，在煤五期工程建设现场看到，桩基入海、筒仓林立，建设者奋力攻坚。
 
-美国与伊朗已初步达成一项为期60天的停火延期协议，若协议最终落地，霍尔木兹海峡航运有望恢复稳定。
+如今的黄骅港，早已摆脱“建港禁地”的标签，从无名小港成长为中国煤港转型标杆。
 
-根据相关安排，伊朗将在30天内清除航道中的水雷，从而降低全球能源运输风险。
+谁能想到，三十年前，这里还是一片荒滩，粉沙淤泥质海岸被业内断言为“建港禁地”。
 
-不过，市场对于相关协议仍保持谨慎态度。
+1997年，黄骅港破土动工，2001年顺利投产运营，彻底打破行业魔咒，创造了震惊业界的建港奇迹。
 
-美国总统特朗普尚未正式批准协议条款，而美国副总统万斯也表示，目前双方“尚未完全达成最终协议”，但整体谈判已经接近完成。
+历经12年接续建设，至2013年，黄骅港务全面完成煤一至四期工程，建成17个煤炭泊位、4个散杂货泊位、1个油品码头，正式扛起“西煤东运、北煤南运”的时代重任，成为以煤为主、兼顾多业态的现代化综合性能源港口。
 
-与此同时，美国方面仍强调，必要时将继续对伊朗核计划保持强硬立场。
+如今的黄骅港务，运营成效持续攀升。
 
-尽管如此，市场仍普遍认为，中东局势缓和有助于降低全球市场对于能源供应中断的担忧。
+连续三年，港口货物吞吐量、煤炭下水量全线实现正增长，煤炭下水量占我国“北煤南运”总量的30%左右；开港以来，累计煤炭下水量突破32.6亿吨、非煤业务突破1.3亿吨，煤炭下水量连续7年领跑全国，连续6年稳定在2亿吨以上，为长三角、珠三角等地区能源供应提供了坚实保障，成为国家能源保供的“稳定器”和“压舱石”。
 
 ## 相关推荐
 
-- 2026-06-29 18:22 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 18:08 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 18:20 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 18:11 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 18:32 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 18:26 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 18:06 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 18:33 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 18:35 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 18:25 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 18:20 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 18:40 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 18:41 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 18:38 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 18:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 18:37 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 18:13 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 18:36 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 18:15 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 18:28 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 18:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 18:19 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 18:30 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 18:20 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 18:23 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 18:16 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:13 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/904994611553.shtml)
-- 2026-06-29 18:12 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/590792.shtml)
-- 2026-06-29 18:28 - [普京承认俄出现燃料危机](http://www.share.kurohicncr.top/Article/details/02609026508.shtml)
-- 2026-06-29 18:23 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/06625.shtml)
-- 2026-06-29 18:21 - [这一刀 会很帅](http://www.share.minike.top/Article/details/22470.shtml)
-- 2026-06-29 18:16 - [依法管制阻遏日方军事化危险动向](https://www.share.kurohicncr.top/Article/details/860492747105.shtml)
-- 2026-06-29 18:29 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/407428911.shtml)
-- 2026-06-29 18:31 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/5259579251.shtml)
-- 2026-06-29 18:18 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/6264828.shtml)
-- 2026-06-29 18:11 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/714966.shtml)
-- 2026-06-29 18:26 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.minike.top/Article/details/80527984.shtml)
-- 2026-06-29 18:10 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/667880.shtml)
-- 2026-06-29 18:13 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/54480817311.shtml)
-- 2026-06-29 18:29 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/19797355.shtml)
-- 2026-06-29 18:11 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/446280118.shtml)
+- 2026-06-29 18:13 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/50323.shtml)
+- 2026-06-29 18:39 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/87941927517.shtml)
+- 2026-06-29 18:41 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/22338862.shtml)
+- 2026-06-29 18:16 - [逃狱兄弟](https://www.blog.minike.top/Article/details/629882.shtml)
+- 2026-06-29 18:33 - [王俊凯命名方式](https://www.share.minike.top/Article/details/8161656425.shtml)
+- 2026-06-29 18:28 - [爱很美味](https://www.share.minike.top/Article/details/8665499.shtml)
+- 2026-06-29 18:33 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/65996.shtml)
+- 2026-06-29 18:38 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/75485873867.shtml)
+- 2026-06-29 18:36 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/88048260700.shtml)
+- 2026-06-29 18:28 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.kurohicncr.top/Article/details/740906864904.shtml)
+- 2026-06-29 18:39 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/046558158409.shtml)
+- 2026-06-29 18:27 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.minike.top/Article/details/2484109317.shtml)
+- 2026-06-29 18:24 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/51993811.shtml)
+- 2026-06-29 18:41 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/80880987.shtml)
+- 2026-06-29 18:18 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/76500.shtml)

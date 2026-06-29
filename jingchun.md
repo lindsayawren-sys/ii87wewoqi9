@@ -1,56 +1,59 @@
-# 业绩持续下滑，贝尔生物还面临产能过剩
+# 欧盟决定对约旦河西岸暴力定居者及哈马斯相关成员实施制裁
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-体外诊断概念股贝尔生物北交所 IPO已“过会”，即将迈入 A 股资本市场。 这家主营体外诊断试剂及配套仪器的国家级专精特新“小巨人”企业，此前已有两次IPO失利记录——2020年冲创业板于2021年2月撤回，2021年转战上交所主板同样无果，此番向北交所递交上市申请已是第三次闯关。 不过，公司在北交所的上市进程同样不顺畅，2025年9月和12月因财务报告到期两次被中止审核，直至
+5月11日，欧盟成员国外长在布鲁塞尔达成共识，决定对约旦河西岸的暴力以色列定居者及哈马斯（Hamas）相关负责人实施新一轮制裁。 欧盟外交与安全政策高级代表卡娅·卡拉斯（Kaja Kallas）随后在社交媒体上表示，该制裁方案此前因匈牙利前政府的阻挠已陷入数月僵局。卡拉斯强调，“极端主义与暴力必将承担后果”，欧盟已跨越僵持阶段并开始采取实质行动。 据悉，本轮制裁对象包括3名以色
 
 ## 正文
 
-体外诊断概念股贝尔生物北交所 IPO已“过会”，即将迈入 A 股资本市场。
+5月11日，欧盟成员国外长在布鲁塞尔达成共识，决定对约旦河西岸的暴力以色列定居者及哈马斯（Hamas）相关负责人实施新一轮制裁。
 
-这家主营体外诊断试剂及配套仪器的国家级专精特新“小巨人”企业，此前已有两次IPO失利记录——2020年冲创业板于2021年2月撤回，2021年转战上交所主板同样无果，此番向北交所递交上市申请已是第三次闯关。
+欧盟外交与安全政策高级代表卡娅·卡拉斯（Kaja Kallas）随后在社交媒体上表示，该制裁方案此前因匈牙利前政府的阻挠已陷入数月僵局。
 
-不过，公司在北交所的上市进程同样不顺畅，2025年9月和12月因财务报告到期两次被中止审核，直至2026年3月恢复，5月28日才终于进入上会审议阶段。
+卡拉斯强调，“极端主义与暴力必将承担后果”，欧盟已跨越僵持阶段并开始采取实质行动。
 
-与此同时，贝尔生物的经营基本面持续承压。
+据悉，本轮制裁对象包括3名以色列定居者及4个定居者组织，具体身份及名称将于近期公布。
 
-2023年至2025年，公司营业收入分别为4.13亿元、3.76亿元和3.36亿元。
+欧洲多国政府此前多次就约旦河西岸针对巴勒斯坦人的暴力事件激增表示严重关切。
 
-业绩波动 过去几年，贝尔生物营业收入持续下滑，从2023年的4.13亿元降至2024年的3.76亿元，再降至2025年的3.36亿元，降幅分别为9.08%和10.59%。
+针对欧盟的制裁决定，以色列外交部长吉德翁·萨尔（Gideon Saar）表达了强烈反对。
 
-尤其2025年上半年收入同比下降33.18%，扣非归母净利润更是下降57.18%，尽管第四季度业绩有所回升，但全年颓势难掩。
+他指责欧盟此举是“基于政治视角的武断行为”，缺乏事实依据。
 
-贝尔生物将业绩波动归因于外部客观因素，尤其是呼吸道传染病的流行周期。
+萨尔重申，以色列坚决拒绝欧盟将以色列公民与哈马斯成员进行“道德对等”的比较，并称这种做法完全扭曲了事实。
 
 ## 相关推荐
 
-- 2026-06-29 18:27 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 18:09 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 18:23 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 18:15 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 18:31 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 18:26 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 18:33 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 18:07 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-29 18:10 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 18:28 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 18:33 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 18:29 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 18:21 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 18:24 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 18:14 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 18:14 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 18:29 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 18:40 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 18:27 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 18:31 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 18:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 18:38 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 18:35 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:10 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/1168783.shtml)
-- 2026-06-29 18:16 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/80489970406.shtml)
-- 2026-06-29 18:19 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/6813735167.shtml)
-- 2026-06-29 18:17 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.kurohicncr.top/Article/details/422660030.shtml)
-- 2026-06-29 18:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/113657970456.shtml)
-- 2026-06-29 18:33 - [逆天祖国人](http://www.blog.minike.top/Article/details/24569799.shtml)
-- 2026-06-29 18:18 - [小说《无悔追踪》翻红](http://www.share.minike.top/Article/details/9617850.shtml)
-- 2026-06-29 18:23 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/3969706689.shtml)
-- 2026-06-29 18:15 - [挪威王储妃长子两次强奸获刑](http://www.share.minike.top/Article/details/716552.shtml)
-- 2026-06-29 18:28 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/71365201.shtml)
-- 2026-06-29 18:19 - [两老人多次到一洗车店泼粪](http://www.share.kurohicncr.top/Article/details/667508708.shtml)
-- 2026-06-29 18:07 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/46310334.shtml)
-- 2026-06-29 18:13 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/50037170674.shtml)
-- 2026-06-29 18:10 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/1098887768.shtml)
-- 2026-06-29 18:18 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/311424296021.shtml)
+- 2026-06-29 18:16 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/944437535.shtml)
+- 2026-06-29 18:20 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/093810218555.shtml)
+- 2026-06-29 18:23 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/513619.shtml)
+- 2026-06-29 18:29 - [95后小伙突然确诊癌症 医生提醒](https://www.share.minike.top/Article/details/2017572359.shtml)
+- 2026-06-29 18:26 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/6454099.shtml)
+- 2026-06-29 18:35 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/973310.shtml)
+- 2026-06-29 18:36 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/201661.shtml)
+- 2026-06-29 18:25 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/39269350.shtml)
+- 2026-06-29 18:38 - [千与千寻](https://www.blog.minike.top/Article/details/93873.shtml)
+- 2026-06-29 18:41 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/00224.shtml)
+- 2026-06-29 18:36 - [V8](http://www.blog.minike.top/Article/details/10969050359.shtml)
+- 2026-06-29 18:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/45253370054.shtml)
+- 2026-06-29 18:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/2898755.shtml)
+- 2026-06-29 18:12 - [毒液2](http://www.blog.minike.top/Article/details/69738.shtml)
+- 2026-06-29 18:15 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/0781140409.shtml)

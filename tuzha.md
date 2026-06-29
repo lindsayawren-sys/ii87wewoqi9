@@ -1,56 +1,54 @@
-# 宁盐高速高邮湖特大桥跨淮河入江水道连续梁全线贯通 项目建设提速冲刺
+# 拖欠稿费超一年惹怒媒体后，东风猛士开始打款了
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网南京5月30日电(张帅 胡苗苗)29日，宁盐高速高邮湖特大桥跨淮河入江水道五跨连续梁右幅中跨顺利合龙，打通大桥运梁、架梁关键通道，为后续桥面施工及项目全线通车打下坚实基础。 高邮湖特大桥全长8.8公里，由中铁七局承建，是宁盐高速全线最长、施工难度最大的控制性工程。大桥跨越水域、湿地、航道等多重地段，存在地质条件复杂、环保及防洪管控严苛、现场作业难度大等难题，且桥梁上部结构
+新浪科技讯 5月9日下午消息，东风猛士及其代理公司迪思拖欠媒体稿费一事有了新进展。今日，有媒体人晒出截图显示，目前东风猛士和迪思已开始准备向部分拖欠稿费的媒体人打款。称为加强合规管理，会通过云账户平台进行支付，部分媒体人已被要求提供云账户信息。 此前，车圈朵教主Dora等多位车圈媒体人发布信息称，去年东风猛士M817的上市发布会群近日被解散，原因是群内多位媒体讨要车马费。“才发
 
 ## 正文
 
-中新网南京5月30日电(张帅 胡苗苗)29日，宁盐高速高邮湖特大桥跨淮河入江水道五跨连续梁右幅中跨顺利合龙，打通大桥运梁、架梁关键通道，为后续桥面施工及项目全线通车打下坚实基础。
+新浪科技讯 5月9日下午消息，东风猛士及其代理公司迪思拖欠媒体稿费一事有了新进展。
 
-高邮湖特大桥全长8.8公里，由中铁七局承建，是宁盐高速全线最长、施工难度最大的控制性工程。
+今日，有媒体人晒出截图显示，目前东风猛士和迪思已开始准备向部分拖欠稿费的媒体人打款。
 
-大桥跨越水域、湿地、航道等多重地段，存在地质条件复杂、环保及防洪管控严苛、现场作业难度大等难题，且桥梁上部结构形式多元，施工节点多、工序交叉干扰大，施工组织压力突出。
+称为加强合规管理，会通过云账户平台进行支付，部分媒体人已被要求提供云账户信息。
 
-本次合龙桥段采用五跨连续梁结构，相比传统三跨连续梁，合龙工序更复杂，精度管控要求更高，全程需毫米级施工把控。
+此前，车圈朵教主Dora等多位车圈媒体人发布信息称，去年东风猛士M817的上市发布会群近日被解散，原因是群内多位媒体讨要车马费。
 
-项目团队优化施工方案，全程监测挂篮及梁体施工数据，联合多方开展线形测算，严守质量安全关口，最终圆满完成高精度合龙作业。
+“才发现猛士去年所有的车马费稿费，分文未付，如今猛士品牌也没人出面来管这烂摊子，代理公司迪思更是用官方话术一拖再拖。
 
-宁盐高速是江苏省高速公路规划网“六纵十横十五射”中的“射三”，路线起于南京绕越高速，途经南京六合，扬州仪征、高邮，泰州兴化，止于盐靖高速，总里程约126公里，按双向六车道、设计时速120公里标准建设。
+” 资料显示，猛士M817是东风汽车旗下的一款硬派新能源SUV，于2025年7月预售、8月正式上市，官方指导价为31.99-34.99万元。
 
-(完)
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 18:07 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 18:09 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 18:10 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 18:10 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 18:22 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 18:25 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 18:19 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 18:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 18:32 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 18:22 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 18:12 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 18:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 18:12 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 18:24 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 18:36 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 18:31 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 18:24 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 18:18 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-29 18:28 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 18:24 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 18:34 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:08 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/86947458112.shtml)
-- 2026-06-29 18:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/86819279.shtml)
-- 2026-06-29 18:32 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.minike.top/Article/details/57880.shtml)
-- 2026-06-29 18:24 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/11808730261.shtml)
-- 2026-06-29 18:08 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/88041203273.shtml)
-- 2026-06-29 18:15 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/134103478980.shtml)
-- 2026-06-29 18:29 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/7563808.shtml)
-- 2026-06-29 18:15 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/016608.shtml)
-- 2026-06-29 18:09 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/09501098898.shtml)
-- 2026-06-29 18:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/4267095097.shtml)
-- 2026-06-29 18:28 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/51214356765.shtml)
-- 2026-06-29 18:35 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/445653750.shtml)
-- 2026-06-29 18:14 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/581936.shtml)
-- 2026-06-29 18:08 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/1376626533.shtml)
-- 2026-06-29 18:25 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/216422.shtml)
+- 2026-06-29 18:38 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.minike.top/Article/details/767874938478.shtml)
+- 2026-06-29 18:18 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/5054568491.shtml)
+- 2026-06-29 18:21 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/85049.shtml)
+- 2026-06-29 18:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/38138594539.shtml)
+- 2026-06-29 18:41 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/031767902.shtml)
+- 2026-06-29 18:23 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/71041146268.shtml)
+- 2026-06-29 18:38 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/975089.shtml)
+- 2026-06-29 18:24 - [滚石就音乐人屠颖去世事件发声明](https://www.share.kurohicncr.top/Article/details/54024831601.shtml)
+- 2026-06-29 18:12 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/5241490.shtml)
+- 2026-06-29 18:12 - [周生如故](http://www.blog.kurohicncr.top/Article/details/517252639323.shtml)
+- 2026-06-29 18:14 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/09585.shtml)
+- 2026-06-29 18:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/528148646.shtml)
+- 2026-06-29 18:33 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/71669.shtml)
+- 2026-06-29 18:15 - [大马同意延长马航370残骸搜寻工作](https://www.share.minike.top/Article/details/11439189.shtml)
+- 2026-06-29 18:30 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/7317720.shtml)

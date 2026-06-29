@@ -1,60 +1,54 @@
-# 中方：保护主义只会损害欧洲消费者利益，削弱欧洲产业竞争力
+# 3年培训18万人次 重庆首个养老服务职业技能专项方案发布
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网北京5月29日电 (记者 李京泽)外交部发言人毛宁29日主持例行记者会。 有记者提问：欧盟委员会今天举行一场会议，预计会上将推出一些措施，以保护欧洲工业免受来自中国竞争的冲击。中方对此有何评论？ 毛宁：中欧经贸关系的本质是互利共赢，中方从不刻意追求对欧洲的贸易顺差。保护主义只会损害欧洲消费者的利益，削弱欧洲产业的竞争力。我们希望欧方全面、客观地看待中欧经贸关系，恪守自由贸
+中新网重庆5月11日电 (记者 钟旖)技能照亮前程·康养高技能人才培训基地发展大会日前在重庆举行。 记者从会上获悉，大会发布了重庆市首个养老服务领域的职业技能提升专项方案——《重庆市养老服务职业技能提升行动实施方案》(以下简称《方案》)，明确了2026至2028年三年行动目标，并提出实施七大重点任务、27条具体措施，同时量化了14项核心指标。 《方案》提出，重庆将在3年时间里累
 
 ## 正文
 
-中新网北京5月29日电 (记者 李京泽)外交部发言人毛宁29日主持例行记者会。
+中新网重庆5月11日电 (记者 钟旖)技能照亮前程·康养高技能人才培训基地发展大会日前在重庆举行。
 
-有记者提问：欧盟委员会今天举行一场会议，预计会上将推出一些措施，以保护欧洲工业免受来自中国竞争的冲击。
+记者从会上获悉，大会发布了重庆市首个养老服务领域的职业技能提升专项方案——《重庆市养老服务职业技能提升行动实施方案》(以下简称《方案》)，明确了2026至2028年三年行动目标，并提出实施七大重点任务、27条具体措施，同时量化了14项核心指标。
 
-中方对此有何评论？
+《方案》提出，重庆将在3年时间里累计完成18万人次的养老服务技能培训、技能评价13万人次，培训总体就业率稳定在70%以上，到2028年底全市养老服务机构从业人员持证率达到80%以上，着力打造一支数量充足、结构合理、德技兼备的养老服务人才队伍，为该市养老服务业高质量发展提供坚实人才支撑与技能保障。
 
-毛宁：中欧经贸关系的本质是互利共赢，中方从不刻意追求对欧洲的贸易顺差。
+《方案》的出台，标志着重庆市养老服务技能人才培养工作进入系统化、规范化推进的新阶段。
 
-保护主义只会损害欧洲消费者的利益，削弱欧洲产业的竞争力。
+同期，重庆、海南、浙江、河南、云南、陕西、江苏等七省市国家康养高技能人才培训基地共同发布《康养高技能人才培训基地高质量发展倡议》，倡议各方围绕标准共建、师资共享、人才共育等方面加强协作，推动形成全国康养技能人才培养协同发展新格局。
 
-我们希望欧方全面、客观地看待中欧经贸关系，恪守自由贸易承诺。
+重庆市人力社保局党组书记黄艺表示，重庆将以大会为媒，加强交流合作，联动优质资源，激发政产学研用协同发展的乘数效应，推动康养产业与医疗、文旅、体育、科技等深度融合，以人才为本，完善培训补贴、师资培育、技能评价等政策措施，以基地为引，深化“人才+康养”融合发展模式，打造康养高技能人才产教评生态园区，携手照亮技能人才的美好前程。
 
-中方也在密切关注有关动向，将采取必要措施维护自身的正当权益。
-
-(完）
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:27 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 18:21 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 18:35 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 18:26 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 18:33 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 18:29 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 18:26 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 18:16 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 18:16 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 18:06 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 18:28 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 18:11 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 18:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 18:06 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 18:13 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 18:23 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 18:33 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 18:12 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 18:31 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 18:12 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 18:37 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 18:41 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 18:27 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 18:41 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:14 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/221649126197.shtml)
-- 2026-06-29 18:09 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/314948.shtml)
-- 2026-06-29 18:21 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/370399.shtml)
-- 2026-06-29 18:14 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/08829682.shtml)
-- 2026-06-29 18:20 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/231543387.shtml)
-- 2026-06-29 18:07 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/8112417209.shtml)
-- 2026-06-29 18:13 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/571226649.shtml)
-- 2026-06-29 18:22 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/515507.shtml)
-- 2026-06-29 18:25 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/4017922.shtml)
-- 2026-06-29 18:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/18460761667.shtml)
-- 2026-06-29 18:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/3075325575.shtml)
-- 2026-06-29 18:18 - [当我回母校教书](https://www.blog.minike.top/Article/details/37782.shtml)
-- 2026-06-29 18:30 - [税务总局披露5起合规申报个税案例](http://www.share.minike.top/Article/details/896541590190.shtml)
-- 2026-06-29 18:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/046111226.shtml)
-- 2026-06-29 18:13 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/0209385361.shtml)
+- 2026-06-29 18:18 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/0937439716.shtml)
+- 2026-06-29 18:22 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/69971732.shtml)
+- 2026-06-29 18:13 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/7323299.shtml)
+- 2026-06-29 18:19 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/394832713414.shtml)
+- 2026-06-29 18:12 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/49085881.shtml)
+- 2026-06-29 18:39 - [青春环游记第三季](https://www.share.minike.top/Article/details/92165338.shtml)
+- 2026-06-29 18:17 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/919800391.shtml)
+- 2026-06-29 18:37 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/640806108.shtml)
+- 2026-06-29 18:40 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/45358146.shtml)
+- 2026-06-29 18:16 - [5万块的威力](https://www.share.minike.top/Article/details/34811886.shtml)
+- 2026-06-29 18:19 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/87446853722.shtml)
+- 2026-06-29 18:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/713834084605.shtml)
+- 2026-06-29 18:18 - [TFING全员黑西装](https://www.share.minike.top/Article/details/02969753.shtml)
+- 2026-06-29 18:23 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/4624115.shtml)
+- 2026-06-29 18:41 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/1262379.shtml)

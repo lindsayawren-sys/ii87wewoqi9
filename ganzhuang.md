@@ -1,56 +1,56 @@
-# 印尼强化自然资源出口管控 6月起由指定国企统一出口
+# “一口价”黄金激战国贸，定价模式掀行业变局
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新社雅加达5月31日电 (记者 李志全)印度尼西亚政府进一步强化自然资源出口管控，从6月1日起，棕榈油、煤炭和铁合金三类战略性资源商品出口将统一通过政府指定国有企业进行管理。 印尼经济统筹部长艾尔朗加在5月31日举行的新闻发布会上表示，政府设立印尼达南塔拉资源公司作为战略性自然资源商品的唯一出口商，旨在通过“单一窗口”机制加强国家出口监管与治理。 根据规定，自2026年6月1
+当金价持续高位震荡，传统按克计价的黄金首饰遭遇寒流，北京国贸商圈却悄然上演了一场百米之内的黄金品牌“贴身战”。近日，米瑞欧、京匠黄金两大新品牌相继完成北京首秀，以“一口价”模式将黄金克价拉升至2000元甚至更高区间。定价黄金热潮背后，究竟是短期风口还是行业变局？ 4月，两家新黄金品牌在国贸相继开业且比邻而居。 多家“一口价”黄金首店落子国贸 近日，国贸商圈接连落地两家“一口价”
 
 ## 正文
 
-中新社雅加达5月31日电 (记者 李志全)印度尼西亚政府进一步强化自然资源出口管控，从6月1日起，棕榈油、煤炭和铁合金三类战略性资源商品出口将统一通过政府指定国有企业进行管理。
+当金价持续高位震荡，传统按克计价的黄金首饰遭遇寒流，北京国贸商圈却悄然上演了一场百米之内的黄金品牌“贴身战”。
 
-印尼经济统筹部长艾尔朗加在5月31日举行的新闻发布会上表示，政府设立印尼达南塔拉资源公司作为战略性自然资源商品的唯一出口商，旨在通过“单一窗口”机制加强国家出口监管与治理。
+近日，米瑞欧、京匠黄金两大新品牌相继完成北京首秀，以“一口价”模式将黄金克价拉升至2000元甚至更高区间。
 
-根据规定，自2026年6月1日起，首批纳入政策范围的棕榈油、煤炭及铁合金三类商品的出口须通过上述国企统一进行。
+定价黄金热潮背后，究竟是短期风口还是行业变局？
 
-该政策将设置至2026年12月31日的过渡期，并于2027年1月1日起全面实施。
+4月，两家新黄金品牌在国贸相继开业且比邻而居。
 
-艾尔朗加表示，新政策有望提升印尼自然资源出口数据的透明度与真实性，防止低报发票金额、转移定价以及出口外汇流失等问题。
+多家“一口价”黄金首店落子国贸 近日，国贸商圈接连落地两家“一口价”黄金品牌北京首店。
 
-2025年，上述三类商品出口总额达661.3亿美元，占印尼全国出口总额的23.4%。
+9日下午，记者走进开业不久的京匠黄金，该店定位“东方高奢黄金”，全场实行“一口价”。
 
-印尼总统普拉博沃日前宣布，为加强自然资源管理并优化国家税收，印尼将集中管理棕榈油、煤炭及铁合金等关键资源的出口，要求此类出口必须通过政府指定的国有企业进行。
+一款京匠游园系列的蕾丝花盘吊坠，克重约7.5克，标价接近两万元；一款约14克的镶钻葫芦吊坠售价约3.9万元，每克价格超2700元，克价远超传统品牌。
 
-这并非印尼首次对资源类产品实施出口管制。
+记者注意到，店内首饰主打黄金搭配红宝石的设计，所有标签均按件定价，同时也标注克重和宝石规格。
 
 ## 相关推荐
 
-- 2026-06-29 18:18 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 18:13 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 18:29 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 18:16 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 18:11 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 18:26 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 18:21 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 18:28 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 18:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 18:22 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 18:28 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 18:21 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 18:36 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 18:41 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 18:38 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 18:25 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 18:12 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 18:20 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 18:23 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 18:25 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:16 - [普京承认俄出现燃料危机](https://www.share.kurohicncr.top/Article/details/3660936.shtml)
-- 2026-06-29 18:30 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/81284.shtml)
-- 2026-06-29 18:33 - [沙丘](http://www.blog.minike.top/Article/details/659990741.shtml)
-- 2026-06-29 18:13 - [德国医生在没有空调的手术室工作](http://www.share.kurohicncr.top/Article/details/006973825769.shtml)
-- 2026-06-29 18:15 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/76579.shtml)
-- 2026-06-29 18:22 - [韩国队出局是因为内讧吗](https://www.blog.minike.top/Article/details/96984774.shtml)
-- 2026-06-29 18:12 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/6474712.shtml)
-- 2026-06-29 18:32 - [媒体：听清自己内心的声音再填志愿](https://www.share.minike.top/Article/details/1330875037.shtml)
-- 2026-06-29 18:21 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.minike.top/Article/details/2965685557.shtml)
-- 2026-06-29 18:18 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/7025736.shtml)
-- 2026-06-29 18:28 - [首个靠AI躺赢的国家](https://www.share.kurohicncr.top/Article/details/57801.shtml)
-- 2026-06-29 18:19 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/74715180.shtml)
-- 2026-06-29 18:24 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/9928787.shtml)
-- 2026-06-29 18:29 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/505509948859.shtml)
-- 2026-06-29 18:19 - [一生一世](https://www.blog.minike.top/Article/details/08282569.shtml)
+- 2026-06-29 18:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/3527755393.shtml)
+- 2026-06-29 18:30 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/8705525.shtml)
+- 2026-06-29 18:15 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/30940931744.shtml)
+- 2026-06-29 18:23 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/076649392699.shtml)
+- 2026-06-29 18:30 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/9119630.shtml)
+- 2026-06-29 18:28 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/170270735074.shtml)
+- 2026-06-29 18:13 - [周生如故](https://www.blog.kurohicncr.top/Article/details/293013.shtml)
+- 2026-06-29 18:16 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/019169843187.shtml)
+- 2026-06-29 18:14 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/760103.shtml)
+- 2026-06-29 18:32 - [天道](http://www.share.minike.top/Article/details/4905045.shtml)
+- 2026-06-29 18:32 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/18863189.shtml)
+- 2026-06-29 18:14 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/8928945711.shtml)
+- 2026-06-29 18:37 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/1953095.shtml)
+- 2026-06-29 18:29 - [沙丘](https://www.blog.kurohicncr.top/Article/details/587912.shtml)
+- 2026-06-29 18:19 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/524574107.shtml)

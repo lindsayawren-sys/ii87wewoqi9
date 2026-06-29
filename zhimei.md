@@ -1,56 +1,60 @@
-# 澳门学子走进琼海：在行走中厚植家国情怀
+# 美联储高官：AI成了会加息，AI败了会滞胀！
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网海南琼海5月29日电 (记者 符宇群)走进红色娘子军纪念园感悟革命精神、在中国(海南)南海博物馆探秘南海文明、在博鳌亚洲论坛永久会址感受开放氛围……由中央政府驻澳门联络办公室、澳门特别行政区政府联合组织的澳门青少年国家安全主题参访游学团28日走进海南省琼海市，为澳门学子认识祖国风貌提供全新视角。 在红色娘子军纪念园，珍贵的历史照片、厚重的革命实物、一幕幕的实景场景复原，生
+芝加哥联储主席对AI生产率叙事提出质疑，挑战特朗普政府及美联储候任主席的降息逻辑。 周五芝加哥联储行长Austan Goolsbee警告，人工智能生产率的广泛预期本身就可能推升利率。一旦这场技术革命令人失望，结果可能更糟：滞胀。 Goolsbee在斯坦福大学胡佛研究所年度货币政策会议上发言时表示，“炒作越大，隐患越大。” 他引用芝加哥联储调查数据称，经济学家、科技从业者和普通公
 
 ## 正文
 
-中新网海南琼海5月29日电 (记者 符宇群)走进红色娘子军纪念园感悟革命精神、在中国(海南)南海博物馆探秘南海文明、在博鳌亚洲论坛永久会址感受开放氛围……由中央政府驻澳门联络办公室、澳门特别行政区政府联合组织的澳门青少年国家安全主题参访游学团28日走进海南省琼海市，为澳门学子认识祖国风貌提供全新视角。
+芝加哥联储主席对AI生产率叙事提出质疑，挑战特朗普政府及美联储候任主席的降息逻辑。
 
-在红色娘子军纪念园，珍贵的历史照片、厚重的革命实物、一幕幕的实景场景复原，生动展现海南红色娘子军扎根海岛、不畏牺牲、保家卫国的峥嵘岁月。
+周五芝加哥联储行长Austan Goolsbee警告，人工智能生产率的广泛预期本身就可能推升利率。
 
-现场，全体学子齐声唱响经典红歌《万泉河水清又清》，共同缅怀巾帼先烈。
+一旦这场技术革命令人失望，结果可能更糟：滞胀。
 
-“红色娘子为家国拼搏，是女性抗争史上熠熠生辉的光辉典范。
+Goolsbee在斯坦福大学胡佛研究所年度货币政策会议上发言时表示，“炒作越大，隐患越大。
 
-”澳门理工大学大一学生傅琰婻表示，“和平岁月来之不易，我们更当赓续红色血脉，汲取奋进力量，不负青春、不负家国。
+” 他引用芝加哥联储调查数据称，经济学家、科技从业者和普通公众均预期未来十年每年，将额外获得约一个百分点的生产率增长。
 
-” 在中国(海南)南海博物馆，澳门濠江中学高二学生洪羽熙在一件件文物前驻足细看。
+这种普遍预期反而构成经济过热的风险。
 
-“一件件历经岁月洗礼的出水文物，镌刻着先民深耕南海、扬帆远航的千年足迹。
+而这番表态挑战了即将接任美联储主席的沃什及特朗普政府力推的“AI驱动降息”叙事。
 
-南海自然生态与岛礁风貌的详实展示，也让我对这片蓝色国土有了更加立体、具象的深刻认知。
+据报道，沃什有望于周一获参议院批准，出任第17任美联储主席。
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 18:24 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 18:13 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 18:09 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 18:30 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 18:22 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 18:15 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 18:35 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 18:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 18:35 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 18:26 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 18:15 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 18:14 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 18:21 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 18:38 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 18:41 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 18:21 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 18:40 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 18:15 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 18:15 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 18:23 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 18:17 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 18:36 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 18:38 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:31 - [博主：AI泡沫必须破灭](http://www.share.minike.top/Article/details/88684299914.shtml)
-- 2026-06-29 18:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/60752.shtml)
-- 2026-06-29 18:22 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/98609374.shtml)
-- 2026-06-29 18:24 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/808957226.shtml)
-- 2026-06-29 18:33 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/44168348122.shtml)
-- 2026-06-29 18:13 - [绘画区你赢了](http://www.blog.minike.top/Article/details/72053212771.shtml)
-- 2026-06-29 18:28 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/009551110947.shtml)
-- 2026-06-29 18:20 - [李在镕：计划将光州作为芯片生产基地](http://www.share.kurohicncr.top/Article/details/992549649730.shtml)
-- 2026-06-29 18:18 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/54272589.shtml)
-- 2026-06-29 18:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/39175070059.shtml)
-- 2026-06-29 18:19 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/736554750320.shtml)
-- 2026-06-29 18:36 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/4922529764.shtml)
-- 2026-06-29 18:10 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.kurohicncr.top/Article/details/97291854965.shtml)
-- 2026-06-29 18:27 - [周生如故](http://www.blog.minike.top/Article/details/09809780297.shtml)
-- 2026-06-29 18:25 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/5735373291.shtml)
+- 2026-06-29 18:35 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.kurohicncr.top/Article/details/9030418534.shtml)
+- 2026-06-29 18:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/4418359.shtml)
+- 2026-06-29 18:34 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/745772571.shtml)
+- 2026-06-29 18:32 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/68068654.shtml)
+- 2026-06-29 18:22 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/909022.shtml)
+- 2026-06-29 18:20 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/83551.shtml)
+- 2026-06-29 18:39 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/540112480872.shtml)
+- 2026-06-29 18:14 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/27426.shtml)
+- 2026-06-29 18:37 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/56264621.shtml)
+- 2026-06-29 18:13 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/29801374065.shtml)
+- 2026-06-29 18:19 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/80141385787.shtml)
+- 2026-06-29 18:38 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/873370681372.shtml)
+- 2026-06-29 18:36 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/068462726330.shtml)
+- 2026-06-29 18:24 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/99524315.shtml)
+- 2026-06-29 18:33 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/84629440.shtml)

@@ -1,50 +1,60 @@
-# 法国和西班牙通胀加速 为欧洲央行加息提供数据支撑
+# 英国国民医疗服务体系将授予Palantir承包商“无限制访问”患者数据的权限
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-法国和西班牙通胀率升至2024年以来最高水平，为欧洲央行加息提供进一步理由。 周五数据显示，因战争推动能源成本飙升，法国5月份消费者价格指数同比上涨2.8%，涨幅略低于市场预期；西班牙该指数同比上涨3.6%，涨幅与预期一致。 欧元区主要经济体通胀数据将密集公布，将有助于欧洲央行官员判断中东冲突推高通胀的程度，以及是否需要做出应对。 美国总统特朗普对伊朗发动军事行动三个月以来，从
+英格兰国民医疗服务体系（NHS England）已允许包括Palantir在内的公司外部员工，在其旗舰数据平台的部分模块工作时，无限制访问可识别身份的患者数据。 一份内部简报显示，涉及国家数据集成租户（National Data Integration Tenant， NDIT）——该模块被定义为数据在“假名化”并传输至其他系统前的“数据避风港”。 NDIT隶属于联合数据平台（
 
 ## 正文
 
-法国和西班牙通胀率升至2024年以来最高水平，为欧洲央行加息提供进一步理由。
+英格兰国民医疗服务体系（NHS England）已允许包括Palantir在内的公司外部员工，在其旗舰数据平台的部分模块工作时，无限制访问可识别身份的患者数据。
 
-周五数据显示，因战争推动能源成本飙升，法国5月份消费者价格指数同比上涨2.8%，涨幅略低于市场预期；西班牙该指数同比上涨3.6%，涨幅与预期一致。
+一份内部简报显示，涉及国家数据集成租户（National Data Integration Tenant， NDIT）——该模块被定义为数据在“假名化”并传输至其他系统前的“数据避风港”。
 
-欧元区主要经济体通胀数据将密集公布，将有助于欧洲央行官员判断中东冲突推高通胀的程度，以及是否需要做出应对。
+NDIT隶属于联合数据平台（Federated Data Platform， FDP）。
 
-美国总统特朗普对伊朗发动军事行动三个月以来，从鹰派的执行委员会成员Isabel Schnabel，到鸽派的首席经济学家Philip Lane，欧洲央行政策制定者在释放信号，称借贷成本很可能需要自2023年以来首次上调。
+FDP旨在将NHS分散的数据整合至统一系统；2023年，Palantir赢得价值3.3亿英镑的合同，负责搭建该平台。
 
-责任编辑：江学思
+根据该计划，英格兰NHS同意设立一个“管理员”角色。
+
+简报中承认，这一角色“允许非英格兰NHS员工无限制访问NDIT及其存储的可识别患者信息”。
+
+除Palantir员工外，参与FDP项目的咨询公司员工也可能获得此类权限。
+
+此举与现行做法存在重大差异：此前，任何需访问NDIT的人员，必须针对特定数据集申请明确的数据访问权限。
 
 ## 相关推荐
 
-- 2026-06-29 18:07 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 18:21 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 18:24 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 18:32 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 18:35 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 18:34 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 18:16 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 18:28 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 18:33 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 18:18 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 18:28 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 18:28 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 18:30 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 18:12 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 18:31 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 18:32 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 18:26 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 18:25 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 18:24 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 18:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 18:34 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 18:31 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 18:19 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 18:33 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:06 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/78277533266.shtml)
-- 2026-06-29 18:22 - [铜价上涨 日本住宅水表失窃严重](https://www.share.kurohicncr.top/Article/details/6160237727.shtml)
-- 2026-06-29 18:29 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/224034.shtml)
-- 2026-06-29 18:30 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/735704352.shtml)
-- 2026-06-29 18:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/11291258.shtml)
-- 2026-06-29 18:29 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/01221448.shtml)
-- 2026-06-29 18:16 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/4568593.shtml)
-- 2026-06-29 18:26 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/52492543479.shtml)
-- 2026-06-29 18:22 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/3751635546.shtml)
-- 2026-06-29 18:19 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/0519900025.shtml)
-- 2026-06-29 18:13 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/3523657734.shtml)
-- 2026-06-29 18:19 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/73800.shtml)
-- 2026-06-29 18:26 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/8179501900.shtml)
-- 2026-06-29 18:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/55658154698.shtml)
-- 2026-06-29 18:22 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/77602674.shtml)
+- 2026-06-29 18:18 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/0066194.shtml)
+- 2026-06-29 18:40 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/13770581806.shtml)
+- 2026-06-29 18:16 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/19150270956.shtml)
+- 2026-06-29 18:21 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/433345845943.shtml)
+- 2026-06-29 18:24 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/101051.shtml)
+- 2026-06-29 18:19 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/5230125.shtml)
+- 2026-06-29 18:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/742272.shtml)
+- 2026-06-29 18:37 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/763032.shtml)
+- 2026-06-29 18:35 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/5095940701.shtml)
+- 2026-06-29 18:32 - [美人鱼](https://www.blog.minike.top/Article/details/252194982051.shtml)
+- 2026-06-29 18:25 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/083190767720.shtml)
+- 2026-06-29 18:14 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/94722.shtml)
+- 2026-06-29 18:40 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/5895533.shtml)
+- 2026-06-29 18:32 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/52919740.shtml)
+- 2026-06-29 18:25 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/39289943947.shtml)

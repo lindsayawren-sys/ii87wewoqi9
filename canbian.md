@@ -1,61 +1,60 @@
-# 深夜，全线大涨！美联储，重磅来袭！
+# 中小银行再掀“降息”潮，存款利率下行趋势延续
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！美股AI交易热潮持续升温。 今晚（5月29日），美股开盘后，三大指数集体走强，半导体、存储芯片、服务器、应用软件等全线大涨，多家巨头股价创历史新高。有分析人士指出，AI（人工智能）驱动的上涨正在推动美股不断创出历史新高，而美伊达成停火协议的预期进一步提振涨势。 与此同时，目前市场高度关注美联储后续的货币政策
+又一轮银行存款利率下调潮悄然来临。5月以来，多家中小银行密集发布公告，下调人民币存款产品利率，调整范围覆盖通知存款、定期存款等主要品种 。 5月11日起，西安高陵阳光村镇银行调整人民币储蓄存款挂牌利率。调整后，该行定期存款三个月、半年期、一年期、二年期、三年期、五年期利率分别为1.10%、1.30%、1.60%、1.65%、1.80%、1.80%。与2025年12月相比，一年期
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+又一轮银行存款利率下调潮悄然来临。
 
-美股AI交易热潮持续升温。
+5月以来，多家中小银行密集发布公告，下调人民币存款产品利率，调整范围覆盖通知存款、定期存款等主要品种 。
 
-今晚（5月29日），美股开盘后，三大指数集体走强，半导体、存储芯片、服务器、应用软件等全线大涨，多家巨头股价创历史新高。
+5月11日起，西安高陵阳光村镇银行调整人民币储蓄存款挂牌利率。
 
-有分析人士指出，AI（人工智能）驱动的上涨正在推动美股不断创出历史新高，而美伊达成停火协议的预期进一步提振涨势。
+调整后，该行定期存款三个月、半年期、一年期、二年期、三年期、五年期利率分别为1.10%、1.30%、1.60%、1.65%、1.80%、1.80%。
 
-与此同时，目前市场高度关注美联储后续的货币政策路径。
+与2025年12月相比，一年期存款利率下降15个基点，五年期下降5个基点。
 
-美联储副主席米歇尔·鲍曼在最新的讲话中表示，现在判断伊朗冲突对通胀的影响还为时过早，政策制定者需要忽略暂时性的价格冲击，需要谨慎应对能源供应冲击。
+值得关注的是，该行通知存款调整幅度更为明显——一天通知存款利率降至0.55%，较此前下降40个基点；七天通知存款利率降至0.85%，降幅达50个基点 。
 
-美股全线上涨 北京时间5月29日晚间，美股开盘后，三大指数集体拉升，截至22：10，道指涨0.4%，纳指涨0.4%，标普500指数涨0.35%，均创出历史新高。
+湖南三湘银行近日发布公告表示，该行计划于5月8日对人民币存款产品利率进行调整。
 
-美股大型科技股多数走强，博通大涨超4%，微软大涨超3%，英伟达涨超1%，苹果、台积电ADR小幅走高；谷歌A、特斯拉、Meta跌超1%，亚马逊小幅下挫。
+其中，三年定期存款、一天通知存款分别为1.95%、0.60%，相比2025年5月公示的存款利率分别下降了10BP、20BP。
 
 ## 相关推荐
 
-- 2026-06-29 18:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 18:16 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 18:16 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 18:14 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 18:20 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 18:27 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 18:13 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 18:30 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 18:36 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 18:19 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 18:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 18:33 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 18:21 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 18:25 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 18:35 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 18:31 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 18:38 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 18:21 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 18:32 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 18:16 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 18:29 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 18:22 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 18:33 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 18:30 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 18:25 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 18:16 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 18:20 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 18:39 - [永远有话聊的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 18:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:17 - [金刚川](https://www.share.minike.top/Article/details/58049951525.shtml)
-- 2026-06-29 18:24 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/281567.shtml)
-- 2026-06-29 18:08 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/16487882.shtml)
-- 2026-06-29 18:06 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/6153156033.shtml)
-- 2026-06-29 18:08 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/7837163780.shtml)
-- 2026-06-29 18:33 - [啊啊啊](https://www.blog.minike.top/Article/details/6189889.shtml)
-- 2026-06-29 18:28 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/280507035.shtml)
-- 2026-06-29 18:19 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/694146449370.shtml)
-- 2026-06-29 18:08 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.minike.top/Article/details/274104.shtml)
-- 2026-06-29 18:16 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/7734949913.shtml)
-- 2026-06-29 18:06 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/5620500.shtml)
-- 2026-06-29 18:33 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/8471048229.shtml)
-- 2026-06-29 18:09 - [恋与深空客服的回应](http://www.share.minike.top/Article/details/63225251.shtml)
-- 2026-06-29 18:35 - [和周杰伦在演唱会合唱了](http://www.blog.minike.top/Article/details/21261291006.shtml)
-- 2026-06-29 18:15 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/43359363.shtml)
+- 2026-06-29 18:16 - [勇敢的心第二部](http://www.share.minike.top/Article/details/827098.shtml)
+- 2026-06-29 18:24 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/990157911.shtml)
+- 2026-06-29 18:24 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/679170.shtml)
+- 2026-06-29 18:36 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/92927352.shtml)
+- 2026-06-29 18:13 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/096678.shtml)
+- 2026-06-29 18:41 - [一见倾心](http://www.blog.minike.top/Article/details/64626.shtml)
+- 2026-06-29 18:26 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/864658317.shtml)
+- 2026-06-29 18:18 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.blog.kurohicncr.top/Article/details/225681545903.shtml)
+- 2026-06-29 18:12 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/02102.shtml)
+- 2026-06-29 18:33 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/029319.shtml)
+- 2026-06-29 18:40 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/730450556849.shtml)
+- 2026-06-29 18:36 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/106440932.shtml)
+- 2026-06-29 18:25 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/2916592933.shtml)
+- 2026-06-29 18:24 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/1803661.shtml)
+- 2026-06-29 18:18 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/7160386871.shtml)

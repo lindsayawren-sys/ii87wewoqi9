@@ -1,61 +1,57 @@
-# 儿童节银行“卷”起来！有专属存款利率比普通定存高30BP
+# 油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-“六一”还没到，银行先“卷”起来了。 近期，多地城农商行发力营销少儿专属存款产品，这些产品年化利率通常较普通定期存款产品高出10BP至30BP不等。此外，一些银行还借儿童节由头，营销所谓理财产品、保险产品、贵金属产品等。 受访专家认为，银行对“小客户”专属定期存款产品利率有特别“优待”，本质上是通过略高的利率作为敲门砖，实质是支付一笔低廉的“长期获客广告费”。家长在挑选儿童金融
+来源：汇通网 汇通财经APP讯——周一（5月11日），亚欧时段，国际油价走出大幅高开之后冲高回落走势，特朗普释放对伊朗大幅不满情绪，国际油价大幅高开，但随后市场继续保持乐观情绪，亚洲股市整体上涨，油价走出冲高回落。 当地时间5月10日，美国总统特朗普在其社交平台“真实社交”上发布内容称，自己刚刚读完了伊朗方面那些所谓“代表”发来的答复，他对这份答复很不满意，直言“这份回应完全让
 
 ## 正文
 
-“六一”还没到，银行先“卷”起来了。
+来源：汇通网 汇通财经APP讯——周一（5月11日），亚欧时段，国际油价走出大幅高开之后冲高回落走势，特朗普释放对伊朗大幅不满情绪，国际油价大幅高开，但随后市场继续保持乐观情绪，亚洲股市整体上涨，油价走出冲高回落。
 
-近期，多地城农商行发力营销少儿专属存款产品，这些产品年化利率通常较普通定期存款产品高出10BP至30BP不等。
+当地时间5月10日，美国总统特朗普在其社交平台“真实社交”上发布内容称，自己刚刚读完了伊朗方面那些所谓“代表”发来的答复，他对这份答复很不满意，直言“这份回应完全让人无法接受”。
 
-此外，一些银行还借儿童节由头，营销所谓理财产品、保险产品、贵金属产品等。
+特朗普同时指责伊朗伊斯兰共和国成立47年来，一直在“拖延”“戏弄”美国及其他国家，并重批前总统奥巴马和拜登的对伊政策，称奥巴马是“冤大头”，拜登的表现更糟。
 
-受访专家认为，银行对“小客户”专属定期存款产品利率有特别“优待”，本质上是通过略高的利率作为敲门砖，实质是支付一笔低廉的“长期获客广告费”。
+市场目前仍然集体押注和谈前景，于是大的利空消息所产生的资产回撤都成了资本市场的买点。
 
-家长在挑选儿童金融产品时，要严守安全底线，警惕将高风险基金包装成儿童专属产品的营销话术。
+近期交火与海上博弈雷声大雨点小 地缘对峙的升级已体现在近期持续升温的军事冲突中。
 
-同时，要优先选择那些附带财商课程、成长记账功能或能让孩子参与决策的产品，让资金管理过程成为孩子理解金钱价值的实践课。
+自2月28日美以联合发动军事打击以来，伊朗及其武装盟友已通过无人机实施数百次跨境打击。
 
-银行借“六一”营销儿童专属存款产品 六一儿童节将至，银行纷纷发力营销少儿专属存款产品。
+近期，卡塔尔周边海域一艘商船遭无人机袭击引发火情，阿联酋、科威特相继通报无人机非法闯入领空，阿联酋击落两架无人机并指认伊朗为袭击源头。
 
-南都湾财社记者查询发现，这些银行以城商行和农商行为主。
+海上封锁与反封锁的博弈同样激烈，美军自4月13日起对伊朗港口实施封锁，累计拦截61艘民用商船，本月上旬还精准打击了两艘试图突破封锁的伊朗油轮； 伊朗则长期封锁霍尔木兹海峡，并警告任何针对其船舶的袭击都将招致对美军基地及敌方舰船的饱和式反击。
 
 ## 相关推荐
 
-- 2026-06-29 18:24 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 18:28 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 18:10 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 18:27 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 18:20 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 18:26 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 18:35 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 18:12 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 18:20 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 18:20 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 18:35 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 18:35 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 18:16 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 18:17 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 18:08 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 18:21 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 18:13 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 18:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 18:23 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 18:27 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 18:28 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 18:31 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 18:37 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 18:30 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 18:21 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 18:15 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:13 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.minike.top/Article/details/23123038.shtml)
-- 2026-06-29 18:12 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/809625324.shtml)
-- 2026-06-29 18:20 - [普京承认俄出现燃料危机](http://www.blog.minike.top/Article/details/49901.shtml)
-- 2026-06-29 18:31 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/7427685694.shtml)
-- 2026-06-29 18:15 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.kurohicncr.top/Article/details/57913.shtml)
-- 2026-06-29 18:16 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/74173972.shtml)
-- 2026-06-29 18:09 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/842662.shtml)
-- 2026-06-29 18:09 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/3880039841.shtml)
-- 2026-06-29 18:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/345851264.shtml)
-- 2026-06-29 18:29 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.minike.top/Article/details/6159010215.shtml)
-- 2026-06-29 18:08 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.kurohicncr.top/Article/details/6216750.shtml)
-- 2026-06-29 18:08 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.kurohicncr.top/Article/details/2390630737.shtml)
-- 2026-06-29 18:34 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/12565690.shtml)
-- 2026-06-29 18:07 - [叠纸](http://www.blog.minike.top/Article/details/03636.shtml)
-- 2026-06-29 18:09 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.minike.top/Article/details/54892147.shtml)
+- 2026-06-29 18:28 - [起风了](http://www.blog.kurohicncr.top/Article/details/60351307660.shtml)
+- 2026-06-29 18:33 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/31740.shtml)
+- 2026-06-29 18:36 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/16271523427.shtml)
+- 2026-06-29 18:36 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/20017.shtml)
+- 2026-06-29 18:17 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/55105699734.shtml)
+- 2026-06-29 18:30 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/081549.shtml)
+- 2026-06-29 18:21 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.minike.top/Article/details/98366786.shtml)
+- 2026-06-29 18:13 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/9663578404.shtml)
+- 2026-06-29 18:38 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/8400562.shtml)
+- 2026-06-29 18:40 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/001855894.shtml)
+- 2026-06-29 18:29 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/953008986740.shtml)
+- 2026-06-29 18:17 - [四川达州发生一起交通事故致2死](http://www.blog.kurohicncr.top/Article/details/20154507783.shtml)
+- 2026-06-29 18:30 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/0517624665.shtml)
+- 2026-06-29 18:30 - [断骨增高灰产拉一人提成1.5万元](http://www.share.kurohicncr.top/Article/details/299674985350.shtml)
+- 2026-06-29 18:32 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/082244507706.shtml)

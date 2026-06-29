@@ -1,57 +1,56 @@
-# 中越两省省委书记寄语两国青年代表：当好民心相通的青春使者
+# 央行：继续实施好适度宽松的货币政策 坚决守住不发生系统性金融风险的底线
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网昆明5月30日电 (罗婕)29日，中国云南省与越南莱州老街宣光奠边省省委书记年度会晤机制第六次会议在昆明举办。会议期间，五省省委书记集体会见参加“红色研学之旅”的中越青年代表。 此次，200余名来自中越五省的青年代表在云南进行为期6天的研学，通过专题讲座、实地考察、互动交流等形式，探寻中越友好的红色基因，全方位感受中国式现代化万千气象。 会见现场，云南省委书记王宁寄语中越
+2026年第一季度中国货币政策执行报告 内容摘要 今年以来，在以习近平同志为核心的党中央坚强领导下，国民经济起步有力，主要指标好于预期，彰显强大韧性和活力。一季度国内生产总值（GDP）同比增长5%。中国人民银行坚持以习近平新时代中国特色社会主义思想为指导，坚决落实党中央、国务院决策部署，继续实施适度宽松的货币政策，发挥存量政策与增量政策集成效应，强化逆周期和跨周期调节，为经济持
 
 ## 正文
 
-中新网昆明5月30日电 (罗婕)29日，中国云南省与越南莱州老街宣光奠边省省委书记年度会晤机制第六次会议在昆明举办。
+2026年第一季度中国货币政策执行报告 内容摘要 今年以来，在以习近平同志为核心的党中央坚强领导下，国民经济起步有力，主要指标好于预期，彰显强大韧性和活力。
 
-会议期间，五省省委书记集体会见参加“红色研学之旅”的中越青年代表。
+一季度国内生产总值（GDP）同比增长5%。
 
-此次，200余名来自中越五省的青年代表在云南进行为期6天的研学，通过专题讲座、实地考察、互动交流等形式，探寻中越友好的红色基因，全方位感受中国式现代化万千气象。
+中国人民银行坚持以习近平新时代中国特色社会主义思想为指导，坚决落实党中央、国务院决策部署，继续实施适度宽松的货币政策，发挥存量政策与增量政策集成效应，强化逆周期和跨周期调节，为经济持续向好向优创造适宜的货币金融环境。
 
-会见现场，云南省委书记王宁寄语中越青年，要“为两国社会主义事业和构建具有战略意义的中越命运共同体贡献青春力量。
+一是保持社会融资条件处于宽松状态，金融总量合理增长。
 
-”他希望，各位青年朋友在云南收获一段理想信念之旅、文化交流之旅、携手筑梦之旅，当好中越民心相通的青年使者，在开放发展中携手共进、在互利共赢中实现梦想。
+综合运用逆回购、中期借贷便利、国债买卖操作等多种货币政策工具，保持流动性充裕。
 
-越南莱州省委书记黎明银希望广大青年发挥开拓进取、创新奉献的精神，积极学习研讨，掌握科学知识，加强文化学术交流，为推动各自国家和地方建设发展、实现越中世代友好作出积极贡献。
+引导金融机构信贷均衡投放，充分满足实体经济有效信贷需求。
 
-两国青年代表分别发言，表示要传承红色基因、深化青年友谊。
+二是推动社会综合融资成本低位运行。
 
-中国青年代表戚潇说，“在这次研学活动中，我们一起在红色溯源中感悟初心。
+下调结构性货币政策工具利率0.25个百分点，持续释放贷款市场报价利率（LPR）改革效能，有效发挥存款利率市场化调整机制作用。
 
 ## 相关推荐
 
-- 2026-06-29 18:29 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 18:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 18:33 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 18:12 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 18:30 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 18:29 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 18:14 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-29 18:33 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 18:26 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 18:27 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 18:07 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 18:38 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 18:41 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 18:41 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 18:21 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 18:31 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 18:16 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 18:18 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 18:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 18:23 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 18:40 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:06 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/0776437329.shtml)
-- 2026-06-29 18:20 - [美国大满贯首日国乒主力均取胜](http://www.blog.minike.top/Article/details/09580727.shtml)
-- 2026-06-29 18:07 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/93127585.shtml)
-- 2026-06-29 18:06 - [逃狱兄弟](http://www.share.minike.top/Article/details/713578.shtml)
-- 2026-06-29 18:24 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/890681856.shtml)
-- 2026-06-29 18:34 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/671868379.shtml)
-- 2026-06-29 18:27 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/01221.shtml)
-- 2026-06-29 18:30 - [人类对空调和其他家电有多双标](http://www.blog.minike.top/Article/details/6349507.shtml)
-- 2026-06-29 18:17 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/5417753.shtml)
-- 2026-06-29 18:30 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/4345778.shtml)
-- 2026-06-29 18:13 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/39077.shtml)
-- 2026-06-29 18:16 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.kurohicncr.top/Article/details/652256710851.shtml)
-- 2026-06-29 18:22 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/51974883310.shtml)
-- 2026-06-29 18:11 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/104949.shtml)
-- 2026-06-29 18:08 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/442165712910.shtml)
+- 2026-06-29 18:41 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/298616637427.shtml)
+- 2026-06-29 18:38 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/500200.shtml)
+- 2026-06-29 18:33 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/196250.shtml)
+- 2026-06-29 18:17 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/393600657882.shtml)
+- 2026-06-29 18:35 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/8315770.shtml)
+- 2026-06-29 18:14 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/57057.shtml)
+- 2026-06-29 18:15 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/615041605941.shtml)
+- 2026-06-29 18:36 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/59767912.shtml)
+- 2026-06-29 18:13 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/2277645.shtml)
+- 2026-06-29 18:20 - [德国医生在没有空调的手术室工作](http://www.blog.kurohicncr.top/Article/details/28100740852.shtml)
+- 2026-06-29 18:22 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/13439289.shtml)
+- 2026-06-29 18:14 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/308745874.shtml)
+- 2026-06-29 18:13 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/3845165144.shtml)
+- 2026-06-29 18:12 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/736149470.shtml)
+- 2026-06-29 18:38 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/62728.shtml)

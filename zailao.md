@@ -1,56 +1,61 @@
-# 易事特（300376）股民索赔再提交法院立案，已有获赔及胜诉，还在时效
+# 海内外信众齐聚“妈祖故里”湄洲岛 共庆妈祖诞辰1066周年
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-2026年5月28日，上海久诚律师事务所股票索赔律师许峰代理的易事特（维权）（300376）虚假陈述引发的投资者索赔案再向法院提交一次立案。（许峰律师专栏） 许峰律师提示，易事特投资者索赔案已有胜诉判决，此前部分投资者收到赔偿款，已经获赔到位。许峰律师代理的易事特投资者索赔案部分达成调解，已有调解获赔。律师团队同步还在推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（
+还想用“双标定价”收割中国市场？国际足联该看看这些前车之鉴北方热力加码！今年首轮高温过程来袭，之后要一直热下去了吗？一纸侨批寄深情 《给阿嬷的情书》出圈带来何种启示？一文速览俄罗斯胜利日红场阅兵：五大看点，一个变化美国黄牛半夜笑醒？有世界杯决赛三层门票标价1150万美元网购常规扣款变“贷款” 支付捆绑乱象如何整治？为啥越来越多的人开始追求“活人感”？为什么有些人更容易上当？与学
 
 ## 正文
 
-2026年5月28日，上海久诚律师事务所股票索赔律师许峰代理的易事特（维权）（300376）虚假陈述引发的投资者索赔案再向法院提交一次立案。
+还想用“双标定价”收割中国市场？
 
-（许峰律师专栏） 许峰律师提示，易事特投资者索赔案已有胜诉判决，此前部分投资者收到赔偿款，已经获赔到位。
+国际足联该看看这些前车之鉴北方热力加码！
 
-许峰律师代理的易事特投资者索赔案部分达成调解，已有调解获赔。
+今年首轮高温过程来袭，之后要一直热下去了吗？
 
-律师团队同步还在推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+一纸侨批寄深情 《给阿嬷的情书》出圈带来何种启示？
 
-（易事特维权入口） 2024年12月31日晚，易事特公告收到证监会《行政处罚决定书》，经查明，当事人存在以下违法事实： 一、易事特通过开展虚假贸易业务虚增营业收入、营业成本、利润总额。
+一文速览俄罗斯胜利日红场阅兵：五大看点，一个变化美国黄牛半夜笑醒？
 
-二、易事特通过开展具有融资性质的代采业务和代理业务虚增营业收入、营业成本。
+有世界杯决赛三层门票标价1150万美元网购常规扣款变“贷款” 支付捆绑乱象如何整治？
 
-三、易事特通过开展具有融资性质的数据中心集成业务虚增营业收入、营业成本。
+为啥越来越多的人开始追求“活人感”？
 
-综上，易事特通过上述不具有商业实质的虚假贸易业务、融资性代采业务、代理业务和数据中心集成业务虚增营业收入、营业成本、利润总额，导致易事特披露的2017年至2021年年度报告存在虚假记载。
+为什么有些人更容易上当？
 
 ## 相关推荐
 
-- 2026-06-29 18:35 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 18:30 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 18:35 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 18:09 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 18:12 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 18:33 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 18:16 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 18:34 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 18:15 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 18:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 18:35 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 18:29 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 18:36 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 18:24 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 18:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 18:25 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 18:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 18:28 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 18:16 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 18:28 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 18:36 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 18:24 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 18:36 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 18:17 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 18:33 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/3951165149.shtml)
-- 2026-06-29 18:07 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/5656287.shtml)
-- 2026-06-29 18:34 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.kurohicncr.top/Article/details/393373208657.shtml)
-- 2026-06-29 18:14 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/33102835.shtml)
-- 2026-06-29 18:33 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/59431180231.shtml)
-- 2026-06-29 18:25 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/8115736.shtml)
-- 2026-06-29 18:24 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.kurohicncr.top/Article/details/3047633.shtml)
-- 2026-06-29 18:09 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/94009.shtml)
-- 2026-06-29 18:28 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/506245.shtml)
-- 2026-06-29 18:11 - [湖南耒阳“轮椅女孩”高考546分](https://www.share.kurohicncr.top/Article/details/10929307635.shtml)
-- 2026-06-29 18:20 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/854633849.shtml)
-- 2026-06-29 18:12 - [周生如故](https://www.share.minike.top/Article/details/9916571004.shtml)
-- 2026-06-29 18:14 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/19086200.shtml)
-- 2026-06-29 18:28 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.minike.top/Article/details/90874825710.shtml)
-- 2026-06-29 18:21 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/664532930.shtml)
+- 2026-06-29 18:29 - [铜价上涨 日本住宅水表失窃严重](https://www.share.kurohicncr.top/Article/details/966965.shtml)
+- 2026-06-29 18:16 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/9458547.shtml)
+- 2026-06-29 18:20 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/924273.shtml)
+- 2026-06-29 18:36 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/99088237203.shtml)
+- 2026-06-29 18:34 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/20563742148.shtml)
+- 2026-06-29 18:27 - [和周杰伦在演唱会合唱了](http://www.share.minike.top/Article/details/96736082149.shtml)
+- 2026-06-29 18:18 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/94360.shtml)
+- 2026-06-29 18:21 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/179559140.shtml)
+- 2026-06-29 18:36 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/653371.shtml)
+- 2026-06-29 18:36 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/65529063945.shtml)
+- 2026-06-29 18:23 - [女心理师](https://www.share.kurohicncr.top/Article/details/043170.shtml)
+- 2026-06-29 18:27 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/2494502290.shtml)
+- 2026-06-29 18:37 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/917422903172.shtml)
+- 2026-06-29 18:12 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/9122267.shtml)
+- 2026-06-29 18:20 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.kurohicncr.top/Article/details/21051.shtml)

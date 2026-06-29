@@ -1,57 +1,51 @@
-# 西安银行第一大股东罕见弃权利润分配预案
+# 河北石家庄通报“一社区卫生服务站存有过期药品”
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-来源：今日行长 作者 | 时也运也 编辑 | 顾柠 业绩领跑，分红垫底，西北地区资产规模最大的城商行走出罕见“剪刀差”。 2025年，西安银行实现营收99.66亿元，同比大增21.68%，创下2016年以来增幅新高，2026年一季度营收增速更攀升至41.54%；但营收“快车道”下分红却是另一番模样，西安银行2025年度利润分配预案现金分红比例降至16.77%，在42家A股上市银
+中新网5月10日电 据“石家庄裕华发布”微信公众号消息，河北石家庄裕华区联合调查组发布情况通报称，近日，针对群众反映栗水清苑社区卫生服务站存有过期药品等问题，我区已成立由市场监管、卫健、公安等部门组成的联合调查组进行调查。 该社区卫生服务站为民办非企业单位，市场监管部门已对现场发现的过期药品依法查扣，卫健部门已责令该社区卫生服务站暂停执业活动。联合调查组将根据调查结果，依法依规
 
 ## 正文
 
-来源：今日行长 作者 | 时也运也 编辑 | 顾柠 业绩领跑，分红垫底，西北地区资产规模最大的城商行走出罕见“剪刀差”。
+中新网5月10日电 据“石家庄裕华发布”微信公众号消息，河北石家庄裕华区联合调查组发布情况通报称，近日，针对群众反映栗水清苑社区卫生服务站存有过期药品等问题，我区已成立由市场监管、卫健、公安等部门组成的联合调查组进行调查。
 
-2025年，西安银行实现营收99.66亿元，同比大增21.68%，创下2016年以来增幅新高，2026年一季度营收增速更攀升至41.54%；但营收“快车道”下分红却是另一番模样，西安银行2025年度利润分配预案现金分红比例降至16.77%，在42家A股上市银行中排名倒数第二，仅优于重回不分红的郑州银行。
+该社区卫生服务站为民办非企业单位，市场监管部门已对现场发现的过期药品依法查扣，卫健部门已责令该社区卫生服务站暂停执业活动。
 
-营收与分红的背离走势，最早在净利润端就已经显现出端倪。
-
-高营收增长并没有同步转化为同等幅度的利润增长——2025年、2026年一季度末，西安银行归母净利润仅分别同比增长3.57%、6.16%，增速远远落后于同期营收增速，这种错配直接压缩了可供股东分配的利润空间。
-
-值得一提的是，西安银行5月22日的召开2025年度股东会上，《2025年度利润分配预案》虽然通过，但同样因分红方案分歧罕见出现大股东巨额弃权，弃权持股占比高达29.96%，对应股数达8.05亿股．．． 西安银行16.77%分红比例垫底A股上市行，大股东罕见弃权表态 因分红分歧，西安银行大股东丰业银行自2004年入股西安银行以来，首次在分红议案上表达异议。
-
-2026年5月22日，西安银行召开2025年度股东大会，共审议9项议案，其中8项以超98%的同意票获得通过，然而，《西安银行股份有限公司2025年度利润分配预案》却遭29.96%股东弃权，其中持股5%以上普通股股东弃权票数804771000票，与第一大股东加拿大丰业银行的持股数量恰好一致。
-
-为什么8.05亿股的弃权票，只针对利润分配预案？
-
-事实上，丰业银行曾对西安银行的分红方案表达过分歧意见。
+联合调查组将根据调查结果，依法依规严肃处理。
 
 ## 相关推荐
 
-- 2026-06-29 18:09 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 18:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 18:10 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 18:24 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 18:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 18:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 18:12 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 18:18 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 18:34 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 18:12 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 18:12 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 18:26 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 18:22 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 18:35 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 18:24 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 18:15 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 18:14 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 18:39 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 18:34 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 18:34 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 18:19 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 18:26 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 18:39 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 18:18 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 18:33 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 18:23 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:10 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.minike.top/Article/details/340733226591.shtml)
-- 2026-06-29 18:31 - [普京承认俄出现燃料危机](http://www.blog.kurohicncr.top/Article/details/0195494.shtml)
-- 2026-06-29 18:26 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/953069242830.shtml)
-- 2026-06-29 18:31 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/4314514.shtml)
-- 2026-06-29 18:06 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/059540.shtml)
-- 2026-06-29 18:20 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/52824469737.shtml)
-- 2026-06-29 18:35 - [第一炉香](http://www.share.minike.top/Article/details/794233114.shtml)
-- 2026-06-29 18:13 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/56370208277.shtml)
-- 2026-06-29 18:11 - [和周杰伦在演唱会合唱了](https://www.blog.kurohicncr.top/Article/details/46120367.shtml)
-- 2026-06-29 18:16 - [沙丘](https://www.blog.minike.top/Article/details/073759.shtml)
-- 2026-06-29 18:17 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/89613881.shtml)
-- 2026-06-29 18:07 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/10603.shtml)
-- 2026-06-29 18:20 - [波兰创该国高温纪录](https://www.share.minike.top/Article/details/926462501401.shtml)
-- 2026-06-29 18:12 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/236083055972.shtml)
-- 2026-06-29 18:30 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/99092.shtml)
+- 2026-06-29 18:22 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/54765.shtml)
+- 2026-06-29 18:21 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/568463326262.shtml)
+- 2026-06-29 18:19 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/436789.shtml)
+- 2026-06-29 18:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/091288537554.shtml)
+- 2026-06-29 18:33 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/039540.shtml)
+- 2026-06-29 18:18 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/87334.shtml)
+- 2026-06-29 18:38 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/7319464.shtml)
+- 2026-06-29 18:20 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/8700929002.shtml)
+- 2026-06-29 18:24 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/249461107.shtml)
+- 2026-06-29 18:16 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/03938.shtml)
+- 2026-06-29 18:37 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/95476.shtml)
+- 2026-06-29 18:30 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.minike.top/Article/details/8581815.shtml)
+- 2026-06-29 18:13 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/8430442418.shtml)
+- 2026-06-29 18:26 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/3066886590.shtml)
+- 2026-06-29 18:12 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/59462196.shtml)

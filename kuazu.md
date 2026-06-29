@@ -1,44 +1,58 @@
-# 中通快递-W于5月28日斥资499.33万美元回购22.39万股
+# 两岸信众福建福鼎共祭妈祖：盼常来常往越走越近
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中通快递-W（02057）发布公告，于2026年5月28日，该公司斥资499.33万美元回购22.39万股股份，每股回购价22.18-22.57美元。责任编辑：卢昱君
+中新网宁德5月9日电 (易吓清)由福鼎市妈祖文化交流协会和台湾新港奉天宫主办的2026丙午年鼎台妈祖信俗文化交流活动，9日在福建省宁德福鼎市举行，两岸信众同心祈福、共叙情谊。 妈祖文化是两岸民间交流的重要纽带。目前，全世界50个国家和地区共有上万座妈祖宫庙，有3亿多人信仰妈祖。“妈祖文化是刻在我们血脉里的共同记忆，更是连接两岸同胞的无形桥梁。”台胞王先生说，此次来到福鼎参与交流
 
 ## 正文
 
-中通快递-W（02057）发布公告，于2026年5月28日，该公司斥资499.33万美元回购22.39万股股份，每股回购价22.18-22.57美元。
+中新网宁德5月9日电 (易吓清)由福鼎市妈祖文化交流协会和台湾新港奉天宫主办的2026丙午年鼎台妈祖信俗文化交流活动，9日在福建省宁德福鼎市举行，两岸信众同心祈福、共叙情谊。
 
-责任编辑：卢昱君
+妈祖文化是两岸民间交流的重要纽带。
+
+目前，全世界50个国家和地区共有上万座妈祖宫庙，有3亿多人信仰妈祖。
+
+“妈祖文化是刻在我们血脉里的共同记忆，更是连接两岸同胞的无形桥梁。
+
+”台胞王先生说，此次来到福鼎参与交流活动，每一处都能感受到同胞的热忱，体会到两岸同胞血浓于水的亲情。
+
+当天，前岐天后宫广场礼乐齐鸣，两岸信众身着传统服饰，依序完成上香、诵读疏文、三跪九叩等仪程，祈愿国泰民安、两岸和睦。
+
+随后，妈祖神舆沿集镇主干道巡游，沿途民众驻足瞻仰祈福。
+
+台胞王先生说，鼎台两地妈祖信俗同根同源、一脉相承，期盼未来两地能持续深化文化交流，让两岸同胞常来常往、越走越近，携手把这份珍贵的妈祖文化传承好、弘扬好。
 
 ## 相关推荐
 
-- 2026-06-29 18:19 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 18:11 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 18:26 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 18:20 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 18:08 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 18:06 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 18:12 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 18:22 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 18:35 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 18:08 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 18:42 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 18:38 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 18:20 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 18:25 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 18:25 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 18:35 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 18:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 18:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 18:24 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 18:12 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 18:21 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 18:13 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:09 - [大马同意延长马航370残骸搜寻工作](http://www.blog.minike.top/Article/details/443293621.shtml)
-- 2026-06-29 18:28 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/611979.shtml)
-- 2026-06-29 18:30 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/47161.shtml)
-- 2026-06-29 18:14 - [女心理师](http://www.blog.kurohicncr.top/Article/details/184276.shtml)
-- 2026-06-29 18:30 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/9437034.shtml)
-- 2026-06-29 18:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/952916.shtml)
-- 2026-06-29 18:09 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/511264598.shtml)
-- 2026-06-29 18:31 - [章若楠包场白敬亭特立独行](https://www.share.minike.top/Article/details/68692.shtml)
-- 2026-06-29 18:19 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/1973886553.shtml)
-- 2026-06-29 18:06 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/321846.shtml)
-- 2026-06-29 18:13 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/16759878917.shtml)
-- 2026-06-29 18:31 - [四川达州发生一起交通事故致2死](http://www.blog.kurohicncr.top/Article/details/392124.shtml)
-- 2026-06-29 18:12 - [四川地震前夕 街头电线上站满燕子](http://www.share.kurohicncr.top/Article/details/2378001943.shtml)
-- 2026-06-29 18:11 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/4875533544.shtml)
-- 2026-06-29 18:33 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/10882.shtml)
+- 2026-06-29 18:38 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/155248267112.shtml)
+- 2026-06-29 18:38 - [中方向委方追加1亿元援助](https://www.share.minike.top/Article/details/02348.shtml)
+- 2026-06-29 18:37 - [绘画区你赢了](http://www.share.minike.top/Article/details/9893543.shtml)
+- 2026-06-29 18:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/5373264.shtml)
+- 2026-06-29 18:31 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/903751296288.shtml)
+- 2026-06-29 18:41 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/43767465.shtml)
+- 2026-06-29 18:36 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/1787195.shtml)
+- 2026-06-29 18:22 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/08923.shtml)
+- 2026-06-29 18:20 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/8914778079.shtml)
+- 2026-06-29 18:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/942506647.shtml)
+- 2026-06-29 18:38 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/614693965587.shtml)
+- 2026-06-29 18:27 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/354248.shtml)
+- 2026-06-29 18:36 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/763542.shtml)
+- 2026-06-29 18:34 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/7589851299.shtml)
+- 2026-06-29 18:20 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/0244496190.shtml)

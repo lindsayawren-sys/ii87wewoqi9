@@ -1,52 +1,47 @@
-# 截至4月底我国5G基站总数超500万个
+# 中美联合侦破跨国走私贩毒案 抓获5名嫌疑人
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：工业和信息化部数据显示，今年前4个月，通信业整体运行平稳，5G、千兆光网等网络基础设施建设持续推进，移动互联网接入流量较快增长。截至4月末，100兆及以上接入速率的固定互联网宽带接入用户已占总用户数的95.5%；千兆用户规模持续扩张，达到2.53亿户。5G网络建设持续推进，用户数快速增长。截至4月末，5G基站总数达500.9万个，占移动基站总数的38.7
+4月初，中国公安部禁毒局和美国司法部缉毒署成功联合侦破郭某等人走私贩毒案，同步在中国辽宁、广东，美国佛罗里达州、内华达州等地开展收网行动，共抓获涉案犯罪嫌疑人5名(中国籍2名、美国籍3名)，缴获丙托尼秦、波玛唑仑等一批毒品，成功切断一条跨中美两国的走私贩毒通道。该案的成功侦破，是中美禁毒执法部门深化务实合作的又一重大战果，彰显了两国共同严厉打击毒品违法犯罪活动的决心。 (总台央
 
 ## 正文
 
-央视网消息(新闻联播)：工业和信息化部数据显示，今年前4个月，通信业整体运行平稳，5G、千兆光网等网络基础设施建设持续推进，移动互联网接入流量较快增长。
+4月初，中国公安部禁毒局和美国司法部缉毒署成功联合侦破郭某等人走私贩毒案，同步在中国辽宁、广东，美国佛罗里达州、内华达州等地开展收网行动，共抓获涉案犯罪嫌疑人5名(中国籍2名、美国籍3名)，缴获丙托尼秦、波玛唑仑等一批毒品，成功切断一条跨中美两国的走私贩毒通道。
 
-截至4月末，100兆及以上接入速率的固定互联网宽带接入用户已占总用户数的95.5%；千兆用户规模持续扩张，达到2.53亿户。
+该案的成功侦破，是中美禁毒执法部门深化务实合作的又一重大战果，彰显了两国共同严厉打击毒品违法犯罪活动的决心。
 
-5G网络建设持续推进，用户数快速增长。
-
-截至4月末，5G基站总数达500.9万个，占移动基站总数的38.7%；5G移动电话用户占移动电话用户的68.7%。
-
-移动互联网累计流量达1420亿GB，同比增长18.5%。
+(总台央视记者 陈昱)
 
 ## 相关推荐
 
-- 2026-06-29 18:28 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 18:24 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 18:15 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 18:23 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 18:16 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 18:16 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 18:29 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 18:22 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 18:07 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 18:13 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 18:30 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 18:17 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 18:31 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 18:29 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 18:31 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 18:41 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 18:36 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 18:26 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 18:30 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 18:17 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 18:14 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 18:19 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 18:25 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/73545532.shtml)
-- 2026-06-29 18:12 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/981357705.shtml)
-- 2026-06-29 18:23 - [女生每天戴耳机18小时突发耳聋](https://www.share.minike.top/Article/details/66531.shtml)
-- 2026-06-29 18:30 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/9081910.shtml)
-- 2026-06-29 18:24 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/52786.shtml)
-- 2026-06-29 18:06 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/84370.shtml)
-- 2026-06-29 18:22 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/91579.shtml)
-- 2026-06-29 18:13 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/7322728.shtml)
-- 2026-06-29 18:23 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/2326045.shtml)
-- 2026-06-29 18:10 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/386835654.shtml)
-- 2026-06-29 18:13 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/37429469.shtml)
-- 2026-06-29 18:19 - [美国大满贯首日国乒主力均取胜](http://www.blog.minike.top/Article/details/25717.shtml)
-- 2026-06-29 18:22 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/710924749338.shtml)
-- 2026-06-29 18:25 - [扫黑风暴](http://www.share.minike.top/Article/details/14495217.shtml)
-- 2026-06-29 18:34 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/359316565797.shtml)
+- 2026-06-29 18:16 - [章若楠包场白敬亭特立独行](http://www.share.minike.top/Article/details/419855141138.shtml)
+- 2026-06-29 18:36 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/18616519685.shtml)
+- 2026-06-29 18:21 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/871125.shtml)
+- 2026-06-29 18:32 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/365532260.shtml)
+- 2026-06-29 18:22 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/6673771143.shtml)
+- 2026-06-29 18:25 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/34504.shtml)
+- 2026-06-29 18:34 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/46673.shtml)
+- 2026-06-29 18:40 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/130220.shtml)
+- 2026-06-29 18:31 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/90383116401.shtml)
+- 2026-06-29 18:41 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/86843823258.shtml)
+- 2026-06-29 18:12 - [恋与深空各大应用商店评分](http://www.share.kurohicncr.top/Article/details/54114607.shtml)
+- 2026-06-29 18:13 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/965179.shtml)
+- 2026-06-29 18:31 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/8318341550.shtml)
+- 2026-06-29 18:28 - [蔚来回应车漆洗车时被冲掉](https://www.share.minike.top/Article/details/066243533.shtml)
+- 2026-06-29 18:20 - [章若楠包场白敬亭特立独行](http://www.blog.kurohicncr.top/Article/details/35157016064.shtml)

@@ -1,60 +1,56 @@
-# 广东公安开展“除险3号”行动 严查三类重点车辆违法行为
+# 操盘必读：影响股市利好或利空消息_2026年5月11日_财经新闻
 
-> 更新时间：2026-06-29 18:36:02 UTC+8
+> 更新时间：2026-06-29 18:42:02 UTC+8
 
 ## 摘要
 
-中新网广州5月29日电 (记者 方伟彬)广东省公安厅29日发布消息，即日起至6月30日，在该省范围内开展道路交通事故预防“除险3号”专项行动，集中整治大客车、面包车、大货车“三超一疲劳”及非法营运等违法行为。 为筑牢道路交通安全防线，5月28日，广东省公安厅召开视频会议，部署这一行动。截至目前，全省已查处三类重点车辆交通违法行为3360起；刑事立案6宗，刑拘5人；移送非法营运行
+登录新浪财经APP 搜索【信披】查看更多考评等级 影响股市利好与利空消息 宏观新闻 1、商务部新闻发言人就中美经贸磋商有关问题答记者问表示，经中美双方商定，中共中央政治局委员、国务院副总理何立峰将于5月12日—13日率团赴韩国与美方举行经贸磋商。双方将以两国元首釜山会晤及历次通话重要共识为引领，就彼此关心的经贸问题开展磋商。 2、中国驻加尔各答总领事馆5月9日微信公众号发文：近
 
 ## 正文
 
-中新网广州5月29日电 (记者 方伟彬)广东省公安厅29日发布消息，即日起至6月30日，在该省范围内开展道路交通事故预防“除险3号”专项行动，集中整治大客车、面包车、大货车“三超一疲劳”及非法营运等违法行为。
+登录新浪财经APP 搜索【信披】查看更多考评等级 影响股市利好与利空消息 宏观新闻 1、商务部新闻发言人就中美经贸磋商有关问题答记者问表示，经中美双方商定，中共中央政治局委员、国务院副总理何立峰将于5月12日—13日率团赴韩国与美方举行经贸磋商。
 
-为筑牢道路交通安全防线，5月28日，广东省公安厅召开视频会议，部署这一行动。
+双方将以两国元首釜山会晤及历次通话重要共识为引领，就彼此关心的经贸问题开展磋商。
 
-截至目前，全省已查处三类重点车辆交通违法行为3360起；刑事立案6宗，刑拘5人；移送非法营运行政案件9宗，有效消除了肇事风险。
+2、中国驻加尔各答总领事馆5月9日微信公众号发文：近日，一名在尼泊尔的中国公民在尼泊尔、印度边境地区因误入印境内被印边防部队拘捕。
 
-行动期间，全省公安机关将对重点车辆违法线索“一盯到底、全链打击”。
+驻加尔各答总领馆再次郑重提醒，中国公民不要前往尼泊尔毗邻印边境地区。
 
-警方将聚焦高风险入省大客车及“两头不到岸”滞留车辆，重拳整治“一早一晚”超员面包车，并动态清零隐患大货车。
+3、俄罗斯总统普京当地时间5月9日举行记者会。
 
-同时，强化部门联动，对“非法营运”一律移送交通部门，对涉嫌危险驾驶罪的一律立案侦查。
+普京表示，俄乌冲突正在接近尾声。
 
-广东省公安厅还通报了多宗典型案例。
+他再次指责部分西方国家利用乌克兰作为实现其地缘政治目标的工具。
 
-5月28日，广州环城高速查获一辆核载9人、实载16人的面包车。
+4、5月10日报道，伊朗已向巴基斯坦提交对美方提议的反馈。
 
 ## 相关推荐
 
-- 2026-06-29 18:11 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 18:28 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 18:29 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 18:06 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 18:06 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 18:23 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 18:32 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 18:18 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 18:32 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 18:32 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 18:17 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 18:18 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 18:25 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 18:30 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 18:18 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 18:22 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 18:20 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 18:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 18:29 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 18:33 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 18:34 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 18:36 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 18:34 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 18:23 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:33 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/42494241327.shtml)
-- 2026-06-29 18:30 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/170248688269.shtml)
-- 2026-06-29 18:31 - [NBA交易](http://www.blog.minike.top/Article/details/55259.shtml)
-- 2026-06-29 18:21 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/360537860.shtml)
-- 2026-06-29 18:19 - [许建琼任湖南省检察院副检察长](https://www.share.minike.top/Article/details/26975772617.shtml)
-- 2026-06-29 18:28 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/797467324404.shtml)
-- 2026-06-29 18:23 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.kurohicncr.top/Article/details/32847.shtml)
-- 2026-06-29 18:16 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/145369935310.shtml)
-- 2026-06-29 18:13 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/02149.shtml)
-- 2026-06-29 18:22 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/138702.shtml)
-- 2026-06-29 18:16 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/5237117451.shtml)
-- 2026-06-29 18:18 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/023496288.shtml)
-- 2026-06-29 18:18 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/89207571.shtml)
-- 2026-06-29 18:16 - [张雪机车杀向海外](https://www.share.kurohicncr.top/Article/details/94473346048.shtml)
-- 2026-06-29 18:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/96053.shtml)
+- 2026-06-29 18:17 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/345541730383.shtml)
+- 2026-06-29 18:15 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/4447062.shtml)
+- 2026-06-29 18:40 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/017873120771.shtml)
+- 2026-06-29 18:39 - [外交部谈对日出口管制措施](http://www.share.minike.top/Article/details/816696832.shtml)
+- 2026-06-29 18:22 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/76452.shtml)
+- 2026-06-29 18:22 - [第一炉香](http://www.share.kurohicncr.top/Article/details/90103928255.shtml)
+- 2026-06-29 18:38 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/95025.shtml)
+- 2026-06-29 18:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/840639.shtml)
+- 2026-06-29 18:19 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/03120.shtml)
+- 2026-06-29 18:13 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/101388.shtml)
+- 2026-06-29 18:31 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/54767.shtml)
+- 2026-06-29 18:18 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/53266298056.shtml)
+- 2026-06-29 18:35 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/019809.shtml)
+- 2026-06-29 18:35 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/7269410.shtml)
+- 2026-06-29 18:36 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/111383.shtml)
